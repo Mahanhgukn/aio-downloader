@@ -7,6 +7,153 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/27 23:33
+---
+
+## pm_afshaa — post 90920
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_90920_1779048185.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴محسن رضایی:
+هرکسی که ضد جمهوری اسلامیه و باهاش مشکل داره، ضد ایران هم هست.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## FarsiVOA — post 218003
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_218003_1779048185.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️گزارش نرگس صبا از آتش‌افروزی‌های سپاه پس از آتش‌بس تاکنون در برنامه تفسیر خبر
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218002
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️از تنگه هرمز تا کابل‌های ارتباطی گسترش دامنه تهدیدهای جمهوری اسلامی؛ گفت‌وگو با فرزانه روستایی
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 14356
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14356_1779048186.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴دسته گل جدید نیروی هوایی ایالات متحده
+
+💢دو جنگنده F/‌A-18 نیروی دریایی آمریکا در حین اجرای یک نمایش هوایی در آیداهو در اسمان با هم برخورد کردند.
+
+💢خلبانان موفق شدند ایجکت کنند و جان سالم به در ببرند
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14355
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تا دقایقی دیگه نسخه هاست داخلی آپلود خواهد شد و لطفا اگر امکانش رو دارید نسخه صوتی رو از طریق همین اپ های پادکست بشنوید. در مصرف حجم بین تلگرام و اپ های پادکست هیچ تفاوتی نیست.
+از توجه شما به این موضوع متشکرم
+الیاس فرخ
+</div>
+
+## Persian_Trend_Official — post 14354
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نسخه صوتی لایو امشب رو از لینک های زیر بشنوید :
+
+https://open.spotify.com/episode/0WrkfsVN8KUvGUSSHYT887?si=sYOmvpJERuCureVC0TULQQ
+
+
+https://castbox.fm/vi/946274710
+</div>
+
+## RadioFarda — post 157294
+
+<div align="center">
+  <a href="https://t.me/radiofarda/157294" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📻بشنوید: خبرهای ساعت ۲۱ با رادیوفردا، ۲۷ اردیبهشت ۱۴۰۵‌
+
+@RadioFarda
+</div>
+
+## RadioFarda — post 157293
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸بزرگ‌ترین حمله اوکراین به منطقه مسکو در بیش از یک سال گذشته که در روز یکشنبه ۲۷ اردیبهشت انجام شد، سه کشته به جا گذاشت. همچنین گفته می‌شود یک نفر دیگر نیز در منطقه بلگورود، هم‌مرز با اوکراین، جان باخته است.
+
+🔸وزارت دفاع روسیه اعلام کرد که از شب گذشته تاکنون بیش از هزار پهپاد در دست‌کم ۱۲ منطقه این کشور سرنگون شده‌اند.
+
+🔸آندری وروبیوف، فرماندار منطقه مسکو، این تلفات را تأیید کرد و افزود که تیم‌های امدادی همچنان در حال جست‌وجو برای یافتن دست‌کم یک نفر دیگر در زیر آوار هستند. به گفته او، چندین برج مسکونی و تأسیسات زیربنایی در این حملات آسیب دیده‌اند.
+
+🔸این حمله تنها دو روز پس از آن رخ داد که یک موشک روسی به یک مجتمع مسکونی در کی‌یف، پایتخت اوکراین، اصابت کرد و ۲۴ نفر، از جمله سه کودک، را کشت؛ حمله‌ای که یکی از سنگین‌ترین موج‌های حملات کرملین علیه این شهر در سال جاری توصیف شده است.
+
+🔸ولودیمیر زلنسکی، رئیس‌جمهور اوکراین، در پیامی در شبکه ایکس حملات پهپادی کی‌یف را تأیید کرد و نوشت: «پاسخ‌های ما به ادامه جنگ از سوی روسیه و حملاتش به شهرها و جوامع ما کاملاً موجه است.»
+
+@RadioFarda
+</div>
+
+## manototv — post 105578
+
+<div align="center">
+  <a href="telegram/content/manototv_105578_1779048188.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+«صدای فاطمه سپهری باشیم» ـ گزارشگر
+</div>
+
+## alonews — post 120681
+
+<div align="center">
+  <a href="telegram/content/alonews_120681_1779048190.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈بقائی، سخنگوی وزارت خارجه ایران، کلیپی از فیلم The Apprentice محصول ۲۰۲۴ را منتشر کرد که بر اساس زندگی دونالد ترامپ، رئیس‌جمهور آمریکا ساخته شده است.
+
+
+🔴 در این کلیپ، روی کوهن، وکیل دادگستری، به ترامپ جوان می‌گوید: «مهم نیست چقدر کتک خورده‌ای، ادعای پیروزی کن و هرگز شکست را نپذیر. می‌خواهی برنده شوی؟ این همان راه پیروزی است.»
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120680
+
+<div align="center">
+  <a href="telegram/content/alonews_120680_1779048191.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کلش ریپورت، رسانه ترک: برخورد دو جنگنده آمریکایی به یکدیگر
+
+
+🔴دو جنگنده اف/ای ۱۸ نیروی دریایی ایالات متحده در جریان یک نمایش هوایی در ایالت آیداهو، در هوا با یکدیگر برخورد کردند.
+
+
+🔴هر چهار خلبان موفق به خروج اضطراری شدند، اما هر دو جنگنده سقوط کرده و منفجر شدند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/27 23:22
 ---
 

@@ -7,6 +7,21 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/28 07:42
+---
+
+## RadioFarda — post 157295
+
+<div align="center">
+  <a href="https://t.me/radiofarda/157295" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📻بشنوید: خبرهای ساعت ۲۱ با رادیوفردا، ۲۸ اردیبهشت ۱۴۰۵‌
+
+@RadioFarda
+</div>
+
+---
 📅 بروزرسانی: 1405/02/28 07:32
 ---
 

@@ -7,6 +7,165 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/28 23:53
+---
+
+## WithYashar — post 11594
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Voice message
+</div>
+
+## pm_afshaa — post 90993
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبرنگار آکسیوس:ترامپ از زمان شروع جنگ حداقل 12 بار ضرب الاجل ها را تمدید کرده و حملات برنامه ریزی شده به ایران را به تعویق انداخته
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 337834
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337834_1779135790.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهوری آمریکا، در تروث سوشال نوشت حمله علیه جمهوری اسلامی که برای سه‌شنبه (۲۹ اردیبهشت) برنامه‌ریزی شده بود، فعلا انجام نخواهد شد.
+او همچنین نوشت که رهبران قطر، عربستان سعودی و امارات از آمریکا خواسته‌اند فعلا از اجرای عملیات نظامی علیه جمهوری اسلامی خودداری کند.
+
+گفت‌وگو با شهرام خلدی، پژوهشگر تاریخ خاورمیانه و روابط بین‌الملل و روح‌الله رحیم‌پور، روزنامه‌نگار و تحلیل‌گر سیاسی
+@iranintltv
+</div>
+
+## IranIntlTV — post 337833
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337833_1779135791.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهوری آمریکا، در تروث سوشال نوشت حمله علیه جمهوری اسلامی که برای سه‌شنبه (۲۹ اردیبهشت) برنامه‌ریزی شده بود، فعلا انجام نخواهد شد.
+او همچنین نوشت که رهبران قطر، عربستان سعودی و امارات از آمریکا خواسته‌اند فعلا از اجرای عملیات نظامی علیه جمهوری اسلامی خودداری کند.
+
+گفت‌وگو با شهرام خلدی، پژوهشگر تاریخ خاورمیانه و روابط بین‌الملل و روح‌الله رحیم‌پور، روزنامه‌نگار و تحلیل‌گر سیاسی
+@iranintltv
+</div>
+
+## FarsiVOA — post 218091
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_218091_1779135793.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️امید معماریان در برنامه تفسیر خبر: خطای محاسباتی بزرگ مقامات جمهوری اسلامی درباره ترامپ ممکن است باعث شروع دوباره جنگ شود
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 14456
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://youtube.com/live/7aZKWyXxQog?feature=share
+</div>
+
+## RadioFarda — post 157322
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸مراسم ازدواج دسته‌جمعی روز دوشنبه برای ۱۱۰ زوج در میدان «امام حسین» تهران برگزار شد.
+
+🔸تصاویر منتشرشده از این مراسم، خودروهای نظامی و تیربار را در فضای جشن نشان می‌دهد.
+
+🔸کارزار حکومتی «جان‌فدا» با هدف نمایش آمادگی عمومی در مواجهه با حمله‌ زمینی احتمالی راه‌اندازی شده است.
+
+🔸همزمان در روزهای اخیر دوره‌های آموزش استفاده از سلاح در مکان‌های عمومی نیز آغاز شده است.
+
+🔸این مراسم در حالی برگزار شد که آتش‌بسی شکننده میان ایران، و آمریکا و اسرائیل برقرار است.
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 20364
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_20364_1779135794.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴صداوسیما هم این وسط، ۵ بار اعلام پیروزی کرد😂😂
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 389705
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389705_1779135794.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خیلی از کارشناسا میگن ترامپ، خبر مذاکرات رو فقط برای پایین اوردن قیمت نفت اعلام کرده؛
+
+قیمت نفت قبل از توییت ترامپ: 112.3 دلار
+قیمت نفت بعد از توییت ترامپ: 109.7 دلار
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389704
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389704_1779135794.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صداوسیما:
+ترامپ واسه پنجمین بار از جنگ مقابل ایران فرار کرد.
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 120964
+
+<div align="center">
+  <a href="telegram/content/alonews_120964_1779135795.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری/ترامپ: مذاکرات جدی برای رسیدن به توافق با ایران در حال انجام است‌‌
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120963
+
+<div align="center">
+  <a href="telegram/content/alonews_120963_1779135795.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 اکسیوس: دو منبع آگاه گفتند که پیش از اعلامیه ترامپ، او با رهبران عربستان سعودی، قطر و امارات متحده عربی تلفنی صحبت کرده است. اما مشخص نیست که آیا هر سه رهبر او را به تعویق انداختن حملات ترغیب کرده‌اند یا خیر.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120962
+
+<div align="center">
+  <a href="telegram/content/alonews_120962_1779135795.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خبرنگار آکسیوس:
+ترامپ از زمان شروع جنگ حداقل 6 بار ضرب الاجل ها را تمدید کرده و حملات برنامه ریزی شده به ایران را به تعویق انداخته است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/28 23:43
 ---
 

@@ -7,6 +7,194 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/29 17:52
+---
+
+## VahidOOnLine — post 240973
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ماجد الانصاری، سخنگوی وزارت خارجه قطر، سه‌شنبه ۲۹ اردیبهشت‌ماه در نشست هفتگی رسانه‌ای گفت کشورهای منطقه از آتش‌بس میان جمهوری اسلامی و آمریکا حمایت می‌کنند و خواهان جلوگیری از هرگونه تنش‌افزایی و جنگ تازه‌اند.
+
+او تاکید کرد موضع دوحه به‌روشنی به آمریکا اعلام شده و هرگونه تشدید تنش، تاثیر فوری بر مردم منطقه خواهد داشت. الانصاری افزود در میان کشورهای منطقه «همبستگی روشنی» برای حمایت از میانجیگری و حفظ آتش‌بس وجود دارد.
+
+سخنگوی وزارت خارجه قطر همچنین گفت دوحه از ادامه مسیرهای دیپلماتیک و گفتگوهای بیشتر برای دستیابی به توافق حمایت می‌کند و به میانجیگری پاکستان در این روند اشاره کرد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## mwarmonitor — post 9309
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨«وزارت دفاع امارات متحده عربی اعلام کرد که طی ۴۸ ساعت گذشته شش پهپاد را که از عراق شلیک شده بودند، شناسایی و رهگیری کرده است.»
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9308
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴«ناتو در حال بررسی امکان کمک به عبور کشتی‌ها از تنگه هرمزِ مسدودشده است، در صورتی که این آبراه تا اوایل ماه ژوئیه بازگشایی نشود.
+
+🔸به گفته یک مقام ناتو، حمایت از انجام چنین مأموریتی رو به افزایش است، هرچند برخی از اعضا همچنان تمایلی ندارند که بیش از این درگیر این درگیری شوند.»
+
+— سازمان پیمان آتلانتیک شمالی (ناتو) | بلومبرگ
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 341930
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_341930_1779200568.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH LIVE: House Armed Services Committee grills Pentagon officials https://twitter.com/i/broadcasts/1rGmqoMEdoVGy
+</div>
+
+## FoxNewsTwitter — post 341929
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_341929_1779200568.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NEW: A 56-year-old woman plunged to her death after falling into an open manhole while getting out of her car in Midtown Manhattan.
+
+Emergency crews rushed her to the hospital, where she was later pronounced dead.
+
+Authorities are now investigating how the manhole was left uncovered in one of the busiest parts of New York City.
+</div>
+
+## pm_afshaa — post 91030
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91030_1779200569.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وزیر خزانه‌داری آمریکا:
+بیش از نیم میلیارد دلار ارز دیجیتال مرتبط با ایران رو مسدود کردیم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 337938
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/337938" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی دومینو: تکرار چرخه جنگ، محاصره و مذاکره
+@iranintlTV
+</div>
+
+## IranIntlTV — post 337937
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337937_1779200570.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دبیر کمیسیون انرژی مجلس اعلام کرد جیره‌بندی بنزین یارانه‌ای و افزایش نرخ بنزین آزاد از اول خرداد اجرا می‌شود. همچنین سهمیه ۵ هزار تومانی از کارت‌های سوخت حذف خواهد شد.
+گفت‌وگو با عطا حسینیان، روزنامه‌نگار اقتصادی و حوزه انرژی
+@iranintltv
+</div>
+
+## Shin_Persian — post 6088
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6088_1779200573.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارة الدفاع |MOD UAE ✓ @modgovae Tue, 19 May 2026 14:12:15 UTC تعلن وزارة الدفاع أنه خلال الـ48 ساعة الماضية تمكنت منظومات الدفاع الجوي الإماراتية من رصد والتعامل بنجاح مع 6 طائرات مسيرة معادية حاولت استهداف مناطق مدنية وحيوية في الدولة. وقد نجحت قوات…
+</div>
+
+## Shin_Persian — post 6087
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارة الدفاع |MOD UAE ✓ @modgovae
+Tue, 19 May 2026 14:12:15 UTC
+
+تعلن وزارة الدفاع أنه خلال الـ48 ساعة الماضية تمكنت منظومات الدفاع الجوي الإماراتية من رصد والتعامل بنجاح مع 6 طائرات مسيرة معادية حاولت استهداف مناطق مدنية وحيوية في الدولة.
+
+وقد نجحت قوات الدفاع الجوي في اعتراض وتحييد الأهداف المعادية وفق أعلى درجات الجاهزية والكفاءة، دون تسجيل أي خسائر بشرية أو تأثير على سلامة المنشآت الحيوية.
+
+وفي إطار استكمال التحقيقات المتعلقة بالاعتداء السافر على محطة براكة للطاقة النووية بتاريخ 17 مايو 2026، أكدت نتائج التتبع والرصد التقني أن الطائرات المسيرة الثلاث التي تم التعامل بنجاح مع اثنتين منها، فيما أصابت الثالثة مولد كهربائي خارج المحيط الداخلي للمحطة في ذلك التاريخ، بالإضافة إلى الطائرات التي تم اعتراضها لاحقًا، كانت جميعها قادمة من الأراضي العراقية.
+
+وتؤكد وزارة الدفاع أن دولة الإمارات العربية المتحدة تحتفظ بحقها الكامل في اتخاذ كافة الإجراءات اللازمة لحماية سيادتها وأمنها الوطني، وفقًا للقوانين والمواثيق الدولية.
+
+وتشدد وزارة الدفاع على الجاهزية الكاملة للقوات المسلحة للتعامل مع أي تهديدات تستهدف أمن الدولة ومقدراتها الوطنية.
+
+#وزارة_الدفاع
+#وزارة_الدفاع_الإماراتية
+#MOD
+#UAEMinistryOfDefence
+
+English
+
+The Ministry of Defense announces that over the past 48 hours, UAE air defense systems managed to detect and successfully deal with 6 hostile unmanned aerial vehicles (UAVs) that attempted to target civilian and vital areas in the country.
+
+The air defense forces succeeded in intercepting and neutralizing the hostile targets with the highest levels of readiness and efficiency, without recording any human casualties or impact on the safety of vital facilities.
+
+In the context of completing investigations regarding the blatant attack on the Barakah Nuclear Energy Plant on May 17, 2026, technical tracking and monitoring results confirmed that the three drones—two of which were successfully dealt with, while the third struck an electrical generator outside the plant's inner perimeter on that date—as well as the drones intercepted subsequently, all originated from Iraqi territory.
+
+The Ministry of Defense affirms that the United Arab Emirates reserves its full right to take all necessary measures to protect its sovereignty and national security, in accordance with international laws and charters.
+
+The Ministry of Defense emphasizes the full readiness of the Armed Forces to deal with any threats targeting the security of the state and its national assets.
+
+#Ministry_of_Defense
+#UAE_Ministry_of_Defense
+#MOD
+#UAEMinistryOfDefence
+
+𝕏 · @shin_persian
+</div>
+
+## Hranews — post 113040
+
+<div align="center">
+  <img src="telegram/content/Hranews_113040_1779200574.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شهاب دلیلی آزاد شد و به آمریکا بازگشت
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– شهاب دلیلی، شهروند ایرانی دارای اقامت دائم آمریکا که در زندان اوین محبوس بود، پس از ۱۰ سال حبس، آزاد شد. وی پس از آزادی به آمریکا بازگشته است.
+
+ادامه مطلب
+
+#شهاب_دلیلی
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## alonews — post 121115
+
+<div align="center">
+  <a href="telegram/content/alonews_121115_1779200574.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ادعای امارات: طی ۴۸ ساعت گذشته با ۶ پهپاد که قصد داشتند مناطق مسکونی و حیاتی را هدف قرار دهند، مقابله کردیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/29 17:42
 ---
 

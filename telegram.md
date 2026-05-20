@@ -7,6 +7,79 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/30 04:22
+---
+
+## FoxNewsTwitter — post 341973
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341973_1779238372.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"They tried to buy my vote. They couldn't buy it."
+
+Rep. Thomas Massie delivers a fiery speech after losing his reelection bid, accusing powerful forces in Washington of trying for years to take him down.
+
+Massie, who became a regular target of attacks from President Trump, said they "decided to buy the seat" after they couldn't buy his vote.
+</div>
+
+## FoxNewsTwitter — post 341972
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341972_1779238374.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"I would like to know how many more Americans we have to ask to die for this mistake."
+
+That question from Rep. Seth Moulton sparked a fiery clash with CENTCOM Commander Admiral Brad Cooper during a tense hearing on Iran and U.S. military operations in the Middle East.
+
+Cooper slammed Moulton's remark as "entirely inappropriate as the exchange escalated in front of lawmakers.
+</div>
+
+## Persian_Trend_Official — post 14506
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14506_1779238376.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢فیفا قصد دارد بار دیگر ورود پرچم «شیر و خورشید» پیش از انقلاب ایران و پوشاک مرتبط با آن را به استادیوم‌های جام جهانی در مسابقات ۲۰۲۶ ممنوع کند.
+
+این پرچم همچنین در جام جهانی قطر ۲۰۲۲ محدود شده بود.
+
+منبع: نیویورک تایمز
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14505
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴انتقاد تلویحی امارات از عربستان و قطر بر سر ارتباط با ایران
+
+💢شبکه i24 گزارش داد «انور قرقاش» مشاور رئیس امارات، بدون نام بردن مستقیم از عربستان و قطر، به‌صورت تلویحی از ادامه ارتباط و تماس‌های این کشورها با ایران انتقاد کرده است.
+
+بر اساس این گزارش:
+
+▪️ ابوظبی نگران است فشار کشورهای عربی باعث توقف دوباره عملیات نظامی آمریکا علیه ایران شده باشد
+▪️ برخی محافل اماراتی معتقدند عربستان و قطر در تلاش برای حفظ مسیر مذاکره با تهران هستند
+▪️ این اختلاف می‌تواند نشانه شکاف در مواضع کشورهای خلیج فارس درباره نحوه برخورد با ایران باشد
+
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+---
 📅 بروزرسانی: 1405/02/30 04:13
 ---
 

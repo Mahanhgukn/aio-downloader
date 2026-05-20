@@ -7,6 +7,185 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/30 23:44
+---
+
+## VahidOOnLine — post 241228
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_241228_1779308041.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علیرضا زاکانی، شهردار تهران، در گفت‌وگو با صداوسیما، گفت: «محاصره دریایی معنا ندارد. این‌ها اغراق می‌کنند و جرات حمله ندارند. اوج اقداماتشان را هم انجام دادند و دیدند ما دست بالا را داریم.»
+
+او اضافه کرد: «اگر حمله کنند، پاسخ می‌گیرند. دوره بزن‌دررو تمام شده است.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241227
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_241227_1779308042.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️روزنامه «فایننشال تایمز» روز چهارشنبه ۳۰ اردیبهشت، گزارش داد که بر اساس توافق جدید میان دونالد ترامپ و وزارت دادگستری آمریکا، اداره امور مالیاتی این کشور (IRS) دیگر حق پیگیری ادعاهای مالیاتی علیه ترامپ، پسران بزرگش و سازمان ترامپ را نخواهد داشت. این توافق در پی انصراف رئیس‌جمهوری آمریکا از شکایت ۱۰ میلیارد دلاری خود علیه این نهاد مالیاتی صورت گرفت.
+
+این تعهد از سوی وزارت دادگستری یک روز پس از آن صادر شد که ترامپ موافقت کرد در ازای راه‌اندازی یک صندوق ۱.۸ میلیارد دلاری از سوی دولت برای قربانیان جنگ قضایی (Lawfare)، شکایت خود را تسویه کند. جنگ قضایی نامی است که در صحنه سیاسی آمریکا به اختلافات میان شهروندان و اداره مالیات در دوره ریاست‌جمهوری جو بایدن داده شده است. تاد بلانش، سرپرست دادستانی کل آمریکا، در سندی رسمی اعلام کرد که ایالات متحده تمامی ادعاهای مالیاتی علیه شاکیان این پرونده را برای همیشه لغو و ساقط کرده است.
+
+سخنگوی وزارت دادگستری در گفتگو با فایننشال تایمز تصریح کرد که این ممنوعیت تعقیب، «تنها شامل حسابرسی‌های مالیاتی موجود» می‌شود. او افزود اگر هر یک از طرفین می‌توانستند ادعاهای قبلی خود را دوباره مطرح کنند، تسویه این پرونده‌های بزرگ بی‌معنا می‌شد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 11797
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آکسیوس: تماس سه‌شنبه ترامپ و نتانیاهو درباره طرح جدید صلح ایران که با میانجی‌گری قطر و پاکستان ارائه شده، «تنش‌آلود» بوده.
+
+ترامپ هنوز معتقده امکان رسیدن به توافق با ایران وجود داره، ولی نتانیاهو به شدت میخواد که اقدام نظامی علیه ایران انجام بشه. نتانیاهو بعد از این تماس «به‌شدت نگران و آشفته» شده بود!
+@withyashar
+</div>
+
+## WithYashar — post 11796
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آکسیوس : یک منبع آمریکایی که در جریان این تماس تلفنی قرار داشت به من گفت: «موهای بی‌بی بعد از تماس آتش گرفته بود.»
+@withyashar
+</div>
+
+## pm_afshaa — post 91132
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91132_1779308042.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴آکسیوس به نقل از یک منبع آمریکایی: ترامپ به نتانیاهو از یک دوره 30 روزه مذاکره درباره برنامه هسته‌ای ایران و تنگه هرمز اطلاع داد 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 338147
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338147_1779308042.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علیرضا زاکانی، شهردار تهران، در گفت‌وگو با صداوسیما، گفت: «محاصره دریایی معنا ندارد. این‌ها اغراق می‌کنند و جرات حمله ندارند. اوج اقداماتشان را هم انجام دادند و دیدند ما دست بالا را داریم.»
+
+او اضافه کرد: «اگر حمله کنند، پاسخ می‌گیرند. دوره بزن‌دررو تمام شده است.»
+https://iranintl.com/202605200745
+</div>
+
+## FarsiVOA — post 218257
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️امید جمهوری اسلامی به کولبران و ملوانان برای واردات مواد پتروشیمی و پلیمری
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218256
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺دونالد ترامپ: اگر با چند روز صبر کردن، از کشته‌شدن افراد جلوگیری کنم این کار را انجام می‌دهم
+
+▪️رئیس‌جمهوری آمریکا، دونالد ترامپ، عصر چهارشنبه ۳۰ اردیبهشت در پاسخ به پرسش خبرنگاری درباره علت مذاکرات بی‌وقفه‌اش با رژیم ایران و اینکه آیا از مذاکرات خسته‌ می‌شود گفت: «من هرگز خسته نمی‌شوم. کاری که دوست دارم انجام ‌دهم [این است که] اگر بتوانم با چند روز صبر کردن از جنگ جلوگیری کنم، یا بتوانم با چند روز صبر کردن از کشته شدن افراد جلوگیری کنم، فکر می‌کنم کار بزرگی است.»
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8152125.html
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 14554
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14554_1779308043.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢سپاه پاسداران با صدور بیانیه‌ای تهدید کرد:
+
+⭕️در صورت حمله دوباره آمریکا و اسرائیل، جنگ را به فراتر از منطقه خواهد کشاند.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14553
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نسخه صوتی لایو امشب در اسپاتیفای :
+
+https://open.spotify.com/episode/4ZyN11ARn9PzPUowsFbzbh?si=w_I-pR9MRMyUKElfOPbe8Q
+</div>
+
+## Persian_Trend_Official — post 14552
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14552_1779308043.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ایران محدوده نظارت خود بر تنگه هرمز را مشخص کرد
+
+💢هیئت تنگه خلیج فارس اعلام کرد جمهوری اسلامی ایران حدود منطقه نظارت بر مدیریت تنگه هرمز را تعیین کرده است.
+
+🔻بر اساس این بیانیه:
+
+▪️ مرز شرقی این محدوده، خطی است که «کوه مبارک» در ایران را به جنوب فجیره در امارات متصل می‌کند
+
+▪️ مرز غربی نیز خطی است کهانتهای جزیره قشم در ایران را به «ام‌القیوین» در امارات وصل می‌کند
+
+💢این اعلام در شرایطی منتشر شده که تنش‌ها بر سر کنترل و عبور کشتی‌ها از تنگه هرمز همچنان ادامه دارد.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## alonews — post 121426
+
+<div align="center">
+  <a href="telegram/content/alonews_121426_1779308044.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈آخرین قیمت نفت ۱۰۵.۰۹ دلار
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121425
+
+<div align="center">
+  <a href="telegram/content/alonews_121425_1779308044.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈آکسیوس: یک منبع آمریکایی که در جریان این تماس تلفنی قرار داشت به من گفت: «موهای بی‌بی بعد از تماس آتش گرفته بود.»
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121424
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ درباره کوبا: مردم غذا و برق ندارند، اما مردم بزرگی هستند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/30 23:34
 ---
 

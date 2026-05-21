@@ -7,6 +7,165 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/31 20:12
+---
+
+## VahidOOnLine — post 241361
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_241361_1779381730.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مازیار نوروزی، ورزشکار و فعال مدنی، روز پنجشنبه ۱۸ دی‌ماه در جریان انقلاب ملی در گرگان با گلوله ماموران حکومت کشته شد.
+به گفته نزدیکانش، او جوانی پرنشاط و فعال بود که در زمینه آموزش شنا فعالیت می‌کرد. او تحصیلکرده مقطع کارشناسی ارشد رشته صنایع چوب و کاغذ بود.
+مقام‌های حکومت به خانواده‌اش فشار آوردند تا او را «شهید» معرفی کنند. دوستان مازیار نوروزی گفتند که او در کنار اشتغال و فعالیت اجتماعی به دنبال تشکیل خانواده بود.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## mwarmonitor — post 9435
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_9435_1779381731.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴«دونالد ترامپ جونیور و بتینا اندرسون قرار است در آخر هفتهٔ روز یادبود (Memorial Day) ازدواج کنند؛ اما ترامپ گفته ممکن است در عروسی پسر خودش شرکت نکند، چون باید به مسئلهٔ ایران رسیدگی کند.»
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 342057
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342057_1779381733.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+HAPPENING NOW: President Trump reacts live to the Commission of Fine Arts approving his design for a new monument in Washington, D.C., confirming plans for an arch near Arlington National Cemetery.
+
+"We're building what's called the Triumphal Arch. Right opposite the Arlington Memorial Bridge, right by Arlington Cemetery.”
+</div>
+
+## FoxNewsTwitter — post 342056
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342056_1779381735.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+JUST NOW: President Trump calls birthright citizenship a "disgrace" ahead of the upcoming Supreme Court decision that could have major impacts throughout the country.
+
+"20% to 25% of the people coming into our country will come in through birthright citizenship. They'll become citizens through birthright citizenship, and it will cost us numbers..."
+
+"It's all up to a couple of people, and I hope they do what's right."
+</div>
+
+## IranIntlTV — post 338271
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338271_1779381737.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مازیار نوروزی، ورزشکار و فعال مدنی، روز پنجشنبه ۱۸ دی‌ماه در جریان انقلاب ملی در گرگان با گلوله ماموران حکومت کشته شد.
+به گفته نزدیکانش، او جوانی پرنشاط و فعال بود که در زمینه آموزش شنا فعالیت می‌کرد. او تحصیلکرده مقطع کارشناسی ارشد رشته صنایع چوب و کاغذ بود.
+مقام‌های حکومت به خانواده‌اش فشار آوردند تا او را «شهید» معرفی کنند. دوستان مازیار نوروزی گفتند که او در کنار اشتغال و فعالیت اجتماعی به دنبال تشکیل خانواده بود.
+https://iranintl.com/202605219786
+</div>
+
+## DW_Farsi — post 124977
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_124977_1779381738.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 احضار مدیرمسئول ایرنا پس از انتشار تصاویر زن بدون حجاب به دادگاه
+
+وبسایت میزان، وابسته به قوه قضائیه جمهوری اسلامی، نوشت این احضار در پی انتشار تصاویری صورت گرفته که از نگاه مقام‌های جمهوری اسلامی با "قانون و شرع" در تضاد بوده است.
+
+بر اساس این گزارش، هم‌زمان به این رسانه برای حذف نکردن این تصاویر نیز تذکر داده شده بود.
+
+این پرونده پس از انتشار و سپس حذف بخشی از تصاویر مربوط به سارا کنعانی، نویسنده و هنرمند، خبرساز شد.
+
+خبرگزاری ایرنا در گزارشی تصویری از زندگی او، تصاویری را منتشر کرده بود که در برخی از آنها او در فضای داخلی خانه بدون حجاب اجباری دیده می‌شد.
+
+انتشار این تصاویر با واکنش‌هایی در فضای مجازی روبه‌رو شد و ایرنا بعدا بدون توضیح رسمی، بخشی از آنها را از خروجی خود حذف کرد.
+
+این رویداد بار دیگر نشان می‌دهد که حتی رسانه رسمی دولت نیز در جمهوری اسلامی در برابر محدودیت‌های مربوط به حجاب اجباری و سانسور حکومتی با فشار نهادهای قضایی و ایدئولوژیک روبه‌رو است.
+@dw_farsi
+</div>
+
+## BBCPersian — post 281714
+
+<div align="center">
+  <a href="telegram/content/BBCPersian_281714_1779381739.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻این تصاویر تایم‌لپس یا گذر زمان، بازی نور و گذر ابرها از روی قله‌های سفیدپوش اشترانکوه و دریاچه گهر را در یک بعداز ظهر بهاری نشان می‌دهد.
+
+مهدی نورمحمدی، عکاس و کوهنورد می‌گوید این تصاویر را روز ۲۲ اردیبهشت امسال از فراز قله سن‌بران ثبت کرده است که با ۴۱۵۰ متر ارتفاع، بلندترین قله اشترانکوه و سومین قله بلند زاگرس محسوب می‌شود.
+
+دریاچه کوهستانی گهر که در ارتفاع ۲۳۵۰ متری واقع شده، در جنوب شرقی دورود و منطقه حفاظت‌شده اشترانکوه در لرستان قرار گرفته است.
+
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 389892
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389892_1779381742.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مرگ خامنه‌ای جوری به تخم بسیجیاست که دسته‌جمعی تو اتوبوس عروسی گرفتن. @Dirty_Kids 👻
+</div>
+
+## alonews — post 121615
+
+<div align="center">
+  <a href="telegram/content/alonews_121615_1779381742.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈بلومبرگ: ایران در حال رایزنی با عمان درباره نحوه راه‌اندازی نوعی سیستم عوارض دائمی است که کنترل خود بر ترافیک دریایی از طریق تنگه هرمز را رسمیت ببخشد.
+
+
+🔴محمدامین‌نژاد، سفیر ایران در فرانسه، روز چهارشنبه در مصاحبه با بلومبرگ در پاریس گفت «ایران و عمان باید تمامی منابع خود را هم برای ارائه خدمات امنیتی و هم برای مدیریت ناوبری به مناسب‌ترین شکل ممکن به کار گیرند.»
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121614
+
+<div align="center">
+  <a href="telegram/content/alonews_121614_1779381742.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈توییت انگلیسی رئیس کمیسیون امنیت ملی در پاسخ به ترامپ: دوران اعتماد به «دیپلماسی» آمریکا به پایان رسیده و اکنون
+ما برای هر سناریویی آماده‌ایم.
+
+
+🔴هرچند آمریکایی‌ها برای آنچه در انتظارشان است، آماده نیستند!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121613
+
+<div align="center">
+  <a href="telegram/content/alonews_121613_1779381742.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وال استریت ژورنال: دولت ترامپ به بزرگترین خریدار نقدی کشتی در جهان برای اوراق، مجوز خرید چهار کشتی تحت تحریم به دلیل حمل محموله‌های ایرانی را اعطا کرد.
+
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/31 20:03
 ---
 

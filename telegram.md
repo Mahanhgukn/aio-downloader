@@ -7,6 +7,34 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/31 04:22
+---
+
+## FarsiVOA — post 218268
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_218268_1779324742.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️واکنش‌ها به سفر احتمالی طالبان به اروپا
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 14565
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️زمین‌لرزه ۴ ریشتری فراشبند فارس را لرزاند
+
+🔹مرکز لرزه‌نگاری موسسه ژئوفیزیک دانشگاه تهران اعلام کرد، زمین‌لرزه‌ای به قدرت ۴ ریشتر ساعت ۳:۴۷ بامداد امروز -پنجشنبه- حوالی فراشبند استان فارس را لرزاند. این زمین‌لرزه در عمق ۱۰ کیلومتری زمین رخ داد.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+---
 📅 بروزرسانی: 1405/02/31 04:12
 ---
 

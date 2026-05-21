@@ -7,6 +7,24 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/01 01:33
+---
+
+## IranIntlTV — post 338302
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338302_1779400983.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ بار دیگر تاکید کرد جمهوری اسلامی اجازه دستیابی به سلاح هسته‌ای را ندارد.
+
+او در پاسخ به خبرنگاران گفت ایالات متحده اورانیوم غنی‌شده ایران را خارج و نابود می‌کند.
+
+گزارش اردوان روزبه، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+---
 📅 بروزرسانی: 1405/03/01 01:23
 ---
 

@@ -63,7 +63,7 @@
    - [۲. دانلودر اینستاگرام (downloader-instagram)](#۲-دانلودر-اینستاگرام-downloader-instagram)
    - [۳. دانلودر X/توییتر (downloader-x)](#۳-دانلودر-xتوییتر-downloader-x)
    - [۴. دانلودر مستقیم (downloader-direct)](#۴-دانلودر-مستقیم-downloader-direct)
-   - [۵. آرشیو کانال تلگرام (telegram-fetcher)](#۵-آرشیو-کانال-تلگرام-telegram-fetcher)
+   - [۵. آرشیو کانال تلگرام (fetcher-telegram)](#۵-آرشیو-کانال-تلگرام-fetcher-telegram)
    - [۶. دانلودر تلگرام بتا (downloader-telegram-beta)](#۶-دانلودر-تلگرام-بتا-downloader-telegram-beta)
    - [۷. ضبط وبسایت - PDF و MHTML (fetcher-website)](#۷-ضبط-وبسایت---pdf-و-mhtml-fetcher-website)
    - [۸. لیچر قدرتمند (aio-leecher)](#۸-لیچر-قدرتمند-aio-leecher)
@@ -507,7 +507,7 @@ https://example.com/file.zip, https://example.com/video.mp4
 
 ---
 
-### ۵. آرشیو کانال تلگرام (telegram-fetcher)
+### ۵. آرشیو کانال تلگرام (fetcher-telegram)
 
 <div dir="ltr" markdown="1">
 
@@ -527,7 +527,7 @@ https://example.com/file.zip, https://example.com/video.mp4
 
 </div>
 
-2. **Actions** → **telegram-fetcher** → **Run workflow** (یا منتظر اجرای خودکار بمانید).
+2. **Actions** → **fetcher-telegram** → **Run workflow** (یا منتظر اجرای خودکار بمانید).
 
 > ⚠️ فقط کانالهای عمومی. زمانبندی خودکار ممکن است با تأخیر ۱ تا ۶ ساعت اجرا شود.
 
@@ -959,7 +959,7 @@ https://random-name.trycloudflare.com
 
 | دلیل | توضیح |
 |---|---|
-| **انباشته شدن فایلهای ریز تلگرام** | اگر از telegram-fetcher زیاد استفاده کنید، هزاران فایل کوچک در `telegram/content/` ذخیره میشود. از آنجا که checkout کل مخزن را میخواند، این حجم بالا سرعت را کاهش میدهد و روی **تمام workflowهای دیگر** اثر میگذارد. |
+| **انباشته شدن فایلهای ریز تلگرام** | اگر از fetcher-telegram زیاد استفاده کنید، هزاران فایل کوچک در `telegram/content/` ذخیره میشود. از آنجا که checkout کل مخزن را میخواند، این حجم بالا سرعت را کاهش میدهد و روی **تمام workflowهای دیگر** اثر میگذارد. |
 | **اوج مصرف GitHub Actions (Peak Times)** | در ساعات شلوغی سرورهای GitHub (معمولاً روزهای کاری، ساعتهای اداری UTC)، عملیات checkout برای همه کندتر میشود — حتی اگر فایلهای کمی داشته باشید. |
 
 ### راه حل:

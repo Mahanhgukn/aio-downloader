@@ -7,6 +7,186 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/04 15:52
+---
+
+## WithYashar — post 12415
+
+<div align="center">
+  <a href="telegram/content/WithYashar_12415_1779711774.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فاکس نیوز: رئیس‌جمهور ترامپ با قاطعیت شایعات دربارهٔ یک توافق هسته‌ای ضعیف را رد کرد و اعلام کرد که هرگز به تهران «پول نقد تحویل نخواهد داد.»
+
+رئیس‌جمهور ترامپ به لارِنس بیلی جونز؛ (مجری تلویزیونی، مفسر سیاسی و خبرنگار آمریکایی شبکه فاکس‌نیوز) گفت منتقدانی که ادعا می‌کنند او در برابر ایران رویکردی نرم دارد، کاملاً در اشتباه‌اند.
+
+«واقعاً فکر می‌کنید بعد از تمام حرف‌هایی که دربارهٔ این‌که ایران هرگز نباید به سلاح هسته‌ای دست پیدا کند زده‌ام، من به‌عنوان رئیس‌جمهور فقط بیایم و پول نقد به آن‌ها تحویل بدهم؟»
+@withyashar
+</div>
+
+## WithYashar — post 12414
+
+<div align="center">
+  <a href="telegram/content/WithYashar_12414_1779711776.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روایت مذاکرات ایران: رئیس‌جمهور ترامپ با قاطعیت شایعات دربارهٔ یک توافق هسته‌ای ضعیف را رد کرد و اعلام کرد که هرگز به تهران «پول نقد تحویل نخواهد داد.»
+
+رئیس‌جمهور ترامپ به لارِنس بیلی جونز؛ (مجری تلویزیونی، مفسر سیاسی و خبرنگار آمریکایی شبکه فاکس‌نیوز) گفت منتقدانی که ادعا می‌کنند او در برابر ایران رویکردی نرم دارد، کاملاً در اشتباه‌اند.
+
+«واقعاً فکر می‌کنید بعد از تمام حرف‌هایی که دربارهٔ این‌که ایران هرگز نباید به سلاح هسته‌ای دست پیدا کند زده‌ام، من به‌عنوان رئیس‌جمهور فقط بیایم و پول نقد به آن‌ها تحویل بدهم؟»
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342197
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342197_1779711779.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+JUST IN: President Trump releases a Memorial Day message ahead of taking part in a wreath-laying ceremony at Arlington National Cemetery:
+
+"God Bless those that have made the ultimate sacrifice. I love you all!"
+</div>
+
+## pm_afshaa — post 91451
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91451_1779711780.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رویترز: قالیباف و عراقچی برای گفت‌وگو درباره توافق با آمریکا وارد قطر شدن.
+
+اولویت اصلی مذاکرات در دوحه، تنگه هرمز و غنی‌سازی اورانیوم هست.
+
+رئیس بانک مرکزی که بخشی از هیئت ایرانی در دوحه بود، قراره درباره آزادسازی احتمالی دارایی مسدود شده ایران به عنوان بخشی از توافق نهایی میان ایران و آمریکا صحبت کنه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91450
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91450_1779711780.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فاکس نیوز: قالیباف و عراقچی امروز زودتر به قطر رسیدن برای مذاکرات مرتبط با تلاش‌های دیپلماتیک جاری که هدف آن پایان دادن به درگیری است.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 338918
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338918_1779711781.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻اسماعیل بقایی، سخنگوی وزارت امور خارجه در نشست خبری خود درباره ویزای اعضای تیم ملی فوتبال گفت: «طرف ما فیفاست. سفر تیم فوتبال ایران به آمریکا، هیچ هدف دیگری جز شرکت در مسابقات جام جهانی ندارد. برگزارکننده فیفاست و بر اساس قواعد فیفا عمل می‌شود.»
+
+🔹او گفت: «آمریکا موظف است همه شرایط لازم را برای حضور بدون مشکل تیم ملی فوتبال ایران فراهم کند.»
+
+🔹بقایی درباره تغییر کمپ تیم ملی گفت: «تصمیمی که فدراسیون فوتبال گرفته، در هماهنگی کامل با فیفا، فدراسیون فوتبال مکزیک و با طرف‌های ذی‌ربط آمریکایی بوده، تا مانع ایجاد مشکل برای تیم ملی شوند.»
+
+🔹روز شنبه، مهدی تاج، رییس فدراسیون فوتبال خبر داد که کمپ تیم ملی از آریزونای آمریکا به تیخوانای مکزیک تغییر کرده و به گفته او با این تغییر، مشکل ویزا برطرف می‌شود.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 338917
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338917_1779711782.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻قهرمانی آرسنال در لیگ برتر فوتبال انگلستان، هفته گذشته، پس از ۲۲ سال انتظار، قطعی شد و دیشب با پایان فصل سرخ‌پوش‌های لندن چهاردهمین جام قهرمانی‌ را بالای سر بردند. شبی تاریخی که با نام عارف جعفرزاده، از جاویدنامان انقلاب ملی گره خورد.
+
+🔹عارف جعفرزاده، هوادار ۳۲ ساله تیم آرسنال و اهل رشت بود که در اعتراضات دی‌ماه ۱۴۰۴ به دست نیروهای سرکوبگر جان خود را از دست داد.
+
+🔹گزارش آیدین مقیمی، ایران اینترنشنال از آخرین بازی خانگی آرسنال
+
+@iranintltvsport
+</div>
+
+## DW_Farsi — post 125130
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 میلیون‌ها زائر مسلمان به رغم جنگ ایران راهی مکه شده‌اند
+
+روز دوشنبه ۲۵ مه (۴ خرداد) مناسک حج برای بسیاری از مسلمانان سراسر جهان آغاز می‌شود.
+
+جنگ ایران امنیت کشورهای حوزه خلیج فارس را به خطر افکنده و به همین دلیل پیش‌‌تر هشدارهایی در زمینه مراسم حج صادر شده بود. اما به رغم این تهدیدات، برخی مسلمانان جهان امسال نیز از سفر زیارتی به مکه چشم‌پوشی نکرده‌اند.
+
+طبق اعلام مقامات عربستان سعودی، تا پایان هفته‌ای که گذشت بیش از یک‌ونیم میلیون نفر برای شرکت در حج وارد این شهر شده‌اند که این شمار نشان‌گر افزایش تعداد زائران بین‌المللی حج نسبت به سال گذشته است.
+
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 14934
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فاکس‌نیوز: قالیباف و عراقچی برای رایزنی درباره پایان جنگ وارد دوحه شدند ▪️ فاکس‌نیوز گزارش داد محمدباقر قالیباف، رئیس مجلس ایران، و عباس عراقچی، وزیر خارجه ایران، امروز وارد دوحه شدند ▪️ این سفر در چارچوب تلاش‌های دیپلماتیک جاری برای پایان‌دادن به درگیری‌ها…
+</div>
+
+## Dirty_Kids — post 390141
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390141_1779711784.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مامان بزرگم وقتی داییم و زن داییم برای بار پنجم توی عروسیشون لب گرفتن:
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390138
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نه بابا فشار چیه؛ توی توییتر یه نفر توییت زده «گل مورد علاقه شما چیه؟»
+
+و حالا پسرا شروع کردن از دوس دخترشون عکس گذاشتن.
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 122556
+
+<div align="center">
+  <a href="telegram/content/alonews_122556_1779711785.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈جروزالم پست: رهبری چین ممکن است محاسبه کند که همکاری معنادار با واشنگتن در مورد ایران، انعطاف‌پذیری متقابل آمریکایی را در مورد هدف ملی اصلی پکن شایسته می‌داند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122555
+
+<div align="center">
+  <a href="telegram/content/alonews_122555_1779711785.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 «اتاق بازرگانی ایران و پاکستان، یک نهاد تجاری خصوصی دوجانبه که منافع تجاری ایران و پاکستان را نمایندگی می کند، امارات متحده عربی را متهم کرده است که فعالانه مانع ادغام ایران در کریدور اقتصادی چین-پاکستان از تبدیل شدن به یک کریدور اقتصادی پورتدارو پاکستان (CPEC) در دو کشور است دبی." - فارس نیوز.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/04 15:42
 ---
 

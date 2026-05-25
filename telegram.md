@@ -7,6 +7,99 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/04 08:52
+---
+
+## IranIntlTV — post 338860
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338860_1779686559.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جزییات توافق احتمالی میان جمهوری اسلامی و آمریکا
+@iranintltv
+</div>
+
+## IranIntlTV — post 338859
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338859_1779686561.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سگ‌های خیابانی به یکی از چالش‌های جدی در کوزوو تبدیل شده‌اند. یک سازمان بین‌المللی تلاش می‌کند از طریق عقیم‌سازی، رشد جمعیت این حیوانات را کنترل کند، اما کارشناسان می‌گویند حل کامل این بحران ممکن است سال‌ها طول بکشد.
+
+گزارش فرزیا ثابتی، خبرنگارایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranianMinds — post 20703
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_20703_1779686563.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 سی بی اس نیوز :
+
+مجتبی خامنه ای ، رهبر‌ جمهوری اسلامی در مکانی نامعلوم پنهان شده و بر ارساس ارزیابی اطلاعاتی آمریکا دسترسی خیلی کمی به دنیای بیرون داره و‌ با افراد خیلی کمی هم در ارتباطه .
+
+@IranianMinds
+</div>
+
+## alonews — post 122458
+
+<div align="center">
+  <a href="telegram/content/alonews_122458_1779686564.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈روبیو : باید به یک توافق خوب برسیم در غیر این صورت مجبور می‌شویم به شکل دیگری با ایران برخورد کنیم/ ما ترجیح می‌دهیم که توافق خوبی داشته باشیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122457
+
+<div align="center">
+  <a href="telegram/content/alonews_122457_1779686566.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رویترز مدعی شد: دو کشتی حامل نفت و گاز طبیعی، تنگه هرمز را به مقصد پاکستان و چین از طریق مسیری که ایران به کشتی‌ها دستور داده بود، ترک کردند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122456
+
+<div align="center">
+  <a href="telegram/content/alonews_122456_1779686567.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 ادعای روبیو، وزیر خارجه آمریکا: امضای توافق با ایران روز دوشنبه همچنان امکان‌پذیر است
+
+
+🔴پیش از اینکه گزینه‌های جایگزین را بررسی کنیم، هر فرصتی را به دیپلماسی خواهیم داد.
+
+
+🔴 احتمال قوی برای ورود به مذاکرات زمان‌دار درباره پرونده هسته‌ای ایران وجود دارد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122455
+
+<div align="center">
+  <a href="telegram/content/alonews_122455_1779686567.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پاسخ رئیس کمیسیون امنیت ملی به تهدید اتمی ترامپ: قابلی نداشت!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/04 08:42
 ---
 

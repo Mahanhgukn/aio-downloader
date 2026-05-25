@@ -7,6 +7,110 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/04 17:53
+---
+
+## VahidOOnLine — post 242130
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242130_1779718982.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علیرضا سلیمی، عضو هیات‌رییسه مجلس گفت با توجه به شرایط جدید، از مجتبی خامنه‌ای اجازه خواستیم تا جلسات مجلس را به‌صورت وبیناری با امکان رای‌گیری برگزار کنیم.
+
+او افزود به محض دریافت پاسخ از «رهبری»، هیات‌رییسه تصمیمات لازم را برای آغاز جدی فعالیت‌های عادی مجلس خواهد گرفت.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## pm_afshaa — post 91458
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91458_1779718983.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مارک لوین: درباره توافق احتمالی، کلی مطلب توی اینترنت نوشته شده؛ اما من هیچ چیزی درباره خودِ مردم ایران ندیدم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 338932
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338932_1779718983.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علیرضا سلیمی، عضو هیات‌رییسه مجلس گفت با توجه به شرایط جدید، از مجتبی خامنه‌ای اجازه خواستیم تا جلسات مجلس را به‌صورت وبیناری با امکان رای‌گیری برگزار کنیم.
+
+او افزود به محض دریافت پاسخ از «رهبری»، هیات‌رییسه تصمیمات لازم را برای آغاز جدی فعالیت‌های عادی مجلس خواهد گرفت.
+https://iranintl.com/202605254256
+</div>
+
+## IranianMinds — post 20725
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_20725_1779718984.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 رویترز:
+
+قالیباف و عراقچی در دوحه با نخست‌وزیر قطر درباره توافق احتمالی با آمریکا برای پایان جنگ گفت‌وگو کردند.
+
+محور اصلی مذاکرات تنگه هرمز و ذخایر اورانیوم غنی‌شده ایران بود ، رئیس بانک مرکزی ایران هم در این نشست حضور داشت
+
+درباره آزادسازی دارایی‌های بلوکه‌شده ایران در توافق احتمالی نیز صحبت شده است.
+
+@IranianMinds
+</div>
+
+## Hranews — post 113153
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش تصویری؛ برگزاری برنامه نمادین نظامی برای کودکان بر خلاف پیمان‌نامه حقوق کودک
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– برخلاف تعهدات بین‌المللی ایران تحت عنوان الحاق به پیمان‌نامه #حقوق_کودک و تعهدات مربوط به عدم به‌کارگیری #کودکان در امور نظامی، برنامه‌ای نمادین تحت عنوان «اعزام به جبهه» با پوشاندن لباس نظامی به کودکان، قرار دادن سلاح در دست آنها، بازسازی صحنه‌های اعزام کودکان به جبهه جنگ و استفاده از دیگر نمادهای امور نظامی در حضور کودکان، در همدان برگزار شده است.
+
+ادامه مطلب
+
+↘️
+@hranews_bot تماس ✉️ -  @Hranews  کانال هرانا 🆑
+</div>
+
+## alonews — post 122583
+
+<div align="center">
+  <a href="telegram/content/alonews_122583_1779718984.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رویترز همچنین گزارش می‌دهد که بنیامین نتانیاهو، نخست‌وزیر اسرائیل، در گفتگوهای خصوصی با نزدیکان خود گفته است که اسرائیل توانایی کمی برای تأثیرگذاری بر تصمیم‌گیری‌های رئیس‌جمهور ترامپ در مورد ایران دارد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122582
+
+<div align="center">
+  <a href="telegram/content/alonews_122582_1779718985.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈هواپیماهای باری نظامی آمریکایی در راه غرب آسیا
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/04 17:42
 ---
 

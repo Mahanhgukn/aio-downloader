@@ -7,6 +7,32 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/04 07:52
+---
+
+## IranIntlTV — post 338852
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338852_1779682926.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جاویدنامان انقلاب ملی ایرانیان
+«کیان پورصفر دلشاد» در ۱۹ دی‌ماه در بندرانزلی بر اثر اصابت گلوله نیروهای سرکوب جمهوری اسلامی به شدت مجروح شد و پس از ۱۲ روز بستری، در اول بهمن‌ماه ۱۴۰۴ جان خود را از دست داد. نامش در حافظه‌ی این سرزمین می‌ماند و یادش چراغ راه آزادی‌خواهان است.
+@iranintltv
+</div>
+
+## RadioFarda — post 157526
+
+<div align="center">
+  <a href="https://t.me/radiofarda/157526" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📻بشنوید: سرخط خبرها با رادیوفردا، چهارم خرداد ۱۴۰۵‌
+
+@RadioFarda
+</div>
+
+---
 📅 بروزرسانی: 1405/03/04 07:42
 ---
 

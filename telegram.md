@@ -7,6 +7,185 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/04 17:33
+---
+
+## mwarmonitor — post 9689
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 وزارت خارجه روسیه: اتباع خارجی فوراً کی‌یف را ترک کنند. @mwarmonitor
+</div>
+
+## mwarmonitor — post 9688
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 وزارت خارجه روسیه: اتباع خارجی فوراً کی‌یف را ترک کنند.
+
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 342206
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+SEE IT: Secretary of State Marco Rubio tours India during a high-level diplomatic trip focused on strengthening U.S.-India relations.
+
+The visit centers on defense, trade, and regional security as both countries deepen cooperation.
+</div>
+
+## FoxNewsTwitter — post 342205
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342205_1779717781.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+United States Senate candidate Graham Platner launched a blistering attack on the political establishment alongside Senator Bernie Sanders during the first stop of their "Fighting Oligarchy" tour.
+
+Platner took aim at long-serving politicians, specifically calling out Senator Susan Collins and declared that the current system exists solely to enrich elected officials while leaving everyday Americans behind.
+
+"We will not just fight the oligarchy, we will defeat the oligarchy and the political system that it maintains. We will defeat the political system that it maintains.”
+
+“The politics of Susan Collins, a politics that turns politicians into millionaires but tells you to be grateful for crumbs. It is a lie. It is a lie intended to serve the billionaire class."
+</div>
+
+## mamlekate — post 103581
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 مصوبه «اتصال اینترنت بین‌الملل» برای اجرا «در انتظار تأیید پزشکیان» است
+
+منابع داخلی ایران از تصویب مصوبه‌ای تازه درباره اتصال اینترنت بین‌الملل خبر داده‌اند؛ مصوبه‌ای که هنوز اجرا نشده و اجرای آن به تأیید نهایی مسعود پزشکیان و ابلاغ به وزارت ارتباطات و فناوری اطلاعات منوط است.
+
+@mamlekate
+</div>
+
+## ManotoTV — post 105829
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105829_1779717782.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گفت‌وگو با کیوان عباسی:
+«می‌گفت ایرانی‌ها باید بیشتر کنار هم بایستند…
+و دوباره باور کنند که سرنوشت ایران را خود مردم ایران رقم می‌زنند.»
+</div>
+
+## FarsiVOA — post 218613
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_218613_1779717784.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت امور خارجه اسرائیل ویدیویی از اصابت پهپاد انفجاری حزب‌الله به یک خانه غیرنظامی اسرائیلی در شهر متولا منتشر و اعلام کرد «این سازمان تروریستی همچنان به نقض آتش‌بس ادامه می‌دهد و موشک و پهپاد به سمت خانواده‌ها و جوامع غیرنظامی شلیک می‌کند.»
+
+ارتش اسرائیل تاکید کرد نیروهای این ارتش به فعالیت خود در منطقه برای رفع هرگونه تهدید فوری ادامه می‌دهند.
+</div>
+
+## Persian_Trend_Official — post 14949
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14949_1779717786.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 آمریکا و عربستان به‌دنبال تولید پهپادی مشابه شاهد ۱۳۶ ایران
+
+▪️ رسانه‌ها گزارش داده‌اند یک شرکت تسلیحاتی آمریکایی و یک شرکت سعودی در حال ساخت کارخانه‌ای نزدیک ریاض برای تولید پهپادهای رزمی مشابه Shahed 136 هستند
+
+▪️ گفته می‌شود این پهپادها بر اساس الگوی پهپادهای انتحاری ایرانی طراحی خواهند شد
+
+▪️ این اقدام نشان‌دهنده تأثیر گسترده پهپادهای ارزان و انبوه ایران بر دکترین نظامی کشورهای منطقه و غرب است
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14948
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️وزیر نفت:
+
+♦️باید عرضه بنزین کشور را بطور خاص مدیریت کنیم و در تلاشیم تا تاسیسات آسیب‌دیده به سرعت به مدار تولید بازگردد.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## BBCPersian — post 282024
+
+<div align="center">
+  <a href="telegram/content/BBCPersian_282024_1779717786.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻‌رسانه‌های آمریکایی وقوع آتش‌سوزی مهیبی را در یک منطقه صنعتی در ساوت گیت در لس‌انجلس کانتی کالیفرنیا گزارش کردند. این آتش‌سوزی در یک مرکز صنعتی بازیافت لاستیک خودرو رخ داد.
+
+در پی این آتش‌سوزی در روز یکشنبه (۲۴ مه)، مقام‌های محلی از مردم خواستند که به همراه حیوانات خانگی‌شان با در و پنجره‌های بسته داخل خانه‌ها بمانند.
+
+علت آتش‌سوزی و اینکه آیا در زمان شروع آتش‌سوزی افرادی در محل حضور داشته‌اند یا خیر، تاکنون مشخص نشده است.
+
+آتش‌نشانان آتش را مهار کردند و تاکنون هیچ مصدومی در این حادثه گزارش نشده است.
+
+https://bbc.in/43etyAd
+@BBCPersian
+</div>
+
+## manototv — post 105829
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گفت‌وگو با کیوان عباسی:
+«می‌گفت ایرانی‌ها باید بیشتر کنار هم بایستند…
+و دوباره باور کنند که سرنوشت ایران را خود مردم ایران رقم می‌زنند.»
+</div>
+
+## alonews — post 122579
+
+<div align="center">
+  <a href="telegram/content/alonews_122579_1779717788.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزیر نفت: باید عرضه بنزین کشور را بطور خاص مدیریت کنیم و در تلاشیم تا تاسیسات آسیب‌دیده به سرعت به مدار تولید بازگردد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122578
+
+<div align="center">
+  <a href="telegram/content/alonews_122578_1779717788.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈هواپیماهای جنگی اسرائیل لحظاتی پیش موجی از حملات هوایی شدیدی را در نبطیه در جنوب لبنان انجام دادند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122577
+
+<div align="center">
+  <a href="telegram/content/alonews_122577_1779717788.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فوری / هشدار روسیه: اتباع خارجی خاک کی‌یف را ترک کنند!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/04 17:22
 ---
 

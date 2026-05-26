@@ -7,6 +7,287 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/05 20:33
+---
+
+## WithYashar — post 12584
+
+<div align="center">
+  <img src="telegram/content/WithYashar_12584_1779815026.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ در تروث : همین الان معاینات پزشکی شش ماهه‌ام را در مرکز پزشکی نظامی والتر رید تمام کردم. همه چیز عالی بود. از پزشکان و کارکنان عالی متشکرم! به کاخ سفید برمی‌گردم. رئیس جمهور دی‌جی‌تی
+@withyashar
+</div>
+
+## WithYashar — post 12583
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+معاون وزیر ارتباطات: سيستم عامل، مرورگر، آنتی‌ویروس، اپلیکیشن‌های بانکی و ابزارهای امنیتی خود را بروزرسانی کنید
+@withyashar
+چه دلسوز شدن. 🤣
+</div>
+
+## FoxNewsTwitter — post 342269
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌Fox News (Twitter/X)
+
+Read more:
+</div>
+
+## FoxNewsTwitter — post 342268
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342268_1779815027.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Conservatives say AI chatbots are being weaponized with left-wing media bias as millions rely on them each day.
+
+Critics say today’s AI systems disproportionately pull from “left-wing media and politically charged sources” when generating responses for users, and they argue systems like ChatGPT, Google Gemini, and Claude often downplaying or excluding opposing perspectives altogether.
+
+The concerns go beyond politics, AI systems are already known to sometimes “hallucinate” — confidently generating false but believable information that can quickly erode public trust.
+
+One example that made previously made headlines was when ChatGPT, which is developed by OpenAI, insisted in January nobody named Charlie Kirk was ever assassinated and declared no credible evidence or reporting could substantiate such a claim.
+</div>
+
+## FoxNewsTwitter — post 342267
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342267_1779815028.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+JUST IN: President Trump shares results from his six month physical at Walter Reed:
+
+"Everything checked out PERFECTLY. Thank you to the great Doctors and Staff! Heading back to the White House."
+</div>
+
+## pm_afshaa — post 91552
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91552_1779815029.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نیویورک تایمز: ترامپ فردا به کمپ دیوید میره تا جلسه‌ای سطح بالا در مورد ایران با سران نظامی و سیاسی این کشور برگزار کنه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91551
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ببین چیکار کردن که واسه طبیعی‌ترین و عادی‌ترین حقمون تو قرن ۲۱ باید خوشحال بشیم..
+</div>
+
+## pm_afshaa — post 91550
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دلم تنگ شده بود براتون خوش برگشتین❤️
+تلگرام بدون شما صفا نداشت..
+</div>
+
+## pm_afshaa — post 91549
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اینترنت خط همراه هم داره وصل میشه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91548
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91548_1779815030.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴اسرائیل به دستور نتانیاهو از دیروز حملات و پیشروی‌های خود در جنوب لبنان رو به‌طور قابل‌توجهی افزایش داده و حتی از محدوده‌ای که پیش‌تر به‌عنوان خط توقف تعیین شده بود هم عبور کرده.
+
+طبق گزارش‌ها، هدف اصلی این عملیات، نابودی سایت‌های پهپادهای فیبرنوری در جنوب لبنانه؛ پهپادهایی که نیروهای اسرائیلی رو در منطقه هدف قرار می‌دادن. شدت حملات به حدی بوده که بسیاری از ساکنان جنوب لبنان در حال ترک مناطق مرزی هستن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91547
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91547_1779815030.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نتانیاهو: ما عملیات خود در لبنان رو تشدید می‌کنیم؛ نیروهای اسرائیل با نیروهای زمینی قابل توجهی در حال عملیات هستن و مواضع استراتژیک رو تثبیت می‌کنند!
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 339126
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339126_1779815031.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند با ارسال پیامی به ایران اینترنشنال توافق احتمالی دونالد ترامپ با جمهوری اسلامی را خیانت به مردم ایران می‌داند. پیام او با هوش مصنوعی خوانده شده است.
+</div>
+
+## FarsiVOA — post 218722
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جنگ قدرت در مجلس جمهوری اسلامی؛ حمله رسایی و ثابتی به قالیباف و رهبر سوم غایب
+</div>
+
+## FarsiVOA — post 218721
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وضعیت فوق بحرانی پنج «سد» در مناطق مختلف ایران، به‌رغم افزایشی اندک در میزان بارش سالانه گفت‌وگو با منصور سهرابی، متخصص محیط زیست و بوم شناسی
+</div>
+
+## IranianMinds — post 20823
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_20823_1779815034.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پست سنتکام:
+
+پروژه آزادی از سر گرفته نشده و نیروهای آمریکا فعلأ هیچ کشتی تجاری‌ای را از تنگه هرمز اسکورت نمی‌کنند.
+
+@IranianMinds
+</div>
+
+## idfinfarsi — post 11647
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‼️ ارتش اسرائیل همچنان به حمله به زیرساخت‌های سازمان تروریستی حزب‌الله در جنوب لبنان ادامه می‌دهد: تروریست‌هایی که در حال پیشبرد طرح‌های تروریستی علیه نیروهای ما بودند به هلاکت رسیدند و زیرساخت‌هایی که برای شلیک راکت استفاده می‌شدند هدف قرار گرفتند
+</div>
+
+## idfinfarsi — post 11644
+
+<div align="center">
+  <a href="telegram/content/idfinfarsi_11644_1779815035.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سخنگوی ارتش اسرائیل:
+
+یک عملیات مهندسی گسترده در منطقه بیت حانون به پایان رسید: شناسایی و انهدام حدود ۱۱ کیلومتر مسیرهای زیرزمینی
+
+نیروهای تیپ شمالی و یگان ویژه مهندسی تحت فرماندهی لشگر ۲۵۲، در ماه‌های اخیر در منطقه بیت حانون، در شرق خط زرد، برای انهدام سیستماتیک زیرساخت‌های تروریستی در سطح زمین و زیرزمین و دفاع از شهرک‌های نگب غربی فعالیت کرده اند.
+
+در چارچوب این عملیات مهندسی، نیروها صدها حفاری سیستماتیک انجام دادند که از طریق آن بیش از ۱۱ کیلومتر مسیر زیرزمینی را شناسایی و منهدم کردند. همچنین صدها زیرساخت تروریستی در سطح زمین نیز نابود شد.
+در جریان نبردهایی که در طول جنگ در این منطقه جریان داشت، سه کیلومتر دیگر از مسیرهای زیرزمینی نیز منهدم شد و تعداد زیادی تروریست توسط یگان‌های مختلفی که در منطقه فعالیت می‌کردند به هلاکت رسیدند.
+
+منطقه بیت حانون در شمال نوار غزه یکی از کانون‌های اصلی و پیچیده نبرد در جریان عملیات زمینی بود. نیروها در این منطقه با تروریست‌ها درگیر شده، با شجاعت و دلاوری عمل کردند و در این راه، تعدادی از نیروهای ارتش اسرائیل در دفاع از شهرک‌های نگب غربی و در چارچوب شکست گردان بیت حانون جان خود را از دست دادند.
+این منطقه طی سال‌ها به یکی از پایگاه‌های اصلی تروریستی سازمان تروریستی حماس تبدیل شده بود؛ جایی که تروریست‌های این سازمان از زیرساخت‌هایی که در دل جمعیت غیرنظامی تعبیه شده بود، فعالیت می‌کردند.
+در زیر خانه‌های مسکونی، مراکز عمومی و مسیرهای تردد، شبکه‌ای گسترده از تونل‌ها ایجاد شده بود که برای اجرای عملیات‌های تروریستی علیه شهروندان اسرائیل و نیروهای ارتش این کشور مورد استفاده قرار می‌گرفت.
+</div>
+
+## Dirty_Kids — post 390258
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390258_1779815038.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+با مقاومت اکثریت ملت ایران پروژه سراسر کثافت اینترنت پرو، لغو و صفحه مربوط به آن در سایت همراه اول حذف شد.
+و خوشبختانه اونایی که با عجله رفتن زیر کیر آخوند و اینترنت پرو خریدن هم به شکل فجیعی کیر شدن.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Hranews — post 113182
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارشی از تداوم بازداشت و بی‌خبری از وضعیت رضا امانی‌فر در بوشهر
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– رضا امانی‌فر، فعال صنفی معلمان بوشهر علیرغم گذشت ۵۳ روز از زمان بازداشت، در بلاتکلیفی به‌سر می‌برد. بی‌خبری از سرنوشت و وضعیت پرونده این شهروند، منجر به افزایش نگرانی‌های خانواده وی شده است.
+#رضا_امانی‌فر
+
+ادامه مطلب
+
+↘️
+@hranews_bot تماس ✉️ -  @Hranews  کانال هرانا 🆑
+</div>
+
+## alonews — post 122876
+
+<div align="center">
+  <a href="telegram/content/alonews_122876_1779815038.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈گویا اینترنت ایرانسل هم درست شد 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122875
+
+<div align="center">
+  <a href="telegram/content/alonews_122875_1779815039.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈گویا اینترنت ایرانسل هم درست شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122874
+
+<div align="center">
+  <a href="telegram/content/alonews_122874_1779815039.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 دفتر امیری قطر: امیر قطر در تماس با رئیس‌جمهور ایران درباره تلاش‌ها برای کاهش تنش و حفظ امنیت منطقه گفت‌وگو کرد
+
+
+🔴 امیر قطر بر لزوم دور نگه داشتن منطقه از پیامدهای تنش و اهمیت راهکارهای مسالمت‌آمیز تأکید کرد.
+
+
+🔴 امیر قطر بر موضع ثابت خود مبنی بر اولویت دادن به راهکارهای سیاسی و دیپلماتیک تأکید نمود.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122873
+
+<div align="center">
+  <a href="telegram/content/alonews_122873_1779815039.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈معاون وزیر ارتباطات: سيستم عامل، مرورگر، آنتی‌ویروس، اپلیکیشن‌های بانکی و ابزارهای امنیتی خود را بروزرسانی کنید
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/05 20:24
 ---
 

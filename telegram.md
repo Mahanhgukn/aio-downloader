@@ -7,6 +7,222 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/05 22:24
+---
+
+## VahidOOnLine — post 242337
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_242337_1779821650.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند در پیامی به ایران اینترنشنال درباره تجمعات شبانه حامیان حکومت گفت که آن‌ها برای برنج و روغن تجمع می‌کنند اما مردم معترض در انقلاب ملی برنج‌ را زیر پای خود له کردند. پیام او با هوش مصنوعی خوانده شده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242336
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242336_1779821652.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️پس از ۸۸ روز قطع اینترنت جهانی در ایران، روز سه‌شنبه، پنجم خردادماه، اتصال کامل اینترنت بین‌المللی در مخابرات برقرار شد. در اولین دقایق اتصال، ایرانیان داخل کشور توانستند از طریق نرم‌افزار واتساپ با عزیزانشان در خارج تماس تصویری بگیرند و همچنین در شبکه‌های اجتماعی تصاویر و ویدیو به اشتراک بگذارند.
+«نت‌بلاکس» که وضعیت اینترنت در جهان را رصد می‌کند، در آخرین به‌روزرسانی خود با تایید افزایش مجدد سطح دسترسی کاربران در ایران اعلام کرد که شبکه‌های تلفن همراه و سایر بخش‌های ارتباطی در حال متصل شدن به اینترنت جهانی هستند. این نهاد نظارتی با این حال اشاره کرد که سیستم فیلترینگ کماکان پابرجا است اما کاربران امکان عبور از آن را دارند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## mwarmonitor — post 9764
+
+
+
+
+## FoxNewsTwitter — post 342278
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342278_1779821653.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NEW: NASA is laying out its long-term vision for a massive lunar base — one that could eventually stretch hundreds of square miles and support humans living and working on the lunar surface.
+
+Officials say the plan centers on building up different assets over time while testing the science of survival in one of the harshest environments known.
+</div>
+
+## pm_afshaa — post 91560
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+از vpn گیگی 2 میلیونی به گیگی 3 هزار تومنی خوش اومدین
+</div>
+
+## pm_afshaa — post 91559
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+99/99999 درصد سال 1405 بدون اینترنت گذشت
+</div>
+
+## DEJradio — post 4999
+
+<div align="center">
+  <a href="telegram/content/DEJradio_4999_1779821655.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺📢 گیدئون سعار وزیر خارجه اسرائیل، در واکنش به پستی منتسب به مجتبی خامنه‌ای که موجودیت اسرائیل را تهدید کرده بود، در شبکه ایکس نوشت:
+«آشنا به نظر می‌رسد. یادم هست فردی با نام‌خانوادگی مشابه قبلا چنین حرف‌هایی می‌زد. راستی، کجایی؟»
+
+خامنه‌ای در پیامی گفته بود، «اسرائیل غده سرطانی است که به پایانش نزدیک می‌شود.»
+
+#موشعلی #موشتبا
+@DEJradio
+</div>
+
+## IranIntlTV — post 339146
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339146_1779821656.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+۲۴ با فرداد فرحزاد
+@iranintltv
+</div>
+
+## IranIntlTV — post 339145
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339145_1779821658.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند در پیامی به ایران اینترنشنال درباره تجمعات شبانه حامیان حکومت گفت که آن‌ها برای برنج و روغن تجمع می‌کنند اما مردم معترض در انقلاب ملی برنج‌ را زیر پای خود له کردند. پیام او با هوش مصنوعی خوانده شده است.
+</div>
+
+## IranIntlTV — post 339144
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339144_1779821660.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مهدی مهدوی‌آزاد در برنامه «چشم‌انداز» گفت: «علی خامنه‌ای با نحوه برخورد با جایگاه ریاست‌جمهوری، این مقام را عملا بی‌اعتبار کرده است. مواضع مسعود پزشکیان درباره مذاکره و جنگ جدی گرفته نمی‌شود و حتی عذرخواهی او از کشورهای عربی نیز با واکنش تند داخلی روبه‌رو شد.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 339143
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339143_1779821662.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻سردار آزمون، مهاجم ۳۱ ساله و دومین گلزن برتر تاریخ تیم ملی فوتبال ایران، پس از موضع‌گیری در مخالفت با جمهوری اسلامی، حمایت از اعتراضات مردمی و انتشار تصویری از دیدارش با محمد بن راشد آل مکتوم، حاکم دبی، با انتقاد رسانه‌های حکومتی و نهادهای نزدیک به حکومت روبه‌رو شد و از تیم ملی کنار گذاشته شد.
+
+🔹آزمون پس از کنار گذاشته شدن، با انتشار استوری‌ای برای بازیکنان و کادر فنی تیم ملی آرزوی موفقیت کرد.
+
+🔹عبدالکریم حسین‌زاده، معاون مسعود پزشکیان، در پیامی در ایکس با اشاره به یادداشت سردار آزمون، او را «سرمایه ملی» خواند و خواستار بازگشتش به تیم ملی فوتبال شد.
+
+🔹همچنین روزنامه حکومتی فرهیختگان خواستار عذرخواهی سردار آزمون برای بازگشت به تیم ملی شده است. این روزنامه در یادداشتی نوشت: «اگر قرار به بازگشت او باشد، همه منتظر شنیدن یک عذرخواهی واقعی و صادقانه هستند.»
+
+🔹به نظر شما، سردار آزمون باید به تیم ملی برگردد؟
+
+🔹برای شرکت در این نظرسنجی، به صفحه اینستاگرام ایران اینترنشنال ورزشی مراجعه کنید؛👇🏽
+
+https://www.instagram.com/p/DYz-lhagvot/
+
+@iranintltvsport
+</div>
+
+## BBCPersian — post 282126
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻نت‌بلاکس از «افزایش» دسترسی به اینترنت در ایران خبر داد
+
+نت‌بلاکس، نهاد ناظر به دسترسی اینترنت در جهان از دسترسی بیشتر به اینترنت از داخل ایران خبر داده است.
+
+این نهاد در یک پیامی نوشت: «ایران، خوش آمدی.»
+
+به‌گفته نت‌بلاکس شبکه‌های تلفن همراه و سایر بخش‌ها دوباره به اینترنت جهانی متصل می‌شوند اما فیلترینگ همچنان پابرجاست هر چند «می‌توان آن را دور زد.»
+
+این نهاد گفته است دسترسی به واتس‌اپ محدود است و برخی از کاربران هنوز به اینترنت متصل نشده‌اند.
+
+ساعاتی پیش نت‌بلاکس برقراری «نسبی» اینترنت در ایران را تائید کرده بود. بعضی از کاربران در داخل ایران هم اتصال به اینترنت را تایید کرده‌اند.
+
+اتصال اینترنت در ایران پس از هشتاد و هشت روز ( ۲۰۹۳ ساعت) قطع «تقریبا کامل» که طولانی‌ترین قطع سراسری اینترنت در تاریخ مدرن است، برقرار شده است.
+
+شرکت مخابرات ایران هم گفته است که کاربران سرویس‌های پهن‌باند ثابت هم‌اکنون بدون محدودیت به شبکه جهانی اینترنت متصل هستند و امکان استفاده کامل از وب‌سایت‌ها و خدمات بین‌المللی برای آنها فراهم شده است.
+
+داده‌های ترافیکی امروز شرکت کنتیک، نیز حاکی از جهش محسوس در افزایش جریان داده به داخل ایران بوده که تا زمان انتشار این گزارش در حال افزایش است.
+
+کنتیک تایید می‌کند که بخشی از این افزایش حاصل دسترسی کاربران به اینترنت ثابت پهن‌باند بوده است.
+
+داگ مادوری، مدیر تحلیل اینترنت در کنتیک، شرکت مستقر در کالیفرنیا برآورد می‌کند که دسترسی به اینترنت جهانی در حال حاضر به حدود ۱۰ درصد میزان قبل از اعتراضات دی ماه رسیده است.
+
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 390264
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390264_1779821663.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به مناسبت روز جهانی گوسفند(فردا)، کصننه عرازشه و سیمکارت سفیدا
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390263
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انگار از انفرادی آوردنت بند عمومی
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390262
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رمز پویای هفت رقمیم
+داره از موجودی چهار رقمیم محافظت میکنه...!
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 122907
+
+<div align="center">
+  <a href="telegram/content/alonews_122907_1779821664.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈برای اولین بار سامانه پدافند هوایی بومی «مجید» ایران تو اختیار نیروهای مسلح ارمنستان دیده شده
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122906
+
+<div align="center">
+  <a href="telegram/content/alonews_122906_1779821664.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈اتاق اصناف ایران: فروش سیگار نخی و فرآورده‌های دخانی بازشده در تمامی واحدهای صنفی ممنوع شد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/05 22:13
 ---
 

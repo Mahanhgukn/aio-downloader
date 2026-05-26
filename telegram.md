@@ -7,6 +7,214 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/05 23:53
+---
+
+## VahidOOnLine — post 242352
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242352_1779827022.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دفتر رسانه‌ای شاهزاده رضا پهلوی با انتشار بیانیه‌ای در واکنش به صدور حکم اعدام برای چهار شهروند ایرانی، نوشت: «صدور دوباره احکام اعدام برای چهار تن از بچه‌های اکباتان، میلاد آرمون، محمدمهدی حسینی، مهدی ایمانی و نوید نجاران، سند دیگری از ماهیت جنایتکار رژیم جمهوری اسلامی است که برای حفظ قدرت، جوانان ایران را به قتل می‌رساند و از خون مردم برای بقای خود تغذیه می‌کند.»
+
+در این بیانیه آمده است: «رژیم ضحاکی جمهوری اسلامی، دادگاه را به ابزار سرکوب تبدیل کرده و اعدام، سلاحی برای ایجاد وحشت در جامعه است.»
+
+دفتر رسانه‌ای شاهزاده رضا پهلوی نوشت: «سکوت جهان در برابر اعدام معترضان ایرانی، یک شکست اخلاقی و سیاسی است. هر روزی که جامعه جهانی در برابر این رژیم مماشات می‌کند، جمهوری اسلامی با جسارت و قساوت بیشتری جان جوانان ایرانی را می‌گیرد و سرکوب را گسترش می‌دهد.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 12608
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دفتر رسانه‌ای شاهزاده رضا پهلوی با انتشار بیانیه‌ای در واکنش به صدور حکم اعدام برای چهار شهروند ایرانی، نوشت: «صدور دوباره احکام اعدام برای چهار تن از بچه‌های اکباتان، میلاد آرمون، محمدمهدی حسینی، مهدی ایمانی و نوید نجاران، سند دیگری از ماهیت جنایتکار رژیم جمهوری اسلامی است که برای حفظ قدرت، جوانان ایران را به قتل می‌رساند و از خون مردم برای بقای خود تغذیه می‌کند.»
+@withyashar
+</div>
+
+## WithYashar — post 12607
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نتانیاهو از ترور هدفمند خبر داد : همین الان محمد عوده، از فرماندهان شاخه نظامی حماس و یکی از طراحان حمله ۷ اکتبر رو در غزه هدف قرار دادیم به حساب همه‌شون می‌رسیم @withyashar
+</div>
+
+## pm_afshaa — post 91584
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+vless://4bebe55d-a34f-46f2-90ec-c292248c3076@weysam.luxurygaming1.ir:80?path=%2F&security=none&encryption=none&host=weysam.luxurygaming1.ir&type=ws#pmtv متصل سرعت بالا برای تمام اوپراتور ها 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom…
+</div>
+
+## pm_afshaa — post 91583
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+vless://f479f518-b927-4516-9723-52b27012aebd@185.143.234.235:2053?path=%3Fed%3D2048&security=tls&alpn=h2%2Chttp%2F1.1&encryption=none&insecure=0&host=dl.lexwill.site&fp=chrome&type=ws&allowInsecure=0&sni=dl.lexwill.site#Pmtv
+
+متصل سرعت بالا
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91582
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دمت گرم سرعت نپسترا خداسسس
+</div>
+
+## pm_afshaa — post 91581
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دمت گرم سرعت نپسترا خداسسس
+</div>
+
+## pm_afshaa — post 91580
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+vless://4bebe55d-a34f-46f2-90ec-c292248c3076@weysam.luxurygaming1.ir:80?path=%2F&security=none&encryption=none&host=weysam.luxurygaming1.ir&type=ws#pmtv
+
+متصل سرعت بالا برای تمام اوپراتور ها
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91579
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خامنه ای کشته شد
+</div>
+
+## pm_afshaa — post 91578
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خامنه ای کشته شد
+</div>
+
+## pm_afshaa — post 91577
+
+<div align="center">
+  <a href="https://t.me/pm_afshaa/91577" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نپسترنت v2ray پرسرعت
+🚀
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 339161
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339161_1779827023.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دفتر رسانه‌ای شاهزاده رضا پهلوی با انتشار بیانیه‌ای در واکنش به صدور حکم اعدام برای چهار شهروند ایرانی، نوشت: «صدور دوباره احکام اعدام برای چهار تن از بچه‌های اکباتان، میلاد آرمون، محمدمهدی حسینی، مهدی ایمانی و نوید نجاران، سند دیگری از ماهیت جنایتکار رژیم جمهوری اسلامی است که برای حفظ قدرت، جوانان ایران را به قتل می‌رساند و از خون مردم برای بقای خود تغذیه می‌کند.»
+
+در این بیانیه آمده است: «رژیم ضحاکی جمهوری اسلامی، دادگاه را به ابزار سرکوب تبدیل کرده و اعدام، سلاحی برای ایجاد وحشت در جامعه است.»
+
+دفتر رسانه‌ای شاهزاده رضا پهلوی نوشت: «سکوت جهان در برابر اعدام معترضان ایرانی، یک شکست اخلاقی و سیاسی است. هر روزی که جامعه جهانی در برابر این رژیم مماشات می‌کند، جمهوری اسلامی با جسارت و قساوت بیشتری جان جوانان ایرانی را می‌گیرد و سرکوب را گسترش می‌دهد.»
+https://iranintl.com/202605265248
+</div>
+
+## Shin_Persian — post 6253
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6253_1779827023.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+DefenceGeek 🇬🇧 ✓ @DefenceGeek Tue, 26 May 2026 20:20:51 UTC A New Movement - Coronet East 024 #FreeIran‌ --- Operation EPIC FURY / Project FREEDOM --- KC-46A "BOBBY81" 19-46061 #AE5FA8 KC-46A "BOBBY82" 19-46007 #AE574D have launched on mission code for…
+</div>
+
+## Shin_Persian — post 6252
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+DefenceGeek 🇬🇧 ✓ @DefenceGeek
+Tue, 26 May 2026 20:20:51 UTC
+
+A New Movement - Coronet East 024 #FreeIran‌
+--- Operation EPIC FURY / Project FREEDOM ---
+
+KC-46A "BOBBY81" 19-46061 #AE5FA8
+KC-46A "BOBBY82" 19-46007 #AE574D
+
+have launched on mission code for Coronet East 024. No idea if they're dragging someone already or if this is a positioning flight, but we'll find out soon no doubt!
+
+@MATA_osint
+
+فارسی
+
+یک جنبش جدید - Coronet East 024 #FreeIran
+--- عملیات خشم حماسی (Operation EPIC FURY) / پروژه آزادی (Project FREEDOM) ---
+
+KC-46A "BOBBY81" 19-46061 #AE5FA8
+KC-46A "BOBBY82" 19-46007 #AE574D
+
+با کد مأموریت Coronet East 024 به پرواز درآمدند. مشخص نیست که آیا همین حالا در حال اسکورت (سوخت‌رسانی) کسی هستند یا این یک پرواز موقعیت‌دهی است، اما بدون شک به زودی متوجه خواهیم شد!
+
+@MATA_osint
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 218740
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_218740_1779827023.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️کامبیز غفوری در برنامه تفسیر خبر: دنیا کمتر به قطر اعتماد می کند تا امارات متحده عربی
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218739
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_218739_1779827024.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️گزارش نرگس صبا در برنامه تفسیر خبر از پول‌های بلوکه شده ایران در قطر
+@FarsiVOA
+</div>
+
+## IranianMinds — post 20839
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سلام دوستان من نتم تازه وصل شده آقای خامنه ای عید نوروز رو تبریک نگفتن اتفاقی افتاده خدایی نکرده؟
+</div>
+
+## alonews — post 122923
+
+<div align="center">
+  <a href="telegram/content/alonews_122923_1779827025.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈الجزیره: جهان اکنون به‌شدت محتاج توافق میان آمریکا و ایران است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/05 23:43
 ---
 

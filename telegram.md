@@ -7,6 +7,77 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/06 00:52
+---
+
+## WithYashar — post 12611
+
+<div align="center">
+  <img src="telegram/content/WithYashar_12611_1779830566.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صداوسیما تصویر جدیدی از مجتبی خامنه‌ای را منتشر کرد
+@withyashar
+خوب پس بدل تکمیل شده نتو وصل کردن ولی اصلا شبیهش نیست ! 🤣
+</div>
+
+## mwarmonitor — post 9779
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سناتور لیندسی گراهام ؛ مدت‌هاست برای من روشن بوده که نقش پاکستان به‌عنوان میانجی، مسئله‌ساز است. خصومت آن‌ها نسبت به اسرائیل سابقه‌ای طولانی دارد.
+
+🔸انکارناپذیر است که هواپیماهای نظامی ایران در پایگاه‌های هوایی پاکستان مستقر شده‌اند و اظهارات گذشته مقامات بلندپایه پاکستانی علیه اسرائیل نگران‌کننده است.
+
+🔸در مورد اظهارات وزیر دفاع درباره توافقات ابراهیم، که گفته پاکستان هرگز به آن‌ها نخواهد پیوست چون به اسرائیل اعتماد ندارد: ممکن است این کلیپ مربوط به یک سال پیش باشد، اما من نگرانم که این طرز فکر همچنان تازه و زنده باشد.
+
+🔸در این راستا، ضروری است که پاکستان همین حالا به درخواست رئیس‌جمهور ترامپ برای پیوستن به توافقات ابراهیم پاسخ دهد.
+
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 342283
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342283_1779830567.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+JUST IN: President Trump says the White House is postponing tomorrow’s Cabinet trip to Camp David due to “possible bad weather conditions.”
+
+The Cabinet meeting to discuss Iran will now be held at the White House instead. https://twitter.com/FoxNews/status/2059292922038702376#m
+</div>
+
+## DEJradio — post 5005
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ هشدار السیسی به پزشکیان دربارهٔ حمله به کشورهای منطقه
+
+عبدالفتاح السیسی، رئیس‌ جمهوری مصر، در تماس تلفنی با مسعود پزشکیان مخالفت قاطع قاهره را با هرگونه اقدام جمهوری علیه کشورهای حاشیهٔ خلیج فارس اعلام کرد.
+السیسی همچنین بر ضرورت کاهش تنش‌ها، استفاده از دیپلماسی و پرهیز از محاسبات اشتباه تأکید کرده است.
+بنا بر گزارش‌ها رئیس ‌جمهوری مصر خواسته تا فرصت کامل برای ادامهٔ مذاکره میان آمریکا و جمهوری اسلامی فراهم شود.
+به گفتهٔ مقام‌های مصری، قاهره در تماس‌ها و رایزنی‌های منطقه‌ای برای تسهیل توافق میان تهران و واشینگتن به‌شدت فعال است.
+
+#خبر #دژ #مصر
+@DEJradio
+</div>
+
+## alonews — post 122946
+
+<div align="center">
+  <a href="telegram/content/alonews_122946_1779830568.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نورالدین الدغیر خبرنگار الجزیره در تهران: همه چیز انجام شده، چیزی باقی نمانده جز [امضای توافق]
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/06 00:42
 ---
 

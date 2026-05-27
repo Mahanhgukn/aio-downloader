@@ -7,6 +7,118 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/07 00:32
+---
+
+## FoxNewsTwitter — post 342325
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342325_1779915778.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+</div>
+
+## FoxNewsTwitter — post 342324
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342324_1779915779.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+“Donald Trump” the buffalo has been spared from sacrifice in Bangladesh after going viral.
+
+“Donald Trump,” the rare albino buffalo named for its blond tuft of hair, was hours away from being sacrificed for Eid al-Adha... until the government stepped in.
+
+It had already been sold for ritual slaughter when viral videos turned it into a national attraction.
+
+Crowds started flooding the farm to see the nearly 1,500-pound animal in person, forcing officials to intervene due to security concerns.
+
+Now the buffalo is headed to the national zoo in Dhaka instead.
+</div>
+
+## pm_afshaa — post 91682
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/proxy?server=87.248.129.13&port=15&secret=ee1603010200010001fc030386e24c3add63646e2e79656b74616e65742e636f6d
+
+
+✉️ @Glitch_Config
+</div>
+
+## pm_afshaa — post 91681
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/proxy?server=195.254.165.4&port=8443&secret=EERighJJvXrFGRMCIMJdCQ==
+
+پروکسی متصل سرعت بالا
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91680
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+vless://406d8436-0eb9-4eb2-84fb-960e076ffba6@104.17.121.71:443?encryption=none&security=tls&sni=de.lezzatzone.ir&fp=chrome&type=tcp&headerType=none#PMTV%20NEWS%20%F0%9F%A6%81%E2%98%80%EF%B8%8F
+
+نپسترنت متصل سرعت بالا
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## FarsiVOA — post 218846
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️رئیس جمهوری آمریکا: مقامات جمهوری اسلامی مصمم به دستیابی به توافق با ما هستند
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218845
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺اف‌بی‌آی با «تهدیدات دولت‌های متخاصم» از جمله «سرکوب فراملی» در زمان برگزاری مسابقات جام جهانی مقابله می‌کند
+
+▪️کش پتل، رئیس پلیس فدرال آمریکا (اف‌بی‌آی)، روز چهارشنبه ۶ خرداد گفت ایالات متحده درباره اقدامات «ضد دموکراتیک» احتمالی «دولت‌های خارجی متخاصم» در طول برگزاری جام جهانی فوتبال هشدار داد و از عموم مردم خواست هوشیار باشند.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8154589.html
+@FarsiVOA
+</div>
+
+## IranianMinds — post 20903
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 اپ استور هم باز شد.
+
+@IranianMinds
+</div>
+
+## alonews — post 123181
+
+<div align="center">
+  <a href="telegram/content/alonews_123181_1779915779.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈دی تا خرداد.......
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/07 00:23
 ---
 

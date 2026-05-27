@@ -7,6 +7,93 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/07 02:23
+---
+
+## VahidOOnLine — post 242490
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242490_1779922392.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های ایران از شنیده شدن صدای ۳ انفجار از شرق شهر بندرعباس حوالی ساعت ۱:۳۰ بامداد خبر دادند. هنوز محل دقیق و منشا این صداها مشخص نیست و پیگیری‌ها برای مشخص شدن آن ادامه دارد. هم‌زمان برای دقایقی پدافند هوایی بندرعباس نیز فعال شد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 12754
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پدافند اصفهان فعال شد !
+@withyashar
+</div>
+
+## mwarmonitor — post 9838
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 دنیای موازیِ صداوسیما واقعاً جای قشنگیه؛ سنت‌کام بیانیه رسمی صادر کرد، پدافند بندرعباس پودر شد ، اسامی تلفات رو دارن می‌شمارن، اونوقت خبرنگارِ تیزبین اون وسط واستاده، نسیم خنک دریا رو بو می‌کشه و با آرامشِ فیلسوفانه‌ای می‌گه: «همه‌چیز عادیه، مردم هم دارن…
+</div>
+
+## mamlekate — post 103591
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 دونالد ترامپ درباره مذاکره با رژیم ایران: توافق نکنند کار را تمام می‌کنیم
+
+رئیس جمهوری آمریکا با تاکید بر این که جمهوری اسلامی چاره‌ای جز توافق با آمریکا ندارد، از این که تاکنون نتیجه‌ای از گفت‌و‌گوها به دست نیامده است ابراز نارضایتی کرد.
+
+ترامپ روز چهارشنبه ۶ خرداد همزمان با برگزاری نشست کابینه خود در کاخ سفید گمانه‌زنی‌ها درباره آزادسازی پول‌‌های بلوکه‌شده و رفع تحریم‌های رژيم ایران از سوی ایالات متحده را نیز رد کرد و به خبرنگاران گفت که با انتقال اورانیوم‌های غنی‌شده [رژیم] ایران به چین یا روسیه مخالف است.
+
+@mamlekate
+</div>
+
+## IranIntlTV — post 339317
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339317_1779922393.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ریک اسکات، سناتور جمهوری‌خواه، گفت ایالات متحده به رهبری دونالد ترامپ به هر شکل مانع دستیابی جمهوری اسلامی به سلاح هسته‌ای خواهد شد.
+او افزود یا توافقی برای توقف این برنامه حاصل می‌شود یا اقدام نظامی قاطع انجام خواهد شد.
+
+گزارش مرضیه حسینی، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 339316
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339316_1779922394.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های ایران از شنیده شدن صدای ۳ انفجار از شرق شهر بندرعباس حوالی ساعت ۱:۳۰ بامداد خبر دادند. هنوز محل دقیق و منشا این صداها مشخص نیست و پیگیری‌ها برای مشخص شدن آن ادامه دارد. هم‌زمان برای دقایقی پدافند هوایی بندرعباس نیز فعال شد.
+https://iranintl.com/202605276527
+</div>
+
+## IranianMinds — post 20910
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یه زمانی هر شب تلگرام جنگ بود
+
+الان هر شب ترور هدفمنده
+</div>
+
+## IranianMinds — post 20909
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_20909_1779922395.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یادش بخیر
+
+@IranianMinds
+</div>
+
+---
 📅 بروزرسانی: 1405/03/07 02:13
 ---
 

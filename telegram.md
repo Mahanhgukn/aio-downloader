@@ -7,6 +7,178 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/06 16:52
+---
+
+## VahidOOnLine — post 242429
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242429_1779888165.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سنتکام، فرماندهی مرکزی آمریکا، در شبکه اجتماعی ایکس اعلام کرد تا شش خرداد، ۱۰۹ کشتی تجاری برای اطمینان از رعایت محاصره دریایی جنوب ایران تغییر مسیر داده شده‌اند.
+
+سنتکام همچنین تصویری منتشر کرد که در آن یک بالگرد «ام‌اچ-۶۰آر سی‌هاوک» پس از گشت‌زنی در دریای عرب در حمایت از این محاصره، به ناوشکن «یو‌اس‌اس دلبرت دی. بلک» نزدیک می‌شود.
+
+این ناوشکن در عملیات مرتبط با اجرای محاصره دریایی علیه ایران مشارکت دارد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## mwarmonitor — post 9811
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_9811_1779888165.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✈️وارد مذاکراتی برای خرید هواپیمای هشدار زودهنگام و کنترل هوابرد GlobalEye ساخت شرکت شده است؛ این خبر را ، نخست‌وزیر کانادا، اعلام کرد.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9810
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴شبکه N12 اسرائیل گزارش داد که در صورت امضای توافق با ایران، هواپیماهای نظامی آمریکا ـ از جمله تانکرهای سوخت‌رسان نیروی هوایی آمریکا (USAF) که در اسرائیل مستقر هستند ـ انتظار می‌رود ظرف ۷۲ ساعت به پایگاه‌هایی در اروپا منتقل شوند.
+
+🔸بر اساس این گزارش، در صورتی که درگیری با ایران از سر گرفته شود، تانکرهای نیروی هوایی آمریکا دوباره به فرودگاه بن‌گوریون بازخواهند گشت.
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 91652
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/proxy?server=31.220.73.93&port=443&secret=eefd4d1b6a40aef75802cb6569f0615e11636c6f7564666c6172652e636f6d
+
+پروکسی متصل مخصوص دانلود
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91651
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴حملات سنگین اسراییل به جنوب لبنان
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91650
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+از چنل مردمی و آزادی‌خواه «خبرگزاری مملکت» حمایت کنید
+👑
+👑
+👑اخبار مهم رو لحظه‌ای پوشش میدن، جوین داشته باشیدش
+❤️‍🔥
+
+https://t.me/mameleekat
+</div>
+
+## DEJradio — post 5035
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5035_1779888166.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👑🎥 سه‌شنبه‌های نه به اعدام؛ تجمع ایرانیان ملی‌گرا مقیم هامبورگ
+
+#همبستگی #هامبورگ
+@DEJradio
+</div>
+
+## IranIntlTV — post 339239
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339239_1779888168.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سنتکام، فرماندهی مرکزی آمریکا، در شبکه اجتماعی ایکس اعلام کرد تا شش خرداد، ۱۰۹ کشتی تجاری برای اطمینان از رعایت محاصره دریایی جنوب ایران تغییر مسیر داده شده‌اند.
+
+سنتکام همچنین تصویری منتشر کرد که در آن یک بالگرد «ام‌اچ-۶۰آر سی‌هاوک» پس از گشت‌زنی در دریای عرب در حمایت از این محاصره، به ناوشکن «یو‌اس‌اس دلبرت دی. بلک» نزدیک می‌شود.
+
+این ناوشکن در عملیات مرتبط با اجرای محاصره دریایی علیه ایران مشارکت دارد.
+https://iranintl.com/202605278078
+</div>
+
+## FarsiVOA — post 218799
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺با دستور مقتدی صدر گروه «سرایا السلام» به دولت عراق می‌پیوندد؛ ضربه‌ای دیگر به ساختار نیابتی‌های رژیم ایران
+
+▪️مقتدی الصدر، یکی از رهبران مذهبی برجسته شیعیان عراق، جدایی «سرایا السلام» از جریان شیعی و الحاق آن به دولت عراق را اعلام کرد.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/orders-saraya-al-salam-s-integration-into-iraqi-state/8154441.html/?nocach=1
+</div>
+
+## IranianMinds — post 20872
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_20872_1779888169.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+طرفداران حکومت😂😂😂
+
+@IranianMinds
+</div>
+
+## Hranews — post 113196
+
+<div align="center">
+  <img src="telegram/content/Hranews_113196_1779888170.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مجتبی بهزادیان، مدیرکل دفتر نظارت بر عرضه و نمایش فیلم، اعلام کرد که موضوعات مطرح‌شده درباره فیلم «تهران کنارت» به انتشار یک ویدیوی تبلیغاتی «خارج از رویه‌های سازمان سینمایی» بازمی‌گردد. به گفته وی، آنچه موجب واکنش نهادهای مسئول شده، استفاده از صدای یک خواننده زن در این ویدیو عنوان شده است.
+
+لازم به ذکر است؛ مرکز رسانه قوه قضاییه چند روز پیش از تشکیل پرونده قضایی علیه دست‌اندرکاران این فیلم به دلیل آنچه «محتوای غیراخلاقی و مغایر با عفت عمومی» خبر داده بود. همچنین رئیس سازمان سینمایی کشور نیز در ارتباط با صدور پروانه نمایش این فیلم به مرجع قضایی احضار شده بود.
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## alonews — post 123063
+
+<div align="center">
+  <a href="telegram/content/alonews_123063_1779888171.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈جنگنده‌های اسرائیلی حملات هوایی به بریتال، کفر حونه و ملیخ در لبنان انجام داده‌اند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123062
+
+<div align="center">
+  <a href="telegram/content/alonews_123062_1779888171.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈اسرائیل شدید داره به حزب الله حمله میکنه از وزارت خارجه گفتن امکان توقف مذاکره اولیه و انسداد کامل هرمز هست
+
+
+🔴یعنی نتم ممکنه دوباره قطع کنن
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/06 16:42
 ---
 

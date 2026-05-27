@@ -7,6 +7,58 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/07 01:13
+---
+
+## BBCPersian — post 282209
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🖋سوتیک بیسواس
+خبرنگار هند، بی‌بی‌سی
+
+برای نخستین بار از سال ۱۹۵۷، دیگر هیچ‌یک از دولت‌های ایالتی در هند تحت رهبری کمونیست‌ها نیست.
+
+شکست «جبهه دموکراتیک چپ» به رهبری حزب کمونیست هند (مارکسیست) در ایالت کرالا در انتخابات اخیر، پس از یک دهه حضور در قدرت، به یکی از ماندگارترین تجربه‌های کمونیسم دموکراتیک در جهان پایان داده است.
+
+در اوج قدرت، احزاب کمونیست هند بر ایالت‌هایی از بنگال غربی تا کرالا و تریپورا حکومت می‌کردند. این احزاب از طریق اتحادیه‌های کارگری، سازمان‌های دهقانی، شاخه‌های دانشجویی و شبکه‌های منظم حزبی، بر زندگی بیش از ۱۰۰ میلیون نفر تاثیر گذاشتند.
+
+آلبوم را ورق بزنید و ادامه مطلب را از لینک زیر در وبسایت بی‌بی‌سی فارسی بخوانید.
+
+
+📸GettyImages/ Reuters/ Anadolu via Getty Images/ AFP via Getty Images/ Hindustan Times via Getty Images/
+Bloomberg via Getty Images/NurPhoto via Getty Images
+https://bbc.in/3POJXYS
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 390359
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390359_1779918187.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+طرف تازه اینترنت پرو خریده، بعد پسرش بهش خبر میده اینترنتا وصل شده.
+
+واکنش باباهه خداست😂😂
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390357
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 پاول دروف عکس خودش رو تو ایکس پست کرده و نوشته؛
+
+Daddy 😩😩💦💦
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/03/07 01:05
 ---
 

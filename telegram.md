@@ -7,6 +7,243 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/06 21:04
+---
+
+## VahidOOnLine — post 242461
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242461_1779903251.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️پیت هگست، وزیر جنگ آمریکا، در نشست کابینه در کاخ سفید گفت در هر دو دوره ریاست‌جمهوری دونالد ترامپ تنها یک رویکرد ثابت وجود داشته و آن جلوگیری کامل از دستیابی ایران به سلاح هسته‌ای بوده است.
+او با اشاره به عملیات «خشم حماسی» تاکید کرد این‌بار برخلاف جنگ‌های عراق و افغانستان، رویکرد آمریکا مبتنی بر «قدرت هوشمند و حداکثر بازدارندگی» بوده و نتیجه آن «به زانو درآمدن ایران» است.
+هگست در ادامه گفت که توان نظامی ایران به‌شدت آسیب دیده و گفت نیروی دریایی ایران «در کف خلیج فارس» قرار دارد و نیروی هوایی و پدافند این کشور نیز دچار آسیب شده است. به گفته او، اگرچه ایران هنوز توان موشکی دارد، اما فعلا قادر به تولید بیشتر موشک، پهپاد یا شناورهای نظامی نیست.
+وزیر جنگ آمریکا همچنین تاکید کرد که ایران در نتیجه فشارهای واردشده ناچار به پذیرش مذاکره شده و هم‌زمان تحت یک «محاصره جهانی» قرار گرفته که صادرات و واردات آن را مختل کرده است.
+او در پایان گفت آمریکا همچنان گزینه‌های نظامی و دیپلماتیک را روی میز دارد و در صورت لزوم «برای پایان دادن به موضوع» آماده اقدام مستقیم خواهد بود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242460
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242460_1779903252.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ در پاسخ به سوالی درباره کنترل تنگه هرمز توسط تهران و عمان گفت این تنگه برای همه باز خواهد بود و آب‌های بین‌المللی محسوب می‌شود. او تاکید کرد هیچ‌کس آن را کنترل نخواهد کرد و آمریکا بر آن نظارت خواهد داشت.
+
+ترامپ افزود کنترل تنگه بخشی از مذاکرات است و ایران تمایل دارد آن را در اختیار بگیرد، اما چنین اتفاقی نخواهد افتاد. او درباره عمان نیز گفت این کشور مانند دیگران رفتار خواهد کرد و در غیر این صورت آمریکا مجبور خواهد شد آن‌ها را منفجر کند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 12717
+
+<div align="center">
+  <img src="telegram/content/WithYashar_12717_1779903253.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در پی رد لغو تحریم‌های ایران از سوی دونالد ترامپ، بازار سهام ایالات متحده در عرض تنها ۲۰ دقیقه، ۲۳۰ میلیارد دلار از ارزش خود را از دست داد.
+@withyashar
+</div>
+
+## WithYashar — post 12716
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: اوباما کشور اشتباهی را انتخاب کرد. او باید کشور دیگری را انتخاب می‌کرد. به شما نمی‌گویم که آن چه بود. او وقتی ایران را انتخاب کرد، کشور اشتباهی را انتخاب کرد.
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342318
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342318_1779903254.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NEW: DHS Sec. Markwayne Mullin responds to "radical left" ICE protests in New Jersey:
+
+"It shows the radical left Democrats' priorities when they decide to go out and protest a detention center where we're housing rapists, child predators, murderers, drug dealers, and they choose Memorial Day of all the time to go protest something."
+
+"Then you have one of the senators complain because he got splattered with a with a, you know, pepper ball. I'm sorry. You probably shouldn't have been there."
+</div>
+
+## IranIntlTV — post 339277
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339277_1779903256.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ در پاسخ به سوالی درباره کنترل تنگه هرمز توسط تهران و عمان گفت این تنگه برای همه باز خواهد بود و آب‌های بین‌المللی محسوب می‌شود. او تاکید کرد هیچ‌کس آن را کنترل نخواهد کرد و آمریکا بر آن نظارت خواهد داشت.
+
+ترامپ افزود کنترل تنگه بخشی از مذاکرات است و ایران تمایل دارد آن را در اختیار بگیرد، اما چنین اتفاقی نخواهد افتاد. او درباره عمان نیز گفت این کشور مانند دیگران رفتار خواهد کرد و در غیر این صورت آمریکا مجبور خواهد شد آن‌ها را منفجر کند.
+https://iranintl.com/202605270743
+</div>
+
+## FarsiVOA — post 218824
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_218824_1779903257.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در یکی از تجمع‌های شبانه حکومتی ماکت جواد ظریف با شعار «مرگ بر منافق» آتش زده شد. با این حال کاربران بسیاری به این اتفاقات با دیده تردید نگاه می‌کنند و می‌گویند اختلافی جدی در میان مقامات جمهوری اسلامی وجود ندارد و همه بر سر حفظ نظام با هم متحد هستند.
+</div>
+
+## FarsiVOA — post 218823
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺حمله ارتش اسرائیل به صدها موضع حزب‌الله در لبنان
+
+▪️ارتش اسرائیل روز چهارشنبه ۶ خرداد با انتشار پیامی در شبکه‌های اجتماعی اعلام کرد که ساختمان‌های نظامی، مقرهای فرماندهی، و سایت‌های پرتاب گروه تروریستی حزب‌الله در منطقه البقاع را هدف قرار داده است.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/israeli-army-attack-hezbollah-terrorist-organization/8154533.html/?nocach=1
+</div>
+
+## FarsiVOA — post 218822
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_218822_1779903261.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیت هگست، وزیر جنگ آمریکا در جلسه کابینه گفت که اگر مذاکرات با جمهوری اسلامی به نتیجه نرسد و لازم باشد، ارتش آمریکا آماده است که باز گردد و کار را تمام کند.
+آقای هگست توضیح داد که عملیات نظامی علیه جمهوری اسلامی با جنگ عراق و افغانستان متفاوت است و پرزیدنت ترامپ اطمینان حاصل خواهد کرد که حکومت ایران به سلاح هسته‌ای دست پیدا نکند.
+</div>
+
+## DW_Farsi — post 125209
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125209_1779903261.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 وزارت اطلاعات ایران: دشمن به جنگ نرم و سایبری روی آورده است
+
+وزارت اطلاعات ایران طی بیانیه‌ای با اشاره به آمریکا و اسرائیل "تصرف، تجزیه، تسلیم، فروپاشی و براندازی" حکومت را جزو اهداف آن‌ها خواند و مدعی شد که "دشمن اکنون با توقف جنگ سخت" به "جنگ نرم و سایبری" روی آورده است.
+
+در بیانیه‌ این وزارت‌خانه که روز چهارشنبه ششم خرداد (۲۷ مه) از صدا‌وسیمای جمهوری اسلامی منتشر شد اعلام شده که "دشمن" اکنون با ابزارهایی دیگر همان هدفی را دنبال می‌کند که در آغاز جنگ ایران "آشکارا اعلام کرده بود"، اما "نتوانست از راه نظامی به آن دست یابد."
+
+این وزارتخانه همچنین مدعی شد، آمریکا و اسرائیل می‌کوشند "فشار اقتصادی را تشدید کنند"، میان گروه‌های دینی و قومی شکاف ایجاد کنند و دست به خرابکاری و دیگر "عملیات تروریستی" بزنند.
+
+در این بیانیه ادعا شده است که برای این منظور، "سلاح، مهمات و ابزارهای غیرقانونی ارتباطی، به‌ویژه استارلینک" برای دسترسی به اینترنت ماهواره‌ای، در "دستور کار جدی دشمن" قرار دارد.
+
+با وجود آتش‌بس برقرارشده، نیروهای آمریکایی اخیرا بار دیگر مواضع موشکی و کشتی‌های ایرانی را هدف حمله قرار داده‌اند.
+@dw_farsi
+</div>
+
+## RadioFarda — post 157621
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸دونالد ترامپ، رئیس‌جمهور آمریکا، روز چهارشنبه در نشست کابینه خود گفت که ایران بسیار مایل است به توافق برسد، اما آمریکا هنوز از توافق پیشنهادی رضایت ندارد.
+
+🔸ترامپ در این نشست در حضور خبرنگاران گفت: «ایران خیلی مصمم است، آن‌ها خیلی می‌خواهند که به توافق برسند. تا اینجا هنوز موفق نشده‌اند... ما از آن راضی نیستیم، اما خواهیم شد.»
+
+🔸او سپس بار دیگر ایران را به ازسرگیری حملات نظامی تهدید کرد: «یا به آن نقطه می‌رسیم، یا اینکه مجبور می‌شویم کار را یکسره کنیم.»
+
+🔸مارکو روبیو، وزیر خارجه آمریکا، نیز در نشست کابینه اعلام کرد در مذاکرات با ایران برای رسیدن به یک توافق، مقداری پیشرفت حاصل شده است.
+
+🔸او گفت: «فکر می‌کنم مقداری پیشرفت و علاقه برای رسیدن به توافق وجود داشته و طی چند ساعت و چند روز آینده خواهیم دید که آیا امکان پیشرفت بیشتر وجود دارد یا نه.»
+
+🔸آقای روبیو همچنین تأکید کرد: «حرف آخر این است که ایران هرگز به سلاح هسته‌ای دست نخواهد یافت.»
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 20884
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_20884_1779903262.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ یه خبری رو یه ریپوست کرده که گزارشیه که نشون میده آزار جنسی در زندان های جمهوری اسلامی در دوران آتش بس بیشتر شده!
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 282203
+
+<div align="center">
+  <a href="https://t.me/bbcpersian/282203" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پادکست جام‌ جهان‌نما چهارشنبه ۶ خرداد ۱۴۰۵
+
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 390343
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390343_1779903264.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دوستان وقتی شما نبودید عرزشیا به دنیا جهانبخت می‌گفتن باشرف:))
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390342
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏کارمندای پورن‌هاب تا دو هفته باید سه شیفته کار کنن.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 123123
+
+<div align="center">
+  <a href="telegram/content/alonews_123123_1779903264.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: اوباما کشور اشتباهی را انتخاب کرد. او باید کشور دیگری را انتخاب می‌کرد. به شما نمی‌گویم که آن چه بود. او وقتی ایران را انتخاب کرد، کشور اشتباهی را انتخاب کرد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123122
+
+<div align="center">
+  <a href="telegram/content/alonews_123122_1779903265.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ درباره ایران: آنها شروع به دادن چیزهایی می کنند که باید به ما بدهند. اگر این کار را انجام دهند، عالی است.
+
+
+🔴اگر این کار را نکنند، هگست آنها را تمام خواهد کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123121
+
+<div align="center">
+  <a href="telegram/content/alonews_123121_1779903265.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ درباره ایران: این تغییر رژیم است. یک رژیم از بین رفته، رژیم دیگری از بین رفته، و ما با بخش‌هایی از رژیم سوم سروکار داریم.
+
+
+🔴پ.ن : تنها چیزی که تغییر کرد مارک سیگار من بود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/06 20:53
 ---
 

@@ -7,6 +7,107 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/07 03:23
+---
+
+## VahidOOnLine — post 242496
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242496_1779926025.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک مقام آمریکایی در گفت‌وگو با رویترز از حملات جدید آمریکا به یک سایت نظامی در ایران خبر داد و گفت ارتش آمریکا همچنین چندین پهپاد ایرانی را رهگیری و سرنگون کرده است. هنوز به جزییات این سایت نظامی و تعداد پهپادها اشاره‌ای نشده است.
+ساعتی پیش در پی شنیده شدن صدای ۳ انفجار در شرق بندرعباس، پدافند هوایی این شهر فعال شد.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242495
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242495_1779926026.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دقایقی پس از گزارش خبرگزاری فارس درباره شنیده شدن سه صدای انفجار در شرق بندرعباس، یک مقام آمریکایی به رویترز گفت که ارتش آمریکا حمله‌های جدیدی علیه یک سایت نظامی جمهوری اسلامی انجام داده که تهدیدی برای نیروهای آمریکایی و تردد تجاری در تنگه هرمز بوده است. او همچنین گفته که ارتش آمریکا عملیات دیگری علیه چند پهپاد ایرانی انجام داده است.
+ارتش آمریکا روز دوشنبه نیز به قایق‌های سپاه که گفته شده در حال مین‌گذاری در تنگه هرمز بودند حمله کرد و پرتابگرهای موشکی را نیز در خاک ایران هدف قرار داد.
+با این حال مذاکرات تهران با آمریکا ادامه پیدا کرد و باقر قالیباف روز سه‌شنبه نیز برای پیگیری مذاکرات در عمان ماند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342331
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342331_1779926027.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NOW: VP Vance waves as he boards Air Force Two with Second Lady Usha Vance.
+
+The vice president will be speaking at the United States Air Force Academy’s 68th graduation ceremony on Thursday.
+</div>
+
+## pm_afshaa — post 91702
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رویترز:جت های جنگی آمریکا یک سایت نظامی در بندر عباس را بمباران کردن
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 339324
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339324_1779926030.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک مقام آمریکایی در گفت‌وگو با رویترز از حملات جدید آمریکا به یک سایت نظامی در ایران خبر داد و گفت ارتش آمریکا همچنین چندین پهپاد ایرانی را رهگیری و سرنگون کرده است. هنوز به جزییات این سایت نظامی و تعداد پهپادها اشاره‌ای نشده است.
+ساعتی پیش در پی شنیده شدن صدای ۳ انفجار در شرق بندرعباس، پدافند هوایی این شهر فعال شد.
+
+https://iranintl.com/202605271743
+</div>
+
+## Persian_Trend_Official — post 15149
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15149_1779926031.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صداوسیما جمهوری اسلامی پس از گذشت حدود دو ساعت از شنیده شدن صدای انفجار در بندرعباس خبر حمله را به این شکل تأیید کرد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15148
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15148_1779926031.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حمله مجدد هوایی ارتش ایالات متحده به بندرعباس
+
+به نقل از گزارش دقایقی پیش رویترز، ایالات متحده امریکا حملات هوایی جدیدی را علیه مناطقی در بندرعباس انجام داده است.
+
+به گفته مقاماتی امریکایی این مناطق تهدیدی برای نیروهای ایالات متحده و کشتی‌های تجاری در تنگه هرمز محسوب می‌شدند.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+---
 📅 بروزرسانی: 1405/03/07 03:13
 ---
 

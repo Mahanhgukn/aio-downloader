@@ -7,6 +7,230 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/07 22:43
+---
+
+## VahidOOnLine — post 242651
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242651_1779995630.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسکات بسنت، وزیر خزانه‌داری آمریکا، در نشست خبری کاخ سفید گفت ما در ایران تغییر رژیم نداشتیم اما رژیم را تغییر داده‌ایم و همان‌طور که رییس‌جمهور ترامپ گفت و پیش‌تر هم گفته‌ایم، لایه اول رهبری حذف شد، لایه دوم نیز حذف شد و اکنون در لایه سوم هستیم.
+
+او افزود حکومت ایران سه ستون دارد: دولت، سپاه پاسداران و روحانیون. آن‌ها در برقراری ارتباط با یکدیگر مشکل دارند، بنابراین ما صبور هستیم اما صبر ما نامحدود نیست.
+
+بسنت اضافه کرد ترامپ همیشه توافق صلح را ترجیح می‌دهد، بنابراین هر کاری که تاکنون انجام داده‌ایم دفاعی بوده و در حال حاضر نیز همین مسیر را ادامه خواهیم داد. اما اگر رییس‌جمهور فکر کند نمی‌تواند به توافق صلح برسد، گزینه اقدام نظامی دوباره روی میز خواهد بود.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## mwarmonitor — post 9871
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸دونالد ترامپ پیش از موافقت با توافق با ایران، در پی دریافت مشورت و نظر کارشناسی است. CNN
+
+🔴مارک لوین:
+من رئیس‌جمهور را سرزنش نمی‌کنم که چند روزی برای فکر کردن درباره این موضوع وقت گرفته است—یعنی درباره توافق اولیه‌ای که مذاکره‌کنندگانش از طرف رژیم ایران به او ارائه کرده‌اند.
+
+🔸می‌فهمم چرا رژیم ایران با این موضوع موافقت کرده است: طبق گزارش‌ها، «در ازای تعهداتی برای بازگشایی تنگه هرمز و چشم‌پوشی از توسعه سلاح‌های هسته‌ای، آمریکا دارایی‌های بلوکه‌شده ایران را آزاد خواهد کرد و درباره کاهش تحریم‌ها وارد مذاکره می‌شود، و همچنین وارد گفت‌وگو درباره سازوکاری برای اجازه ورود کمک‌های انسانی و سایر کالاهای ضروری به ایران خواهد شد.»
+🔹بنابراین، دارایی‌های بلوکه‌شده فوراً آزاد می‌شوند (که این یعنی میلیاردها دلار)، کاهش تحریم‌ها در آینده مطرح است، و همین‌طور «کمک‌های انسانی» (به رژیمی که مردم خودش را سرکوب می‌کند). این یک تزریق عظیم میلیاردها دلاری به ایران است، علاوه بر اینکه رژیم دوباره می‌تواند نفت صادر کند—که همه این‌ها به سپاه پاسداران و دیگر نهادهای سرکوبگر کمک مالی خواهد کرد، و مطمئناً بخش عمده پول هم به همان‌جا می‌رود. و هیچ اشاره‌ای به موشک‌های بالستیک نشده، که کاملاً موضوعی حیاتی است، و هیچ اشاره‌ای هم به خشونت علیه مردم نشده است.
+🔸باید جزئیات بسیار بیشتری وجود داشته باشد تا دقیقاً روشن شود چه چیزی در این مذاکرات انجام شده که در ازای فقط ۶۰ روز گفت‌وگو، چنین تزریق عظیمی از پول به رژیم را توجیه کند. آیا در این مدت به دنبال سلاح هسته‌ای نخواهند رفت؟ من فکر می‌کردم اگر این کار را بکنند، ما به‌صورت نظامی به آن‌ها حمله خواهیم کرد. و آن‌ها تنگه هرمز را باز می‌کنند—پس یعنی بستن آن از طرف رژیم، ابزاری برای کشاندن ما به میز مذاکره بوده است؟
+🔹ما در حال برداشتن فشار اقتصادی و نظامی هستیم، فقط با این تهدید که ممکن است دوباره بازگردد. چرا نباید قبل از برداشتن فشار اقتصادی، امتیازات را تضمین کرد؟ اگر آن‌ها موافقت نمی‌کردند، پس رژیم تا چه حد واقعاً برای دادن امتیازات جدی و پایدار جدی است؟
+🔸من رئیس‌جمهور را سرزنش نمی‌کنم که چند روزی برای فکر کردن به این موضوع وقت بگذارد، اگر این گزارش درست باشد. و اجرای چنین توافقی، با توجه به ماهیت و سابقه این رژیم، هر چه باشد، عملاً غیرممکن خواهد بود (به‌خصوص بعد از دوران ریاست‌جمهوری ترامپ).
+
+﻿
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 342363
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342363_1779995630.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+A Texas man accused of threatening to kill Erika Kirk and bomb a Turning Point USA event has been charged with a third-degree felony count for making a terroristic threat.
+
+26-year-old Jacob Wenske allegedly wrote a disturbing series of online posts and emails, including saying he knows “exactly where to bomb” after an upcoming TPUSA event was announced in San Antonio.
+
+Authorities say he later escalated the threats, allegedly writing: “Death to Erika Kirk and every single speaker there!!” while threatening a bombing at “every single Turning Point rally and event.”
+
+The summit is scheduled for June 5–7 at the San Antonio Marriott Rivercenter and is expected to draw more than 2,500 attendees.
+
+TPUSA says security at the event will include “enhanced, multi-layered” protection with private security and local police following the threats.
+</div>
+
+## FoxNewsTwitter — post 342362
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342362_1779995631.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NOW: Treasury Sec. Bessent defends the proposal to put President Trump's face on a $250 bill to commemorate America's anniversary:
+
+REPORTER: "Politically, do you think it's a good idea though when people are struggling to afford gas and groceries?"
+
+BESSENT: "I don't think that there's anything untoward about having the president of the United States, the person who is president of the United States on the 250th anniversary bill."
+</div>
+
+## FoxNewsTwitter — post 342361
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342361_1779995633.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: Secretary Scott Bessent issues a stark warning to Iran, revealing the regime's leadership structure is in disarray and that President Trump's patience with the Islamic Republic is wearing thin.
+
+"We are being patient. We do not have unlimited patience.”
+
+“President Trump always prefers a peace deal. So everything we have done thus far has been defensive... But if President Trump doesn't think he can get a peace deal, then kinetic is back."
+</div>
+
+## IranIntlTV — post 339463
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339463_1779995634.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسکات بسنت، وزیر خزانه‌داری آمریکا، در نشست خبری کاخ سفید گفت ما در ایران تغییر رژیم نداشتیم اما رژیم را تغییر داده‌ایم و همان‌طور که رییس‌جمهور ترامپ گفت و پیش‌تر هم گفته‌ایم، لایه اول رهبری حذف شد، لایه دوم نیز حذف شد و اکنون در لایه سوم هستیم.
+
+او افزود حکومت ایران سه ستون دارد: دولت، سپاه پاسداران و روحانیون. آن‌ها در برقراری ارتباط با یکدیگر مشکل دارند، بنابراین ما صبور هستیم اما صبر ما نامحدود نیست.
+
+بسنت اضافه کرد ترامپ همیشه توافق صلح را ترجیح می‌دهد، بنابراین هر کاری که تاکنون انجام داده‌ایم دفاعی بوده و در حال حاضر نیز همین مسیر را ادامه خواهیم داد. اما اگر رییس‌جمهور فکر کند نمی‌تواند به توافق صلح برسد، گزینه اقدام نظامی دوباره روی میز خواهد بود.
+https://iranintl.com/202605282114
+</div>
+
+## FarsiVOA — post 218917
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️معاون رئیس جمهوری آمریکا روز پنجشنبه ۷ خرداد در جشن دانش‌آموختگی آکادمی نیروی هوایی آمریکا گفت که این نیرو در دو عملیات «خشم حماسی» و «چکش نیمه‌شب» علیه جمهوری اسلامی عملکردی درخشان داشته است. ترجمه همزمان پژواک کیومرثی
+@FarsiVOA
+</div>
+
+## DW_Farsi — post 125256
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125256_1779995635.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 تسنیم: متن توافق ایران و آمریکا هنوز نهایی نشده است
+
+یک منبع نزدیک به تیم مذاکره‌کننده جمهوری اسلامی به خبرگزاری تسنیم، وابسته به سپاه پاسداران گفت که برخلاف ادعای برخی منابع غربی مبنی بر نهایی شدن متن یادداشت تفاهم میان ایران و آمریکا، برای تمدید ۶۰ روزه آتش‌بس، "این موضوع واقعیت ندارد و هنوز متن قطعی نشده است."
+
+این منبع آگاه افزود ایران "تا این لحظه به میانجی پاکستانی اعلام نهایی شدن متن را انجام نداده است."
+
+او همچنین تاکید کرد که در صورت نهایی شدن واقعی متن، جمهوری اسلامی این موضوع را هم به میانجی پاکستانی و هم به افکار عمومی اعلام خواهد کرد و "تا آن زمان هرگونه روایت منابع غربی درباره نهایی شدن موضوع نادرست است."
+
+این اظهارات در حالی مطرح می‌شود که پیش‌تر چهار منبع آگاه به خبرگزاری رویترز گفته بودند ایالات متحده و ایران بر سر یک "یادداشت تفاهم اولیه" برای تمدید آتش‌بس به مدت ۶۰ روز به توافق رسیده‌اند، اما دونالد ترامپ، رئیس‌جمهور آمریکا، هنوز آن را تأیید نکرده است.
+
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 15205
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15205_1779995636.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرنگار: آیا کاهش تحریم‌ها برای ایران روی میز است؟
+
+اسکات بسنت، وزیر خزانه‌داری امریکا: تا زمانی که تنگه هرمز باز نشود و ایرانی‌ها موافقت نکنند که باید اورانیوم غنی‌شده با درصد بالا را تحویل دهند و نمی‌توانند برنامه هسته‌ای داشته باشند، هیچ گزینه‌ای روی میز نخواهد بود.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15204
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15204_1779995637.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+منبع ایرانی خبر نهایی شدن متن تفاهم‌نامه ایران و امریکا را تکذیب کرد. یک منبع نزدیک به تیم مذاکره‌کننده ایران به تسنیم گفت: برخلاف ادعای برخی منابع غربی مبنی بر نهایی شدن متن یادداشت تفاهم بین ایران و آمریکا و تنها منتظر ماندن برای اعلام دو طرف، این موضوع…
+</div>
+
+## IranianMinds — post 20967
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ی خرزشی رندوم :
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20966
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_20966_1779995638.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ تنها جایی که در لحظه عضویت بهت 500 هزارتومان موجودی میده اینجاس 
+❌
+
+
+🎉 کافیه فقط عضو بشی تا #وینرو بهت 
+🤩 
+🤩 
+🤩 هزارتومان جایزه بده ، نیازی هم به واریز نیست.
+
+
+⌛ پشتیبانی 24 ساعته
+
+🍆تنها سایت مورد اعتماد ما با بونوس های کاملا واقعی و رویایی:
+
+🌐 Winro.io
+
+🌐 Winro.io
+کانال بونوس های رایگان g7
+
+📱 @winro_io
+</div>
+
+## alonews — post 123375
+
+<div align="center">
+  <a href="telegram/content/alonews_123375_1779995639.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈هگستث: به لطف سرمایه‌گذاری نظامی تاریخی ۱.۵ تریلیون دلاری رئیس‌جمهور ترامپ، سربازان ما بزرگ‌ترین افزایش حقوق در تاریخ مدرن را دریافت خواهند کرد.
+
+
+🔴ما همچنین سرمایه‌گذاری نسلی در خوابگاه‌ها، زیرساخت‌های نظامی و سیستم‌های پشتیبانی سربازان انجام می‌دهیم.
+
+
+🔴آمریکا اول = سربازان اول
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123374
+
+<div align="center">
+  <a href="telegram/content/alonews_123374_1779995639.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 آتلانتیک: «قیمت نفت پایین است زیرا سرمایه‌ گذاران انتظار دارند ترامپ قبل از اینکه قیمت‌ها خیلی بالا بروند، به جنگ پایان دهد.»
+
+
+🔴 اما از آنجا که قیمت‌ها پایین است، ترامپ با فشار کمتری برای پایان دادن به جنگ مواجه است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/07 22:34
 ---
 

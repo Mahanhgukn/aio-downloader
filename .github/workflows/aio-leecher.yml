@@ -31,6 +31,43 @@ on:
         description: 'Route downloads through WireGuard VPN (requires secret WG_CONFIG)'
         type: boolean
         default: false
+      impersonate:
+        description: 'Impersonate a browser/client (uses curl_cffi) – leave “None” to disable'
+        type: choice
+        options:
+          - None
+          - Chrome-133:Macos-15
+          - Chrome-136:Macos-15
+          - Safari-17.2:Ios-17.2
+          - Safari-18.0:Ios-18.0
+          - Safari-18.4:Ios-18.4
+          - Safari-26.0:Ios-26.0
+          - Chrome-99:Android-12
+          - Chrome-131:Android-14
+          - Tor-14.5:Macos-14
+          - Edge-99:Windows-10
+          - Edge-101:Windows-10
+          - Firefox-133:Macos-14
+          - Firefox-135:Macos-14
+          - Safari-15.3:Macos-14
+          - Safari-15.5:Macos-14
+          - Safari-17.0:Macos-14
+          - Safari-18.0:Macos-15
+          - Safari-18.4:Macos-15
+          - Safari-26.0:Macos-26
+          - Chrome-99:Windows-10
+          - Chrome-100:Windows-10
+          - Chrome-101:Windows-10
+          - Chrome-104:Windows-10
+          - Chrome-107:Windows-10
+          - Chrome-110:Windows-10
+          - Chrome-116:Windows-10
+          - Chrome-119:Macos-14
+          - Chrome-120:Macos-14
+          - Chrome-123:Macos-14
+          - Chrome-124:Macos-14
+          - Chrome-131:Macos-14
+        default: None
 
 permissions:
   contents: write
@@ -46,22 +83,29 @@ jobs:
         with:
           persist-credentials: true
 
-      - name: "Install yt-dlp, jq, ffmpeg"
+      - name: "Install yt-dlp, jq, ffmpeg, Deno"
         run: |
           echo "→ Installing / updating yt-dlp..."
           mkdir -p ~/.local/bin
           echo "$HOME/.local/bin" >> $GITHUB_PATH
           if ! command -v yt-dlp &> /dev/null; then
-            curl -L https://github.com/yt-dlp/yt-dlp/releases/latest/download/yt-dlp \
+            curl -L https://github.com/yt-dlp/yt-dlp/releases/latest/download/yt-dlp_linux \
               -o ~/.local/bin/yt-dlp
             chmod a+rx ~/.local/bin/yt-dlp
           fi
           echo "✅ yt-dlp ready."
 
-          echo "→ Installing jq & ffmpeg..."
+          echo "→ Installing jq, ffmpeg..."
           sudo apt-get update -qq
           sudo apt-get install -y -qq jq ffmpeg
           echo "✅ jq & ffmpeg ready."
+
+          echo "→ Installing Deno (required for YouTube bot detection bypass)..."
+          if ! command -v deno &> /dev/null; then
+            curl -fsSL https://deno.land/install.sh | sh -s -- -y
+            echo "$HOME/.deno/bin" >> $GITHUB_PATH
+          fi
+          echo "✅ Deno ready."
 
       - name: "Parse URLs"
         id: parse
@@ -149,14 +193,27 @@ jobs:
             echo "vpn_available=false" >> $GITHUB_OUTPUT
           fi
 
-      - name: "Download (with optional VPN fallback per link)"
+      - name: "Download (with retry & failure tracking)"
+        id: download
         run: |
-          set -e
           ENTRIES_JSON='${{ steps.parse.outputs.ENTRIES_JSON }}'
           OUTPUT_FOLDER="downloads"
           mkdir -p "$OUTPUT_FOLDER"
 
-          # Cookie helpers (same as before)
+          # ── Impersonate argument ──
+          IMPERSONATE_TARGET="${{ inputs.impersonate }}"
+          IMPERSONATE_ARG_ARRAY=()
+          if [ "$IMPERSONATE_TARGET" != "None" ]; then
+            IMPERSONATE_ARG_ARRAY=(--impersonate "$IMPERSONATE_TARGET")
+            echo "🎭 Using impersonation: $IMPERSONATE_TARGET"
+          else
+            echo "🎭 No impersonation (None selected)"
+          fi
+
+          # ── Base yt-dlp arguments (Deno + EJS for YouTube challenges) ──
+          YTDLP_BASE_ARGS="--js-runtimes deno --remote-components ejs:npm --no-progress"
+
+          # Cookie helpers
           COOKIE_ARGS=""
           if [ -n "$INSTAGRAM_COOKIES" ]; then
             echo "$INSTAGRAM_COOKIES" > /tmp/instagram_cookies.txt
@@ -176,9 +233,7 @@ jobs:
           fi
 
           VPN_AVAILABLE="${{ steps.vpn.outputs.vpn_available }}"
-          # Helper to run a command, optionally with VPN, and fallback to direct on failure.
           run_with_fallback() {
-            # Usage: run_with_fallback "description" command...
             desc="$1"
             shift
             if [ "$VPN_AVAILABLE" = "true" ]; then
@@ -192,7 +247,6 @@ jobs:
                 echo "→ [Direct] $desc"
                 if "$@"; then
                   echo "✅ [Direct] succeeded (VPN failed)."
-                  # Reconnect VPN for next link
                   sudo wg-quick up wg0
                   return 0
                 else
@@ -202,80 +256,65 @@ jobs:
                 fi
               fi
             else
-              # VPN not available – run directly
               echo "→ $desc"
               "$@"
               return $?
             fi
           }
 
-          count=$(echo "$ENTRIES_JSON" | jq length)
-          for ((idx=0; idx<count; idx++)); do
-            entry=$(echo "$ENTRIES_JSON" | jq -c ".[$idx]")
-            link=$(echo "$entry" | jq -r '.link')
-            raw=$(echo "$entry" | jq -r '.raw')
-            args_json=$(echo "$entry" | jq -c '.args')
+          # ── Helper to process one entry (returns 0 on success, 1 on failure) ──
+          process_entry() {
+            local link="$1" type="$2" val="$3" raw="$4" idx="$5"
 
             echo "========================================"
-            echo " Processing $((idx+1))/$count: $link"
-            echo " Raw mode: $raw"
-            echo " Args: $(echo "$args_json" | jq -r '.[]')"
+            echo " Processing $idx: $link"
+            echo " Raw mode: $raw  Type: $type  Val: $val"
             echo "========================================"
 
-            # ── RAW MODE ───────────────────────────────────
             if [ "$raw" = "true" ]; then
-              RAW_ARGS=$(echo "$args_json" | jq -r '. | join(" ")')
               run_with_fallback "Raw download: $link" \
-                yt-dlp $COOKIE_ARGS $RAW_ARGS -o "$OUTPUT_FOLDER/%(title)s.%(ext)s" "$link" || {
-                echo "❌ Raw download completely failed – skipping."
-                continue
+                yt-dlp $COOKIE_ARGS "${IMPERSONATE_ARG_ARRAY[@]}" $YTDLP_BASE_ARGS $val -o "$OUTPUT_FOLDER/%(title)s.%(ext)s" "$link" && return 0 || {
+                echo "❌ Raw download failed"
+                return 1
               }
-              echo ""
-              continue
             fi
 
-            # ── SHORTCUT MODE (v/a) ────────────────────────
-            args_array=()
-            while IFS= read -r arg; do
-              args_array+=("$arg")
-            done < <(echo "$args_json" | jq -r '.[]')
-
-            type=""
-            val=""
-            if [ ${#args_array[@]} -ge 1 ]; then
-              type="${args_array[0]}"
-            fi
-            if [ ${#args_array[@]} -ge 2 ]; then
-              val="${args_array[1]}"
-            fi
-            [ -z "$type" ] && type="v"
-            [ -z "$val" ]  && val="max"
-
+            # ── List formats (robust) ──
             echo ""
             echo "→ Listing formats (may help debug):"
-            run_with_fallback "List formats for $link" \
-              yt-dlp $COOKIE_ARGS --no-progress -F "$link" 2>&1 || true
+            if ! run_with_fallback "List formats (standard)" \
+              yt-dlp $COOKIE_ARGS "${IMPERSONATE_ARG_ARRAY[@]}" $YTDLP_BASE_ARGS -F "$link" 2>&1; then
+              echo "⚠️ Standard format listing failed, retrying with --force-ipv4..."
+              run_with_fallback "List formats (force IPv4)" \
+                yt-dlp $COOKIE_ARGS "${IMPERSONATE_ARG_ARRAY[@]}" $YTDLP_BASE_ARGS --force-ipv4 -F "$link" 2>&1 || true
+            fi
             echo ""
 
-            # Fetch metadata (essential for format selection)
+            # ── Fetch metadata (JSON) with stderr isolation & fallback ──
             echo "→ Fetching metadata (JSON)..."
             METADATA_FILE=$(mktemp)
-            if run_with_fallback "Metadata fetch for $link" \
-              yt-dlp $COOKIE_ARGS --no-progress -j "$link" > "$METADATA_FILE" 2>/dev/null; then
+            if run_with_fallback "Metadata fetch (standard)" \
+              yt-dlp $COOKIE_ARGS "${IMPERSONATE_ARG_ARRAY[@]}" $YTDLP_BASE_ARGS -j "$link" > "$METADATA_FILE" 2> "metadata_errors_${idx}.log"; then
               VIDEO_JSON=$(cat "$METADATA_FILE")
             else
-              echo "❌ Failed to fetch metadata – skipping."
-              rm -f "$METADATA_FILE"
-              continue
+              echo "⚠️ Standard metadata fetch failed, retrying with --force-ipv4..."
+              if run_with_fallback "Metadata fetch (force IPv4)" \
+                yt-dlp $COOKIE_ARGS "${IMPERSONATE_ARG_ARRAY[@]}" $YTDLP_BASE_ARGS --force-ipv4 -j "$link" > "$METADATA_FILE" 2> "metadata_errors_${idx}.log"; then
+                VIDEO_JSON=$(cat "$METADATA_FILE")
+              else
+                echo "❌ Metadata fetch failed after retries"
+                rm -f "$METADATA_FILE" "metadata_errors_${idx}.log"
+                return 1
+              fi
             fi
-            rm -f "$METADATA_FILE"
+            rm -f "$METADATA_FILE" "metadata_errors_${idx}.log"
 
             if [ "$type" = "a" ]; then
-              # ── AUDIO ────────────────────────────────────
+              # ── AUDIO ──
               AUDIO_FORMATS=$(echo "$VIDEO_JSON" | jq '[.formats[] | select(.vcodec == "none" and .acodec != "none")]')
               if [ "$(echo "$AUDIO_FORMATS" | jq length)" -eq 0 ]; then
-                echo "❌ No audio-only formats – skipping."
-                continue
+                echo "❌ No audio-only formats found"
+                return 1
               fi
               echo "→ Found $(echo "$AUDIO_FORMATS" | jq length) audio-only formats."
 
@@ -292,8 +331,8 @@ jobs:
                   BITRATE="$val"
                   BITRATES=$(echo "$AUDIO_FORMATS" | jq '[.[].abr // .tbr | select(. != null)] | unique | sort')
                   if [ "$(echo "$BITRATES" | jq length)" -eq 0 ]; then
-                    echo "❌ No valid bitrate info – skipping."
-                    continue
+                    echo "❌ No valid bitrate info"
+                    return 1
                   fi
                   CHOSEN=$(echo "$BITRATES" | jq --argjson b "$BITRATE" \
                     'map({br:., d:(. - $b | abs)}) | sort_by(.d, .br) | first.br')
@@ -302,18 +341,27 @@ jobs:
                   ;;
               esac
               echo "→ Selected format: $FORMAT_ID (bitrate ~${CHOSEN} kbps)"
-              run_with_fallback "Download audio $link ($CHOSEN kbps)" \
-                yt-dlp $COOKIE_ARGS --no-progress -f "$FORMAT_ID" \
-                  -o "$OUTPUT_FOLDER/%(title)s-${CHOSEN}kbps.%(ext)s" "$link"
+              if run_with_fallback "Download audio $link ($CHOSEN kbps)" \
+                yt-dlp $COOKIE_ARGS "${IMPERSONATE_ARG_ARRAY[@]}" $YTDLP_BASE_ARGS -f "$FORMAT_ID" \
+                  -o "$OUTPUT_FOLDER/%(title)s-${CHOSEN}kbps.%(ext)s" "$link"; then
+                echo "✅ Audio download succeeded"
+                return 0
+              else
+                echo "❌ Audio download failed"
+                return 1
+              fi
             else
-              # ── VIDEO ────────────────────────────────────
+              # ── VIDEO ──
               COMBINED=$(echo "$VIDEO_JSON" | jq '[.formats[] | select(.vcodec != "none" and .acodec != "none")]')
               if [ "$(echo "$COMBINED" | jq length)" -eq 0 ]; then
-                echo "❌ No combined (video+audio) formats – trying bestvideo+bestaudio."
-                run_with_fallback "Fallback bestvideo+bestaudio for $link" \
-                  yt-dlp $COOKIE_ARGS --no-progress -f "bestvideo+bestaudio/best" \
-                    -o "$OUTPUT_FOLDER/%(title)s.%(ext)s" "$link"
-                continue
+                echo "⚠️ No combined formats – trying bestvideo+bestaudio fallback"
+                if run_with_fallback "Fallback bestvideo+bestaudio for $link" \
+                  yt-dlp $COOKIE_ARGS "${IMPERSONATE_ARG_ARRAY[@]}" $YTDLP_BASE_ARGS -f "bestvideo+bestaudio/best" \
+                    -o "$OUTPUT_FOLDER/%(title)s.%(ext)s" "$link"; then
+                  return 0
+                else
+                  return 1
+                fi
               fi
               echo "→ Found $(echo "$COMBINED" | jq length) combined formats."
 
@@ -346,10 +394,13 @@ jobs:
                   HEIGHTS=$(echo "$NON_NULL_HEIGHTS" | jq '[.[].height] | unique | sort')
                   if [ "$(echo "$HEIGHTS" | jq length)" -eq 0 ]; then
                     echo "❌ No formats with known resolution – falling back to best."
-                    run_with_fallback "Fallback best for $link" \
-                      yt-dlp $COOKIE_ARGS --no-progress -f "best" \
-                        -o "$OUTPUT_FOLDER/%(title)s.%(ext)s" "$link"
-                    continue
+                    if run_with_fallback "Fallback best for $link" \
+                      yt-dlp $COOKIE_ARGS "${IMPERSONATE_ARG_ARRAY[@]}" $YTDLP_BASE_ARGS -f "best" \
+                        -o "$OUTPUT_FOLDER/%(title)s.%(ext)s" "$link"; then
+                      return 0
+                    else
+                      return 1
+                    fi
                   fi
                   CHOSEN=$(echo "$HEIGHTS" | jq --argjson h "$HEIGHT" \
                     'map({h:., d:(. - $h | abs)}) | sort_by(.d, .h) | first.h')
@@ -360,21 +411,92 @@ jobs:
 
               echo "→ Selected format: $FORMAT_ID (height ~${CHOSEN}p)"
               if [ "$CHOSEN" = "unknown" ]; then
-                run_with_fallback "Download video $link" \
-                  yt-dlp $COOKIE_ARGS --no-progress -f "$FORMAT_ID" \
-                    -o "$OUTPUT_FOLDER/%(title)s.%(ext)s" "$link"
+                if run_with_fallback "Download video $link" \
+                  yt-dlp $COOKIE_ARGS "${IMPERSONATE_ARG_ARRAY[@]}" $YTDLP_BASE_ARGS -f "$FORMAT_ID" \
+                    -o "$OUTPUT_FOLDER/%(title)s.%(ext)s" "$link"; then
+                  return 0
+                else
+                  return 1
+                fi
               else
-                run_with_fallback "Download video $link ($CHOSEN p)" \
-                  yt-dlp $COOKIE_ARGS --no-progress -f "$FORMAT_ID" \
-                    -o "$OUTPUT_FOLDER/%(title)s-${CHOSEN}p.%(ext)s" "$link"
+                if run_with_fallback "Download video $link ($CHOSEN p)" \
+                  yt-dlp $COOKIE_ARGS "${IMPERSONATE_ARG_ARRAY[@]}" $YTDLP_BASE_ARGS -f "$FORMAT_ID" \
+                    -o "$OUTPUT_FOLDER/%(title)s-${CHOSEN}p.%(ext)s" "$link"; then
+                  return 0
+                else
+                  return 1
+                fi
               fi
             fi
+          }
 
-            echo "✅ Download sequence for this link finished."
+          # ── First pass ──
+          FAILED_ENTRIES='[]'
+          count=$(echo "$ENTRIES_JSON" | jq length)
+          for ((idx=0; idx<count; idx++)); do
+            entry=$(echo "$ENTRIES_JSON" | jq -c ".[$idx]")
+            link=$(echo "$entry" | jq -r '.link')
+            raw=$(echo "$entry" | jq -r '.raw')
+            args_json=$(echo "$entry" | jq -c '.args')
+
+            type=""
+            val=""
+            if [ "$raw" = "false" ]; then
+              # Extract type & val from args
+              args_array=()
+              while IFS= read -r arg; do
+                args_array+=("$arg")
+              done < <(echo "$args_json" | jq -r '.[]')
+              if [ ${#args_array[@]} -ge 1 ]; then
+                type="${args_array[0]}"
+              fi
+              if [ ${#args_array[@]} -ge 2 ]; then
+                val="${args_array[1]}"
+              fi
+              [ -z "$type" ] && type="v"
+              [ -z "$val" ]  && val="max"
+            fi
+
+            if ! process_entry "$link" "$type" "$val" "$raw" "$((idx+1))"; then
+              echo "❌ First attempt failed for $link – queued for retry"
+              FAILED_ENTRIES=$(echo "$FAILED_ENTRIES" | jq ". + [{link: \"$link\", type: \"$type\", val: \"$val\", raw: $raw}]")
+            fi
             echo ""
           done
 
-          # Bring VPN down at the end if it was up
+          # ── Retry pass ──
+          FAILED_COUNT=$(echo "$FAILED_ENTRIES" | jq length)
+          FINAL_FAILED='[]'
+          if [ "$FAILED_COUNT" -gt 0 ]; then
+            echo "========================================="
+            echo " Retrying $FAILED_COUNT failed link(s)..."
+            echo "========================================="
+            for ((r=0; r<FAILED_COUNT; r++)); do
+              entry=$(echo "$FAILED_ENTRIES" | jq -c ".[$r]")
+              link=$(echo "$entry" | jq -r '.link')
+              type=$(echo "$entry" | jq -r '.type')
+              val=$(echo "$entry" | jq -r '.val')
+              raw=$(echo "$entry" | jq -r '.raw')
+              if ! process_entry "$link" "$type" "$val" "$raw" "retry-$((r+1))"; then
+                echo "❌ Retry also failed for $link"
+                FINAL_FAILED=$(echo "$FINAL_FAILED" | jq ". + [\"$link\"]")
+              fi
+              echo ""
+            done
+          else
+            echo "✅ No failures in first pass."
+          fi
+
+          # ── Write final failures ──
+          FINAL_COUNT=$(echo "$FINAL_FAILED" | jq length)
+          if [ "$FINAL_COUNT" -gt 0 ]; then
+            echo "========================================="
+            echo " Writing $FINAL_COUNT permanently failed link(s) to failed_leechs.txt"
+            echo "$FINAL_FAILED" | jq -r '.[]' > "$OUTPUT_FOLDER/failed_leechs.txt"
+          else
+            echo "✅ All downloads succeeded!"
+          fi
+
           if [ "$VPN_AVAILABLE" = "true" ]; then
             sudo wg-quick down wg0 2>/dev/null || true
           fi
@@ -477,14 +599,7 @@ jobs:
           echo "Assets to upload:"
           cat "${OUTPUT_DIR}_assets.txt"
 
-      # ─── Google Drive Upload (unchanged) ────────────────
-      - name: "Upload to Google Drive"
-        if: inputs.upload_method == 'drive'
-        env:
-          CLIENT_ID:     ${{ secrets.GOOGLE_CLIENT_ID }}
-          CLIENT_SECRET: ${{ secrets.GOOGLE_CLIENT_SECRET }}
-          REFRESH_TOKEN: ${{ secrets.GOOGLE_REFRESH_TOKEN }}
-        run: |
+      # ─── Google Drive Upload ─────────────────────────
       - name: "Upload to Google Drive"
         if: inputs.upload_method == 'drive'
         env:
@@ -532,7 +647,6 @@ jobs:
             size=$(stat -c%s "$file")
             echo "→ Uploading $fname ($size bytes)..."
 
-            # Initiate resumable upload session
             SESSION_URI=$(curl -s -X POST \
               -H "Authorization: Bearer $ACCESS_TOKEN" \
               -H "Content-Type: application/json; charset=UTF-8" \
@@ -545,7 +659,6 @@ jobs:
               continue
             fi
 
-            # Upload the entire file in one chunk
             HTTP_CODE=$(curl -s -o /dev/null -w "%{http_code}" -X PUT \
               -H "Authorization: Bearer $ACCESS_TOKEN" \
               -H "Content-Length: $size" \
@@ -559,7 +672,7 @@ jobs:
             fi
           done
 
-      # ─── Push to repo (unchanged) ─────────────────────
+      # ─── Push to repo ──────────────────────────────
       - name: "Upload to repository (split_push method)"
         if: inputs.upload_method == 'repo'
         env:
@@ -585,7 +698,7 @@ jobs:
             sleep 3
           done
 
-      # ─── Release upload (unchanged) ───────────────────
+      # ─── Release upload ────────────────────────────
       - name: "Create Release and upload assets (release method)"
         if: inputs.upload_method == 'release'
         env:

@@ -7,6 +7,205 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/07 20:34
+---
+
+## VahidOOnLine — post 242630
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242630_1779987848.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبکه العربیه به نقل از منابع دیپلماتیک گزارش داد توافق میان واشینگتن و تهران در دو مرحله انجام خواهد شد و مرحله نخست شامل امضای یک یادداشت تفاهم است.
+در این گزارش آمده است پاکستان شاهد مراسم امضای این تفاهم‌نامه خواهد بود.
+
+پیش‌تر اکسیوس گزارش داد مذاکره‌کنندگان آمریکا و ایران بر سر یک یادداشت تفاهم ۶۰ روزه برای تمدید آتش‌بس و آغاز گفت‌وگوهای هسته‌ای به توافق رسیده‌اند، اما ترامپ هنوز تایید نهایی نداده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 12803
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://www.ecolo.org/documents/documents_in_english/ramsar-natural-radioactivity/ramsar.html
+</div>
+
+## WithYashar — post 12802
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آقا یاشار سلام خسته نباشی❤️
+رامسر الان صدای جنگنده اومد یدونه بود نسبت به جنگ خیلی صداش زودتر تموم شد ولی جنگنده بود
+پریروزم همین صدا اومد همینقدم بود محلیا میگفتن داره میره سمت روسیه
+</div>
+
+## iaghapour — post 2639
+
+<div align="center">
+  <img src="telegram/content/iaghapour_2639_1779987849.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مردم ایران در حال برگشتن به تلگرام 😀
+</div>
+
+## iaghapour — post 2638
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢 وضعیت اینترنت جوری شده که وقتی نت ملی بود فیلترشکن ها راحت تر متصل میشدن!
+
+راستی گوگل پلی و اپ‌استور در دسترس قرار گرفتن و البته ویندوز آپدیت و...
+</div>
+
+## IranIntlTV — post 339445
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339445_1779987850.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبکه العربیه به نقل از منابع دیپلماتیک گزارش داد توافق میان واشینگتن و تهران در دو مرحله انجام خواهد شد و مرحله نخست شامل امضای یک یادداشت تفاهم است.
+در این گزارش آمده است پاکستان شاهد مراسم امضای این تفاهم‌نامه خواهد بود.
+
+پیش‌تر اکسیوس گزارش داد مذاکره‌کنندگان آمریکا و ایران بر سر یک یادداشت تفاهم ۶۰ روزه برای تمدید آتش‌بس و آغاز گفت‌وگوهای هسته‌ای به توافق رسیده‌اند، اما ترامپ هنوز تایید نهایی نداده است.
+https://iranintl.com/202605284573
+</div>
+
+## IranIntlTV — post 339444
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک فرد نظامی با ارسال پیامی به ایران اینترنشنال می‌گوید که حکومت چند ماه است دیگر به آن‌ها گوشت و مرغ نمی‌دهند. پیام او با هوش مصنوعی خوانده شده است.
+</div>
+
+## Shin_Persian — post 6286
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+David Keyes ✓ @DavidMKeyes
+Thu, 28 May 2026 15:08:26 UTC
+
+BREAKING: Iran and US agree that they agree that they haven't agreed on the agreement. On that, they agree.
+
+فارسی
+
+فوری: ایران و ایالات متحده توافق دارند که موافقند بر سر این توافق به توافق نرسیده‌اند. در این مورد، آن‌ها با هم توافق دارند.
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 218902
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در میدان پرسیدیم: هدف پادشاهی‌خواهان از برگزاری رژه ساواک در خیابان‌های جهان چیست؟
+</div>
+
+## FarsiVOA — post 218901
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺اختصاصی | منابعی در دولت ایالات متحده خبر توافق اولیه آمریکا و رژیم ایران را تایید کردند
+
+◾️منایعی در دولت ایالات متحده در پیامی به صدای آمریکا گزارش «اکسیوس» درباره توافق اولیه میان ایالات متحده و رژیم ایران برای تمدید آتش‌بس و آغاز مذاکرات هسته‌ای را تایید کردند.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/axios-report-us-iran-reach-deal-but-need-president-trumps-final-approval/8154874.html
+</div>
+
+## FarsiVOA — post 218900
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یکی از مخاطبان صدای آمریکا با ارسال ویدیویی می‌گوید برخی نانوایی‌ها در تهران همزمان با عید قربان قیمت نان ساده را افزایش داده‌اند. او در ادامه گفته این اقدام «بی‌انصافی» است.
+
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 15199
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15199_1779987851.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بچه های تراست vpn با توجه به اینترنت این روزها که نت بین‌الملل وصله یه سرور اضافه کردن که قیمتش کاملا اقتصادیه و چندین سرور هم داره و رو حجم بالا گیگی ۱۹ هزار تومن واستون می‌افته
+
+بهشون پیام بدین و استعلام حجم‌ها و قیمت‌هارو بگیرین 👇
+
+@trusstvpnn_admin
+</div>
+
+## RadioFarda — post 157667
+
+<div align="center">
+  <a href="https://t.me/radiofarda/157667" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📻بشنوید: ایستگاه ۱۹ با رادیوفردا، هفتم خرداد ۱۴۰۵
+
+@RadioFarda
+</div>
+
+## alonews — post 123342
+
+<div align="center">
+  <a href="telegram/content/alonews_123342_1779987852.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈معاون وزیر خارجه: به هرگونه نقض آتش‌بس، پاسخ قاطعانه می‌دهیم، تا زمانی که تفاهمی در راستای منافع ملی نباشد، ایران آن را امضا نخواهد کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123341
+
+<div align="center">
+  <a href="telegram/content/alonews_123341_1779987852.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ادعای العربیه به نقل از یک منبع دیپلماتیک : توافق بین واشنگتن و تهران در دو مرحله خواهد بود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123340
+
+<div align="center">
+  <a href="telegram/content/alonews_123340_1779987853.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کاخ سفید اعلام کرد تفاهم‌نامه‌ای وجود دارد که ترامپ هنوز آن را امضا نکرده است.
+
+
+🔴به نقل از الجزیره، ادعا شده این یک آتش‌بس ۶۰ روزه است، تنگه هرمز بازگشایی خواهد شد، ایران قول می‌دهد ظرف ۳۰ روز تمام مین‌ها را پاکسازی کند و متعهد می‌شود که سلاح هسته‌ای نسازد.
+
+
+🔴 ایالات متحده در مورد کاهش تحریم‌ها و آزاد شدن دارایی‌های ایران بحث خواهد کرد.
+
+
+🔴به طور موازی، محاصره دریایی ایالات متحده لغو خواهد شد و سپس آنها در مورد اورانیوم غنی‌شده مذاکره خواهند کرد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123339
+
+<div align="center">
+  <a href="telegram/content/alonews_123339_1779987853.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈شبکه ۱۲ اسرائیل : آمریکا از اسرائیل خواسته درباره هر نوع عملیات ترور در لبنان، از جمله جنوب لبنان، مرتب گزارش و به‌روزرسانی بده
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/07 20:24
 ---
 

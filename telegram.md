@@ -7,6 +7,109 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/07 10:03
+---
+
+## VahidOOnLine — post 242533
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ارتش اسرائیل صبح پنجشنبه هفتم خرداد و ساعتی پس از صدور هشدار تخلیه برای ساکنان چند منطقه، شهر صور لبنان را بمباران کرد.
+
+ارتش اسرائیل پیش از این اعلام کرده بود که برای مقابله با حملات حزب‌الله باید زیرساخت‌های این سازمان را در شهر صور هدف قرار دهد.
+
+منابع محلی در لبنان می‌گویند دست‌کم دو ساختمان شهر صور در دور جدید حملات هدف قرار گرفته‌اند و بمباران یکی از آن‌ها منجر به آتش‌سوزی گسترده شده است.
+
+با وجود اعلام آتش‌بس میان حزب‌الله و اسرائیل در پنج هفته پیش و تمدید دوباره آن در هفته گذشته، نبردها میان دو طرف حتی یک روز هم متوقف نشده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 12773
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آمریکا «نهاد مدیریت آبراه خلیج فارس» را تحریم کرد
+
+وزارت خزانه‌داری آمریکا اعلام کرد سازمان تازه تأسیس ایرانی «نهاد مدیریت آبراه خلیج فارس» را به فهرست تحریم‌های خود اضافه کرده است.
+@withyashar
+</div>
+
+## WithYashar — post 12772
+
+<div align="center">
+  <a href="telegram/content/WithYashar_12772_1779950002.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+◀️رد موشک های ۳پا در امیدیه خوزستان که به سمت کویت میرفت
+@withyashar
+</div>
+
+## WithYashar — post 12771
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اکسیوس: ایران چهارتا پهپاد انتحاری به سمت یک ناو نیروی دریایی آمریکا و یک کشتی تجاری پرتاب کرد نیروهای آمریکایی پهپادها رو رهگیری کردن و همچنین یک واحد پرتاب پهپاد ایرانی دیگه رو روی زمین قبل از اینکه بتوانه شلیک کنه، هدف قرار دادن
+@withyashar
+</div>
+
+## IranIntlTV — post 339346
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339346_1779950005.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در ادامه رسیدگی به پرونده توطئه برای کشتن مسیح علی‌نژاد، روزنامه‌نگار و فعال سیاسی، چهارشنبه دادگاه جاناتان لودهولت، از متهمان پرونده، در دادگاه فدرال منهتن برگزار شد. قاضی دادگاه لودهولت را به ۱۰ سال زندان محکوم کرد.
+
+گزارش مریم رحمتی، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## Persian_Trend_Official — post 15159
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15159_1779950007.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تصاویر ادعایی از حمله موشکی پهپادی امروز صبح سپاه پاسداران به کویت
+
+برخی منابع خبری ادعا کردند سپاه پاسداران در این حمله پایگاه هوایی علی السالم را هدف قرار داده است.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## alonews — post 123214
+
+<div align="center">
+  <a href="telegram/content/alonews_123214_1779950010.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈اتحادیه اروپا: همه به دلیل بسته شدن تنگه هرمز هزینه سنگینی می‌پردازند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123213
+
+<div align="center">
+  <a href="telegram/content/alonews_123213_1779950010.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈افزایش دما در کل کشور
+
+
+🔴هواشناسی اعلام کرد: امروز و فردا دما در تمام نقاط کشور افزایش پیدا خواهد کرد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/07 09:53
 ---
 

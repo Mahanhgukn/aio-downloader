@@ -7,6 +7,206 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/07 12:13
+---
+
+## VahidOOnLine — post 242548
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_242548_1779957792.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️سپاه پاسداران روز پنجشنبه هفتم خرداد ویدیویی را از شلیک موشک به سوی «اهداف آمریکایی» در منطقه تنگه هرمز و خلیج فارس منتشر کرد.
+
+به نظر می‌رسد این ویدیوها مربوط به حمله به «کویت» باشد؛ سپاه پیش ازاین اعلام کرده بود «مبدا حمله به نزدیکی فرودگاه بندرعباس در منطقه را هدف قرار داده است.» همزمان با این حمله، وزارت دفاع کویت اعلام کرد سامانه‌های پدافندی این کشور مشغول مقابله با موشک‌ها و پهپادهای متخاصم هستند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242547
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_242547_1779957794.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی رسیده به ایران اینترنشنال نشان‌دهنده فعالیت پدافند بندرعباس در بامداد پنجشنبه ۷ خردادماه است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## IranIntlTV — post 339364
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339364_1779957797.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل اعلام کرد چهارشنبه تعدادی از ساختمان‌های نظامی، مقرهای فرماندهی و سایت‌های پرتاب مورد استفاده حزب‌الله لبنان را در منطقه البقاع و چندین منطقه دیگر در جنوب لبنان هدف قرار داده است. ارتش این کشور همچنین اعلام کرد ساختمانی در شمال نوار غزه هدف حمله قرار گرفته و در این عملیات، دو فرمانده اصلی حماس کشته شدند.
+
+گفت‌وگو با مئیر جاودانفر، تحلیل‌گر مسائل اسرائیل
+@iranintltv
+</div>
+
+## IranIntlTV — post 339363
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339363_1779957799.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی رسیده به ایران اینترنشنال نشان‌دهنده فعالیت پدافند بندرعباس در بامداد پنجشنبه ۷ خردادماه است.
+</div>
+
+## FarsiVOA — post 218871
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_218871_1779957802.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل اعلام کرد در جریان یک حمله هوایی خود به جنوب نوار غزه در روز سه‌شنبه گذشته یک «مقام ارشد مالی» حماس کشته شده است.
+
+ارتش اسرائیل روز پنجشنبه اعلام کرد که این حمله در خان‌یونس انجام شد و ایهاب کریزم، مسئول یک شبکه مرکزی برای انتقال پول به حماس در جریان این حمله کشته شد.
+
+به گفته ارتش اسرائیل، کریزم مسئول «مدیریت انتقال میلیون‌ها دلار به شاخه نظامی حماس» بوده و اخیراً نیز «به نقض توافق آتش‌بس ادامه داده است»؛ اقداماتی که به گفته ارتش اسرائیل، باعث شد حماس بتواند حملات علیه نیروها و غیرنظامیان اسرائیلی را پیش ببرد.
+
+طبق اعلام ارتش اسرائیل، در این حمله همچنین محمد الهباش، یک فرمانده مقر تولید تسلیحات حماس، نیز کشته شد.
+
+همزمان ارتش اسرائیل پنجشنبه گزارش داد که نیروهای واحد کماندویی این ارتش، تحت هدایت شاباک، طی دو روز گذشته در چند عملیات در کرانه باختری هفت فلسطینی مظنون به تروریسم را بازداشت کردند؛
+
+بر اساس این گزارش، برخی متهم به برنامه‌ریزی حملات قریب‌الوقوع علیه اسرائیل بودند.
+
+ارتش اسرائیل اعلام کرد همه بازداشت‌شدگان برای بازجویی بیشتر به نیروهای امنیتی تحویل داده شدند.
+@FarsiVOA
+</div>
+
+## IranianMinds — post 20926
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_20926_1779957804.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 جمهوری اسلامی یک پایگاه هوایی آمریکا در کویت را هدف قرار داد که رسانه‌ها ادعا می‌کنند از آن برای حمله به بندرعباس در جنوب ایران استفاده شده است.
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 390374
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390374_1779957806.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بچه‌های نیرو مسلح‌شون انقد بی‌خایه هستن که حتی میترسن از پشت شناسایی بشن، محو میکنن پس‌کله‌رو 😂
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390373
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390373_1779957806.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مردم تو لندن هم از دست اینا آرامش ندارن
+
+یکی از مزدورای جمهوری اسلامی رفته یکی از معترضا روبا ماشین زیر گرفته :/
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390372
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390372_1779957808.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اگه توی جنگ با اسراییل کار با سلاح به دردتون میخورد، حاجی‌زاده اون پشت تبدیل به مقوا نمیشد.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Hranews — post 113204
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عمر عزیزی با تودیع وثیقه از زندان زاهدان آزاد شد
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– عمر عزیزی، شهروند اهل شهرستان قصرقند، روز دوشنبه با تودیع وثیقه از زندان زاهدان آزاد شد. وی در آبان ماه سال گذشته بازداشت شده بود.
+
+ادامه مطلب
+
+#عمر_عزیزی
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## alonews — post 123235
+
+<div align="center">
+  <a href="telegram/content/alonews_123235_1779957809.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈اسرائیل بار دیگر دستور تخلیه کل جنوب لبنان، شامل تمام مناطق جنوب رودخانه زهرانی، را صادر کرده است.
+
+
+🔴(نقشه پیوست توسط ارتش اسرائیل طی دستور قبلی در گذشته ارائه شده است)
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123234
+
+<div align="center">
+  <a href="telegram/content/alonews_123234_1779957809.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فیلمی از شهر صور پس از حملات هوایی اسرائیل در طول شب
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123233
+
+<div align="center">
+  <a href="telegram/content/alonews_123233_1779957812.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ابوترابی، نماینده مجلس: دارند با آبنبات چوبی صندوق ۳۰۰ میلیارد دلاری فریبمان می‌دهند، آمریکا بعد از جام جهانی و انتخابات میان‌دوره‌ای به ما حمله می‌کند
+‌
+
+🔴 باز کردن تنگه هرمز با ۱۲ میلیارد دلار پول خفت و خواری است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123232
+
+<div align="center">
+  <a href="telegram/content/alonews_123232_1779957812.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سناتور گراهام : به متحدان عرب ما می‌گم، باید به ترامپ کمک کنید
+
+
+🔴اگر هم بهش نه بگید، مسئولیت و خطرش با خودتونه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/07 12:03
 ---
 

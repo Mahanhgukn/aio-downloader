@@ -7,6 +7,107 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/08 00:52
+---
+
+## FoxNewsTwitter — post 342365
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342365_1780003347.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+A massive explosion and fire ripped through an apartment building in Dallas, sending heavy flames and smoke into the air and injuring at least four people.
+
+Nearly 100 firefighters rushed to the scene in the city’s Oak Cliff neighborhood. It's not clear how many people were in the building at the time.
+</div>
+
+## mamlekate — post 103602
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+الو ساعت ۰۰:۱۳ جمعه ۸ خرداد
+بیدگنه صدای پدافند پشت‌ هم
+</div>
+
+## Shin_Persian — post 6290
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6290_1780003350.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Thu, 28 May 2026 21:16:53 UTC
+
+And IRGC's Fars confirms the earlier missile launch
+
+فارسی
+
+و خبرگزاری فارس (وابسته به سپاه پاسداران) شلیک موشک در زمان زودتر را تایید می‌کند.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6289
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Thu, 28 May 2026 21:14:07 UTC
+
+מי שלא מכסח את הדשא, הדשא מכסח אותו!
+
+English
+
+Whoever does not mow the lawn, the lawn mows them!
+
+فارسی
+
+هر کس که چمن را کوتاه نکند، چمن او را از پا در می‌آورد!
+
+𝕏 · @shin_persian
+</div>
+
+## Persian_Trend_Official — post 15210
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15210_1780003351.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تسنیم: یک پهپاد متجاوز امریکایی در نزدیکی بوشهر با موفقیت رهگیری شد. همچنین فرماندار شهرستان جم در استان بوشهر گفت: اتفاقی که امشب به وقوع پیوست مربوط به انهدام یک هواگرد متخاصم بود. هم اینک شهرستان در وضعیت عادی است. 📝 Amir 📌 @persian_trend_official پرشین…
+</div>
+
+## Persian_Trend_Official — post 15209
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15209_1780003351.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تسنیم: یک پهپاد متجاوز امریکایی در نزدیکی بوشهر با موفقیت رهگیری شد.
+
+همچنین فرماندار شهرستان جم در استان بوشهر گفت: اتفاقی که امشب به وقوع پیوست مربوط به انهدام یک هواگرد متخاصم بود. هم اینک شهرستان در وضعیت عادی است.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## alonews — post 123402
+
+<div align="center">
+  <a href="telegram/content/alonews_123402_1780003352.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پزشکیان:
+به جلیلی گفتم توام بیا یه گوشه کارو بگیر کمک کن کشورو درست کنیم. گفت نه من فقط پیشنهاد میدم. گفتم پیشنهاد به چه دردم میخوره اخه. عمل میخوام. نخواستیم اصلا.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/08 00:42
 ---
 

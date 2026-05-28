@@ -7,6 +7,180 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/08 01:52
+---
+
+## VahidOOnLine — post 242669
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242669_1780006938.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️جی‌دی ونس، معاون رئیس‌جمهوری آمریکا پنج‌شنبه ۷ خرداد در گفتگو با خبرنگاران اعلام کرد که واشنگتن هنوز به توافق با ایران دست نیافته، اما دو طرف به یکدیگر نزدیک هستند. به گزارش رویترز، ونس با اشاره به روند گفتگوها تاکید کرد که ایالات متحده در موقعیتی قرار دارد که در صورت لزوم می‌تواند برنامه هسته‌ای تهران را به طور قابل‌توجهی به عقب بازگرداند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242668
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242668_1780006938.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️مسعود تنگستانی، فرماندار جم، به خبرگزاری صدا و سیما گفت نیروهای مسلح جمهوری اسلامی «یک هواگرد» را در آسمان این شهرستان در استان بوشهر هدف قرار داده‌اند و اکنون وضعیت منطقه عادی است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342368
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342368_1780006939.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NOW: Vice President JD Vance says the U.S. has made “a lot of progress” in negotiations with Iran and believes Tehran is “negotiating at least so far in good faith.”
+
+“The Iranians, they want a deal,” Vance said.
+</div>
+
+## VahidOnline — post 75782
+
+<div align="center">
+  <a href="telegram/content/VahidOnline_75782_1780006941.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فاکس‌نیوز: جی‌دی ونس می‌گوید ایالات متحده در مذاکرات با ایران «پیشرفت زیادی» داشته و معتقد است تهران «حداقل تا حالا با حسن نیت در حال مذاکره است.»
+
+جی‌دی ونس: خب، فکر می‌کنم گفتن دقیق اینکه رئیس‌جمهور دقیقاً چه زمانی یا اصلاً تفاهم‌نامه را امضا خواهد کرد، سخت است. ما در حال رفت‌وآمد بر سر چند نکتهٔ زبانی هستیم.
+کاملاً واضح است که به نظر من، ایرانی‌ها — آنها یک معامله می‌خواهند. آنها می‌خواهند تنگهٔ هرمز را باز کنند. ما هم می‌خواهیم تنگهٔ هرمز را باز کنیم.
+چند مسئله در مورد موضوع هسته‌ای وجود دارد: ذخیرهٔ اورانیوم غنی‌شدهٔ بالا و همچنین مسئلهٔ غنی‌سازی.
+پس می‌دانید، ما با آنها در حال چانه‌زنی و رفت‌وآمد هستیم. ما واقعاً فکر می‌کنیم آنها حداقل تا حالا با حسن نیت مذاکره می‌کنند.
+داریم پیشرفت می‌کنیم و امیدواریم به این پیشرفت ادامه دهیم تا رئیس‌جمهور در موقعیتی قرار بگیرد که بتواند توافق را تأیید کند.
+
+📡 @VahidOnline
+</div>
+
+## FarsiVOA — post 218939
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_218939_1780006941.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️دونالد ترامپ از «تورم ۲۵۰ درصدی» در ایران می‌گوید و شهروندان از بحران معیشت؛ گفت‌وگو با مریم سعیدی
+@FarsiVOA
+</div>
+
+## Dirty_Kids — post 390439
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390439_1780006942.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#بخوابیم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390438
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390438_1780006942.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 به گفته کاربران؛ درحالِ حاضر و تو شرایط فعلی این فیلترشکن‌ها وصلن :
+
+
+BiubiuVPN
+
+VPN Hotspot Shield: Secure VPN
+
+VPN - Fast VPN Super
+
+BeePass VPN
+
+Ostrich VPN - Proxy Master
+
+X-VPN: VPN Fast & Secure
+
+JumpJumpVPN: Fast & Secure
+
+VPN Windscribe: Fast & Secure
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390437
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390437_1780006943.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این off campus عجب زناییه
+عاشقش شدم
+
+ابکی
+مسخره
+بی منطق
+قشنگ دنبال همچین چیزی بودم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390436
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به مناسبت گذشتن ۹۰ روز از ترور خامنه‌ای، نود بده.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390435
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390435_1780006943.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏یه طوری تو روز روشن درباره ساده زیستی خامنه ای مهمل میبافن که انگار من بودم که bmw ضدگلوله اسکورت زیر پام بوده
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390434
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390434_1780006943.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وضعیت مودم:
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390433
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390433_1780006945.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این #چالش جدیده مدل تبلیغاتیش
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/03/08 01:42
 ---
 

@@ -7,6 +7,62 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/08 02:32
+---
+
+## FoxNewsTwitter — post 342371
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342371_1780009379.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+“They were fed a bunch of lies by Mayor Bass.”
+
+Spencer Pratt says the Democrats who helped elect Karen Bass are now turning on her — and helping fund his campaign for LA mayor.
+
+With the primary just days away, Pratt is leaning into voter frustration over homelessness, wildfire response and the city’s direction.
+</div>
+
+## FoxNewsTwitter — post 342370
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342370_1780009380.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+JESSE WATTERS: "Who cares if they don't like the food? Get 'em out of here."
+
+"Corey Booker says this ICE facility shouldn't be in New Jersey. Why? Where should it be in?"
+
+"You got to keep them somewhere before you send them home. https://twitter.com/TheFive/status/2060112010327511267#m
+</div>
+
+## Shin_Persian — post 6291
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6291_1780009384.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+U.S. Central Command ✓ @CENTCOM
+Thu, 28 May 2026 22:49:22 UTC
+
+🚫CLAIM: Iran's state TV claimed Iranian forces downed a U.S. aircraft near Bushehr. FALSE.
+
+✅TRUTH: No U.S. aircraft were shot down. All U.S. air assets are accounted for.
+
+فارسی
+
+🚫 ادعا: تلویزیون دولتی ایران ادعا کرد که نیروهای ایرانی یک هواپیمای آمریکایی را در نزدیکی بوشهر سرنگون کرده‌اند. نادرست است.
+
+✅ حقیقت: هیچ هواپیمای آمریکایی سرنگون نشده است. وضعیت تمام تجهیزات هوایی ایالات متحده مشخص و تایید شده است.
+
+𝕏 · @shin_persian
+</div>
+
+---
 📅 بروزرسانی: 1405/03/08 02:22
 ---
 

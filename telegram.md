@@ -7,6 +7,97 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/08 03:12
+---
+
+## VahidOOnLine — post 242674
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242674_1780011751.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ به فاکس‌نیوز گفت آمریکا در مذاکرات با جمهوری اسلامی همچنان از اهرم فشار گسترده‌ای برخوردار است و اگر گفت‌وگوها به توافقی مطلوب برای ایالات متحده منجر نشود، اقدام نظامی همچنان یکی از گزینه‌ها خواهد بود.
+ترامپ در این مصاحبه که ویدیوی بخشی از آن روز پنج‌شنبه منتشر شد، گفت آستانه توسل دوباره به زور، توافقی است که «برای ما خوب نباشد». او افزود حملات پیشین آمریکا، از جمله با بمب‌افکن‌های بی-۲، جاه‌طلبی‌های هسته‌ای حکومت ایران را به عقب انداخته است.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342372
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342372_1780011751.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+RT @SpecialReport: WATCH: "I would urge the President not to take the deal... do what he does best... Get us a better deal."
+
+@HaroldFordJr warns a 60-day ceasefire won't solve the core threat, while @BretBaier reports intel suggests Iran’s nuclear material is currently "under a bunch of rubble."
+</div>
+
+## IranIntlTV — post 339490
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339490_1780011755.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ به فاکس‌نیوز گفت آمریکا در مذاکرات با جمهوری اسلامی همچنان از اهرم فشار گسترده‌ای برخوردار است و اگر گفت‌وگوها به توافقی مطلوب برای ایالات متحده منجر نشود، اقدام نظامی همچنان یکی از گزینه‌ها خواهد بود.
+ترامپ در این مصاحبه که ویدیوی بخشی از آن روز پنج‌شنبه منتشر شد، گفت آستانه توسل دوباره به زور، توافقی است که «برای ما خوب نباشد». او افزود حملات پیشین آمریکا، از جمله با بمب‌افکن‌های بی-۲، جاه‌طلبی‌های هسته‌ای حکومت ایران را به عقب انداخته است.
+
+https://iranintl.com/202605281803
+</div>
+
+## IranianMinds — post 20989
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_20989_1780011755.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 تو‌ روز روشن تو صداوسیما دنیارو تهدید به عملیات های تروریستی میکنن
+
+خوش چشم کارشناس صداوسیما :
+
+دیگه دوران بمب های هسته ای گذشته اینکارارو راحت میتونن بفهمن کار کی بوده ، الان تایم جنگ های میکروبی و بیولوژیکیه کسیم نمیفهمه کار کی بوده.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20988
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_20988_1780011756.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 اگر همین الان توی سایت #وینرو عضو بشی 
+🤩
+🤩
+🤩 هزار تومان شارژ رایگان میگیری
+❕
+
+
+✅ من خودم عضو شدم بدون واریز ۵۰۰ تومان گرفتم باهاش فوتبال پیش بینی کردم پولم شد ۲ میلیون 
+❕
+
+
+💚خیلی راحت هم برداشت کردم کل پولم رو 
+💵
+
+
+💳 پرداخت مستقیم و سریع بدون واسطه، بدون دردسر، واریز و برداشت در سریع‌ترین زمان ممکن
+
+🔴این فرصت محدود رو از دست ندید:
+
+🌐 Winro.io
+
+🌐 Winro.io
+کانال بونوس های رایگان a7
+
+📱 @winro_io
+</div>
+
+---
 📅 بروزرسانی: 1405/03/08 03:02
 ---
 

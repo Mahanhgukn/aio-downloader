@@ -7,6 +7,98 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/08 00:12
+---
+
+## WithYashar — post 12832
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دیکتاتور مهربون ردبول رو امشب میزنی یا فرداشب؟👀
+</div>
+
+## WithYashar — post 12831
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دیکتاتور مهربون
+ردبول رو امشب میزنی یا فرداشب؟👀
+</div>
+
+## WithYashar — post 12830
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پدافند اصفهان فعال شد
+@withyashar
+</div>
+
+## WithYashar — post 12829
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تسنیم : یک منبع نظامی رهگیری پهپاد آمریکایی را تایید کرد
+
+به گفته این منبع نظامی، این رهگیری در اطراف بوشهر از طریق شلیک موشک پدافندی به سمت این پهپاد انجام شد.
+@withyashar
+</div>
+
+## pm_afshaa — post 91795
+
+<div align="center">
+  <a href="https://t.me/pm_afshaa/91795" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نپسترنت سرعت بالا مخصوص اینستا و یوتیوب
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91794
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سلام ما نزدیک بیدگنه ایم صدا پدافند میومد ۵ بار پشت سر هم درواقثع ۵ تا تق تق تق
+</div>
+
+## pm_afshaa — post 91793
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صبحا صلح شبا جنگ🗿
+</div>
+
+## pm_afshaa — post 91792
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پدافند بندر عباس فعال شد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## alonews — post 123394
+
+<div align="center">
+  <a href="telegram/content/alonews_123394_1780000934.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈لحظه حمله به شرکت آسا پنجره کاشان، تصاویر از دوربین‌های مداربسته گرفته شده است
+
+
+🔴در حمله دوم که با شدت بیشتری انجام گرفت هیچ تصاویری موجود نیست.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/08 00:02
 ---
 
@@ -115,8 +207,6 @@ https://linktr.ee/voafarsi
 🔴بعضی‌ها هم تازه رنگ عوض کرده‌اند و می‌خواهند با حاشیه‌سازی، مسیر اصلی را کمرنگ کنند. 
 🔴بهترین پاسخ، درگیر شدن با حاشیه‌هایشان…
 </div>
-
-
 <!-- MSG END -->
 
 <!-- NAV START -->

@@ -7,6 +7,102 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/08 01:22
+---
+
+## VahidOOnLine — post 242666
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242666_1780005130.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مسعود تنگستانی، فرماندار جم، به خبرگزاری صدا و سیما گفت نیروهای مسلح جمهوری اسلامی یک هواگرد را در آسمان جم در استان بوشهر هدف قرار دادند و هم‌اکنون شهرستان در وضعیت عادی قرار دارد.
+طبق این گزارش، دلیل صدای انفجار در جم، مقابله پدافند با هواگردهای متخاصم بوده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## IranIntlTV — post 339476
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339476_1780005130.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مسعود تنگستانی، فرماندار جم، به خبرگزاری صدا و سیما گفت نیروهای مسلح جمهوری اسلامی یک هواگرد را در آسمان جم در استان بوشهر هدف قرار دادند و هم‌اکنون شهرستان در وضعیت عادی قرار دارد.
+طبق این گزارش، دلیل صدای انفجار در جم، مقابله پدافند با هواگردهای متخاصم بوده است.
+https://iranintl.com/202605280555
+</div>
+
+## IranIntlTV — post 339475
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مسعود تنگستانی، فرماندار جم، به خبرگزاری صدا و سیما گفت نیروهای مسلح جمهوری اسلامی یک هواگرد را در آسمان جم در استان بوشهر هدف قرار دادند و هم‌اکنون شهرستان در وضعیت عادی قرار دارد.
+طبق این گزارش، دلیل صدای انفجار در جم، مقابله پدافند با هواگردهای متخاصم بوده است.
+https://iranintl.com/202605280555
+</div>
+
+## IranIntlTV — post 339474
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339474_1780005131.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مسعود تنگستانی، فرماندار جم، به خبرگزاری صدا و سیما گفت نیروهای مسلح جمهوری اسلامی یک هواگرد را در آسمان جم در استان بوشهر هدف قرار دادند و هم‌اکنون شهرستان در وضعیت عادی قرار دارد.
+طبق این گزارش، دلیل صدای انفجار در جم، مقابله پدافند با هواگردهای متخاصم بوده است.
+https://iranintl.com/202605280555
+</div>
+
+## IranIntlTV — post 339473
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339473_1780005131.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مسعود تنگستانی، فرماندار جم، به خبرگزاری صدا و سیما گفت نیروهای مسلح جمهوری اسلامی یک هواگرد را در آسمان جم در استان بوشهر هدف قرار دادند و هم‌اکنون شهرستان در وضعیت عادی قرار دارد.
+طبق این گزارش، دلیل صدای انفجار در جم، مقابله پدافند با هواگردهای متخاصم بوده است.
+https://iranintl.com/202605280555
+</div>
+
+## FarsiVOA — post 218932
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺آمریکا شبکه فروش نفت مرتبط با نیروهای مسلح جمهوری اسلامی را تحریم کرد
+
+▪️دفتر کنترل دارایی‌های خارجی وزارت خزانه‌داری آمریکا، اوفک، روز پنج‌شنبه تحریم‌های تازه‌ای را علیه فروش نفت از سوی تشکیلات نظامی جمهوری اسلامی اعلام کرد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8154983.html
+@FarsiVOA
+</div>
+
+## alonews — post 123408
+
+<div align="center">
+  <a href="telegram/content/alonews_123408_1780005132.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حمله‌های امشب ارتش اسرائیل به جنوب لبنان
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123407
+
+<div align="center">
+  <a href="telegram/content/alonews_123407_1780005133.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈بعد از سال‌ها پُرشدگی سد کرج به 70 درصد رسید!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/08 01:12
 ---
 

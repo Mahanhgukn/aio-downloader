@@ -7,6 +7,121 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/08 21:03
+---
+
+## VahidOOnLine — post 242801
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242801_1780075994.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ اسماعیل بقایی، سخنگوی وزارت خارجه جمهوری اسلامی، روز جمعه هشتم خرداد، در گفتگو با صداوسیما اعلام کرد که تبادل پیام‌ها میان تهران و واشنگتن ادامه دارد. بقایی تاکید کرد که متن تفاهم‌نامه هنوز نهایی نشده است. بقایی همچنین با اشاره به گفته‌های ترامپ درباره بازگشایی تنگه هرمز و برقرار نشدن سازوکار اخذ عوارض، گفت تصمیمات درباره این آبراهه تنها از سوی ایران و عمان گرفته خواهد شد.
+
+سخنگوی وزارت خارجه، با تکرار مواضع جمهوری اسلامی بار دیگر تاکید کرد که در حال حاضر تمرکز بر پایان دادن به جنگ است و مذاکره‌ای درباره برنامه هسته‌ای در جریان نیست.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242800
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242800_1780075994.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به گزارش وال‌استریت ژورنال، امارات متحده عربی در روزهای ابتدایی جنگ و حتی تا یک روز پس از اعلام آتش‌بس، ده‌ها حمله هوایی در ایران انجام داده است.
+به گفته منابع آگاه، دامنه این حملات بسیار گسترده‌تر از چیزی بوده که پیش‌تر گزارش شده بود.
+
+بر اساس این گزارش، این موضوع نشان می‌دهد امارات متحده عربی در مقایسه با برخی کشورهای منطقه خلیج‌فارس، رویکردی تهاجمی‌تر و همسو با منافع راهبردی خود اتخاذ کرده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342402
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342402_1780075995.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+“I’ll kill your whole f–king family. Your whole f–king family is dead. Your children, your wife, all dead."
+
+A left-wing activist in Newark was caught on camera shouting those words at an unmasked ICE officer as protests outside the Delaney ICE facility turned chaotic.
+
+Acting AG Todd Blanche is now firing back, promising that the "disgusting" activist will be caught and charged, emphasizing that threatening a federal officer and their family is a federal crime.
+
+“That is disgusting ... and we see his face and I promise you we will find him, and when we find him, we will arrest him."
+</div>
+
+## VahidOnline — post 75791
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_75791_1780075997.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مهدی خانعلی‌زاده، عضو تیم رسانه‌ای هیات مذاکره‌کننده جمهوری اسلامی، نوشت که در متن تفاهم احتمالی هشت بند از ۱۰ بند بیانیه شورای عالی امنیت ملی که به تایید مجتبی خامنه‌ای رسیده، رعایت نشده و زیر پا گذاشته شده است.
+
+او افزود که تفاهم‌نامه کنونی برخلاف بیانیه آتش‌بس شورای عالی امنیت ملی است و مشخص شده که اساسا مذاکرات پسااسلام‌آباد، بر مبنای شروط رهبری انجام نشده است.
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 75790
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_75790_1780075997.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری رویترز روز جمعه به نقل از یک منبع ایرانی نوشت که بین تهران و واشینگتن یک تفاهم سیاسی صورت گرفته اما هنوز نهایی نشده و همچنین توافق با ایران شامل نابودی مواد هسته‌ای نیست.
+
+دونالد ترامپ، رئیس‌جمهور آمریکا ساعتی پیش اعلام کرد که توافق پایان دادن جنگ باید شامل مواردی مانند تعهد ایران به باز شدن تنگه هرمز و نابودی ذخایر اورانیوم باشد.
+
+منبع ایرانی به رویترز گفته است که تفاهم بین واشینگتن و تهران شامل موضوع هسته‌ای نیست و اظهارات آقای ترامپ درباره نابودی اورانیوم ایران را رد کرده است.
+
+خبرگزاری فارس، نزدیک به سپاه پاسداران، نیز به نقل از یک منبع ایرانی دیگر اظهارنظر رئیس‌جمهور ایالات منحده دربارهٔ توافق احتمالی با ایران، را «آمیخته‌ای از راست و دروغ» خوانده است.
+این منبع گفته که در متن توافق بندی درباره باز شدن تنگه هرمز بدون دریافت عوارض وجود ندارد و تفاهم بر سر نابودی دخایر اورانیوم ایران را نیز «بی‌اساس» دانسته است.
+@VahidHeadline
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 339622
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339622_1780075998.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به گزارش وال‌استریت ژورنال، امارات متحده عربی در روزهای ابتدایی جنگ و حتی تا یک روز پس از اعلام آتش‌بس، ده‌ها حمله هوایی در ایران انجام داده است.
+به گفته منابع آگاه، دامنه این حملات بسیار گسترده‌تر از چیزی بوده که پیش‌تر گزارش شده بود.
+
+بر اساس این گزارش، این موضوع نشان می‌دهد امارات متحده عربی در مقایسه با برخی کشورهای منطقه خلیج‌فارس، رویکردی تهاجمی‌تر و همسو با منافع راهبردی خود اتخاذ کرده است.
+https://iranintl.com/202605292290
+</div>
+
+## Persian_Trend_Official — post 15263
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15263_1780075999.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## IranianMinds — post 21029
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در کمال تعجب تا الان خبری از جنگ تو جنوب کشور نبوده
+
+
+@IranianMinds
+</div>
+
+---
 📅 بروزرسانی: 1405/03/08 20:53
 ---
 

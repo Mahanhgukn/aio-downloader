@@ -7,6 +7,73 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/09 01:03
+---
+
+## VahidOOnLine — post 242835
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242835_1780090417.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️یک منبع رسمی ایرانی در گفتگو با خبرنگار الجزیره، با اشاره به روند مذاکرات و توافق موقت با ایالات متحده آمریکا اعلام کرد که «با تیمی که فاقد هرگونه چارچوب حرفه‌ای یا اخلاقیِ پایدار است، بر اساس روحیات و خلق‌وخوی شخصی رفتار می‌کند و خواسته‌های خود را به طور مداوم تغییر می‌دهد، نمی‌توان هیچ چیز را نهایی‌شده توصیف کرد.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## mwarmonitor — post 9903
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_9903_1780090417.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 تانکر تارکرز: در روزهای اخیر، نفتکش‌ها در امتداد ساحل ایران و در تأسیسات دریایی اقدام به بارگیری نفت خام و انواع فرآورده‌های پالایش‌شده کرده‌اند. امروز (۲۹ مه ۲۰۲۶) نیز شاهد بارگیری یک نفتکش بسیار بزرگ (VLCC) به میزان دو میلیون بشکه نفت خام هستیم. @mwarmonitor
+</div>
+
+## IranIntlTV — post 339659
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339659_1780090418.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در حالی که دولت آمریکا از پایان محاصره دریایی ایران و پیشرفت در تفاهم‌نامه با تهران خبر داده، در کنگره آمریکا پرسش‌هایی درباره هزینه‌های جنگ با ایران مطرح شده است. منتقدان، دولت ترامپ را به ارائه آمار ناقص و متناقض متهم می‌کنند.
+
+گزارش نیلوفر منصوری، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## Persian_Trend_Official — post 15303
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://youtube.com/live/24Mc1cJMDgQ?feature=share
+</div>
+
+## alonews — post 123588
+
+<div align="center">
+  <a href="telegram/content/alonews_123588_1780090419.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فردی که در تصویر می‌بینید به گزارش روزنامه فایننشیال تایمز مالک شبکه ایران اینترنشنال است! 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123587
+
+<div align="center">
+  <a href="telegram/content/alonews_123587_1780090419.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خبرنگار الجزیره:
+یک منبع رسمی ایرانی همین الان به من گفت: با تیمی که هیچ چارچوب حرفه‌ای یا اخلاقی ثابتی ندارد، دمدمی مزاج است و مدام خواسته‌هایش را تغییر می‌دهد، نمی‌توان گفت که هیچ چیز «نهایی» شده است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/09 00:54
 ---
 

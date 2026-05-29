@@ -7,6 +7,176 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/08 23:33
+---
+
+## VahidOOnLine — post 242824
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_242824_1780084982.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند در پیامی به ایران اینترنشنال می‌گوید سرعت اینترنت جهانی در ایران بسیار پایین است. پیام او با هوش مصنوعی خوانده شده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 12906
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نیویورک تایمز به نقل از یک مقام دولتی:
+نشست ترامپ در اتاق عملیات به وایان رسید وحدود دو ساعت به طول انجامید.
+@withyashar
+</div>
+
+## WithYashar — post 12905
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نیویورک پست: زمان نهایی شدن تفاهم‌نامه بین آمریکا و ایران مشخص نیست
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342411
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+“I’ll kill your whole f–king family. Your whole f–king family is dead. Your children, your wife, all dead."
+
+That's just one of the chilling threats made to ICE agents outside a New Jersey facility, as the DOJ says it's now working to identify and arrest the demonstrators.
+
+@AlexisMcAdamsTV shows just some of the moments investigators are looking into as chaotic protests continue at the Newark facility. | @AmericaRpts
+</div>
+
+## FoxNewsTwitter — post 342410
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342410_1780084983.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Rep. Ilhan Omar is officially seeking another term in Congress.
+
+The Minnesota Democrat has filed paperwork to run again, as a separate debate over who can serve in federal office is picking up steam on Capitol Hill.
+
+Rep. Nancy Mace is currently pushing a constitutional amendment that would require members of Congress, federal judges, and Senate-confirmed appointees to be natural-born U.S. citizens.
+
+The proposal faces a steep path forward, but it's already drawing attention as Omar prepares for another campaign.
+
+Mace directly accused Omar of "foreign allegiance" when discussing her proposal.
+</div>
+
+## pm_afshaa — post 91872
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رئیس شورای هماهنگی اسلامی :قرار است یک مراسم تشییع ده‌ها میلیون نفری برای رهبر شهید مفعولمون برگزار کنیم
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91871
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_91871_1780084983.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانفیگ استارلینک رایگان👇
+</div>
+
+## VahidOnline — post 75796
+
+<div align="center">
+  <a href="telegram/content/VahidOnline_75796_1780084984.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسکات بسنت:
+ما حدود ۱ میلیارد دلار از ارزهای دیجیتال ایران را توقیف کرده‌ایم - کیف پول‌ها را کاملاً توقیف کرده‌ایم.
+
+ممکن است برخی از آنها همین الان در حال تایپ کردن باشند و متوجه نشوند که کیف پولشان توقیف شده است.
+
+این پولی است که از مردم ایران دزدیده شده است.
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 339648
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/339648" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی ۲۴ با فرداد فرحزاد: ترامپ: تهران پولی نخواهد گرفت و سلاح هسته‌ای نخواهد داشت
+@iranintlTV
+</div>
+
+## IranIntlTV — post 339647
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339647_1780084985.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند در پیامی به ایران اینترنشنال می‌گوید سرعت اینترنت جهانی در ایران بسیار پایین است. پیام او با هوش مصنوعی خوانده شده است.
+</div>
+
+## FarsiVOA — post 219016
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219016_1780084986.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️اقتصاد ویران و بازگشت اینترنت نصف‌ونیمه؛ نظرات کاربران شبکه‌های اجتماعی
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219015
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219015_1780084986.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️منشه امیر در برنامه تفسیر خبر: از دیدگاه اسرائیل خطر موشکی جمهوری اسلامی مهمتر از خطر اتمی آن است
+@FarsiVOA
+</div>
+
+## BBCPersian — post 282350
+
+<div align="center">
+  <a href="telegram/content/BBCPersian_282350_1780084987.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌ ‌ ‌
+آخرین خبرهای مهم جمعه ۸ خرداد ۱۴۰۵
+
+@BBCPersian
+</div>
+
+## BBCPersian — post 282349
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻 تسنیم: پهپاد دشمن در اطراف جزیره قشم هدف قرار گرفت و منهدم شد
+
+در پی گزارش‌ها درباره شنیده شدن صدای پدافند در جزیره قشم، خبرگزاری تسنیم،‌ نزدیک به منابع امنیتی گزارش داد که یک «ریزپرنده» آمریکایی اسرائیلی در حوالی جزیره قشم هدف پدافند هوایی ارتش ایران قرار گرفته و منهدم شده است.
+
+منابع آمریکا درباره این گزارش اظهارنظری نکردند.
+
+دیشب هم سپاه پاسداران مدعی سرنگون کردن یک پهپاد شده بود.
+
+https://bbc.in/4nZZvWf
+@BBCPersian
+</div>
+
+---
 📅 بروزرسانی: 1405/03/08 23:23
 ---
 

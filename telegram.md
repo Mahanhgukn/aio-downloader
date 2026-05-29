@@ -7,6 +7,93 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/09 00:54
+---
+
+## VahidOOnLine — post 242834
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242834_1780089859.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️به گزارش روزنامه نیویورک‌پست، یکی از آخرین موانع باقی‌مانده در مسیر توافق صلح موقت میان آمریکا و جمهوری اسلامی ایران، نحوه آزادسازی مرحله‌به‌مرحله ۶ میلیارد دلار از دارایی‌های ایران در قطر است. دونالد ترامپ و مذاکره‌کنندگان ایرانی در حال چانه‌زنی بر سر جزئیات نهایی یک تفاهم‌نامه هستند که بر اساس آن، تنگه هرمز به روی کشتیرانی بین‌المللی بازگشایی می‌شود و در مقابل، زمان بیشتری برای دور دوم مذاکرات درباره سرنوشت اورانیوم غنی‌شده ایران داده خواهد شد. این اموال مستقیما به ایران پرداخت نمی‌شود بلکه برای خرید غذا و دارو هزینه خواهد شد و آزادسازی تدریجی آن به پایبندی ایران به تعهداتی چون بازگشایی و مین‌روبی تنگه هرمز مشروط است.
+نیویورک‌پست به نقل از یک مقام مسئول افزود که این نزدیک‌ترین وضعیت دو کشور به توافق است؛ با این حال، روند صلح به دلیل پنهان شدن مجتبی خامنه‌ای، رهبر جمهوری اسلامی، از ترس ترور توسط آمریکا و اسرائیل و نیاز به فرآیند چندروزه تبادل پیام از طریق پیک، با کندی پیش می‌رود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## mwarmonitor — post 9902
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_9902_1780089860.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📌ملوانان نیروی دریایی آمریکا عملیات پرواز شبانه را روی ناو هواپیمابر «USS George H. W. Bush (CVN-77)» انجام می‌دهند. در شب، خلبانان بسیار ماهر می‌توانند در تاریکی تقریباً کامل، روی یک عرشه کوچک که در حال بالا و پایین رفتن و تکان خوردن است فرود بیایند.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9901
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فرمانده فرماندهی جنوبی ارتش آمریکا، ژنرال دونوفان، امروز در حاشیه خلیج گوانتانامو با فرماندهان ارشد نظامی کوبا دیدار کرده است. رویترز
+
+@mwarmonitor
+</div>
+
+## FarsiVOA — post 219029
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219029_1780089861.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️بانک مرکزی اروپا می‌گوید برای مهار تورم آمادگی دارد
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 15302
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15302_1780089863.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نهاد مدیریت آب‌راه خلیج فارس: تسلط بر تنگهٔ هرمز را با تحریم هم به دست نخواهید آورد.
+
+نهاد مدیریت آب‌راه خلیج فارس: تسلط بر تنگهٔ هرمز را که در میدان و دیپلماسی به دست نیاوردید، با تحریم هم به دست نخواهید آورد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 21046
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21046_1780089863.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 پیت هگزت وزیر جنگ آمریکا :
+
+ایران بهتره زودتر انتخاب کنه یا مذاکره هسته ای یا جنگ با آمریکا , ایندفه نه بلکه از روی آسمان و دریا از روی زمین هم باید با ما روبرو بشن!
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21045
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21045_1780089864.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ویدئویی از دقایق اول حمله اسرائیل به بیت رهبری.
+
+@IranianMinds
+</div>
+
+---
 📅 بروزرسانی: 1405/03/09 00:43
 ---
 

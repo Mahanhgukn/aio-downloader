@@ -7,6 +7,227 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/08 21:33
+---
+
+## WithYashar — post 12889
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨پدافند قشم فعال شد
+@withyashar
+</div>
+
+## pm_afshaa — post 91845
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+vless://62470850-6875-4008-b773-925d7ad510a0@199.34.228.77:443?encryption=none&security=tls&sni=my.pars-cdn.ir&fp=chrome&alpn=h2%2Chttp%2F1.1&insecure=1&allowInsecure=1&type=xhttp&path=%2FTelegram-Zedmodeon&mode=auto&extra=%7B%22xPaddingBytes%22%3A%22100-…
+</div>
+
+## pm_afshaa — post 91844
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+vless://62470850-6875-4008-b773-925d7ad510a0@199.34.228.77:443?encryption=none&security=tls&sni=my.pars-cdn.ir&fp=chrome&alpn=h2%2Chttp%2F1.1&insecure=1&allowInsecure=1&type=xhttp&path=%2FTelegram-Zedmodeon&mode=auto&extra=%7B%22xPaddingBytes%22%3A%22100-1000%22%2C%22mode%22%3A%22auto%22%2C%22scMaxEachPostBytes%22%3A%221000000%22%7D#PMTV%20NEWS%20%F0%9F%A6%81%E2%98%80%EF%B8%8F
+
+نا محدود متصل سرعت موشکی
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91843
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+vless://62470850-6875-4008-b773-925d7ad510a0@199.34.228.54:443?encryption=none&security=tls&sni=my.pars-cdn.ir&fp=chrome&alpn=h2%2Chttp%2F1.1&insecure=1&allowInsecure=1&type=xhttp&path=%2FTelegram-Zedmodeon&mode=auto&extra=%7B%22xPaddingBytes%22%3A%22100-1000%22%2C%22mode%22%3A%22auto%22%2C%22scMaxEachPostBytes%22%3A%221000000%22%7D#PMTV%20NEWS%20%F0%9F%A6%81%E2%98%80%EF%B8%8F
+
+سرور نپسترنت نامحدود مخصوص اینستا و دانلود
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91842
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+vless://6754a03d-dbea-409a-9fed-ac4dcd770dec@151.101.57.219:443?path=%2F&security=tls&encryption=none&insecure=1&host=Appxdn.global.ssl.fastly.net&type=ws&allowInsecure=1&sni=speedtest.net#PMTV NEWS 🦁☀️
+
+سرور نامحدود مخصوص اینستا و دانلود
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91841
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+tg://proxy?server=rah.time-meli.info&port=155&secret=dd104462821249bd7ac519130220c25d09
+
+پروکسی سرعت بالا مخصوص دانلود
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## Shin_Persian — post 6306
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6306_1780077801.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Fri, 29 May 2026 17:58:04 UTC
+
+Intense AA activity in Qeshm Island, Hormozgan Province, #Iran
+
+فارسی
+
+فعالیت شدید پدافند هوایی در جزیره قشم، استان هرمزگان، #Iran
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 219000
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺اصرار حزب‌الله بر گنجاندن موضوع لبنان در مذاکرات آمریکا و جمهوری اسلامی؛ اسرائیل: گروه نیابتی رژیم ایران به‌شدت ضعیف شده است
+
+▪️در حالی که ارزیابی‌های فرماندهی جبهه شمالی در اسرائیل درباره توان رزمی حزب‌الله لبنان، از ضعیف شدن شدید این گروه تروریستی وابسته به جمهوری اسلامی حکایت دارد، گزارش‌ها حاکی از آن است که حزب‌الله در حال اعمال فشار بر جمهوری اسلامی است تا پایان جنگ و توقف حملات اسرائیل به این گروه را بخشی از روند مذاکرات رژیم ایران با آمریکا در نظر بگیرد.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/lebanon-hezbollah-iran-war-proxy/8155271.html/?nocach=1
+</div>
+
+## Persian_Trend_Official — post 15267
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+همچنان ترابری نظامی آمریکا ادامه دارد...
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15266
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15266_1780077803.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😂 عراقچی:
+تبادل پیام‌ها ادامه دارد، اما هنوز به تفاهم نهایی نرسیده‌ایم.
+هیچ یک از طرف‌های غربی، هنگام صحبت درباره جمهوری اسلامی ایران، نمی‌توانند از زبان باید استفاده کنند.ما تصمیمات خود را بر اساس منافع و حقوق ملت ایران اتخاذ می‌کنیم.
+
+
+👺Phantom
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 21035
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21035_1780077804.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+@IranianMinds
+</div>
+
+## IranianMinds — post 21034
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21034_1780077804.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 وال استریت ژورنال :
+
+امارات متحده عربی در طول جنگ، به‌طور مخفیانه ده‌ها حمله هوایی را با هماهنگی ایالات متحده و اسرائیل علیه ایران انجام داده است.
+
+این حملات، سایت‌های نظامی و مراکز مرتبط با انرژی را هدف قرار داده و حتی تا پس از اعلام آتش‌بس نیز ادامه داشته است.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21033
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎁 استارت کن و کانفیگتو رایگان بگیر 
+⭐ویژه کاربران پرمیوم تلگرام 
+⭐️ اگه اکانت تلگرامت پرمیوم باشه به محض استارت ربات بدون هیچ امتیاز و زیر مجموعه دایی جون بهت کانفیگ هدیه میده 
+✔️ همچنین با اوردن دوستای پرمیومت امتیاز بیشتری میگیری 
+🎁 @Daeijoonbot | استارت…
+</div>
+
+## IranianMinds — post 21032
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21032_1780077805.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎁 استارت کن و کانفیگتو رایگان بگیر
+
+
+⭐ویژه کاربران پرمیوم تلگرام
+
+
+⭐️ اگه اکانت تلگرامت پرمیوم باشه به محض استارت ربات بدون هیچ امتیاز و زیر مجموعه دایی جون بهت کانفیگ هدیه میده
+
+✔️ همچنین با اوردن دوستای پرمیومت امتیاز بیشتری میگیری
+
+
+🎁 @Daeijoonbot | استارت کن و کانفیگ رایگان بگیر 
+🌟
+</div>
+
+## BBCPersian — post 282346
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بقایی: هنوز هیچ توافقی میان ایران و آمریکا نهایی نشده است
+
+اسماعیل بقایی، سخنگوی وزارت خارجه ایران گفت که تبادل پیام‌ها ادامه دارد ولی هنوز هیچ توافقی میان ایران و آمریکا نهایی نشده است و افزود که مدیریت تنگه هرمز باید توسط ایران و عمان تعیین شود.
+
+آقای بقایی در مصاحبه‌ای با صدا و سیما جمهوری اسلامی این اظهارات را مطرح کرد.
+
+او بار دیگر گفت: «در این مرحله بر خاتمه جنگ متمرکز هستیم و در مورد پرونده هسته‌ای هیچ مذاکره‌ای نداریم.»
+
+این اظهارات در حالی از سوی ایران مطرح شده که آقای ترامپ فهرستی از خواسته‌هایی را که می‌گوید ایران باید برآورده کند، مطرح کرد که شامل تعهد ایران به عدم دستیابی به سلاح هسته‌ای، باز کردن تنگه هرمز بدون دریافت عوارض، مین‌روبی کامل این آبراه و خارج‌سازی ذخایر اورانیوم ‌غنی‌شده ایران با همکاری آمریکا و تحت نظارت آژانس و سپس از بین بردن این مواد است.
+
+https://bbc.in/434zQlG
+@BBCPersian
+</div>
+
+## alonews — post 123550
+
+<div align="center">
+  <a href="telegram/content/alonews_123550_1780077806.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 زلنسکی: روسیه در حال آماده‌سازی یک حمله بزرگ‌مقیاس جدید است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/08 21:22
 ---
 

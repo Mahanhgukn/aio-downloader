@@ -7,6 +7,177 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/08 20:13
+---
+
+## VahidOOnLine — post 242796
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242796_1780073031.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ به گفته وزارت امور خارجه آمریکا، مارکو روبیو، وزیر امور خارجه و مشاور امنیت ملی دونالد ترامپ، روز جمعه، هشتم خرداد با اسحاق دار، وزیر امور خارجه و معاون نخست‌وزیر پاکستان، درباره جنگ با ایران گفتگو کرد. پاکستان یکی از میانجی‌های اصلی در مذاکرات میان ایالات متحده و جمهوری اسلامی برای دست‌یابی به یک توافق رسمی آتش‌بس موقت بوده است.
+
+تامی پیگات، سخنگوی وزارت امور خارجه آمریکا، در بیانیه‌ای درباره این دیدار که در واشنگتن برگزار شد، اعلام کرد: «وزیر امور خارجه از نقش سازنده‌ای که پاکستان در راستای تحقق چشم‌انداز رئیس‌جمهوری ترامپ برای صلح در خاورمیانه و همچنین تلاش‌های میانجی‌گرانه این کشور با ایران ایفا می‌کند، تشکر کرد.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242795
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242795_1780073032.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رویترز به نقل از یک مقام ارشد جمهوری اسلامی گفت اظهارات دونالد ترامپ درباره ذخایر اورانیوم با غنای بالای ایران صحت ندارد.
+
+این مقام ارشد جمهوری اسلامی همچنین افزود تفاهم‌نامه احتمالی میان تهران و واشینگتن شامل هیچ‌گونه موضوع مرتبط با پرونده هسته‌ای نیست.
+
+این مقام ارشد جمهوری اسلامی گفت که میان تهران و واشینگتن یک تفاهم سیاسی حاصل شده، اما این توافق هنوز نهایی نشده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242794
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242794_1780073033.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️به گفته رافائل گروسی، رئیس آژانس هسته‌ای سازمان ملل متحد، قزاقستان مایل است در صورت دستیابی به توافق میان واشنگتن و تهران، ذخیره اورانیوم غنی‌شده ایران را که در آستانه سطح تسلیحاتی قرار دارد، در خاک خود ذخیره کند.
+
+رافائل گروسی، رئیس آژانس بین‌المللی انرژی اتمی (IAEA) در گفتگو با روزنامه فایننشال تایمز اعلام کرد که قاسم جومارت توکایف، رئیس‌جمهور قزاقستان، این پیشنهاد را در جریان سفر این هفته او به آستانه مطرح کرده است.
+
+قزاقستان در حال حاضر میزبان یک «بانک بین‌المللی اورانیوم با غنای پایین» است که تحت نظارت‌های جهانی اداره می‌شود؛ هدف این بانک، تضمین تامین سوخت نیروگاه‌های کشورهای عضو آژانس و همچنین پیشگیری از گسترش سلاح‌های هسته‌ای است.
+
+گروسی با ابراز این باور که چنین ترتیبی می‌تواند مورد پذیرش ایران و آمریکا قرار گیرد، افزود: «ما مکانی را در اختیار داریم که این مواد [اورانیوم غنی‌شده ایران] می‌تواند به صورت ایمن در آنجا ذخیره شود.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## mwarmonitor — post 9895
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 تانکر تارکرز: در روزهای اخیر، نفتکش‌ها در امتداد ساحل ایران و در تأسیسات دریایی اقدام به بارگیری نفت خام و انواع فرآورده‌های پالایش‌شده کرده‌اند. امروز (۲۹ مه ۲۰۲۶) نیز شاهد بارگیری یک نفتکش بسیار بزرگ (VLCC) به میزان دو میلیون بشکه نفت خام هستیم.
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 91836
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/proxy?server=87.248.129.12&port=15&secret=ee1603010200010001fc030386e24c3add626973636f7474692e79656b74616e65742e636f6d
+
+پروکسی پینگ 100 متصل
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91835
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/proxy?server=mimecraft4ir.homes&port=25565&secret=ee1603010200010001fc030386e24c3add626973636f7474692e79656b74616e65742e636f6d
+
+پروکسی مخصوص دانلود سرعت بالا
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91834
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فارس: ترامپ ادعاهای بی‌اساسی درباره توافق با ایران مطرح کرده، از جمله باز کردن تنگه هرمز بدون عوارض و برچیدن مواد هسته‌ای ایران، در حالی که چنین بندهایی در متن توافق وجود ندارد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 339617
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339617_1780073034.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رویترز به نقل از یک مقام ارشد جمهوری اسلامی گفت اظهارات دونالد ترامپ درباره ذخایر اورانیوم با غنای بالای ایران صحت ندارد.
+
+این مقام ارشد جمهوری اسلامی همچنین افزود تفاهم‌نامه احتمالی میان تهران و واشینگتن شامل هیچ‌گونه موضوع مرتبط با پرونده هسته‌ای نیست.
+
+این مقام ارشد جمهوری اسلامی گفت که میان تهران و واشینگتن یک تفاهم سیاسی حاصل شده، اما این توافق هنوز نهایی نشده است.
+https://iranintl.com/202605290076
+</div>
+
+## IranIntlTV — post 339616
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/339616" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی اخبار شبانگاهی | جمعه ۸ خرداد
+@iranintlTV
+</div>
+
+## IranianMinds — post 21027
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21027_1780073035.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 مراد ویسی :
+
+من توی زندگیم برای ارتباط با آدما فقط یه معیار دارم، میزان تنفر از جمهوری اسلامی …
+
+@IranianMinds
+</div>
+
+## alonews — post 123537
+
+<div align="center">
+  <a href="telegram/content/alonews_123537_1780073036.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تسنیم به نقل از منابع ایرانی: اصرار ترامپ بر عدم آزادسازی دارایی‌های مسدود شده، تردیدهای تهران را در مورد جدیت واشنگتن افزایش می‌دهد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123536
+
+<div align="center">
+  <a href="telegram/content/alonews_123536_1780073037.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پوتین : اوضاع توی میدون جنگ جوریه که روسیه می‌تونه بگه این درگیری داره کم‌کم به آخرش نزدیک می‌شه
+
+
+🔴حرف بعضی سیاستمدارهای اروپایی که می‌گن دارن خودشون رو برای جنگ با روسیه آماده می‌کنن، کاملاً چرته
+
+
+🔴روسیه هیچ‌وقت هیچ نیت تهاجمی علیه کشورهای اروپایی نداشته
+
+
+🔴روسیه برای مذاکرات درباره اوکراین آماده‌ست و از اون صرف‌نظر نکرده
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/08 20:03
 ---
 

@@ -7,6 +7,286 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/09 00:34
+---
+
+## VahidOOnLine — post 242832
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️اسکات بسنت، وزیر خزانه‌داری ایالات متحده، روز جمعه هشتم خرداد در «مجمع اقتصادی ملی ریگان» اعلام کرد که واشنگتن حدود یک میلیارد دلار از دارایی‌های رمزارزی مرتبط با حکومت ایران را به طور مستقیم توقیف و کیف‌پول‌های دیجیتال آن‌ها را ضبط کرده است. او با تاکید بر اینکه این اموال در واقع پول‌های دزدیده‌شده از مردم ایران است، اشاره کرد که بسیاری از صاحبان این حساب‌ها هنوز متوجه ضبط دارایی و کیف‌پول دیجیتال خود نشده‌اند.
+وزیر خزانه‌داری آمریکا همچنین افزود واشنگتن با همکاری نزدیک متحدان اروپایی خود در حال ردیابی و توقیف املاک و مستغلات، از جمله ویلاها و خانه‌های متعلق به این افراد در سراسر اروپا است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242831
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242831_1780088664.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️وزارت خزانه‌داری ایالات متحده، روز جمعه، در ادامه کارزار فشار حداکثری علیه جمهوری اسلامی تحت عنوان طرح «خشم اقتصادی»، از وضع تحریم‌های جدید ضد تروریستی علیه شبکه تدارکاتی و مالی مرتبط با تهران خبر داد؛ بر اساس بیانیه رسمی این وزارتخانه، ۸ فرد و ۵ نهاد به دلیل کلاهبرداری، جعل هویت شرکت‌های آمریکایی و دور زدن تحریم‌ها برای تامین قطعات و نرم‌افزارهای امنیتی مورد نیاز وزارت دفاع ایران و سپاه پاسداران در فهرست سیاه قرار گرفته‌اند. این تحریم‌ها عمدتا شبکه‌ای مرتبط با علی مجد سپهر و برخی شرکت‌های وابسته به وزارت دفاع و پشتیبانی نیروهای مسلح جمهوری اسلامی را هدف قرار داده است. وزارت خزانه‌داری آمریکا در این بیانیه اعلام کرد علی مجد سپهر، محمدعلی منصور دره‌شیری، سعید زاهدی، پیام اختریان، هدی باقری، فرزانه رضایی، رودابه سرمدی و منوچهر زندیان هشت فرد تحریم شده هستند. واشنگتن هم‌زمان با مسدود کردن دارایی‌های رمزارزی مرتبط با تهران، به شرکت‌های بین‌المللی و پالایشگاه‌های مستقل در خصوص هرگونه تسهیل تجاری یا پرداخت عوارض عبور به ایران در تنگه هرمز هشدار داده و تأکید کرده است که متخلفان با تحریم‌های ثانویه سنگین روبرو خواهند شد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 12913
+
+<div align="center">
+  <img src="telegram/content/WithYashar_12913_1780088665.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تصویری از داماد ۱۷ ساله و عروس ۱۶ ساله در تجمعات شبانه
+@withyashar
+زبانم قاسمه کتلته…🥴
+</div>
+
+## WithYashar — post 12912
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صداوسیما: منابع محلی از فعال شدن سامانه پدافندی در جزیره قشم حوالی ساعت ۲۱:۲۵ خبر دادند.
+
+بررسی‌های اولیه حاکی است این اقدام به احتمال زیاد در مقابله با ریزپرنده‌ها انجام شده و با موفقیت همراه بوده است.
+سامانه‌های پدافندی آرش‌ کمان‌گیر در روزهای اخیر عملکرد موفقی در مقابله با پهپادهای دشمن داشته‌اند.
+@withyashar
+</div>
+
+## WithYashar — post 12911
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حسین علایی:
+سه روز قبل از ۹ اسفند به شمخانی گفتم امریکا جنگ رو با تـرور رهبر شروع میکنه؛ گفت نمیتونن اینکارو کنن. چون نمیتونن پیداش کنن.
+سه روز بعد هم خودشو زدن هم رهبر رو. اونا اطلاعاتشون خیلی قویه.
+@withyashar
+</div>
+
+## IranIntlTV — post 339658
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339658_1780088666.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک موشک نیو گلن متعلق به شرکت بلو اوریجین در جریان آزمایش روی سکوی پرتاب در کیپ کاناورال فلوریدا منفجر شد و ستون بزرگی از آتش و دود به هوا برخاست. این موشک بدون سرنشین برای چهارمین پرتاب آزمایشی و حمل ماهواره‌های پروژه آمازون لئو به مدار پایین زمین آماده می‌شد.…
+</div>
+
+## IranIntlTV — post 339657
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339657_1780088670.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وال‌استریت ژورنال در گزارشی اختصاصی از جزییات حملات امارات به ایران در جریان جنگ اخیر خبر داد. براساس این گزارش، این حملات با هماهنگی آمریکا و اسرائیل انجام شده و قشم، ابوموسی، بندرعباس، لاوان و عسلویه را هدف قرار داده است.
+
+گفت‌وگو با غسان عاشور، تحلیل‌گر مسائل خاورمیانه
+@iranintltv
+</div>
+
+## IranIntlTV — post 339656
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339656_1780088673.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وال‌استریت ژورنال در گزارشی اختصاصی از جزییات حملات امارات به ایران در جریان جنگ اخیر خبر داد. براساس این گزارش، این حملات با هماهنگی آمریکا و اسرائیل انجام شده و قشم، ابوموسی، بندرعباس، لاوان و عسلویه را هدف قرار داده است.
+
+گفت‌وگو با غسان عاشور، تحلیل‌گر مسائل خاورمیانه
+@iranintltv
+</div>
+
+## IranIntlTV — post 339655
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339655_1780088675.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻تیم‌های فوتبال پاری‌سن‌ژرمن و آرسنال عصر شنبه در استادیوم پوشکاش آرنا شهر بوداپست مجارستان، در فینال لیگ قهرمانان اروپا، به مصاف یکدیگر می‌روند.
+
+🔹به نظر شما کدام تیم کاپ قهرمانی را به خانه می‌برد؟ شاگردان لوییس انریکه یا میکل آرتتا؟
+
+🔹برای شرکت در این نظرسنجی به صفحه اینستاگرام ایران اینترنشنال ورزشی مراجعه کنید؛👇
+https://www.instagram.com/p/DY78FG6gjNx/
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 339654
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339654_1780088676.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻تیم ملی فوتبال در حالی در اردوی آماده‌سازی برای حضور در جام جهانی ۲۰۲۶ به سر می‌برد که مهدی محمدنبی، سرپرست تیم ملی، اعلام کرد هنوز ویزای مکزیک و آمریکا صادر نشده است.
+
+🔹او گفت: «ایمیلی به فیفا زدیم تا بدانیم چه روزی ویزاها صادر می‌شود. ما هم به ویزای مولتی مکزیک نیاز داریم و هم به ویزای مولتی آمریکا.»
+
+🔹او که جمعه‌شب پس از بازی تیم ملی با گامبیا با خبرنگاران گفت‌وگو می‌کرد، افزود در آخرین مذاکرات اعلام شده است که «پروسه اداری، به احتمال بسیار زیاد، در همین هفته انجام می‌شود.»
+
+🔹این اظهارات در حالی مطرح می‌شود که تنها ۱۲ روز تا آغاز جام جهانی باقی مانده و تکلیف ویزا و محل اقامت بسیاری از تیم‌های حاضر در جام جهانی در کانادا، آمریکا و مکزیک مشخص شده و به‌زودی اردوهای نهایی در کمپ‌های از پیش اعلام‌شده برپا می‌شود.
+
+🔹با این حال، تیم ملی فوتبال ایران در آخرین لحظات از کمپ آریزونای آمریکا به کمپ تیخوانای مکزیک منتقل شد.
+
+🔹رئیس‌جمهور مکزیک گفته است آمریکا علاقه‌ای نداشت تیم ایران در آن کشور اقامت داشته باشد و به همین دلیل مکزیک پذیرفته است تیم ملی کمپ خود را در این کشور برپا کند.
+
+@iranintltvsport
+</div>
+
+## Shin_Persian — post 6311
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Fri, 29 May 2026 21:01:23 UTC
+
+Ali Hashem is Barak Ravid, but the Al Jazeera version
+
+فارسی
+
+علی هاشم همان باراک راوید است، اما در نسخه الجزیره.
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 219027
+
+<div align="center">
+  <a href="https://t.me/farsivoa/219027" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴📢‌ پادکست خبری جمعه ۸ خرداد ۱۴۰۵
+
+🛜در صورتی که با مشکل اینترنت مواجه هستید میتوانید اخبار صدای آمریکا را از نسخه‌های پادکست خبری ما به صورت صوتی دنبال کنید و یا اخبار را از نسخه سبک وب‌سایت ما پیگیر باشید:
+https://ir.voanews.com/lite
+
+📡بروزترین فرکانسهای ماهواره‌ای را نیز میتوانید از صفحه زیر پیگیری کنید:
+https://ir.voanews.com/satellite
+
+🔔دیگر شبکه‌های اجتماعی ما را هم دنبال کنید:
+https://linktr.ee/voafarsi
+
+
+
+با دوستانتان به اشتراک بگذارید
+@farsivoa
+</div>
+
+## Persian_Trend_Official — post 15297
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15297_1780088678.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وقتی طرف مقابل وضعیت نظامی خود را در همین شرایط حفظ کند، یعنی حفظ سایه جنگ بر کشور را پذیرفتیم. در حالی که دشمن باید از منطقه اخراج شود تا جمهوری اسلامی ایران چهارپایه طناب دار اقتصادی که در تنگه هرمز به گردن غرب انداخته را نکشد.
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15296
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15296_1780088681.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Elyas Farokh – اتاق جنگ جمعه 8 خرداد | بوی جنگ از توافق ترامپ با جمهوی اسلامی!
+</div>
+
+## Persian_Trend_Official — post 15295
+
+<div align="center">
+  <a href="https://t.me/persian_trend_official/15295" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فایل صوتی لایو اول
+نسخه کم حجم - 6 مگابایت
+
+اتاق جنگ جمعه 8 خرداد | بوی جنگ از توافق ترامپ با جمهوی اسلامی!
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 21043
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21043_1780088682.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 وزیر خزانه داری آمریکا :
+
+ما حدود ۱ میلیارد دلار از ارزهای دیجیتال ایران را توقیف کرده‌ایم؛ یعنی خیلی ساده و مستقیم کیف پول‌هایشان را تصاحب کردیم.
+
+برخی از آن‌ها ممکن است همین حالا در حال تایپ کردن و چک کردن حسابشان باشند و هنوز متوجه نشده باشند که کیف پولشان از دست رفته است.
+
+این‌ها پول‌هایی است که از مردم ایران دزدیده شده است.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21042
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21042_1780088685.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 وزیر خزانه داری آمریکا :
+
+ما حکومت را سرنگون نکردیم، اما ساختار آن را تغییر دادیم.
+
+رهبران سطح اول حذف شدند، رهبران سطح دوم هم حذف شدند.
+
+بنابراین، ما اکنون با مدیران و فرماندهان سطح سوم سر و کار داریم.
+
+@IranianMinds
+</div>
+
+## alonews — post 123586
+
+<div align="center">
+  <a href="telegram/content/alonews_123586_1780088688.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈مدیرعامل جی‌پی‌مورگان:
+داشتن سلاح هسته‌ای توسط ایران، میتواند بزرگ‌ترین تهدیدی باشد که بشریت در طول تاریخ با آن مواجه شده باشد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123585
+
+<div align="center">
+  <a href="telegram/content/alonews_123585_1780088688.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نیویورک پست: ۶ میلیارد دلار از وجوه نگهداری شده در قطر از جمله آخرین نکات مبهم در توافق صلح با ایران است
+
+
+🔴این وجوه مستقیماً به ایران منتقل نخواهد شد، بلکه برای خرید مواد غذایی و لوازم پزشکی استفاده خواهد شد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123584
+
+<div align="center">
+  <a href="telegram/content/alonews_123584_1780088688.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 تصویری از داماد ۱۷ ساله و عروس ۱۶ ساله در تجمعات شبانه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/09 00:23
 ---
 

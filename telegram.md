@@ -7,6 +7,39 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/08 06:32
+---
+
+## FoxNewsTwitter — post 342388
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342388_1780023764.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"I don't want anybody to endorse me except for the moms and the animal lovers in LA — that's my entire vote."
+
+LA mayoral candidate Spencer Pratt tells @Gutfeldfox that he's not interested in getting endorsements from Hollywood celebrities.
+</div>
+
+## BBCPersian — post 282291
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌ ‌ ‌
+آتش‌بسی که «به تار مویی بند است»، روند دیپلماتیکی که «در حال پیشرفت» توصیف می‌شود، رئیس‌جمهوری که می‌گوید «هنوز راضی نیست» و انفجارهایی که همچنان در اطراف خلیج فارس شنیده می‌شوند.
+
+در چنین شرایطی، ارزیابی وضعیت کنونی روابط آمریکا و ایران دشوار شده است. آیا دو کشور به صلح نزدیک شده‌اند یا دوباره در آستانه بازگشت به جنگ قرار دارند؟
+
+آتش‌بسی که از هشتم آوریل برقرار شده، در روزهای گذشته تحت فشار جدی قرار گرفت. با وجود تنش‌های اخیر، دوره آتش‌بس اکنون بسیار طولانی‌تر از دوره درگیری‌های مستقیم پیش از آن دوام آورده است.
+
+https://bbc.in/4fMNh11
+📷 GettyImages/Reuters
+@BBCPersian
+</div>
+
+---
 📅 بروزرسانی: 1405/03/08 06:22
 ---
 

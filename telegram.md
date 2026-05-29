@@ -7,6 +7,197 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/09 02:03
+---
+
+## VahidOOnLine — post 242839
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242839_1780093983.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️به گزارش خبرگزاری رویترز، فرانسیس داناوان، فرمانده ستاد جنوبی ارتش ایالات متحده، روز جمعه در اقدامی کم‌سابقه با مقامات ارشد نظامی کوبا در خط مرزی پایگاه دریایی گوانتانامو دیدار و گفتگو کرد. ارتش آمریکا اعلام کرد که در این ماموریت، مسائلی چون امنیت عملیاتی مرزها، حفاظت از نیروها و آمادگی رزمی پایگاه مورد بررسی قرار گرفته است.
+این دیدار در شرایطی انجام می‌شود که تنش‌ها میان واشنگتن و هاوانا به شدت بالا گرفته است. دونالد ترامپ پیش از این اشاره کرده بود که پس از پایان موضوع ایران، تمرکز خود را بر تغییر حکومت در کوباخواهد گذاشت. دولت ترامپ با اعمال محاصره سوختی، فشار اقتصادی شدیدی را بر کوبا وارد کرده است؛ موضوعی که واکنش تند وزیر امور خارجه کوبا را به همراه داشت و هشدار داد که هرگونه اقدام نظامی آمریکا به یک «حمام خون» با هزاران کشته از هر دو طرف منجر خواهد شد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 12919
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بریم به لایک اینستاگرام … دیر وقته ولی خوب… 
+🔴
+🔴
+🔴
+</div>
+
+## mwarmonitor — post 9906
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ ملزم به پاسخگویی درباره «اتهامات سنگین» در پرونده آی‌آر‌اس (سازمان امور مالیاتی) شد
+
+📝نویسنده: آیوری لاتز AXIOS
+
+🔸یک قاضی فدرال به پرزیدنت ترامپ دستور داد تا به اتهامات «سنگین» مطرح شده پاسخ دهد؛ اتهاماتی که ادعا می‌کنند توافق او با سازمان امور مالیاتی (IRS) — که منجر به ایجاد صندوق مبارزه با استفاده ابزاری از نهادها (anti-weaponization fund) شد — «بر پایه فریبکاری» بوده است.
+
+📌چرا این موضوع اهمیت دارد؟
+این دستور درست در همان روزی صادر شد که قاضی دیگری موقتاً این صندوق مالی ۱.۷۷۶ میلیارد دلاری را مسدود کرد؛ اقدامی که مانع بالقوه دیگری بر سر راه طرح توافق جنجالی دولت ترامپ ایجاد می‌کند.
+
+🔸پشت صحنه ماجرا (محور اخبار):
+دستور قاضی دادگاه منطقه‌ای ایالات متحده، کاتلین ویلیامز، در پی درخواست قبلی ۳۵ قاضی سابق فدرال صادر شد. این قضات از او خواسته بودند پرونده‌ای را که در ماه ژانویه در رابطه با لو رفتن اظهارنامه‌های مالیاتی ترامپ تشکیل شده بود، دوباره باز کند.
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 342414
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342414_1780093983.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+A former mayor pleaded guilty Friday to acting as an illegal agent of the Chinese government.
+
+Eileen Li Wang, the former mayor of Arcadia, California, allegedly acted "at the direction and control" of Chinese government officials between 2020 and 2022, without notifying U.S. authorities, prior to taking office.
+
+According to court documents, Wang worked alongside a convicted Chinese agent, who is already serving a four-year federal prison sentence, to operate a website posing as a local Chinese-American news outlet.
+
+Prosecutors described the website as a propaganda arm for the Chinese Communist Party that published content supplied directly by Chinese government officials.
+
+She faces up to 10 years in prison. The judge has scheduled sentencing for October 6, 2026.
+</div>
+
+## Shin_Persian — post 6314
+
+<div align="center">
+  <a href="telegram/content/Shin_Persian_6314_1780093984.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Fri, 29 May 2026 22:26:44 UTC
+
+Reported video of a UAV wreckage in Qeshm island
+Hormozgan Province, #Iran
+Source: IRIB on TG
+
+فارسی
+
+ویدئوی منتشر شده از لاشه یک پهپاد در جزیره قشم
+استان هرمزگان، #Iran
+منبع: صدا و سیما در تلگرام
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 219031
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219031_1780093986.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ستاد فرماندهی جنوبی آمریکا اعلام کرد که ژنرال فرانسیس داناون، فرمانده ارشد ناظر بر نیروهای ایالات متحده در آمریکای لاتین، روز جمعه با مقامات ارشد نظامی کوبا در حاشیه پایگاه دریایی آمریکا در خلیج گوانتانامو در کوبا دیدار و گفت‌وگو کرد.
+@FarsiVOA
+</div>
+
+## Dirty_Kids — post 390536
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390536_1780093986.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+☢️خفن ترین و‌ قدیمی ترین  انالیزور  ایران ینی دکتر بت 
+👍 
+🔴مسابقات جذاب جام جهانی به زودی شروع میشه بیا توی کانال دکتر بت و باهاش همراه شو و پول در بیار
+💵 رایگان بهترین شرط هارو براتون میذاره حتی هزار تومن هم دریافت نمیکنه روزانه میتونی از پیش بینی فوتبال باهاش…
+</div>
+
+## Dirty_Kids — post 390535
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390535_1780093987.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+☢️خفن ترین و‌ قدیمی ترین  انالیزور  ایران ینی دکتر بت 
+👍
+
+
+🔴مسابقات جذاب جام جهانی به زودی شروع میشه بیا توی کانال دکتر بت و باهاش همراه شو و پول در بیار
+💵
+
+رایگان بهترین شرط هارو براتون میذاره
+حتی هزار تومن هم دریافت نمیکنه
+روزانه میتونی از پیش بینی فوتبال باهاش پول در بیاری 👌
+A8
+
+🌟اگ اهل پیش بینی فوتبالی این کانال اصلا از دست ندین
+👇
+
+✅https://t.me/+4_ADqwB9e-QwYjlk
+
+✅https://t.me/+4_ADqwB9e-QwYjlk
+</div>
+
+## Dirty_Kids — post 390534
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390534_1780093988.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#بخوابیم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390530
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390530_1780093988.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جفت کنید، اینا 👆۲۰ میلیارد ناقابل دادن فقط برای عروسی گرفتن😕
+
+۹۰ درصد مردم تمام آرزوشون ۲۰ میلیارده یه خونه و ماشین بگیرن، این دیگه اختلاف طبقاتی نیست شیاف طبقاتیه
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390529
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390529_1780093988.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+از اول جنگ تا حالا ۱۶بار نتانیاهو رو کشتن 😂😂
+
+یعنی اول بچه‌شیعه بوده بعد کصخلا و کونی‌پرو‌ها از روش یاد گرفتن کصخلیت و کونی‌‌پروگریو
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390528
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390528_1780093989.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حاجی قبلن شهریاری ویدیو رقصش تو عروسی درمیومد ممنوع صحنه میشد
+
+ببینید اثرات موشک بی‌بی‌ و ترامپو
+
+چقد تخمیه این دختره
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/03/09 01:52
 ---
 

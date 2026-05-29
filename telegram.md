@@ -7,6 +7,21 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/08 04:52
+---
+
+## FoxNewsTwitter — post 342382
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342382_1780017747.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Billy Bush on Spencer Pratt's chances in the LA Mayoral election: "He knows how to communicate and she [Karen Bass] has no idea what to do about him." https://twitter.com/JesseBWatters/status/2060162354386477426#m
+</div>
+
+---
 📅 بروزرسانی: 1405/03/08 04:42
 ---
 

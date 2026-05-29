@@ -392,14 +392,18 @@ jobs:
                   FORMAT_ID=$(echo "$selected" | awk '{print $1}')
                   desc_tag=$(echo "$selected" | awk '{print $2}')
                   echo "→ Fallback selected format: $FORMAT_ID (height/bitrate ~${desc_tag})"
+                  # ── Fallback always uses a random name because we lack the title ──
                   if [ "$type" = "a" ]; then
                     suffix="${desc_tag}kbps"
                   else
                     suffix="${desc_tag}p"
                   fi
+                  RAND_NAME=$(cat /dev/urandom | tr -dc 'A-Za-z' | head -c10)
+                  STEM="${RAND_NAME}-${suffix}"
+                  YT_OUTPUT=(-o "$OUTPUT_FOLDER/${STEM}.%(ext)s")
                   if run_with_fallback "Fallback download $link ($suffix)" \
                     yt-dlp $COOKIE_ARGS "${IMPERSONATE_ARG_ARRAY[@]}" $YTDLP_BASE_ARGS -f "$FORMAT_ID" \
-                      -o "$OUTPUT_FOLDER/%(title)s-${suffix}.%(ext)s" "$link"; then
+                      "${YT_OUTPUT[@]}" "$link"; then
                     echo "✅ Fallback download succeeded"
                     rm -f "$FORMAT_TABLE_FILE"
                     return 0
@@ -420,7 +424,7 @@ jobs:
               fi
             fi
 
-            # ── Normal JSON-based selection (original logic) ──
+            # ── Normal JSON-based selection (original logic with filename length safeguard) ──
             if [ "$type" = "a" ]; then
               # ── AUDIO ──
               AUDIO_FORMATS=$(echo "$VIDEO_JSON" | jq '[.formats[] | select(.vcodec == "none" and .acodec != "none")]')
@@ -455,9 +459,31 @@ jobs:
                   ;;
               esac
               echo "→ Selected format: $FORMAT_ID (bitrate ~${CHOSEN} kbps)"
+
+              # ---------- NEW: construct safe filename ----------
+              TITLE=$(echo "$VIDEO_JSON" | jq -r '.title')
+              SUFFIX="${CHOSEN}kbps"
+              MAX_STEM=200
+              SUF_LEN=$(( ${#SUFFIX} + 1 ))  # +1 for the dash
+              MAX_TITLE_LEN=$(( MAX_STEM - SUF_LEN ))
+              if [ ${#TITLE} -gt $MAX_TITLE_LEN ]; then
+                RAND=$(cat /dev/urandom | tr -dc 'A-Za-z' | head -c10)
+                STEM="${RAND}-${SUFFIX}"
+              else
+                SANITIZED=$(echo "$TITLE" | sed 's/[\\/*?:"<>|]//g' | tr ' ' '_' | tr -dc '[:alnum:]_.-()' | head -c "$MAX_TITLE_LEN")
+                if [ -z "$SANITIZED" ]; then
+                  RAND=$(cat /dev/urandom | tr -dc 'A-Za-z' | head -c10)
+                  STEM="${RAND}-${SUFFIX}"
+                else
+                  STEM="${SANITIZED}-${SUFFIX}"
+                fi
+              fi
+              YT_OUTPUT=(-o "$OUTPUT_FOLDER/${STEM}.%(ext)s")
+              # ---------- end of new block ----------
+
               if run_with_fallback "Download audio $link ($CHOSEN kbps)" \
                 yt-dlp $COOKIE_ARGS "${IMPERSONATE_ARG_ARRAY[@]}" $YTDLP_BASE_ARGS -f "$FORMAT_ID" \
-                  -o "$OUTPUT_FOLDER/%(title)s-${CHOSEN}kbps.%(ext)s" "$link"; then
+                  "${YT_OUTPUT[@]}" "$link"; then
                 echo "✅ Audio download succeeded"
                 rm -f "$FORMAT_TABLE_FILE"
                 return 0
@@ -529,27 +555,56 @@ jobs:
                   ;;
               esac
 
-              echo "→ Selected format: $FORMAT_ID (height ~${CHOSEN}p)"
+              # ---------- NEW: construct safe filename ----------
+              TITLE=$(echo "$VIDEO_JSON" | jq -r '.title')
               if [ "$CHOSEN" = "unknown" ]; then
-                if run_with_fallback "Download video $link" \
-                  yt-dlp $COOKIE_ARGS "${IMPERSONATE_ARG_ARRAY[@]}" $YTDLP_BASE_ARGS -f "$FORMAT_ID" \
-                    -o "$OUTPUT_FOLDER/%(title)s.%(ext)s" "$link"; then
-                  rm -f "$FORMAT_TABLE_FILE"
-                  return 0
+                SUFFIX=""
+              else
+                SUFFIX="${CHOSEN}p"
+              fi
+              MAX_STEM=200
+              if [ -n "$SUFFIX" ]; then
+                SUF_LEN=$(( ${#SUFFIX} + 1 ))
+              else
+                SUF_LEN=0
+              fi
+              MAX_TITLE_LEN=$(( MAX_STEM - SUF_LEN ))
+              if [ ${#TITLE} -gt $MAX_TITLE_LEN ]; then
+                RAND=$(cat /dev/urandom | tr -dc 'A-Za-z' | head -c10)
+                if [ -n "$SUFFIX" ]; then
+                  STEM="${RAND}-${SUFFIX}"
                 else
-                  rm -f "$FORMAT_TABLE_FILE"
-                  return 1
+                  STEM="${RAND}"
                 fi
               else
-                if run_with_fallback "Download video $link ($CHOSEN p)" \
-                  yt-dlp $COOKIE_ARGS "${IMPERSONATE_ARG_ARRAY[@]}" $YTDLP_BASE_ARGS -f "$FORMAT_ID" \
-                    -o "$OUTPUT_FOLDER/%(title)s-${CHOSEN}p.%(ext)s" "$link"; then
-                  rm -f "$FORMAT_TABLE_FILE"
-                  return 0
+                SANITIZED=$(echo "$TITLE" | sed 's/[\\/*?:"<>|]//g' | tr ' ' '_' | tr -dc '[:alnum:]_.-()' | head -c "$MAX_TITLE_LEN")
+                if [ -z "$SANITIZED" ]; then
+                  RAND=$(cat /dev/urandom | tr -dc 'A-Za-z' | head -c10)
+                  if [ -n "$SUFFIX" ]; then
+                    STEM="${RAND}-${SUFFIX}"
+                  else
+                    STEM="${RAND}"
+                  fi
                 else
-                  rm -f "$FORMAT_TABLE_FILE"
-                  return 1
+                  if [ -n "$SUFFIX" ]; then
+                    STEM="${SANITIZED}-${SUFFIX}"
+                  else
+                    STEM="${SANITIZED}"
+                  fi
                 fi
+              fi
+              YT_OUTPUT=(-o "$OUTPUT_FOLDER/${STEM}.%(ext)s")
+              # ---------- end of new block ----------
+
+              echo "→ Selected format: $FORMAT_ID (height ~${CHOSEN}p)"
+              if run_with_fallback "Download video $link (${CHOSEN}p)" \
+                yt-dlp $COOKIE_ARGS "${IMPERSONATE_ARG_ARRAY[@]}" $YTDLP_BASE_ARGS -f "$FORMAT_ID" \
+                  "${YT_OUTPUT[@]}" "$link"; then
+                rm -f "$FORMAT_TABLE_FILE"
+                return 0
+              else
+                rm -f "$FORMAT_TABLE_FILE"
+                return 1
               fi
             fi
           }

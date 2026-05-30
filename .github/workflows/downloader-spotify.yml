@@ -98,6 +98,13 @@ jobs:
           pip3 install --quiet --upgrade SpotiFLAC
           echo "::endgroup::"
 
+          echo "📥 Installing Deno..."
+          if ! command -v deno &> /dev/null; then
+            curl -fsSL https://deno.land/install.sh | sh -s -- -y
+            echo "$HOME/.deno/bin" >> $GITHUB_PATH
+          fi
+          echo "✅ Deno ready."
+
           echo "::group::Versions"
           ffmpeg -version 2>&1 | head -n1
           python3 --version

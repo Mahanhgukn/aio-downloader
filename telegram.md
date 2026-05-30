@@ -7,6 +7,95 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/09 09:12
+---
+
+## VahidOOnLine — post 242881
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242881_1780119773.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سنتکام، ستاد فرماندهی مرکزی آمریکا، شنبه نهم خرداد تصویری از گشت‌زنی یک فروند جنگنده اف-۱۶ نیروی هوایی ایالات متحده بر فراز خاورمیانه در شبکه ایکس منتشر کرد.
+سنتکام در توضیح این تصویر نوشت: «نیروهای آمریکایی در سراسر منطقه حضور دارند و هوشیار هستند.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## IranIntlTV — post 339690
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339690_1780119774.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترکیه به دلیل همسایگی با ایران و بی‌نیازی شهروندان ایرانی از دریافت ویزا، یکی از آسان‌ترین مقاصد خارجی گردشگری برای ایرانیان است. با این حال، آمارهای تازه از افت قابل توجه سفر ایرانیان به این کشور خبر می‌دهد. همچنین سرمایه‌گذاری و خرید مسکن از سوی ایرانی‌ها در ترکیه در سال‌های اخیر روندی نزولی داشته است.
+
+
+گزارش فرزیا ثابتی، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 339689
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339689_1780119776.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سنتکام، ستاد فرماندهی مرکزی آمریکا، شنبه نهم خرداد تصویری از گشت‌زنی یک فروند جنگنده اف-۱۶ نیروی هوایی ایالات متحده بر فراز خاورمیانه در شبکه ایکس منتشر کرد.
+سنتکام در توضیح این تصویر نوشت: «نیروهای آمریکایی در سراسر منطقه حضور دارند و هوشیار هستند.»
+https://iranintl.com/202605306939
+</div>
+
+## Persian_Trend_Official — post 15310
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15310_1780119777.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎥 لاشۀ پهپاد منهدم‌شده در قشم
+
+
+👺Phantom
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 21057
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21057_1780119779.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+(((((((:
+
+
+@IranianMinds
+</div>
+
+## alonews — post 123604
+
+<div align="center">
+  <a href="telegram/content/alonews_123604_1780119781.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سی‌ان‌ان: اسرائیلی‌ها می‌گویند ترامپ در جنگ با ایران، ما را زیر اتوبوس انداخته
+
+
+🔴 نتانیاهو، کوشنر و ویتکاف را به خاطر هدایت رئیس‌جمهور آمریکا به سمت پایان دادن به درگیری‌ها، سرزنش می‌کند
+
+
+🔴 اسرائیلی‌ها درک نمی‌کردند که جنگ می‌تواند به تغییر رژیم در واشنگتن منجر شود
+
+
+🔴 شاید نتیجه این درگیری، روایت سیاسی نتانیاهو را پیش از انتخابات پیش رو، پیچیده کند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/09 09:02
 ---
 

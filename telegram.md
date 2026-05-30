@@ -7,6 +7,121 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/09 22:43
+---
+
+## pm_afshaa — post 91907
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پاریسی‌ها قهرمان لیگ قهرمانان اروپا در فصل ۲۰۲۵-۲۰۲۶ شدن.
+پاریسن‌ژرمن 1 - 1 آرسنال
+پنالتی: 4 - 3
+
+
+💧Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5161
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5161_1780168408.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👑
+🔺 حمایت هم‌میهنان ساکن اسپانیا از انقلاب شیر و خورشید؛
+"بوی نفت ارزان نمی‌گذارد بوی خون مردم ایران به مشام شما برسد!
+
+#همبستگی #اسپانیا
+@DEJradio
+</div>
+
+## IranIntlTV — post 339781
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339781_1780168411.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻تیم فوتبال پاری‌سن‌ژرمن در فینال لیگ قهرمانان اروپا، آرسنال را شکست داد و برای دومین فصل پیاپی، قهرمان اروپا شد. این بازی در وقت قانونی و اضافه به تساوی یک - یک رسید.
+
+🔹تک گل آرسنال را کای هاورتز (۵) و گل پاری‌سن‌ژرمن را عثمان دمبله (۶۵) از روی نقطه پنالتی به ثمر رساندند.
+
+🔹در نهایت پاری‌سن‌ژرمن در ضربات پنالتی، با نتیجه چهار بر سه، توپچی‌ها را شکست داد و قهرمان اروپا شد.
+
+🔹برای اولین بار از سال ۲۰۱۶ فینال لیگ قهرمانان به وقت‌های اضافه کشیده شد.
+
+@iranintltvsport
+</div>
+
+## FarsiVOA — post 219118
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺حزب‌الله با راکت و پهپاد شمال اسرائیل را هدف قرار داد؛ ارتش اسرائیل عملیات در جنوب لبنان را گسترش می‌دهد
+
+▪️هم‌زمان با گسترش عملیات ارتش اسرائیل در جنوب لبنان، حزب‌الله لبنان روز شنبه ۹ خرداد چندین راکت و پهپاد به سوی شمال اسرائیل شلیک کرد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/hezbollah-rockets-target-northern-israel/8155609.html
+@FarsiVOA
+</div>
+
+## IranianMinds — post 21088
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21088_1780168412.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🏆 پاریس سنت ژرمن قهرمان لیگ قهرمانان اروپا ۲۰۲۵/۲۰۲۶ شد.
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 390590
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خب دیگه فوتبالتونم دیدید، حالا جدی یکی بگه چجوری قراره با این قیمتا زندگی کنیم؟
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390589
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390589_1780168413.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آرسنال رید و پارررریس قهرمان شد 🏆
+
+
+• PSG: ✅✅❌✅✅
+• Arsenal: ✅❌✅✅❌
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 123805
+
+<div align="center">
+  <a href="telegram/content/alonews_123805_1780168414.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈این هفته مراقب تابش فرابنفش باشید
+
+
+🔴 این هفته شاخص فرابنش بالا است، تا حد ممکن در ساعات میانی روز(ساعات۹-۱۵، با توجه به داده‌ها) کمتر در برابر تابش مستقیم خورشید قرار بگیرید
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/09 22:33
 ---
 

@@ -7,6 +7,233 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/09 15:03
+---
+
+## VahidOOnLine — post 242906
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242906_1780140802.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیت هگست، وزیر جنگ آمریکا، در حاشیه نشست «گفت‌وگوی شانگری‌لا» در سنگاپور، درباره محاصره بنادر و سواحل جنوبی ایران گفت: «محاصره دریایی ادامه دارد و این اقدام موثر بوده و کنترل تنگه هرمز در اختیار آمریکا است.»
+او افزود تنگه هرمز باید برای همه کشورها باز و بدون عوارض باقی بماند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242905
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242905_1780140803.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️پیت هگست، وزیر جنگ ایالات متحده روز شنبه نهم خرداد گفت مقام‌های جمهوری اسلامی ایران می‌دانند که برای دستیابی به توافق با آمریکا باید چه کاری را انجام دهند.
+
+هگست که برای شرکت در کنفرانس دفاعی شانگری-لا به سنگاپور سفر کرده است گفت: مذاکرات با ایران در حال پیشرفت و سازنده بوده است. وزیر جنگ آمریکا بار دیگر تاکید کرد که دونالد ترامپ تنها توافقی را امضا خواهد کرد که برای ایالات متحده عالی و برای امنیت جهانی، مفید باشد.
+
+هگست ساعاتی پیش گفته بود که آمریکا در صورت شکست مذاکرات، برای از سرگیری جنگ با ایران کاملا آماده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## mwarmonitor — post 9913
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸ایران نشان می‌دهد که در مذاکرات هسته‌ای بر موضع اولیه خود پایبند است و انتظار نمی‌رود امتیازهای عمده‌ای بدهد. همچنین همچنان برخی خواسته‌های کلیدی آمریکا را رد می‌کند، از جمله تحویل دادن ذخایر اورانیوم بسیار غنی‌شده و ایجاد تغییر در سیاست هسته‌ای اصلی خود. نیویورک تایمز
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 342420
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌Fox News (Twitter/X)
+
+👉 Full story here:
+</div>
+
+## FoxNewsTwitter — post 342419
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342419_1780140804.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Twitch streamer Hasan Piker called Progressive International coordinator David Adler his 'comrade' on livestream — the same organizer who sat in a VIP seat beside Cuba's president during the convoy trip now under federal investigation for possible sanctions violations.
+
+Adler's organization, Progressive International, counts Raúl Castro's daughter Mariela Castro Espín on its advisory council. Federal subpoenas target Piker and CodePink's Medea Benjamin for travel, communications and financial records tied to possible contacts with Cuban government entities.
+
+The convoy brought an estimated 650 delegates from 33 countries to Havana in March.
+</div>
+
+## DEJradio — post 5138
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👑🎥 حضور شاهزاده رضا پهلوی در نشست امنیت دریای سیاه در اوکراین
+
+رسانه‌های اوکراینی با انتشار تصاویری، از حضور شاهزاده رضا پهلوی در نشست امنیت دریای سیاه در شهر اودسای اوکراین خبر دادند.
+
+#شاهزاده_رضا_پهلوی #اوکراین
+@DEJradio
+</div>
+
+## IranIntlTV — post 339727
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339727_1780140805.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند بازنشسته با ارسال پیامی به ایران اینترنشنال از وضعیت معیشتی خود روایت کرده و می‌گوید پرداخت حقوق بازنشستگی هم تفاوتی در وضعیتش ایجاد نمی‌کند. بازخوانی پیام این شهروند و تصویرسازی با هوش مصنوعی انجام گرفته است.
+</div>
+
+## IranIntlTV — post 339726
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339726_1780140807.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیت هگست، وزیر جنگ آمریکا، در حاشیه نشست «گفت‌وگوی شانگری‌لا» در سنگاپور، درباره محاصره بنادر و سواحل جنوبی ایران گفت: «محاصره دریایی ادامه دارد و این اقدام موثر بوده و کنترل تنگه هرمز در اختیار آمریکا است.»
+او افزود تنگه هرمز باید برای همه کشورها باز و بدون عوارض باقی بماند.
+</div>
+
+## FarsiVOA — post 219060
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺پنتاگون: بیش از ۶۰۰ حمله جمهوری اسلامی و گروه‌های نیابتی علیه منافع آمریکا و متحدانش
+
+▪️گزارش تازه بازرس کل ارشد وزارت جنگ آمریکا درباره عملیات «خشم حماسی» نشان می‌دهد که جمهوری اسلامی و گروه‌های وابسته به آن، در واکنش به آغاز عملیات «خشم حماسی»، دست به حملات تلافی‌جویانه گسترده‌ای علیه تأسیسات آمریکا، متحدانش و اهداف مرتبط با ائتلاف در عراق و منطقه زده‌اند.
+
+▪️بر اساس این گزارش، شبه‌نظامیان مستقر در عراق با استفاده از پهپاد، راکت و موشک به اهداف ائتلاف حمله کرده‌اند.
+
+▪️این گزارش حملات در عراق را عمدتاً به گروه‌های تندروی همسو با تهران نسبت می‌دهد؛ از جمله کتائب حزب‌الله، کتائب سیدالشهدا و حرکت النجباء. این گزارش می‌افزاید این گروه‌ها احتمالاً با هدایت مستقیم سپاه پاسداران عمل کرده‌اند.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8155544.html
+</div>
+
+## Persian_Trend_Official — post 15332
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15332_1780140808.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک منبع ارشد نظامی لبنان به خبرگزاری آناتولی گفت: نیروهای اسرائیلی از رودخانه لیتانی در جنوب لبنان عبور کرده و به حومه شهر نبطیه رسیده‌اند.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 21062
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21062_1780140809.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ارتش اسرائیل دستور تخلیه به ساکنان جنوب لبنان به ویژه شهرها و روستاهای زیر را صادر کرد.
+
+المروانیه، اللوبیه، میدون، انصاریه، زفتا و تفاحتا.
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 390558
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390558_1780140809.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جرررر 😂😂😂
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390557
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خیلی گرمه، یه لحظه به خامنه ای که تو یخچال حسودیم‌ شد.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390556
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390556_1780140810.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پاره 🤣🤣🤣🤣
+
+دوستانی که نبودند درجریان نیستن، شماکه نبودید پوبون زیدش از یجا افتاده بود پایین پوبون برای خرج بیمارستان از مردم دذخواست پول کرد
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 123664
+
+<div align="center">
+  <a href="telegram/content/alonews_123664_1780140810.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💔خانواده امیرمحمد شاه‌کرمی ۶۰ روز تمام دنبال پسر ۱۴ ساله‌شان گشتند؛ تا اینکه پیکرش را در سردخانه کهریزک پیدا کردند.
+
+
+🔴در این مدت حتی با گوشی امیرمحمد با خانواده‌اش تماس گرفتند و وانمود کردند که او بازداشت شده و زنده است.
+
+
+🔴خواهرش از لحظه دیدن پیکر امیرمحمد در سردخانه و شیون مادر و پدر ویدیویی منتشر کرده و نوشته: «برادرم خوابیده بود؛ سرد، بی‌صدا…»
+
+
+🔴امیرمحمد ۱۸ دی از خانه بیرون رفت و دیگر هرگز به خانه برنگشت.
+
+
+✅@AloNews
+</div>
+
+## alonews — post 123663
+
+<div align="center">
+  <a href="telegram/content/alonews_123663_1780140812.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / منابع ارشد نظامی لبنان به آناتولی می‌گویند نیروهای اسرائیلی از رودخانه لیتانی در جنوب لبنان عبور کرده و به حومه شهر نبطیه رسیده‌اند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123662
+
+<div align="center">
+  <a href="telegram/content/alonews_123662_1780140813.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈بلومبرگ: تداوم چالش‌های اقتصادی روسیه به‌رغم جهش قیمت نفت خام و لغو موقت تحریم‌ها
+
+
+🔴بر اساس گزارش بلومبرگ، جهش و افزایش شدید قیمت نفت خام که در پی جنگ ایران رخ داده است، نتوانسته اقتصاد روسیه را از بحران نجات دهد.
+
+
+🔴 این گزارش اشاره می‌کند که حتی لغو موقت تحریم‌های ایالات متحده علیه نفت روسیه نیز برای دور نگه داشتن اقتصاد این کشور از مشکلات و چالش‌های جدی کافی نبوده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/09 14:53
 ---
 

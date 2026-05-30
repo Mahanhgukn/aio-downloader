@@ -640,16 +640,62 @@ jobs:
         env:
           BRANCH: ${{ github.ref_name }}
         run: |
-          # ... (same repo push logic as before)
-          echo "Repo push logic unchanged."
+          git config user.name "github-actions[bot]"
+          git config user.email "github-actions[bot]@users.noreply.github.com"
+          git config http.postBuffer 524288000
+
+          if [ -z "$(ls -A music/)" ]; then
+            echo "No zip to upload."
+            exit 0
+          fi
+
+          git add music/
+          COMMIT_MSG="Add: $(ls -1 music/ | tr '\n' ' ' | sed 's/ *$//') [skip ci]"
+          git commit -m "$COMMIT_MSG" || echo "Nothing to commit"
+
+          RETRIES=5
+          for i in $(seq 1 $RETRIES); do
+            echo "Push attempt $i..."
+            git pull --rebase --autostash origin "$BRANCH"
+            if git push origin "$BRANCH"; then
+              echo "Push succeeded."
+              break
+            else
+              [ $i -lt $RETRIES ] && sleep 3 || exit 1
+            fi
+          done
 
       - name: Create Release and upload assets (release method)
         if: ${{ inputs.upload_method == 'release' }}
         env:
           GH_TOKEN: ${{ secrets.GITHUB_TOKEN }}
         run: |
-          # ... (same release logic as before)
-          echo "Release logic unchanged."
+          if [ ! -s music_assets.txt ]; then
+            echo "No assets to release."
+            exit 0
+          fi
+
+          RAND5=$(tr -dc 'a-z' </dev/urandom | head -c5)
+          TAG="spotify-downloader-${RAND5}"
+          echo "Creating release tag: $TAG"
+
+          git config user.name "GitHub Actions"
+          git config user.email "actions@github.com"
+
+          git tag "$TAG" -m "Spotify download release"
+          git push origin "$TAG"
+
+          ASSET_ARGS=""
+          while IFS= read -r file; do
+            ASSET_ARGS="$ASSET_ARGS music/$file"
+          done < music_assets.txt
+
+          gh release create "$TAG" $ASSET_ARGS \
+            --title "spotify-downloader-${RAND5}" \
+            --notes "Automated release from Spotify Download workflow." \
+            --target "${{ github.ref_name }}"
+
+          echo "Release '$TAG' created with assets."
 
       - name: Cleanup
         if: always()

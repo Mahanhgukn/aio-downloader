@@ -7,6 +7,153 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/09 09:02
+---
+
+## Shin_Persian — post 6318
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6318_1780119164.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ايران اينترنشنال ✓ @IranIntl Sat, 30 May 2026 00:17:43 UTC یک منبع آگاه از روند مذاکرات به ایران‌اینترنشنال گفت سفر قالیباف به قطر به شکستی دیپلماتیک منجر شد و با وجود درخواست تهران برای آزادسازی فوری و بی‌قید و شرط ۱۲ میلیارد دلار به صورت نقدی همزمان با…
+</div>
+
+## Shin_Persian — post 6317
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ايران اينترنشنال ✓ @IranIntl
+Sat, 30 May 2026 00:17:43 UTC
+
+یک منبع آگاه از روند مذاکرات به ایران‌اینترنشنال گفت سفر قالیباف به قطر به شکستی دیپلماتیک منجر شد و با وجود درخواست تهران برای آزادسازی فوری و بی‌قید و شرط ۱۲ میلیارد دلار به صورت نقدی همزمان با امضای یک یادداشت تفاهم اولیه با آمریکا، مقام‌های قطری این درخواست را رد کردند.
+به گفته این منبع، مقام‌های قطری تنها با آزادسازی نیمی از این مبلغ تحت محدودیت‌های سخت‌گیرانه موافقت کردند.
+بر اساس گفته‌های یک منبع نزدیک به یک مقام قطری حاضر در این گفت‌وگوها، دوحه از انتقال مستقیم یا نقدی این منابع به ایران خودداری کرده است. در عوض، این پول تنها به صورت اعتبار در اختیار تهران قرار می‌گیرد تا کالاها و محصولات اساسی را مستقیما از قطر خریداری کند.
+این محدودیت در شرایطی اعمال شده که آمریکا به شدت با اعطای دسترسی مستقیم و بدون محدودیت جمهوری اسلامی به دارایی‌های نقدی مخالفت کرده است.
+آمریکا ابراز نگرانی کرده است که تزریق مستقیم پول نقد می‌تواند برای تهران فضای تنفسی اقتصادی حیاتی ایجاد کند و به آن اجازه دهد حقوق‌های معوقه بخش عمومی را پرداخت کرده و در دوره‌ای از تنش شدید منطقه‌ای، تجهیزات نظامی را از کشورهای دیگر تامین کند.
+https://iranintl.com/202605298848
+
+English
+
+An informed source on the negotiation process told Iran International that Ghalibaf’s trip to Qatar resulted in a diplomatic failure. Despite Tehran's request for the immediate and unconditional release of $12 billion in cash simultaneously with the signing of an initial memorandum of understanding with the United States, Qatari officials rejected the demand.
+
+According to this source, Qatari officials agreed to the release of only half of this amount under strict restrictions.
+
+Based on statements from a source close to a Qatari official present in these talks, Doha has refused the direct or cash transfer of these funds to Iran. Instead, this money will only be made available to Tehran as credit to purchase essential goods and products directly from Qatar.
+
+This restriction has been imposed as the United States strongly opposes granting the Islamic Republic direct and unrestricted access to liquid assets.
+
+The U.S. has expressed concern that a direct injection of cash could provide a vital economic lifeline for Tehran, allowing it to pay overdue public sector salaries and procure military equipment from other countries during a period of intense regional tension.
+
+𝕏 · @shin_persian
+</div>
+
+## Persian_Trend_Official — post 15308
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👑فرزند ایران 💔 جان فدای میهن جاوید نام نیوشا حمیدی‏۱۵ساله. ۱۸دی در آستانه اشرفیه با شلیک مستقیم کشته شده.
+
+👑فرزند ایران 💔 جان فدای میهن جاوید نام امیرمهدی مرادی گلدره ۱۵ساله. ۱۹دی در اسلامشهر تهران با شلیک مستقیم کشته شده.
+
+
+👑
+👑
+👑 
+👑
+👑
+👑
+روحشان شاد يادشان وظیفه 💔❤️‍🔥
+
+
+👺Phantom
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## RadioFarda — post 157708
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_157708_1780119164.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸جلسه دونالد ترامپ با مشاوران ارشدش که طبق وعده او قرار بود نتیجه چند هفته مذاکره را روشن کند پس از بیش از دو ساعت بدون اعلام نتیجه به پایان رسید.
+
+🔸بامداد شنبه، نهم خردادماه، روزنامه نیویورک تایمز به نقل از یک مقام ارشد دولت که به نامش اشاره نکرد نوشت که ترامپ در این جلسه به نتیجه‌ای درباره تفاهم‌نامه با تهران نرسیده است.
+
+🔸رئیس‌جمهور آمریکا پیشتر اعلام کرده بود که روز جمعه در اتاق وضعیت کاخ سفید جلسه‌ای با حضور مشاورانش برگزار خواهد کرد تا تصمیم نهایی درباره توافق با ایران را اتخاذ کند.
+
+🔸ترامپ گفت که که توافق پایان دادن جنگ باید شامل مواردی مانند تعهد ایران به باز شدن تنگه هرمز و نابودی ذخایر اورانیوم باشد.
+
+🔸با این حال ساعتی بعد سخنگوی وزارت خارجه جمهوری اسلامی در واکنش به این پیام دونالد ترامپ دربارهٔ محتوای توافق میان آمریکا و ایران اعلام کرد که تفاهم میان دو کشور هنوز نهایی نشده است.
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 21056
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سنتکام :
+
+به دریانوردان و ملوانان و خلبانان هشدار میدیم که سنتکام عملیات نظامی تو تنگه هرمز، شمال شبه‌جزیره مسندم عمان که در وسط تنگه قرار داره، بزودی انجام خواهد داد
+مراقب باشید و با ما هماهنگی های لازم انجام بدید
+
+این عملیات به عهده ناو های جورج بوش و آبراهام لینکن خواهد بود
+
+@IranianMinds
+</div>
+
+## alonews — post 123603
+
+<div align="center">
+  <a href="telegram/content/alonews_123603_1780119165.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رکوردشکنی گرما در مازندران؛ دمای دشت ناز به ۴۷ درجه رسید!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123602
+
+<div align="center">
+  <a href="telegram/content/alonews_123602_1780119165.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈آسوشیتدپرس: جمهوری خواهان دولت ترامپ از توافق در حال شکل‌گیری به شدت شاکی هستن و هشدار دادن این توافق ممکنه که توان هسته ای جمهوری اسلامی رو به طور کامل نابود نکنه و دستاورد های نظامی جنگ چهل روزه رو از بین ببره
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123601
+
+<div align="center">
+  <a href="telegram/content/alonews_123601_1780119165.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈آغاز امتحانات دانش‌آموزان از امروز؛ اکثر امتحانات مجازی است
+
+
+🔴رئیس مرکز ارزشیابی آموزش‌وپرورش: سال تحصیلی امسال به‌جای ۲۹ اردیبهشت، تا ۷ خرداد ادامه یافت و از امروز ۹ خرداد، امتحانات پایه‌های اول تا دهم آغاز می‌شود.
+
+
+🔴امتحانات دوره ابتدایی غیرحضوری است و بر اساس ارزشیابی تکوینی و تشخیص معلم انجام می‌شود.
+
+
+🔴امتحانات پایه‌های هفتم تا دهم به استان‌ها تفویض اختیار شده و اکثر امتحانات مجازی برگزار می‌شود
+
+
+🔴امتحانات نهایی پایه‌های یازدهم و دوازدهم از ۲۱ تیر، به‌شرط عادی‌شدن وضعیت با اعلام مراجع ذی‌صلاح، به صورت حضوری آغاز می‌شود و احتمالاً تا چند روز آینده برنامه امتحانی این پایه‌ها نیز اعلام می‌شود.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/09 08:52
 ---
 

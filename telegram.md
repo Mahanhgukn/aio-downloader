@@ -7,6 +7,27 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/10 02:22
+---
+
+## FarsiVOA — post 219128
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️از شعار سیاسی تا گام‌های اجرایی؛ آزمون سرنوشت‌ساز دولت عراق در پرونده انحلال گروه‌های مسلح
+@FarsiVOA
+</div>
+
+## IranianMinds — post 21095
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21095_1780181540.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+@IranianMinds
+</div>
+
+---
 📅 بروزرسانی: 1405/03/10 02:12
 ---
 

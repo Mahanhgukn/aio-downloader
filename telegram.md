@@ -7,6 +7,73 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/09 11:03
+---
+
+## VahidOOnLine — post 242887
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_242887_1780126385.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوهایی که به تازگی و پس از وصل‌شدن نسبی اینترنت به ایران اینترنشنال رسیده نشان می‌دهد یک شهروند در روزهای جنگ جمهوری اسلامی با آمریکا و اسرائیل در محله نارمک تهران شعار «جاوید شاه» را دیوارنویسی کرد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 12925
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نتانیاهو خطاب به لبنان : درخواست اتش بس دولت شمارو رد میکنیم
+باید بگم که اسرائیل تا نابودی کامل حزب الله ادامه خواهد داد
+@withyashar
+</div>
+
+## WithYashar — post 12924
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کاخ سفید به الجزیره گفت:
+
+ترامپ تا زمانی که خواسته‌های آمریکا برآورده نشود، توافقی نخواهد کرد و ایران هرگز به سلاح هسته‌ای دست نخواهد یافت
+@withyashar
+</div>
+
+## mwarmonitor — post 9908
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_9908_1780126386.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✈️یک فروند هواپیمای هشدار زودهنگام (آواکس) Boeing E-3C Sentry متعلق به نیروی هوایی آمریکا، در حال گشت‌زنی و پرواز دایره‌ای در حریم هوایی شرق عربستان سعودی (نزدیکی مرز قطر و امارات) در ارتفاع ۹,۴۴۹ متری رصد شد.
+
+@mwarmonitor
+</div>
+
+## IranIntlTV — post 339702
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339702_1780126387.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوهایی که به تازگی و پس از وصل‌شدن نسبی اینترنت به ایران اینترنشنال رسیده نشان می‌دهد یک شهروند در روزهای جنگ جمهوری اسلامی با آمریکا و اسرائیل در محله نارمک تهران شعار «جاوید شاه» را دیوارنویسی کرد.
+</div>
+
+## alonews — post 123625
+
+<div align="center">
+  <a href="telegram/content/alonews_123625_1780126389.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کنکور سراسری به همراه آزمون پذیرش دانشجومعلم پنجشنبه و جمعه ۲۹ و ۳۰ مرداد ماه برگزار خواهد شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/09 10:52
 ---
 

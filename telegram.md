@@ -7,6 +7,110 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/09 22:22
+---
+
+## pm_afshaa — post 91906
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91906_1780167177.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴آسوشیتدپرس:
+نیروهای آمریکا یک کشتی که قصد ورود به بنادر ایران رو داشت، از کار انداختن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5159
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5159_1780167177.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🔸 خبر ۲۱
+شنبه ۹ خرداد ۱۴۰۵
+
+#خبر۲۱
+@DEJradio
+</div>
+
+## FarsiVOA — post 219115
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آریو کنگرلو در برنامه تفسیر خبر: خامنه‌ای دشمن استقلال سیاسی، اقتصادی و تمدن ایران است
+</div>
+
+## FarsiVOA — post 219114
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+همن سیدی: قابل درک نیست کسی پس از کشتار دی‌ماه از خامنه‌ای دفاع کند
+</div>
+
+## FarsiVOA — post 219113
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219113_1780167179.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یاسمین شاه‌کرمی، خواهر امیرمحمد شاه‌کرمی، از کشته‌شدگان دی ماه ۱۴۰۴، بعد از بازگشایی محدود اینترنت در ایران، با انتشار ویدیویی از لحظه شناسایی پیکر برادرش در کهریزک نوشته است: «...ما بعد از ۶۰ روز گریه و دلتنگی و چشم به راهی صورت برادرم را دیدیم. آن لحظه انگار دنیا روی سرمان خراب شد...»
+
+امیرمحمد شاه‌کرمی، ۱۴ ساله، بعد از شرکت در اعتراضات ۱۸ دی ناپدید شد. به رغم اینکه بعد از مدتی به خانواده او اطلاع داده شد پسرشان زنده و در بازداشت است، ۶۰ روز بعد، از پزشک قانونی برای تشخیص هویت پیکرش با خانواده تماس گرفتند. بنابر مشاهدات خانواده، بر پیکر او آثار کبودی و جای گلوله بر شقیقه مشخص بود.
+</div>
+
+## alonews — post 123803
+
+<div align="center">
+  <a href="telegram/content/alonews_123803_1780167181.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈آمریکا مدعی است که در جریان این جنگ، دست‌کم ۱۶۰ شناور دریایی ایران را غرق کرده است. هر یک از این شناورها می‌تواند منبعی بالقوه برای آلودگی باشد. وقوع یک نشت جدی در تنگه، مهار آن را بسیار دشوارتر از حالت معمول خواهد کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123802
+
+<div align="center">
+  <a href="telegram/content/alonews_123802_1780167181.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈به گزارش منابع خبری ، صدای انفجار در سراسر بوستون بزرگترین شهر در ایالت ماساچوست واقع در آمریکا شنیده شده است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123801
+
+<div align="center">
+  <a href="telegram/content/alonews_123801_1780167181.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 ثابتی: چرا نمی‌ذارید صداسیما سخنان رهبر درگذشته در مخالفت در مذاکره را پخش کند؟ 
+🔴نماینده مجلس: جای تاسف است که رئیس جمهور در دیدار اخیرش با مسئولان صداوسیما به آنها فشار آورده که چرا صحبت‌های رهبر فقید در مخالفت با مذاکره با امریکا را پخش میکنید؛ عده‌ای…
+</div>
+
+## alonews — post 123800
+
+<div align="center">
+  <a href="telegram/content/alonews_123800_1780167181.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈شبکه 12 اسرائیل: ارتش یک طرح تهاجمی در عمق لبنان آماده کرده است که منتظر تایید سطح سیاسی است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/09 22:13
 ---
 

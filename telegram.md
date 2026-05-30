@@ -7,6 +7,20 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/09 03:43
+---
+
+## FarsiVOA — post 219034
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219034_1780099991.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️چرا جمهوری اسلامی زمان کنکور را مشخص نمی کند؟ گفت‌وگو با جبران مقدم
+@FarsiVOA
+</div>
+
+---
 📅 بروزرسانی: 1405/03/09 03:33
 ---
 

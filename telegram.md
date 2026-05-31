@@ -7,6 +7,114 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/10 14:23
+---
+
+## WithYashar — post 13019
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Voice message
+</div>
+
+## WithYashar — post 13018
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به عنوان خردادی میگم حالا که موضوعش پیش اومد😂
+ما اخلاقمون دقیقاااا همون عربس که داره مسافر میبره قاهره
+کار خودمونو میکنیما ولی پستی بلندی زیاد داره مسیرمون
+</div>
+
+## WithYashar — post 13017
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دم کسایی‌که حمایت میکنند گرم 🙌🏾❤️‍🩹
+</div>
+
+## WithYashar — post 13016
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ی روز درمیون ب صد نفر میفرستم
+</div>
+
+## WithYashar — post 13015
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لینک کانال تلگرامتو
+</div>
+
+## mwarmonitor — post 9936
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸وزیر خارجه فرانسه: باز کردن تنگه هرمز یک اولویت اصلی است، چون ما قصد نداریم بهای جنگی را که جنگ ما نیست همچنان بپردازیم.
+
+@mwarmonitor
+</div>
+
+## Shin_Persian — post 6323
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6323_1780224780.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sun, 31 May 2026 10:49:34 UTC
+
+State-owned Mehr News reports an explosion in Qeshm island, Hormozgan Province, #Iran
+
+فارسی
+
+خبرگزاری دولتی مهر از وقوع انفجاری در جزیره قشم، استان هرمزگان، #Iran گزارش می‌دهد.
+
+𝕏 · @shin_persian
+</div>
+
+## IranianMinds — post 21125
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21125_1780224781.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴قالیباف:
+دشمن بعد از شکست نظامی، با فشارهای اقتصادی و جنگ رسانه‌ای به دنبال ایجاد تفرقه و وارد کردن ایران به تسلیم شدن است، اما مردم ما با اتحاد نقشه‌هایشان را خنثی کردند.
+
+ای حرومزاده جنایتکار.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 282492
+
+<div align="center">
+  <a href="telegram/content/BBCPersian_282492_1780224784.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هشت دانش‌آموز دبیرستانی از یک ترن هوایی که بیش از دو ساعت متوقف شده بود، نجات داده شدند. 
+
+آنها همراه اردوی مدرسه به اسکله «پلژر پیر» در شهر ساحلی گالوستون در ایالت تگزاس آمریکا رفته بودند که دچار این حادثه شدند. 
+
+این ترن هوایی در ارتفاع ۳۰ متری پرشیب‌ترین بخش ریل متوقف شد. نیروهای امدادی با استفاده از یک بالابر متحرک، هر هشت دانش‌آموز را نجات دادند. 
+
+هیچ مصدومیتی از این حادثه گزارش نشد.
+
+@bbcpersian
+</div>
+
+## idfinfarsi — post 11684
+
+<div align="center">
+  <a href="telegram/content/idfinfarsi_11684_1780224786.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مستند از حملات ارتش اسرائیل در صور: نیروی هوایی در این لحظات مقرهای سازمان تروریستی حزب‌الله را هدف قرار می‌دهد
+</div>
+
+---
 📅 بروزرسانی: 1405/03/10 14:13
 ---
 

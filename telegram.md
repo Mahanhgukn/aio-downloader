@@ -7,6 +7,60 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/11 03:02
+---
+
+## IranIntlTV — post 339953
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339953_1780270372.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آرمان خورسند، رییس مرکز امور بین‌الملل و کنوانسیون‌های سازمان حفاظت محیط‌زیست گفت دریافت عوارض محیط‌زیستی از کشتی‌های عبوری تنگه هرمز در حقوق بین‌الملل دریاها مبنای حقوقی دارد و می‌تواند برای جبران خسارت‌های واردشده به محیط‌زیست خلیج فارس هزینه شود.
+
+او «آلودگی‌های نفتی، فعالیت ناوگان نظامی خارجی و خسارت به زیست‌بوم‌های حساس خلیج فارس و جزایر منطقه» را از دلایل ضرورت تامین منابع مالی برای احیای محیط‌زیست این منطقه دانست.
+
+خورسند گفت کشورهای مجاور تنگه هرمز در چارچوب نظام «عبور بی‌ضرر» می‌توانند برای خدمات دریانوردی و جبران خسارت‌های ناشی از نقض مقررات، هزینه و عوارض دریافت کنند و ادعای غیرقانونی بودن آن را «بی‌مبنا» خواند.
+https://iranintl.com/202605314484
+</div>
+
+## Shin_Persian — post 6343
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6343_1780270373.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn Sun, 31 May 2026 23:31:03 UTC President Trump @POTUS: "Fake News CNN said today, routinely, that my Iran Nuclear Deal doesn’t talk about Nuclear, when actually it states, very clearly, that Iran will not have a Nuclear Weapon. It then…
+</div>
+
+## Shin_Persian — post 6342
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sun, 31 May 2026 23:31:03 UTC
+
+President Trump @POTUS:
+"Fake News CNN said today, routinely, that my Iran Nuclear Deal doesn’t talk about Nuclear, when actually it states, very clearly, that Iran will not have a Nuclear Weapon. It then goes on, in very strong and lengthy detail, to discuss various other aspects of Nuclear. In fact, that’s what most of the agreement is about. CNN, and so many others in the Fake News Media, is a Low Ratings disaster. Even with new ownership, it is unlikely to ever get better!!! President DJT"
+
+فارسی
+
+رئیس‌جمهور ترامپ @POTUS:
+
+«سی‌ان‌ان (CNN) که رسانه اخبار جعلی است، امروز به طور مکرر گفت که توافق هسته‌ای من با ایران درباره مسائل هسته‌ای صحبت نمی‌کند، در حالی که در واقع، این توافق به وضوح بیان می‌کند که ایران سلاح هسته‌ای نخواهد داشت. سپس، با جزئیات بسیار قوی و طولانی، به بحث درباره جنبه‌های مختلف دیگر موضوعات هسته‌ای می‌پردازد. در حقیقت، بیشتر متن توافق درباره همین موضوع است. سی‌ان‌ان و بسیاری دیگر در رسانه‌های اخبار جعلی، یک فاجعه با رتبه‌بندی پایین هستند. حتی با مدیریت جدید هم بعید است که هرگز بهتر شوند!!! رئیس‌جمهور دی‌جی‌تی (DJT)»
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 219222
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️عراق خواهان تداوم همکاری‌های مشترک استراتژیک با ایالات متحده آمریکا
+@FarsiVOA
+</div>
+
+---
 📅 بروزرسانی: 1405/03/11 02:52
 ---
 

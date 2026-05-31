@@ -7,6 +7,210 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/11 02:03
+---
+
+## pm_afshaa — post 91976
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91976_1780266795.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فاکس نیوز:
+رئیس‌جمهور ایران، درخواست استعفا داده و دلیلش رو این عنوان کرده که عملاً اختیار و نفوذ کافی در ساختار حاکمیت نداره؛ اون به دفتر رهبری اعلام کرده که خودش و دولتش از تصمیم‌گیری‌های مهم کنار گذاشته شدن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 339949
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/339949" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی سیاست با مراد ویسی: استعفای پزشکیان؛ شکاف در راس نظام
+@iranintlTV
+</div>
+
+## IranIntlTV — post 339948
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339948_1780266797.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «تجربه صربستان و برکناری و مرگ میلوسویچ پس از جنگ کوزوو، نشان داد که شکست‌های نظامی می‌توانند پایه‌های حکومت‌های دیکتاتوری را متزلزل و اختلافات داخلی آنها را تشدید کنند. وضعیت کنونی جمهوری اسلامی نیز نتیجه فعال شدن بحران‌های مختلف پس از جنگ‌ها و تشدید شکاف‌های درونی در راس نظام را نشان می‌دهد.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 339947
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339947_1780266799.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پنج ماه پس از کشته‌شدن ده‌ها هزار نفر در جریان انقلاب ملی در دی‌ماه، شماری از ایرانیان در لس‌آنجلس گردهم آمدند تا یاد جان‌باختگان را گرامی بدارند.
+
+شرکت‌کنندگان همچنین بر جایگاه پرچم شیر و خورشید به‌عنوان نمادی از همبستگی و اتحاد میان ایرانیان تاکید کردند.
+
+گزارش نیلوفر منصوری، خبرنگار ایران‌اینترنشنال و گفت‌وگو با راحله امیری، از آسیب‌دیدگان چشمی جنبش «زن، زندگی، آزادی» و یکی دیگر از شرکت‌کنندگان
+@iranintltv
+</div>
+
+## FarsiVOA — post 219216
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219216_1780266801.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️رسانه‌های جمهوری اسلامی وقوع دو انفجار را که تقریبا هم‌زمان در تهران و کرمانشاه و در ساعات پایانی یکشنبه گزارش شد به نشت گاز نسبت دادند. سایت تسنیم، نزدیک به سپاه پاسداران اعلام کرد که در ساعات پایانی روز یکشنبه، «انفجار گاز» در محله باغ ابریشم کرمانشاه باعث مصدومیت ۲ نفر شد. این سایت‌ همچنین مدعی شد که انفجار در یک واحد مسکونی در «فاز یک اندیشه» در استان تهران ناشی از «نشت گاز» بوده است. خبرگزاری ایسنا به نقل از سخنگوی اورژانس استان تهران می‌گوید این انفجار تاکنون ۶ مصدوم بر جای گذاشته است.
+@FarsiVOA
+</div>
+
+## Dirty_Kids — post 390705
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390705_1780266802.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+☢️خفن ترین و‌ قدیمی ترین  انالیزور  ایران ینی دکتر بت 
+👍 
+🔴مسابقات جذاب جام جهانی به زودی شروع میشه بیا توی کانال دکتر بت و باهاش همراه شو و پول در بیار
+💵 رایگان بهترین شرط هارو براتون میذاره حتی هزار تومن هم دریافت نمیکنه روزانه میتونی از پیش بینی فوتبال باهاش…
+</div>
+
+## Dirty_Kids — post 390704
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390704_1780266803.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+☢️خفن ترین و‌ قدیمی ترین  انالیزور  ایران ینی دکتر بت 
+👍
+
+
+🔴مسابقات جذاب جام جهانی به زودی شروع میشه بیا توی کانال دکتر بت و باهاش همراه شو و پول در بیار
+💵
+
+رایگان بهترین شرط هارو براتون میذاره
+حتی هزار تومن هم دریافت نمیکنه
+روزانه میتونی از پیش بینی فوتبال باهاش پول در بیاری 👌
+A10
+
+🌟اگ اهل پیش بینی فوتبالی این کانال اصلا از دست ندین
+👇
+
+✅https://t.me/+4_ADqwB9e-QwYjlk
+
+✅https://t.me/+4_ADqwB9e-QwYjlk
+</div>
+
+## Dirty_Kids — post 390703
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390703_1780266804.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#بخوابیم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390701
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اون مار از منی که تو ایران با وجود جمهوری‌اسلامی زندگی میکنم خوشبخت‌تره
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390700
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390700_1780266804.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این ویدیو برای شروع جام‌جهانی خیلی وایرال شده که میپرسه کدوم تیم قهرمان جام‌جهانی میشه؟ 🏆
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390699
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390699_1780266807.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بهروز رهبری‌فر در این ویدیو می‌گه «چون علی خامنه‌ای کشته شده و من خودمو فرزند او می‌دونم پس من الان فرزند شهیدم!‌»
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390698
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390698_1780266809.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏+ مسعود لج نکن بیا بریم کار داریم
+- من سوار هلیکوپتر نمیشم
++ هلیکوپتر کدومه دکتر؟!
+- من استخر هم نمیام
++ لابد تو‌ حموم واجبی هم نمیزنی؟
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390697
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390697_1780266809.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فاکس هم تاید کرد پزشکیان استعفا داده
+نمیدونم چرا این خبر ذره‌ای بکیرم نیست
+چون ما میدونستیم رییس جمهور در جمهوری اسلامی دلقکی بیش نیست
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390691
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏ملت ورداشتن عکسای این چادری کافه‌ایارو بی‌حجاب کردن دارن پخش میکنن 😂😂😂
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390690
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تسنیم استعفای پزشکیان رو تکذیب کرد
+تسنیم خبر مرگ لاریجانی رو هم تکذیب کرد
+تسنیم خبر مرگ تنگسیری رو هم تکذیب کرد
+تو فقط تکذیب کن:)))
+
+
+تو جمهوری‌اسلامی رسمه که هر وقت میخوان یک خبر یا اتفاقی رو آروم آروم به مردم بگن، اول میدن به تسنیم تکذیبش کنه.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/03/11 01:53
 ---
 

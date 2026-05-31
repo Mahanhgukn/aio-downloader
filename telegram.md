@@ -7,6 +7,20 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/11 02:22
+---
+
+## FarsiVOA — post 219217
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219217_1780267972.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ترامپ: برای توافق با جمهوری اسلامی عجله ندارم؛ واکنش قانوگذاران در کنگره
+@FarsiVOA
+</div>
+
+---
 📅 بروزرسانی: 1405/03/11 02:13
 ---
 

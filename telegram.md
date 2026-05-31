@@ -7,6 +7,206 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/10 21:12
+---
+
+## VahidOOnLine — post 243081
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_243081_1780249364.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️عباس عراقچی، وزیر امور خارجه ایران، روز یکشنبه در گفتگو با خبرنگاران گفت گفتگوها و تبادل پیام‌ها با طرف آمریکایی همچنان ادامه دارد و تا زمانی که مذاکرات به نتیجه مشخصی نرسد، نمی‌توان درباره آن قضاوت کرد.
+وزیر امورخارجه افزود: «هر آنچه که الان گفته می‌شود گمانه‌زنی است و نباید به آن اهمیت داد.»
+اظهارات وزیر امور خارجه ایران در حالی مطرح می‌شود که رسانه‌های آکسیوس و نیویورک‌تایمز در گزارش‌هایی از سخت‌تر کردن شرایط در متن توافق احتمالی از سوی دونالد ترامپ خبر داده‌اند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243080
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_243080_1780249365.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️رهاسازی آب از سد زاینده‌رود از روز یکشنبه دهم خرداد ماه آغاز شده و پیش‌بینی می‌شود جریان آب تا روز دوشنبه به شهر اصفهان برسد.
+منصور شیشه‌فروش، مدیرکل مدیریت بحران استان أصفهان، روز یکشنبه با اعلام این خبر اعلام کرد حجم ذخیره سد زاینده‌رود به حدود ۶۱۴ میلیون مترمکعب رسیده است و آب رهاشده پس از طی مسیر رودخانه، طی ساعات آینده به مناطق مختلف حوضه زاینده‌رود و سپس به شهر اصفهان خواهد رسید.
+زاینده‌رود که در سال‌های اخیر به دلیل تصمیم‌های مدیران جمهوری اسلامی برای مدیریت منابع آبی، بارها با خشکی طولانی‌مدت مواجه شده، برای بسیاری از شهروندان اصفهان تنها یک رودخانه نیست، بلکه بخشی از هویت و تاریخ این شهر به شمار می‌رود.
+جاری شدن این رودخانه، هرساله با استقبال گسترده شهروندان اصفهانی و انتشار ویدیوهایی از تجمع مردم در پل‌های تاریخی شهر أصفهان همراه می‌شود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13088
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+زرشکیان قهر کرد ! اینترنشنال: مسعود پزشکیان با ارسال نامه‌ای به دفتر مجتبی خامنه‌ای خواهان استعفا از سمت خودش شده. @withyashar
+</div>
+
+## WithYashar — post 13087
+
+
+
+
+## WithYashar — post 13086
+
+
+
+
+## WithYashar — post 13085
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مشکلش چیه اصلا همین امشب باشه چه بهتر! هرچه زودتر بهتر اصلا! خیلی زودتر از اینا حتییییی🫠🫠🫠
+</div>
+
+## WithYashar — post 13084
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+و اینکه لطفا خودت هم یه پست بذار ما شاهزاده رو تگ کنیم
+</div>
+
+## WithYashar — post 13083
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قرار‌ ما فردا شب ۱۱:۱۱ دقیقه تهران
+</div>
+
+## WithYashar — post 13082
+
+
+
+
+## WithYashar — post 13080
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مگه امروز یکشنبه نیست؟😅
+قرار نبود دوشنبه باشه؟
+</div>
+
+## Shin_Persian — post 6334
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6334_1780249366.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn Sun, 31 May 2026 17:37:26 UTC Tasnim called @IranIntl a "Mossad-affiliated media", adds "Mr. President did'nt resign, was working today, and will continue his work as planned", citing an "informed source". [These quick denials by…
+</div>
+
+## Shin_Persian — post 6333
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sun, 31 May 2026 17:37:26 UTC
+
+Tasnim called @IranIntl a "Mossad-affiliated media", adds "Mr. President did'nt resign, was working today, and will continue his work as planned", citing an "informed source".
+
+[These quick denials by IRGC media usually mean the opposite] [They rejected his resignation iyam]
+
+فارسی
+
+تسنیم @IranIntl را یک «رسانه وابسته به موساد» خواند و به نقل از یک «منبع آگاه» افزود: «آقای رئیس‌جمهور استعفا نداده، امروز مشغول به کار بود و طبق برنامه به فعالیت خود ادامه خواهد داد.»
+
+[این تکذیب‌های سریع توسط رسانه‌های سپاه پاسداران (IRGC) معمولاً به معنای معکوس است] [به نظر من آن‌ها با استعفای او مخالفت کرده‌اند]
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6332
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sun, 31 May 2026 17:32:49 UTC
+
+IRGC-owned Tasnim denies Pezeshkian's resignation.
+
+فارسی
+
+خبرگزاری تسنیم متعلق به سپاه پاسداران انقلاب اسلامی (IRGC)، استعفای پزشکیان را تکذیب کرد.
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 219193
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فاجعه بیکاری در جنوب ایران؛ اخراج گسترده کارگران پتروشیمی در ماهشهر
+</div>
+
+## FarsiVOA — post 219192
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺حبس به دلیل ضبط وقایع؛ ثبت‌کننده «مرد تانکی تهران» به ۱۰ سال زندان محکوم شد
+
+◾️گزارش‌هایی که روز یکشنبه ۱۰ خرداد منتشر شد حاکی از آن است که مسعود پیاهو، شهروندی که تصویری از حرکت اعتراضی مشهور به «مرد تانکی تهران» را ثبت کرده بود، به ۱۰ سال حبس محکوم شده است و پرونده او در آستانه اجرای حکم قرار دارد.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/tehran-tank-man-photographer-jailed/8155801.html
+</div>
+
+## IranianMinds — post 21159
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21159_1780249366.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴محمد‌جواد ظریف در پاسخ به سؤال میگن شما پشت پرده مذاکرات هستید، گفت:
+من اصلأ هیچکاره ‌ام.
+
+@IranianMinds
+</div>
+
+## Hranews — post 113287
+
+<div align="center">
+  <img src="telegram/content/Hranews_113287_1780249367.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تداوم بازداشت؛ بلاتکلیفی احمد رحیمی و سهیلا حسینی همچنان ادامه دارد
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– احمد رحیمی، استاد دانشگاه و همسرش سهیلا حسینی، هنرمند و نقاش، با گذشت ۷۵ روز از زمان بازداشت، همچنان به‌صورت بلاتکلیف در زندان وکیل‌آباد مشهد نگهداری می‌شوند.
+
+به گزارش خبرگزاری هرانا، ارگان خبری مجموعه فعالان حقوق بشر در ایران، احمد رحیمی و همسرش سهیلا حسینی، کماکان در زندان وکیل‌آباد مشهد در بازداشت به‌سر میبرند.
+
+بر اساس اطلاعات دریافتی هرانا، با وجود گذشت ۷۵ روز از زمان بازداشت، خانواده این افراد از دلایل بازداشت و اتهامات منتسب به آنان مطلع نشده‌اند. همچنین با وجود پیگیری‌های مکرر نزدیکان آنان از مراجع قضایی از جمله دادسرا، دادگاه و مسئولان زندان، تاکنون نتیجه‌ای حاصل نشده و امکان ملاقات حضوری نیز برای آنان فراهم نشده است. این افراد همچنین از حق دسترسی به وکیل و امکان تودیع وثیقه برای آزادی موقت محروم مانده‌اند.
+
+ادامه مطلب
+
+#احمد_رحیمی #سهیلا_حسینی
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## alonews — post 124009
+
+<div align="center">
+  <a href="telegram/content/alonews_124009_1780249368.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈معاون رئیس‌جمهور: رئیس‌جمهور ‎از خدمت به مردم عقب نخواهد نشست
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/10 21:03
 ---
 

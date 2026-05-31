@@ -7,6 +7,54 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/11 00:53
+---
+
+## pm_afshaa — post 91975
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91975_1780262593.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴قائم‌مقام، معاون راهبردی پزشکیان:
+بیش از 56 درصد مردم حداقل یک بار در تجمعات شبانه شرکت کردن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## alonews — post 124064
+
+<div align="center">
+  <a href="telegram/content/alonews_124064_1780262593.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این 2 دقیقه رو حتما یه جا سیو کنین و یا بفرستین پیوی رفیقتون که گمش نکنین! هر بار این کلیپ رو باز کنین مو به تنتون سیخ میشه که طی این چند سال چه اتفاقی افتاده!
+
+[@AloTweet]
+</div>
+
+## alonews — post 124063
+
+<div align="center">
+  <a href="telegram/content/alonews_124063_1780262594.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مسعود پیاهو، کسی که ویدیوی مرد نشسته مقابل موتوسواران یگان‌ویژه در خیابان جمهوری تهران را منتشر کرد، به ۱۰ سال زندان محکوم شد.
+
+
+🔴ویدیوی این مرد که در دومین روز اعتراضات دی‌ماه ۱۴۰۴ منتشر شد، به سرعت وایرال و به یکی از نمادهای اعتراضات تبدیل شد.
+
+
+🤔دم از عدل علی میزنن ولی به معاویه گفتن زکی، حرام زاده ها
+
+
+✅@AloNews
+</div>
+
+---
 📅 بروزرسانی: 1405/03/11 00:43
 ---
 

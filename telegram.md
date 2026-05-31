@@ -7,6 +7,145 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/10 16:52
+---
+
+## VahidOOnLine — post 243055
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_243055_1780233767.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در پی راه‌اندازی کارزار مردمی رشت از سوی ایران‌اینترنشنال، ویدیوهایی به دست ما رسیده که جمعیت گسترده مردم معترض این شهر را در ۱۸ دی ۱۴۰۴ نشان می‌دهد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13042
+
+<div align="center">
+  <img src="telegram/content/WithYashar_13042_1780233768.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+همین الان آتش‌سوزی غرب تهران سمت ستاری
+@withyashar
+</div>
+
+## WithYashar — post 13041
+
+
+
+
+## WithYashar — post 13040
+
+
+
+
+## pm_afshaa — post 91936
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91936_1780233769.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴اقتصاد نیوز: ایرانسل و همراه اول امکان خرید اقساطی بسته اینترنت رو فعال کردن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 339888
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339888_1780233769.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بر اساس اطلاعات رسیده به ایران‌اینترنشنال، مجید فرخزاد ممشلی، ۳۷ ساله و پدر یک کودک ۵ ساله، شامگاه ۱۸ دی‌ماه در خیابان پیروزی تهران هدف شلیک مستقیم قرار گرفت و به دلیل خون‌ریزی شدید و تاخیر در انتقال به بیمارستان جان باخت. پیکر او سحرگاه بیست‌ودوم دی‌ماه، حدود ساعت چهار صبح، تحت تدابیر شدید امنیتی و به‌صورت مخفیانه در مینودشت به خاک سپرده شد.
+
+گفت‌وگو با فرنوش فرجی، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 339887
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339887_1780233771.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در پی راه‌اندازی کارزار مردمی رشت از سوی ایران‌اینترنشنال، ویدیوهایی به دست ما رسیده که جمعیت گسترده مردم معترض این شهر را در ۱۸ دی ۱۴۰۴ نشان می‌دهد.
+</div>
+
+## FarsiVOA — post 219168
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺ارتش اسرائیل: انبارهای تسلیحاتی حماس را منفجر کردیم
+
+◾️ارتش دفاعی اسرائیل یکشنبه ۱۰ خرداد، با انتشار پیامی در شبکه ایکس در این‌باره نوشت: «نیروهای ارتش اسرائیل تحت فرماندهی جنوب، با استفاده از نیروی هوایی، در طول هفته سه انبار تسلیحاتی متعلق به سازمان تروریستی حماس را در چندین منطقه در نوار غزه هدف قرار داده و منهدم کردند.»
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/weapons-depot-israel-hamas-destroy/8155765.html
+</div>
+
+## DW_Farsi — post 125344
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125344_1780233772.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 سه سکوی فراساحلی پارس جنوبی پس از جنگ به مدار تولید بازگشتند
+ 
+تورج دهقانی، مدیرعامل شرکت نفت و گاز پارس، گفت روند بازیابی ظرفیت تولید و فرآورش گاز در میدان مشترک پارس جنوبی پس از حملات امریکا و اسرائیل ادامه دارد و تاکنون سه سکوی فراساحلی این میدان دوباره وارد مدار تولید شده‌اند.
+ 
+دهقانی گفت در جریان حملات آمریکا و اسرائیل به برخی تاسیسات پالایشی پارس جنوبی، بخشی از ظرفیت دریافت و فرآورش گاز در نوار ساحلی استان بوشهر با محدودیت روبه‌رو شد.
+ 
+به گفته او، در نتیجه این وضعیت، تعدادی از سکوهای فراساحلی متناظر با پالایشگاه‌های آسیب‌دیده، با وجود آمادگی کامل عملیاتی و بدون آن‌که خود سکوها آسیب دیده باشند، ناچار به توقف تولید شدند، زیرا امکان دریافت و فرآورش گاز تولیدی آن‌ها در بخش خشکی وجود نداشت.
+ 
+مدیرعامل شرکت نفت و گاز پارس گفت با اجرای برنامه‌های فنی و عملیاتی در بخش پایین‌دست و استفاده حداکثری از ظرفیت پالایشگاه‌های فعال، امکان دریافت و فرآورش بخشی از گاز تولیدی این سکوها دوباره فراهم شد.
+ 
+@dw_farsi
+</div>
+
+## alonews — post 123964
+
+<div align="center">
+  <a href="telegram/content/alonews_123964_1780233773.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈قائم مقام معاونت راهبردی رئیس جمهور: تراکنش مالی وابسته به تنگه هرمز حدود ۲۰۰۰ میلیارد دلار در سال است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123958
+
+<div align="center">
+  <a href="telegram/content/alonews_123958_1780233773.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈جنگنده‌های اسرائیلی امروز به طور مداوم حملات هوایی شدیدی را بر شهر صور در جنوب لبنان انجام داده‌اند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123957
+
+<div align="center">
+  <a href="telegram/content/alonews_123957_1780233774.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وال استریت ژورنال: سازمان ملل در حال ورشکستگی است، زیرا ایالات متحده و چین میلیاردها دلار را از این نهاد بین‌المللی خارج می‌کنند. 
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/10 16:43
 ---
 

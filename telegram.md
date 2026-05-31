@@ -7,6 +7,131 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/10 14:52
+---
+
+## mwarmonitor — post 9939
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_9939_1780226561.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸ترامپ در سوشال تروث
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 91932
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91932_1780226562.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴آکسیوس به نقل از یک مقام آمریکایی:
+ترامپ به خطوط قرمز خود پایبند است و توافقی رو منعقد نخواهد کرد که تضمینی برای نداشتن ایران به سلاح هسته‌ای نباشه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 339870
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339870_1780226562.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+با توقف منچسترسیتی برابر بورنموث در لیگ برتر انگلیس، قهرمانی آرسنال یک هفته مانده به پایان فصل قطعی شد. هواداران این تیم خود را برای برپایی جشن قهرمانی در خیابان‌های لندن آماده می‌کنند.
+آیدین مقیمی، خبرنگار ایران‌اینترنشنال، گزارش می‌دهد
+@iranintltv
+</div>
+
+## Hranews — post 113267
+
+<div align="center">
+  <img src="telegram/content/Hranews_113267_1780226564.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جلسه دادگاه رسیدگی به اتهامات ۴ فعال ترک (آذربایجانی) برگزار شد
+
+
+❗️
+❗️
+❗️
+❗️
+❗️ – جلسه رسیدگی به اتهامات عباس لسانی، علی خیرجو، یوسف کاری و بهزاد دشتی، فعالان ترک (آذربایجانی) روز گذشته در شعبه ۲۸ دادگاه انقلاب برگزار شد.
+
+به گزارش خبرگزاری هرانا، ارگان خبری مجموعه فعالان حقوق بشر در ایران، روز شنبه ۹ خرداد ۱۴۰۵، جلسه دادگاه رسیدگی به اتهامات عباس لسانی، علی خیرجو، یوسف کاری و بهزاد دشتی، فعالان ترک (آذربایجانی) برگزار شد.
+
+این جلسه در شعبه ۲۸ دادگاه انقلاب تهران به ریاست قاضی عموزاده برگزار شد و آقایان لسانی، خیرجو و کاری در اعتراض به آنچه «روند دادرسی غیرعادلانه» عنوان کرده‌اند، از حضور در جلسه خودداری کردند.
+
+ادامه مطلب
+
+#عباس_لسانی
+#علی_خیرجو
+#یوسف_کاری
+#بهزاد_دشتی
+
+↘️
+@hranews_bot تماس ✉️ -  @Hranews  کانال هرانا 🆑
+</div>
+
+## alonews — post 123921
+
+<div align="center">
+  <a href="telegram/content/alonews_123921_1780226564.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈دسترسی دیتاسنتر همراه اول به اینترنت برقرار شد
+
+
+🔴اولین نشانه بازگشت اینترنت به دیتاسنتر ها باید منتظر باشیم و وضعیت بقیه دیتاسنتر ها رو هم ببینیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123920
+
+<div align="center">
+  <a href="telegram/content/alonews_123920_1780226565.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈منابع عبری: عملیات در جنوب لبنان بیش از یک سال پیش برنامه‌ریزی شده بود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123919
+
+<div align="center">
+  <a href="telegram/content/alonews_123919_1780226565.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تسنیم: تبادل پیام‌ها میان ایران و آمریکا درباره متن تفاهم‌نامه احتمالی همچنان ادامه دارد و دو طرف به صورت متناوب اصلاحیه‌هایی را مطرح می‌کنند.
+
+
+🔴 تا این لحظه هیچ تفاهمی نهایی نشده و احتمال منتفی شدن هرگونه تفاهم نیز قاعدتاً وجود دارد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123918
+
+<div align="center">
+  <a href="telegram/content/alonews_123918_1780226565.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزیر خارجه فرانسه: باز کردن تنگه هرمز یک اولویت اصلی است زیرا ما قصد نداریم همچنان بهای جنگی را بپردازیم که جنگ ما نیست
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/10 14:43
 ---
 

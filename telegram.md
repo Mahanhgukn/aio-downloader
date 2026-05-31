@@ -7,6 +7,25 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/10 07:12
+---
+
+## alonews — post 123843
+
+<div align="center">
+  <a href="telegram/content/alonews_123843_1780198948.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پوریا زراعتی مجری اینترنشنال: اپوزیسیون ما رویا فروشی میکنه و وعده هاش دروغ بود
+
+
+🔴ما به کسی مثل جولانی نیاز داریم نه رهبران فعلی اپوزیسیون
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/10 07:02
 ---
 

@@ -7,6 +7,166 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/10 13:33
+---
+
+## VahidOOnLine — post 243029
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_243029_1780221806.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوهایی که تازه به دست ایران‌اینترنشنال رسیده، برگزاری مراسم چهلم جاویدنام احمد طراقیان را بر سر مزارش نشان می‌دهد.
+طراقیان، ۳۲ ساله، شامگاه ۱۹ دی‌ ۱۴۰۴ در شهر کرج، با شلیک گلوله جنگی به ناحیه سر هدف قرار گرفت و جان باخت.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342442
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌Fox News (Twitter/X)
+
+👉 Full story here:
+</div>
+
+## FoxNewsTwitter — post 342441
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342441_1780221809.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+President Trump floats scrapping America's 250th anniversary concert for a massive MAGA rally after multiple artists pull out of the Great American State Fair lineup. Freedom 250 organizers later confirmed the president will personally kick off the celebration with an opening ceremony speech on June 24.
+
+Artists who withdrew include Martina McBride, Bret Michaels, Young MC, Morris Day and The Time, and C+C Music Factory. Trump called them 'overpriced singers, who nobody wants to hear, whose music is boring.'
+</div>
+
+## IranIntlTV — post 339860
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339860_1780221810.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جاویدنامان انقلاب ملی ایرانیان
+«کمیل جمشیدی» شامگاه ۱۹ دی‌ماه در شهرک اندیشه بر اثر اصابت گلوله ماموران خامنه‌ای از ناحیه‌ گردن جان باخت. نامش در حافظه‌ی این سرزمین می‌ماند و یادش چراغ راه آزادی‌خواهان است.
+@iranintltv
+</div>
+
+## IranIntlTV — post 339859
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339859_1780221812.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوهایی که تازه به دست ایران‌اینترنشنال رسیده، برگزاری مراسم چهلم جاویدنام احمد طراقیان را بر سر مزارش نشان می‌دهد.
+طراقیان، ۳۲ ساله، شامگاه ۱۹ دی‌ ۱۴۰۴ در شهر کرج، با شلیک گلوله جنگی به ناحیه سر هدف قرار گرفت و جان باخت.
+</div>
+
+## IranIntlTV — post 339858
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339858_1780221815.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وال‌استریت پس از حملات یازده سپتامبر، فقط شش روز تعطیل بود، اما روسیه پس از حمله به اوکراین، یک ماه بازار مسکو را تعطیل کرد. بورس‌های امارات پس از حملات موشکی و پهپادی جمهوری اسلامی فقط دو روز معاملات را متوقف کردند، در حالیکه بورس تهران، در یک رکورد تاریخی، بیش از هشتاد روز تعطیل بود. در این قسمت چرتکه، محمد ماشین‌چیان رویکرد آمریکایی و روسی به بازار را در مقیاس ایران و امارات بررسی می‌کند.
+
+تماشای نسخه کامل «چرتکه» را در یوتیوب ایران‌اینترنشنال⁩:
+
+https://youtu.be/gPWijjjbR5M
+@iranintltv
+</div>
+
+## IranIntlTV — post 339857
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339857_1780221817.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مسعود پزشکیان، رییس‌جمهور دولت جمهوری اسلامی است، در نشستی با وزیر علوم گفت که صداوسیما با ارائه تحلیل‌ها و روایت‌های نادرست و فاقد پشتوانه علمی، تصویر غیرواقعی از وضعیت کشور ارائه می‌دهد.
+گفت‌وگو با رضا علیجانی، تحلیل‌گر و فعال سیاسی
+@iranintltv
+</div>
+
+## Shin_Persian — post 6322
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+متد جدید فرانتینگ توسط Patterniha:
+https://github.com/patterniha/MITM-DomainFronting
+</div>
+
+## FarsiVOA — post 219153
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آغاز عملیات گسترده ارتش اسرائیل در محور «قلعه بوفور» و «وادی سلوقی» در جنوب لبنان؛
+
+ارتش اسرائیل از آغاز یک عملیات لشکری گسترده توسط فرماندهی شمال در منطقه «قلعه بوفورت» و «دره سلوقی» در جنوب لبنان خبر داد. این عملیات با هدف انهدام زیرساخت‌های نظامی، از بین بردن نیروهای حزب‌الله، تقویت کنترل عملیاتی در جنوب لبنان و رفع تهدید مستقیم از منطقه «انگشت جلیل» و شهرک «مطله» آغاز شده است.
+
+این تحرکات از چند روز گذشته آغاز شده و طی آن نیروهای پیاده و زرهی گسترده‌ای از جمله «تیپ گولانی»، «تیپ ۷»، «تیپ گیفعاتی»، «تیپ آتش» و «یگان چندبعدی» تحت فرماندهی لشکر ۳۶ و با هدایت اطلاعاتی سازمان اطلاعات نظامی (آمان)، عملیات تهاجمی خود را برای گسترش خط دفاعی پیش‌رو آغاز کرده‌اند.
+
+تمرکز اصلی این فعالیت‌ها بر به دست گرفتن کنترل ارتفاعات بوفور و منطقه وادی سلوقی، ضربه سنگین به سازمان تروریستی حزب‌الله و انهدام زیرساخت‌های کلیدی این گروه است که تحت حمایت جمهوری اسلامی در این ارتفاعات ساخته شده بودند؛ مواضعی که حزب‌الله از آن‌ها برای هدایت نبردها و اجرای حملات متعدد استفاده می‌کرد.
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 15388
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صدای ۳ انفجار در مرکز شهر تهران شنیده شده 🫆: Ⓜ 🆔:@persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15387
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15387_1780221820.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+همه چیز از این روز لعنتی شروع شد !
+7 اکتبر 2023
+</div>
+
+## IranianMinds — post 21123
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ به فاکس نیوز:
+
+ایران پرچم سفید تسلیم را بالا خواهد برد
+
+ما در ایران در حال پیروزی هستیم. ما یک پیروزی کامل و تمام‌عیار داشته‌ایم.
+
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21122
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مجلس جمهوری اسلامی امروز به صورت مجازی برگزار شد.
+
+
+@IranianMinds
+</div>
+
+## alonews — post 123896
+
+<div align="center">
+  <a href="telegram/content/alonews_123896_1780221822.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈شاخص کل بورس با رشد ۸۳ هزار واحدی در پایان معاملات امروز به ۴ میلیون و ۲۳۶ هزار واحد رسید.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/10 13:22
 ---
 

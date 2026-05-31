@@ -7,6 +7,60 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/11 01:13
+---
+
+## VahidOOnLine — post 243119
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243119_1780263798.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️وزیر دادگستری لبنان روز یکشنبه، ۱۰ خردادماه، در گفتگوی اختصاصی با «العربیه» با انتقاد شدید از عملکرد نظامی حزب‌الله اعلام کرد: «حزب‌الله لبنان را به جنگ‌هایی می‌کشاند که خود انتخاب نکرده است و با شلیک ۶ موشک، جنگ همه‌جانبه را به کشور بازگرداند. اکنون زمان آن فرا رسیده است که این گروه به ماجراجویی‌های خود پایان دهد و از گزینه دولت حمایت کند. چرا که سلاح حزب‌الله به بهانه‌ای برای تهاجم به لبنان تبدیل شده است.» او با تاکید بر ضرورت خلع سلاح این گروه افزود: «حزب‌الله باید سلاح خود را به دولت تحویل دهد و این به معنای تسلیم شدن نیست. اگر حزب‌الله سلاحش را تحویل دهد، دولت در مذاکرات قوی‌تر خواهد بود، در حالی که در وضعیت فعلی، این گروه توانایی دولت برای مذاکره از موضع قدرت را مختل کرده است. حزب‌الله پیش از این نیز لبنانی‌ها را در سوریه قربانی کرد و نبردها را صرفا در راستای منافع خود پیش می‌برد. در حال حاضر دیپلماسی مناسب‌ترین راه است».
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342461
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+New York City's annual Israel Day parade went on without its mayor.
+
+Zohran Mamdani skipped the event due to his stance toward Israel, breaking a decades-long tradition of New York City mayors attending the celebration.
+
+As thousands packed Fifth Avenue waving Israeli flags, Gov. Kathy Hochul, Sen. Chuck Schumer, Attorney General Letitia James, and New York Republican gubernatorial candidate Bruce Blakeman all took part.
+
+Mamdani's absence quickly became a political flashpoint, with critics accusing Mamdani of turning his back on New York's Jewish community amid record levels of antisemitism.
+</div>
+
+## Dirty_Kids — post 390688
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+استفاده خوب و درست از هوش مصنوعی
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390687
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390687_1780263798.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴حسین طاهری، مداح :
+اگه دارین مذاکره می‌کنید به ماهم بگین که حداقل تکلیف خودمونو تو این دورهم جمع شدنایِ شبانه بدونیم.
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/03/11 01:03
 ---
 

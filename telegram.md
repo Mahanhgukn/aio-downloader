@@ -7,6 +7,157 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/12 02:03
+---
+
+## VahidOOnLine — post 243289
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243289_1780353204.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️رافائل گروسی، مدیرکل آژانس بین‌المللی انرژی اتمی، در گفتگو با «الجزیره» در پاسخ به سوالی درباره طرح دونالد ترامپ مبنی بر خارج کردن اورانیوم غنی‌شده از ایران گفت: «این کار دشوار است، اما غیرممکن نیست.» گروسی با اشاره به چالش‌های فنی این اقدام توضیح داد: «انتقال این مواد آسان نیست، زیرا به شکل گاز است و آلودگی بالایی دارد. بنابراین عملیات ساده‌ای نخواهد بود، اما با این حال قابل انجام است.» او همچنین به گزینه‌های جایگزین دیگر اشاره کرد و افزود: «گزینه‌های دیگری نیز وجود دارد که پیش‌تر مورد بررسی قرار گرفته‌اند، مانند رقیق‌سازی این مواد. از آنجا که ایران اکنون اورانیوم را تا ۶۰ درصد غنی‌سازی کرده و به درجه نظامی (۹۰ درصد) بسیار نزدیک شده است، رقیق‌سازی آن به سطوح بسیار پایین‌تر می‌تواند مدیریت این پرونده را آسان‌تر کند.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13224
+
+<div align="center">
+  <a href="telegram/content/WithYashar_13224_1780353204.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مردم شهر…
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342488
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342488_1780353206.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+FOX NEWS REPORT: President Trump signals "rapid" progress on Iran peace talks after the weekend's military strikes, while Maine Democratic Senate candidate Graham Platner faces yet another scandal. FOX News' @BillMelugin_ reports.
+</div>
+
+## pm_afshaa — post 92083
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92083_1780353208.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: من هنوز با این توافق موافقت نکردم چون هنوز باید چند امتیاز دیگر بگیرم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92082
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92082_1780353208.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴آکسیوس: ترامپ امروز در تماس تلفنی با نتانیاهو عصبانی شد و گفت:
+
+"تو کاملاً دیوانه‌ای. اگه من نبودم، الان تو زندان بودی. من دارم از تو محافظت میکنم. الان همه از تو متنفرند. همه بخاطر این موضوع از اسرائیل متنفرند. تو چه غلطی داری میکنی؟"
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92081
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92081_1780353209.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پست جدید ترامپ در تروث سوشال:
+
+امروز با نتانیاهو گفت‌وگویی داشتم و ازش خواستم وارد حمله بزرگ به بیروت نشه. او نیروهایش رو برگردوند. ممنون بی‌بی!
+
+همچنین با نمایندگان رهبران حزب‌الله گفت‌وگو کردم و آنها پذیرفتند که تیراندازی به اسرائیل و سربازانش رو متوقف کنند. به همین ترتیب، اسرائیل هم پذیرفت که تیراندازی به آنها رو متوقف کنه.
+
+باید دید این وضعیت چقدر دووم میاره؛ امیدوارم تا ابد ادامه داشته باشه!
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 340120
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340120_1780353210.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «یکی از عواملی که پس از شکست‌های پیاپی در جنگ می‌تواند پایه‌های یک حکومت را متزلزل کند، انباشته شدن آثار آن شکست‌ها و تبدیل شدنشان به نارضایتی گسترده است؛ همان‌طور که شکست‌های روسیه در جنگ‌های ۱۹۰۵ و ۱۹۱۴ زمینه‌ساز انقلاب ۱۹۱۷ شد. مجموعه شکست‌های سال‌های اخیر جمهوری اسلامی از غزه تا لبنان و سوریه و کشته شدن رهبران و فرماندهان ارشد نظام، می‌تواند سقوط مشابهی را برای نظام رقم بزند»
+@iranintltv
+</div>
+
+## Shin_Persian — post 6385
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6385_1780353211.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Mon, 01 Jun 2026 22:26:14 UTC
+
+Some sources on the explosion, and one guy looking for, well, god knows what xD
+
+فارسی
+
+برخی منابع درباره انفجار، و یک نفر که به دنبال، خب، خدا می‌داند چه می‌گردد xD
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6384
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Mon, 01 Jun 2026 22:24:16 UTC
+
+Blast sound in Sana'a, Yemen
+
+فارسی
+
+صدای انفجار در صنعا، یمن
+
+𝕏 · @shin_persian
+</div>
+
+## BBCPersian — post 282598
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_282598_1780353212.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری‌های فارس و تسنیم، نزدیک به سپاه پاسداران از هدف قرار دادن یک کشتی باربری خبر داده‌اند.
+
+در اطلاعیه نیروی دریایی سپاه پاسداران که عصر دوشنبه - اول ژوئن / ۱۱ خرداد - در این خبرگزاری‌ها منتشر شده آمده است: «درپی حمله متجاوزانه ارتش تروریستی آمریکا به کشتی ایرانی «لیان استار» در محدودهٔ دریای عمان، در یک عملیات مقابله‌به‌مثل، کشتی ام‌اس‌سی ساریسکا - MSC Sariska - متعلق به دشمن آمریکایی-صهیونیستی هدف موشک کروز قرار گرفت. هرگونه تجاوز ارتش آمریکا در منطقه با پاسخ قاطع روبه‌رو خواهد شد.»
+
+همزمان سازمان عمليات تجارت دريايی بريتانيا (يوکی‌ام‌تی‌او) اعلام کرده گزارشی از وقوع يک حادثه در ۴۰ مايل دريايی جنوب شرقی بندر ام القصر عراق دريافت کرده است.
+
+بر اساس گزارش این سازمان «يک کشتی کانتینربر در حال عبور از خليج فارس بود که در پی اصابت يک پرتابه ناشناس به سمت راست کشتی، انفجار بزرگی رخ داد.»
+
+بنابر اطلاعاتی که از کشتی ام‌اس‌سی ساریسکا در وبسایت‌های کشتیرانی موجود است، و آخرین موقعیت جغرافیایی اعلام شده او که حدود ۵ ساعت قبل از انتشار این خبر بوده، خلیج فارس، ثبت شده است.
+
+📷Reuters
+@BBCPersian
+</div>
+
+---
 📅 بروزرسانی: 1405/03/12 01:53
 ---
 

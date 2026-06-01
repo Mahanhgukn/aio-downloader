@@ -7,6 +7,22 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/11 08:32
+---
+
+## IranIntlTV — post 339969
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339969_1780290164.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شماری از ایرانیان یکشنبه در لس‌آنجلس با تاکید بر جایگاه پرچم شیر و خورشید به‌عنوان نماد هویت و وحدت ملی تجمع کردند.
+
+گزارش نیلوفر منصوری، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+---
 📅 بروزرسانی: 1405/03/11 08:23
 ---
 

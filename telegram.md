@@ -7,6 +7,85 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/11 07:42
+---
+
+## pm_afshaa — post 91979
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91979_1780287157.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+موزیک جدید حامدفرد به اسم «بزن که خوب میزنی» منتشر شد و توی چند ساعت اول بازدید میلیونی گرفت
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91978
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91978_1780287158.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مداح حکومتی حسین طاهری:اگه دارین مذاکره می‌کنید به ماهم بگین که حداقل تکلیف خودمونو تو این دورهم جمع شدنایِ شبانه بدونیم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## RadioFarda — post 157754
+
+<div align="center">
+  <a href="https://t.me/radiofarda/157754" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📻بشنوید: سرخط خبرها با رادیوفردا، ۱۱ خرداد ۱۴۰۵‌
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 21167
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فرمانده کل ایران محسن رضایی : یا محاصره را تمام می‌کنید یا محاصره را تمام می‌کنیم @IranianMinds
+</div>
+
+## IranianMinds — post 21166
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21166_1780287159.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فرمانده کل ایران محسن رضایی :
+
+یا محاصره را تمام می‌کنید
+یا محاصره را تمام می‌کنیم
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 282529
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌ ‌ ‌
+دانشمندان در حال بررسی این هستند که اگر بدن انسان به‌طور مداوم در معرض چنین گرمایی قرار بگیرد، چه اتفاقی در درون آن رخ می‌دهد.
+
+یک پژوهش در دانشگاه کالیفرنیای جنوبی بررسی کرده است که زمانی که دمای روزانه به بیش از ۳۲ درجه سانتی‌گراد رسید، چه اتفاقی برای چند هزار آمریکایی ساکن در ایالت‌ها و اقلیم‌های مختلف رخ داد.
+
+با استفاده از آزمایش‌های خون، این تیم سن زیستی ۳۶۰۰ شرکت‌کننده را با سن واقعی آن‌ها اندازه‌گیری کرد و آن را با شاخص گرما مقایسه کرد. یون‌یانگ چوی، پژوهشگر فوق‌دکتری و نویسنده این مطالعه، می‌گوید تاثیر این وضعیت بر بدن افراد شگفت‌آور بود، افرادی که بیشتر در معرض دماهای بالاتر قرار داشتند، سریع‌تر پیر می‌شدند.
+
+📷📸GettyImages/ AFP via Getty Images
+@BBCPersian
+</div>
+
+---
 📅 بروزرسانی: 1405/03/11 07:33
 ---
 

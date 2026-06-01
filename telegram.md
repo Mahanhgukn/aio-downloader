@@ -7,6 +7,169 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/12 01:13
+---
+
+## WithYashar — post 13218
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ به ای‌بی‌سی نیوز:
+احتمال داره طی یک هفته آینده با ایران به توافق برسیم، همه چیز خیلی خوب پیش میره؛ توافق صلح با ایران میتونه حتی بهتر از یک پیروزی نظامی باشه.
+@withyashar
+</div>
+
+## WithYashar — post 13217
+
+<div align="center">
+  <img src="telegram/content/WithYashar_13217_1780350206.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+توییت جدید کاخ سفید: به ترامپ اعتماد کنید. فقط بنشینید و آرام باشید، در نهایت همه‌چیز خوب پیش خواهد رفت همیشه همین‌طور بوده است!
+رئیس‌جمهور دونالد جی. ترامپ
+@withyashar
+</div>
+
+## mwarmonitor — post 10009
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴بر اساس گزارش ABC، یک فرد مسلح در یک کلینیک پزشکی در منطقه پلیکن نَروز در استان ساسکاچوان کانادا گزارش شده است. پلیس اعلام کرد فرد مظنون لباس کاملاً سیاه بر تن دارد و صورتش پوشیده است.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10008
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_10008_1780350207.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+USAF نیروی هوایی ایالات متحده –✈️ جابه‌جایی‌های ویژه (VIP)
+
+✈️یک فروند Boeing C-40 Clipper
+شماره رجیستر: AE11F6 01-0041 – SAM 708
+
+🔴پرواز SAM 708 از پایگاه هوایی مک‌دیل به مقصد فرودگاه اشتوتگارت در آلمان انجام شد؛ که به‌احتمال زیاد حامل برد کوپر، فرمانده فرماندهی مرکزی ایالات متحده (USCENTCOM) بوده است.
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 92080
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92080_1780350207.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ به ای‌بی‌سی نیوز:
+احتمال داره طی یک هفته آینده با ایران به توافق برسیم، همه چیز خیلی خوب پیش میره؛ توافق صلح با ایران میتونه حتی بهتر از یک پیروزی نظامی باشه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92079
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92079_1780350208.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: امروز زنگ زدم به حزب الله گفتم توقف حملات. چند دقیقه بعد با نتانیاهو تماس گرفتم و گفتم توقف حملات. اونا هر دو جنگ رو متوقف کردن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92078
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92078_1780350209.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبرنگار الجزیره: حمله اسرائیل به لبنان مانع از دستیابی به توافق شده بود.
+
+پس از فشار آمریکا و عقب‌نشینی اسرائیل، اکنون درها باز شده تا مذاکرات به مسیر طبیعی و مثبت خود بازگردد و چیز زیادی باقی نمانده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## FarsiVOA — post 219320
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺قانون‌گذار آمریکایی: ۸۰ درصد مردم ایران از جمهوری اسلامی متنفرند؛ اگر رژیم اورانیوم را تحویل ندهد در نهایت سقوط می‌کند
+
+▪️پت فالون، عضو جمهوری‌خواه مجلس نمایندگان آمریکا، روز دوشنبه در شبکه اجتماعی ایکس نوشت که جمهوری اسلامی «ایران اورانیوم را تا ۶۰ درصد که درجه تسلیحاتی است، غنی‌سازی می‌کند.»
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8156184.html?ghgh=
+@FarsiVOA
+</div>
+
+## alonews — post 124340
+
+<div align="center">
+  <a href="telegram/content/alonews_124340_1780350209.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ در گفت‌وگو با ای‌بی‌سی:
+من هنوز این توافق را تأیید نکرده‌ام و هنوز چند نکته دیگر باقی مانده است که باید تضمین شود.
+
+
+🔴من هنوز با این توافق موافقت نکرده‌ام و هنوز باید چند امتیاز دیگر بگیرم.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124339
+
+<div align="center">
+  <a href="telegram/content/alonews_124339_1780350209.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: شاید این هفته با ایران به توافق برسیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124338
+
+<div align="center">
+  <a href="telegram/content/alonews_124338_1780350209.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ:
+امروز یک مشکل کوچک پیش آمد، ایرانی‌ها از حملات اسرائیل به لبنان ناراحت بودند.
+
+
+🔴بنابراین من با حزب‌الله صحبت کردم و گفتم تیراندازی نکنید، و با بی‌بی (نتانیاهو) صحبت کردم و گفتم تیراندازی نکنید، و هر دو تیراندازی به سمت یکدیگر را متوقف کردند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124337
+
+<div align="center">
+  <a href="telegram/content/alonews_124337_1780350210.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: صلح با ایران شاید حتی بهتر از پیروزی نظامی باشد‌‌
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/12 01:03
 ---
 

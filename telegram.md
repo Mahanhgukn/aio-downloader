@@ -7,6 +7,318 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/11 23:35
+---
+
+## VahidOOnLine — post 243278
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243278_1780344356.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️بنیامین نتانیاهو، نخست‌وزیر اسرائیل، شامگاه دوشنبه ۱۱ خرداد ماه اعلام کرد در گفتگوی تلفنی با دونالد ترامپ، رئیس‌جمهوری آمریکا، به او گفته است که در صورت ادامه حملات حزب‌الله، اسرائیل اهدافی را در بیروت هدف قرار خواهد داد.
+
+دفتر نخست‌وزیر اسرائیل روز دوشنبه در بیانیه‌ای به نقل از نتانیاهو اعلام کرد: «امشب با رئیس‌جمهوری ترامپ صحبت کردم و به او گفتم اگر حزب‌الله حمله به شهرها و شهروندان ما را متوقف نکند، اسرائیل اهداف تروریستی را در بیروت هدف قرار خواهد داد.»
+نتانیاهو افزود: «موضع ما در این زمینه تغییری نکرده است.»
+
+او همچنین تاکید کرد ارتش اسرائیل به عملیات خود در جنوب لبنان طبق برنامه ادامه خواهد داد.
+
+این اظهارات ساعاتی پس از آن مطرح شد که ترامپ در شبکه اجتماعی تروث سوشال از توافق برای توقف درگیری‌ها میان اسرائیل و حزب‌الله خبر داد و اعلام کرد نیروهای اسرائیلی که به گفته او در مسیر حمله به بیروت بودند، بازگردانده شده‌اند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13204
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این قدم اول هست و ما پشیمون نمیشیم 😃 نیازی ندیدم تمام پلن ها یک جا انجام بشه در نتیجه از همین شروع کردم ، من به تقدیر خودم و مردمم ایمام دارم
+</div>
+
+## WithYashar — post 13203
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دوست گرافیستی که قرار‌ بود اوکی کنه آفلاین بود و در نتیجه اینم خودم با ای آی دقایق پایانی درست کردم که دقیقه ای رأس ۱۱:۱۱ آنتایم حاظر و پست شد ، میدونم و ببخشید
+</div>
+
+## WithYashar — post 13202
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فونت پست یجوریه بنظرم
+یچیز دیگ بهتر نیس بزاری؟
+</div>
+
+## WithYashar — post 13201
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+درود در عکس آخر کاش بجای جناب آقای یاشار توکلیان می‌نوشتید اینجانب یاشار توکلیان را .... کمی گرم تر بود البته نظر بنده بود یاشار جار باز نظر شما محترم است ❤️ ممنون از زحماتتون
+</div>
+
+## WithYashar — post 13200
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+درود در عکس آخر
+کاش بجای
+جناب آقای یاشار توکلیان
+می‌نوشتید
+اینجانب یاشار توکلیان را ....
+کمی گرم تر بود
+البته نظر بنده بود یاشار جار
+باز نظر شما محترم است ❤️
+ممنون از زحماتتون
+</div>
+
+## WithYashar — post 13199
+
+<div align="center">
+  <a href="telegram/content/WithYashar_13199_1780344357.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## FoxNewsTwitter — post 342481
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+RT @BillMelugin_: BREAKING: The US Department of Transportation confirms to @FoxNews that they have issued a subpoena to the state of NY after they allege the state has refused to cooperate with their investigation into Jing Shen Dong, the bus driver who allegedly caused a crash that killed five people in Stafford County, VA on Friday morning. DOT says Dong is a naturalized US citizen who was born in China, doesn't speak English, and received his commercial driver's license (CDL) from the state of New York.
+
+DOT says the subpoena is a result of not being able to "obtain the requested documents through other reasonable means."
+
+DOT is demanding that New York turn over records on Dong's CDL, his entry level driving training, and the driving school he attended. DOT says those documents must be turned over by Wednesday at 10AM ET, or face consequences/penalties.
+</div>
+
+## pm_afshaa — post 92069
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92069_1780344359.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴آکسیوس: ترامپ روز دوشنبه نقشه نتانیاهو، برای بمباران اهداف حزب‌الله در بیروت رو پس از اون متوقف کرد که جمهوری اسلامی تهدید کرد به دلیل اقدامات اسرائیل در لبنان، مذاکرات با آمریکا رو رها میکنه.
+
+تصمیم ترامپ برای مهار نتانیاهو سیگنال واضحی بود مبنی بر اینکه اون نمیخواد متحد کلیدی‌اش مانع توافق با جمهوری اسلامی بشه.
+
+یک مقام ارشد آمریکایی گفت که ترامپ احساس میکنه تهدیدهای نتانیاهو برای حمله به بیروت داره از حد می‌گذره.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92068
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92068_1780344360.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نتانیاهو: من امروز عصر با ترامپ صحبت کردم و بهش گفتم که اگر حزب الله حملات خودش رو به شهرها و شهروندان ما متوقف نکنه، اسرائیل به اهداف تروریستی در بیروت حمله خواهد کرد.
+
+موضع ما در این مورد بدون تغییر باقی می‌ماند. در عین حال، ارتش اسرائیل طبق برنامه در جنوب لبنان به عملیات خود ادامه خواهد داد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## VahidOnline — post 75859
+
+<div align="center">
+  <a href="telegram/content/VahidOnline_75859_1780344361.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روابط عمومی سپاه اعلام کرد که در پی حمله ارتش آمریکا به کشتی ایرانی «لیان استار» در محدوده دریای عمان، نیروی دریایی سپاه طی یک عملیات مقابله به مثل، کشتی «ام‌اس‌سی. ساریسکا» با مالکیت «دشمن آمریکایی-اسرائیلی» را با موشک کروز مورد هدف قرار داد
+IranIntlbrk
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 340110
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی دریافت‌شده نشان می‌دهد جمعی از ایرانیان ساکن شهر رجاینا در ساسکاچوان کانادا، روز یک‌شنبه ۱۰ خرداد، در حمایت از مردم ایران علیه اعدام‌های جمهوری اسلامی، شعار «اعدام را در ایران متوقف کنید» را روی پل آلبرت در این شهر، برای جلب توجه عابران و جامعه جهانی به نمایش درآوردند.
+@iranintltv
+</div>
+
+## IranIntlTV — post 340109
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/340109" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی ۲۴ با فرداد فرحزاد: افزایش احتمال بازگشت درگیری‌ها پس از هشدارهای تازه تهران
+@iranintlTV
+</div>
+
+## FarsiVOA — post 219312
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219312_1780344363.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ویکتوریا آزاد در برنامه تفسیر خبر: من حملات آمریکا و اسرائیل را محکوم نمی‌کنم
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219311
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺خبرگزاری جمهوری اسلامی از کشته شدن دو عضو سپاه در قم خبر داد؛ تلفات سپاه در «آتش‌بس» افزایش یافت
+
+▪️خبرگزاری جمهوری اسلامی، ایرنا، روز دوشنبه ۱۱ خرداد از کشته‌شدن دو سپاهی در قم خبر داد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8156168.html
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 15457
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15457_1780344364.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سپاه پاسداران: کشتی با مالکیت دشمن آمریکایی صهیونی هدف موشک کروز قرار گرفت.
+
+روابط عمومی نیروی دریایی سپاه: در پی حمله متجاوزانه ارتش تروریستی و کودک کش امریکا به کشتی ایرانی لیان استار در محدوده دریای عمان نیروی دریایی سپاه طی یک عملیات مقابله به مثل، کشتی msc. sariska با مالکیت دشمن امریکایی صهیونی را با موشک کروز مورد هدف قرار داد.
+
+نیروی دریایی سپاه اعلام کرد: هر گونه تجاوز ارتش کودک کش امریکا در این منطقه با پاسخ قاطع روبرو خواهد شد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15456
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15456_1780344366.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سردار قاآنی: رژیم مفلوک صهیونی بداند جنایت توامان در جنوب لبنان و تجاوز بیش از حد به غزه طوفان دوباره جوانمردان فلسطینی را در پی خواهد داشت.
+
+فرمانده نیروی قدس سپاه پاسداران انقلاب اسلامی: شرارت صهیونیست‌ها در لبنان و غزه در سایه حمایت‌های وقیحانه آمریکا، عزم محور مقاومت را برای توسعه پشتیبانی‌ها از هر دو جبهه، اقدام برای فعالسازی سایر جبهه‌ها و همسان‌سازی وضعیت ترافیکی تنگه باب‌المندب با تنگه هرمز رقم خواهد زد.
+
+رژیم مفلوک صهیونی بداند جنایت توامان در جنوب لبنان و غزه، او را در گرداب عملیات‌های حزب‌الله و طوفان دوباره جوانمردان فلسطینی گرفتار خواهد کرد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## RadioFarda — post 157790
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_157790_1780344366.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸رئیس جمهور آمریکا روز دوشنبه در پیامی در شبکه اجتماعی خود نوشت که مذاکره کشورش با حکومت ایران «با سرعت ادامه دارد».
+
+🔸این پیام پس از آن منتشر شد که جمهوری اسلامی تهدید کرد که در صورت ادامه حملات اسرائیل به لبنان «تبادل پیام با آمریکا متوقف می‌شود».
+
+🔸ترامپ در گفت‌وگو با خبرنگاران از تعلیق مذاکره با ایران اظهار بی‌اطلاعی کرد، اما تماسی تلفنی با نخست وزیر اسرائیل برقرار کرد که به توقف حملات به لبنان انجامید.
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 21211
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21211_1780344367.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امروز زیاد از پیاما گرفتم و خیلیا اومدن انتقاد کردن
+
+گفتم‌ خودتون‌ جواب بدید و نظرتونو نسبت به حرف ایشون بگید
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 390776
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390776_1780344368.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عـــه علیِ…!!! علــی 😄😄
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 124316
+
+<div align="center">
+  <a href="telegram/content/alonews_124316_1780344369.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قیمت استثنایی و کیفیت بالا
+❤️
+
+تا ۱۲ ظهر فردا تخفیف جشنواره هم گذاشتن 
+❤️
+
+دارای لینک سابسکریشن جهت دیدن حجم و کنترل مصرف
+✅
+بدون قطعی 
+✅
+بدون محدودیت کاربر و زمان
+✅
+جمینایو چت جی بی تی و... کامل اوکیه با سرورامون
+✅
+
+🏪پشتیبانی کامل
+✅
+شروع فعالیت از سال 2022 
+✅
+پرداخت ریالی
+✅
+
+
+از رباتمونم میتونید تهیه کنید 
+💞
+👇
+
+✅
+➡️ @Napsternetiran_bot 
+☑️
+
+ضریب و این چیزا ندارن و تا آخرین مگابایت برای پشتیبانیش درختمتیم
+🥂
+
+چنل کانالمون
+👇
+
+📣
+➡️ @Napsternetvirani 
+☑️
+</div>
+
+## alonews — post 124315
+
+<div align="center">
+  <a href="telegram/content/alonews_124315_1780344370.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈هم اکنون موج جدید حملات اسرائیل به جنوب لبنان
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/11 23:24
 ---
 

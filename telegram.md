@@ -7,6 +7,55 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/12 02:23
+---
+
+## VahidOOnLine — post 243290
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_243290_1780354435.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️جعفر پناه‌پور، محیط‌‌بان و عکاس حیات وحش، روز دوشنبه ۱۱ خردادماه، ویدیویی از یک پلنگ ایرانی را که در میان پوشش گیاهی پارک ملی گلستان دیده می‌شود، در اینستاگرام منتشر کرد.
+
+
+پارک ملی گلستان یکی از مهم‌ترین زیستگاه‌های این گونه ارزشمند به شمار می‌رود و نقش مهمی در حفاظت از آن دارد.
+
+پلنگ ایرانی در فهرست گونه‌های در معرض خطر قرار دارد و پارک ملی گلستان با تنوع زیستی کم‌نظیر خود، از مهم‌ترین مناطق حفاظت‌شده کشور برای حفظ و بقای این گونه محسوب می‌شود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## Shin_Persian — post 6388
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet: Shin ✓ @hey_itsmyturn Mon, 01 Jun 2026 22:30:46 UTC @WhiteHouse Yeah, about that, NO. Even if he attacks the Islamic Regime right fucking now, his dumb pause led to numerous executions since the "ceasefire", so, no, I won't "Trust in Trump"…
+</div>
+
+## Shin_Persian — post 6387
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+Shin ✓ @hey_itsmyturn
+Mon, 01 Jun 2026 22:30:46 UTC
+
+@WhiteHouse Yeah, about that, NO.
+Even if he attacks the Islamic Regime right fucking now, his dumb pause led to numerous executions since the "ceasefire", so, no, I won't "Trust in Trump" and his promised "Help".
+
+↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
+
+فارسی
+
+@WhiteHouse آره، در این مورد، نه.
+حتی اگر او همین الان هم به رژیم اسلامی حمله کند، وقفه احمقانه‌اش منجر به اعدام‌های متعددی از زمان «آتش‌بس» شده است، بنابراین، نه، من به ترامپ و «کمک» وعده داده شده‌اش «اعتماد» نخواهم کرد.
+
+𝕏 · @shin_persian
+</div>
+
+---
 📅 بروزرسانی: 1405/03/12 02:13
 ---
 

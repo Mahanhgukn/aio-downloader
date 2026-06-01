@@ -7,6 +7,31 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/11 03:52
+---
+
+## pm_afshaa — post 91977
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91977_1780273374.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴محسن رضایی: با ادامه محاصره دریایی و مطرح کردن خواسته‌های بیش از حد در مذاکرات، ترامپ‌بار دیگر ثابت کرده که تمایلی به مذاکره و توافق نداره.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## BBCPersian — post 282520
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌‌‌ ‌ مايک پنس، معاون پيشين رئيس جمهوری آمريکا، به شدت از صندوق ۱/۸ ميليارد دلاری دولت دونالد ترامپ برای پرداخت غرامت به افرادی که مدعی‌اند در دولت‌های پيشين به ناعادلانه‌ترين شکل تحت پيگرد قرار گرفته‌اند، انتقاد کرد. دولت ترامپ اوايل ماه جاری از ايجاد صندوقی…
+</div>
+
+---
 📅 بروزرسانی: 1405/03/11 03:42
 ---
 

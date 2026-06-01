@@ -7,6 +7,34 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/11 04:13
+---
+
+## FoxNewsTwitter — post 342467
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌Fox News (Twitter/X)
+
+👉 Full story here:
+</div>
+
+## FoxNewsTwitter — post 342466
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342466_1780274591.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Hasan Piker gets denied entry to the UK over alleged antisemitism — then immediately blames 'Israel advocacy organizations' for wielding 'unbelievable amounts of power' over British policy.
+
+The streamer's response to the ban landed on a classic antisemitic trope about Jewish influence, even as he insisted he harbors no antisemitism. British Jewish groups and a Labour MP had urged the government to block his visit, citing his comments about Hamas, Hezbollah, and his claim that the U.S. deserved 9/11.
+
+The ban caps a brutal stretch for Piker: a Treasury Department subpoena over his Cuba trip, and hecklers confronting him at a Newark ICE protest calling him a 'f***ing fraud.'
+</div>
+
+---
 📅 بروزرسانی: 1405/03/11 04:03
 ---
 

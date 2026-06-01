@@ -7,6 +7,314 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/11 20:43
+---
+
+## VahidOOnLine — post 243259
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243259_1780334030.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های اسرائیلی گزارش دادند بنیامین نتانیاهو دوشنبه با دونالد ترامپ به‌صورت تلفنی گفت‌وگو کرده است. جزئیات بیشتری از این تماس منتشر نشده است.
+
+دوشنبه همزمان با حملات اسرائیل به جنوب لبنان، قرارگاه مرکزی خاتم‌الانبیا به ساکنان شمال اسرائیل هشدار تخلیه داد.
+خبرگزاری تسنیم نیز از توقف گفت‌وگوها با آمریکا به علت حملات اسرائیل به لبنان خبر داد.
+
+محمد مخبر، مشاور مجتبی خامنه‌ای، گفت هرگونه آتش‌بس بدون در نظر گرفتن لبنان و سایر جبهه‌های مقاومت «فاقد موضوعیت» دانست.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13171
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ به CNBC : قیمت نفت به‌زودی مثل سنگ سقوط می‌کنه.
+@withyashar
+</div>
+
+## WithYashar — post 13170
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اتاق جنگ با یاشار : یعنی‌ عراقچی‌زنگ زده پاکستان چه پیشنهادی داده که پاکستان رنگ زده ترامپ و ترامپ هم فوری‌ زنگ زده بی بی🤬
+</div>
+
+## WithYashar — post 13169
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تلویزیون اسرائیل اعلام کرد آمریکا دخالت کرده و جلوی ادامه حمله به بیروت رو گرفت
+@withyashar
+</div>
+
+## mwarmonitor — post 9988
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝تعلیق روابط دیپلماتیک تهران با واشنگتن به خاطر حملات اسرائیل، کاخ سفید را وارد یک سیرک تهوع‌آور کرده است؛ جایی که دونالد ترامپ با شخصیتی فروپاشیده و لحنی التماس‌آمیز فریاد می‌زند: «تلفن رو بدید زنگ بزنم به بی‌بی! چرا این تروریست‌های گوگولی و نازنازی رو وسط…
+</div>
+
+## FoxNewsTwitter — post 342475
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342475_1780334031.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+RT @FoxTrueCrime: A Utah judge granted Tyler Robinson's defense's motion for an order to show cause after his attorneys accused prosecutors of violating the court's gag order through media interviews in the Charlie Kirk assassination case.
+
+An evidentiary hearing lands June 12 — putting the state's own legal team under the microscope before trial even begins.
+
+Both sides will have 90 minutes to present arguments at that hearing, when Robinson is expected to appear in person.
+
+Credit: Rick Egan/The Salt Lake Tribune via Pool
+</div>
+
+## pm_afshaa — post 92043
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92043_1780334031.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رادیو و تلوزیون اسرائیل:
+نتانیاهو درحال متقاعد‌ کردن ترامپ برای حمله به بیروت است!
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92042
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ باز مخ نتانیاهو رو زد و حمله به بیروت رو کنسل کرد.
+</div>
+
+## pm_afshaa — post 92041
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92041_1780334032.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کانال 12 اسرائیل: هم‌اکنون نتانیاهو و ترامپ باهم تماس تلفنی برقرار کردن. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92040
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92040_1780334033.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رادیو و تلویزیون اسرائیل: با مداخله آمریکا حمله بزرگ به ضاحیه بیروت لغو شد!
+
+رسانه i24News:
+آمریکا حمله به بیروت رو متوقف کرد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92039
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92039_1780334033.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کانال 12 اسرائیل: هم‌اکنون نتانیاهو و ترامپ باهم تماس تلفنی برقرار کردن. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 340089
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340089_1780334034.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های اسرائیلی گزارش دادند بنیامین نتانیاهو دوشنبه با دونالد ترامپ به‌صورت تلفنی گفت‌وگو کرده است. جزئیات بیشتری از این تماس منتشر نشده است.
+
+دوشنبه همزمان با حملات اسرائیل به جنوب لبنان، قرارگاه مرکزی خاتم‌الانبیا به ساکنان شمال اسرائیل هشدار تخلیه داد.
+خبرگزاری تسنیم نیز از توقف گفت‌وگوها با آمریکا به علت حملات اسرائیل به لبنان خبر داد.
+
+محمد مخبر، مشاور مجتبی خامنه‌ای، گفت هرگونه آتش‌بس بدون در نظر گرفتن لبنان و سایر جبهه‌های مقاومت «فاقد موضوعیت» دانست.
+https://iranintl.com/202606014520
+</div>
+
+## FarsiVOA — post 219288
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بازگشت سایه موشک‌ها بر آسمان اقلیم؛ حملات تازه جمهوری اسلامی به چند نقطه در اقلیم کردستان عراق
+</div>
+
+## Persian_Trend_Official — post 15447
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15447_1780334035.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آمریکا حمله اسرائیل به ضاحیه را متوقف کرد!
+
+کان نیوز: علیرغم تهدیدات صریح نتانیاهو، تدارکات اسرائیل برای حمله به منطقه ضاحیه بیروت در ساعات اخیر پس از مداخله ایالات متحده به تأخیر افتاد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## RadioFarda — post 157782
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸رسانه‌های ایران از افزایش حجم ذخایر آب سد امیرکبیر (سد کرج) و رسیدن میزان پرشدگی مخزن این سد به حدود ۷۰ درصد خبر می‌دهند.
+
+🔸بر اساس تصاویر منتشرشده، حجم آب ذخیره‌شده در این سد نسبت به مدت مشابه سال گذشته افزایش چشمگیری داشته است؛ موضوعی که پس از چند سال خشکسالی و کاهش ذخایر آبی، نشانه‌ای نسبتاً امیدوارکننده برای منابع آب تهران و البرز ارزیابی می‌شود.
+
+🔸با این حال، کارشناسان تأکید می‌کنند بهبود وضعیت سد کرج به معنای پایان بحران آب نیست و وضعیت سدهایی مانند لار، لتیان و ماملو همچنان نگران‌کننده است.
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 21198
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 رسانه i24News :
+
+آمریکا حمله به بیروت رو متوقف کرد
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 390765
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فووری رادیو و تلویزیون اسرائیل: با مداخله آمریکا حمله بزرگی به ضاحیه بیروت لغو شد!
+
+نتانیاهو در تلاش است آمریکایی‌ها را متقاعد کند که به حومه جنوبی بیروت حمله کنند
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390764
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390764_1780334035.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بازیکنان PSG در حال بررسی مردانگی بانو بریجیت!
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390763
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390763_1780334036.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دیروز هموطنان به استقبال شاهدخت نور رفتن,چه صحنه زیبا و باشکوهی خلق شده
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390762
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فوری ترامپ:
+
+هیچ خبری در مورد تعلیق مذاکرات با ایران دریافت نکردم
+ما دیگه بیش از حد صحبت کردیم، بهتره دیگه سکوت کنیم
+این به معنی شروع جنگ و بمب اندازی نیست
+در ضمن تحریمامون علیه ایران به محکمی فولاده و به همین شکل باقی میمونه قرار نیست برداشته بشه
+
++ اَی بی‌بیضه‌ها
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 124268
+
+<div align="center">
+  <a href="telegram/content/alonews_124268_1780334039.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کانال ۱۲ اسرائیل: همه منتظر نتایج گفتگوی دراماتیک بین ترامپ و نتانیاهو هستند تا بفهمند اوضاع به کدام سمت خواهد رفت
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124267
+
+<div align="center">
+  <a href="telegram/content/alonews_124267_1780334039.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ به CNBC : قیمت نفت به‌زودی مثل سنگ سقوط می‌کنه.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124266
+
+<div align="center">
+  <a href="telegram/content/alonews_124266_1780334039.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ به سی‌ان‌بی‌سی: برایم مهم نیست که مذاکرات با ایران تمام شده باشد و نگران قیمت نفت هم نیستم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124265
+
+<div align="center">
+  <a href="telegram/content/alonews_124265_1780334039.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ به سی‌ان‌بی‌سی: از نتانیاهو خواهم پرسید که در لبنان چه می‌گذرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124264
+
+<div align="center">
+  <a href="telegram/content/alonews_124264_1780334040.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پاکستان: ایران خواستار ادامه میانجی‌گری اسلام‌آباد است
+
+
+🔴وزارت خارجه پاکستان خبر داد که ایران خواستار ادامه میانجی‌گری پاکستان برای تنش‌زدایی در وضعیت کنونی و حمایت از آتش‌بس شده است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/11 20:34
 ---
 

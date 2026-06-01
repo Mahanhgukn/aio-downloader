@@ -7,6 +7,279 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/11 21:54
+---
+
+## pm_afshaa — post 92057
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92057_1780338271.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مکرون، رئیس‌جمهور فرانسه:
+چیزی که هرگز نباید در مورد اروپا و فرانسه دست کم بگیرید اینه که ما بسیار قابل پیش‌بینی هستیم.
+
+هیچکدوم از ما نمیتونیم قوانین رو یک‌شبه تغییر بدیم. در اروپا هیچ دستور اجرایی وجود نداره و هیچ فردی نمیتونه همه چیز رو به تنهایی و بر اساس تصمیم خود تغییر بده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 340097
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/340097" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی تیتراول با نیوشا صارمی: مذاکرات متوقف شد؛ تنش چند جبهه‌ای در منطقه؛هشدار تخلیه همزمان اسرائیل و سپاه
+@iranintlTV
+</div>
+
+## Shin_Persian — post 6370
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6370_1780338273.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+UKMTO Operations Centre @UK_MTO
+Mon, 01 Jun 2026 18:17:29 UTC
+
+UKMTO WARNING 063-26 UPDATE 001
+
+Click here to view the full warning⤵️
+http://www.ukmto.org/-/media/ukmto/products/20260601-ukmto_warning_063-update_001.pdf?rev=759b918daac243ee8b0c2004571f13ba
+
+#MaritimeSecurity #MarSec
+
+فارسی
+
+هشدار یو‌کی‌ام‌تی‌او (UKMTO) ۰۶۳-۲۶ به‌روزرسانی ۰۰۱
+
+برای مشاهده متن کامل هشدار اینجا کلیک کنید⤵️
+http://www.ukmto.org/-/media/ukmto/products/20260601-ukmto_warning_063-update_001.pdf?rev=759b918daac243ee8b0c2004571f13ba
+
+#MaritimeSecurity #MarSec
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6369
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Mon, 01 Jun 2026 18:15:39 UTC
+
+Jet activity over Tehran,
+Tehran Province, #Iran
+
+فارسی
+
+فعالیت جنگنده‌ها بر فراز تهران،
+استان تهران، #Iran
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 219299
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺حرکت بدون توقف ماشین سرکوب جمهوری اسلامی؛ یاشار دارالشفا و منصور باسام هم بازداشت شدند
+
+▪️کانون حقوق بشر ایران روز دوشنبه ۱۱ خرداد، از بازداشت دو شهروند‌ در شهرهای مریوان و تهران خبر داد و اعلام کرد: «هر دو بازداشت‌شدگان به مکانی نامعلوم منتقل شده‌اند و ماموران حکومتی دلیلی برای بازداشت آنها ارائه نکرده‌اند.»
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/arrest-without-cause-citizens-protesting-repressive-regime-iran-/8156114.html/?nocach=1
+</div>
+
+## Persian_Trend_Official — post 15453
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال 12 اسرائیل: ارتش اسرائیل نخست‌وزیر نتانیاهو و وزیر دفاع اسرائیل کاتز را به‌خاطر اعلام برنامه‌هایی برای حمله به بیروت پیش از انجام عملیات، مورد انتقاد قرار داد.
+
+مقامات نظامی گفتند اهدافی که در این طرح گنجانده شده بودند، پس از اعلام علنی قصد نتانیاهو و کاتز برای حمله به بیروت ناپدید شدند.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15452
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15452_1780338274.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبکه خبری I24 در خبری اعلام کرد به‌ دلیل نگرانی‌ها درمورد آسیب رساندن به تماس‌ها با ایران و مذاکرات بین اسرائیل و لبنان، واشنگتن در تلاش است تا به آتش‌بس جامع منجر شود.
+
+باراک باتش خبرنگار خارجی نوشت آمریکا عمیقا نگران پیامد حمله اسرائیل به بیروت است. واشنگتن نگران تأثیر این اقدام بر تماس‌های حساس با ایران و مذاکرات جاری بین اسرائیل و لبنان است.
+
+در نتیجه آمریکا از اسرائیل درخواست کرد که عملیات برنامه‌ریزی شده را به حالت تعلیق درآورد تا دریچه دیگری از فرصت برای تماس‌های دیپلماتیک بین کشورها فراهم شود.
+
+درخواست آمریکا پس از آن مطرح می‌شود که طی 24 ساعت گذشته پیام‌هایی از لبنان به واشنگتن رسیده است که نشان دهنده تلاش واقعی برای دستیابی به آتش‌بس جامعی است که حزب‌الله را نیز ملزم به توقف حملات خود کند.
+
+در عین حال دو مقام اسرائیلی که با رویترز صحبت کردند فاش کردند که اسرائیل منتظر تأیید نهایی رئیس جمهور آمریکا قبل از هرگونه اقدام نظامی احتمالی در حومه بیروت است که این امر بر هماهنگی نزدیک و وابستگی سیاسی اسرائیل و آمریکا تأکید دارد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15451
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15451_1780338274.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: من تماس بسیار مثبتی با نخست‌وزیر بی بی نتانیاهو، از اسرائیل، داشتم و هیچ نیرویی به بیروت اعزام نخواهد شد، و هر نیرویی که در راه بود، قبلاً بازگردانده شده است.
+
+همچنین، از طریق نمایندگان بلندپایه، تماس بسیار خوبی با حزب‌الله داشتم و آنها موافقت کردند که تمام تیراندازی‌ها متوقف شود، اسرائیل به آنها حمله نخواهد کرد و آنها نیز به اسرائیل حمله نخواهند کرد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15450
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15450_1780338275.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: مذاکرات با جمهوری اسلامی ایران با سرعت زیادی ادامه دارد. از توجه شما به این موضوع سپاسگزارم!
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## RadioFarda — post 157787
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_157787_1780338276.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸در پی انتشار خبر تماس تلفنی دونالد ترامپ با بنیامین نتانیاهو، رئیس جمهور آمریکا در شبکه اجتماعی خود نوشت که نیروهای ارتش اسرائیل به بیروت نخواهند رفت.
+
+🔸او گفت: «تماسی بسیار مفید با بی‌بی نتانیاهو، نخست وزیر اسرائیل، داشتم و دیگر نیرویی به بیروت نخواهد رفت، و هر نیرویی هم که در راه بودند بازگردانده می‌شوند.»
+
+🔸ترامپ در ادامه نوشت که «از طریق نمایندگان عالی تماسی بسیار خوب با حزب‌الله داشته» و این گروه هم موافقت کرده است که دست از شلیک بردارد.
+
+🔸صبح دوشنبه وب‌سایت آکسیوس به نقل از منابع خود گزارش داده بود که تلاش جدید آمریکا برای آتش‌بس میان اسرائیل و لبنان «شکست» خورده است.
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 21203
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21203_1780338277.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری
+توییت جدید ترامپ
+
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 282591
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻ترامپ می‌گوید اسرائیل و حزب‌الله به اوقول داده‌اند که در گیری‌ها را متوقف کنند
+
+دونالد ترامپ، رئیس جمهور آمریکا، در پستی در شبکه اجتماعی خود، سوشال تروث، نوشت: «گفت‌وگویی بسیار سازنده با نخست‌وزیر اسرائیل داشتم و هیچ نیرویی به بیروت اعزام نخواهد شد. همچنین هر نیرویی که در مسیر اعزام بود، بازگشته است.»
+
+او همچنین اضافه کرد: «از طریق نمایندگان عالی‌رتبه، گفت‌وگوی بسیار خوبی با حزب‌الله داشتم و آن‌ها موافقت کردند که تمامی تیراندازی متوقف شود؛ اسرائیل به آن‌ها حمله نخواهد کرد و آن‌ها نیز به اسرائیل حمله نخواهند کرد.»
+
+آقای ترامپ در پستی دیگری نوشت: «گفتگوها با جمهوری اسلامی ایران بسرعت در جریان است.»
+
+ساعتی پیش خبرگزاری تسنیم گفت که اطلاع یافته است «با عنایت به اینکه لبنان جزء پیش‌شرط‌های آتش‌بس بوده است و اینک این آتش‌بس در همه جبهه‌ها از جمله لبنان نقض شده است» تیم مذاکره‌کننده ایران «گفتگوها و تبادل متون از طریق میانجی را متوقف می‌کند.»
+
+https://bbc.in/4vjnvWG
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 390770
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390770_1780338278.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایست بازرسی ادمین کانال امام زمان رو گرفته، اون بدبختم سکته کرده گفته حتما کونم پاره‌اس.
+
+بعد بسیجیه فکر کرده این از خودشونه و گفته بذارین بره😂😂
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390769
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390769_1780338279.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محاله کسی این جنایت‌ها رو فراموش کنه...
+
+
+@Dirty_Kids 👻
+</div>
+
+## Hranews — post 113313
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دستکم ۲ تجمع اعتراضی برگزار شد
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– روز گذشته، شماری از اساتید اخراجی دانشگاه فرهنگیان در مقابل ساختمان‌ وزارت آموزش و پرورش در تهران و گروهی از شهروندان ساکن روستای دهنو واقع در شهرستان دورود، در اعتراض به تداوم قطع آب در این روستا، #تجمع_اعتراضی برگزار کردند.
+
+ادامه مطلب
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## alonews — post 124289
+
+<div align="center">
+  <a href="telegram/content/alonews_124289_1780338279.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈عراقچی در گفت‌وگو با وزیر خارجه پاکستان نگرانی ایران از نقض آتش‌بس توسط اسرائیل در لبنان و حمله احتمالی به بیروت را ابراز کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124288
+
+<div align="center">
+  <a href="telegram/content/alonews_124288_1780338279.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رئیس مجلس لبنان: حزب‌الله به آتش‌بس جامع پایبند خواهد بود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/11 21:44
 ---
 

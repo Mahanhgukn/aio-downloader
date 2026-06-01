@@ -7,6 +7,86 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/11 18:33
+---
+
+## VahidOOnLine — post 243241
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_243241_1780326222.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️انتشار ویدیوی جدیدی از فرو رفتن تهران در دود ناشی از حملات هوایی در جریان جنگ، توجه رسانه‌های بین‌المللی را جلب کرده است.
+در این ویدیو که توسط شهروندان در یکی از بزرگراه‌های تهران ثبت شده است، ستون عظیمی از دود از ساختمانی در حال سوختن به آسمان برخاسته است.
+پس از برقراری دوباره دسترسی به اینترنت در ایران، ایرانیان تصاویری از خسارات و لحظات پرتنش در جریان جنگ جمهوری اسلامی ایران و آمریکا و اسرائیل را در شبکه‌های اجتماعی منتشر می‌کنند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## mwarmonitor — post 9981
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_9981_1780326223.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 گزارش‌هایی از انفجار نامشخص در کشتی عظیم MSC SARISKY V در خور عبدالله پس از تکمیل تخلیه محموله در بندر ام‌القصر در جنوب عراق منتشر شده است. @mwarmonitor
+</div>
+
+## reutersworldchannel — post 151527
+
+<div align="center">
+  <img src="telegram/content/reutersworldchannel_151527_1780326224.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Iran halting indirect talks with US over Israel's Lebanon incursion, Tasnim says
+
+ran is halting indirect negotiations with the U.S. ​after Israel ordered troops to push deeper into Lebanon to battle Tehran-backed Hezbollah, the Iranian news agency Tasnim said on Monday, complicating diplomatic efforts to end three months of war.
+
+Tasnim said the Islamic Republic's ‌negotiating team was stopping exchanging messages with Washington through mediators over attacks on Lebanon, where the U.S.-Israeli war against Iran has reignited Israel's conflict with Hezbollah. read more
+</div>
+
+## FarsiVOA — post 219274
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219274_1780326226.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در میدان پرسیدیم که آیا انباشت خشم اجتماعی آسیب بیشتری به زنان می‌زند؟ نینا هوشمند، کنشگر آنلاین می‌گوید زنان کمی هستند که با وجود حجم گسترده خشونت جنسیتی همچنان به حضور در فضای عمومی ادامه دهند. سارا شادابی، روانکاو سبب خشم جامعه را انباشتِ مطالباتِ برآورده نشده می‌داند.
+</div>
+
+## BBCPersian — post 282577
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🖊بهرنگ تاج‌دین
+
+بررسی‌های بانک مرکزی ایران نشان می‌دهد که روند افزایش قیمت‌ها در کشور دارد سریع‌تر می‌شود.
+
+طبق گزارش ماهانه این نهاد، قیمت کالاها و خدمات مصرفی در مناطق شهری در اردیبهشت‌ماه ۱۴۰۵ به طور متوسط بیش از ۷۷ درصد بالاتر از اردیبهشت پارسال بوده است. به این رقم «تورم نقطه به نقطه» گفته می‌شود و در دست کم دهه‌های اخیر بی‌سابقه است.
+
+به گفته بانک مرکزی، قیمت اقلام مصرفی از فروردین تا اردیبهشت امسال به طور میانگین هشت‌ونیم درصد افزایش یافته است که این هم بالاترین رقم تورم ماهانه در آمارهای این نهاد از خرداد ۱۴۰۱ است.
+
+این گزارش نشان می‌دهد قیمت مواد غذایی ظرف ۱۲ ماه به طور متوسط ۱۱۹ درصد افزایش یافته؛ یعنی بیشتر از دو برابر شده است.
+
+به گفته بانک مرکزی، تنها ظرف دو ماه اول امسال، قیمت لوازم خانگی حدود ۳۵ درصد، هزینه‌های ارتباطات و بهداشت و درمان بیش از ۴۰ درصد، و قیمت دخانیات بیش از ۵۰ درصد بالا رفته است.
+
+📷Getty
+</div>
+
+## alonews — post 124229
+
+<div align="center">
+  <a href="telegram/content/alonews_124229_1780326227.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نفت برنت 97 دلار ، نفت آمریکا 94 دلار
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/11 18:29
 ---
 

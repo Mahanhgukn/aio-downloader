@@ -7,6 +7,176 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/11 20:04
+---
+
+## VahidOOnLine — post 243254
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_243254_1780331644.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سخنان عزت‌الله همایون‌فر، ادیب و سیاستمدار، درباره روحیه قوی ملت ایران و ریشه‌های آن در سی قرن تاریخ کشور
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13162
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل : فرمانده یه واحد تو سامانه موشکی حزب‌الله رو از بین بردیم @withyashar
+</div>
+
+## WithYashar — post 13161
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ به ان‌بی‌سی نیوز درباره مذاکرات با ایران گفت: ما بیش از حد صحبت کرده‌ایم، سکوت کردن خوب خواهد بود.
+
+اگر گزارش‌ها مبنی بر تعلیق مذاکرات ایران با آمریکا درست باشد، «اشکالی ندارد»
+
+ترامپ همچنین گفت: «این به آن معنا نیست که ما برویم و شروع به انداختن بمب کنیم. ما فقط سکوت می‌کنیم. محاصره را حفظ می‌کنیم.»
+
+تحریم‌های ما علیه ایران به محکمی فولاد است و به همین شکل باقی خواهد ماند
+@withyashar
+</div>
+
+## pm_afshaa — post 92034
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ارتش اسرائیل اعلام کرد محمد موسی متیرک یکی از فرماندهان یگان موشکی حزب‌الله را در نبطیه ترور کرده
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92033
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92033_1780331645.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴دونالد ترامپ: زیادی با ایران صحبت کردیم؛ بنظرم الان وقت سکوته و میبینیم چی میشه. ما میتونیم مدت زیادی صبر کنیم و آنها بازنده هستند. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 340079
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340079_1780331646.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روزنامه شرق از تشدید برخوردهای انضباطی با دانشجویان معترض در دانشگاه صنعتی شریف خبر داد.
+براساس این گزارش، حکم اخراج دست‌کم هفت دانشجو صادر شده است. شرق همچنین از فشار بر دانشجویان در دانشگاه‌های بهشتی، تهران و علم و صنعت خبر داده است.
+
+گفت‌وگو با لیدا ایاز، خبرنگار مستقل
+@iranintltv
+</div>
+
+## Shin_Persian — post 6366
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6366_1780331647.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Mon, 01 Jun 2026 16:32:32 UTC
+
+#USAF 🇺🇸 Tankers in the region as of 1631Z:
+
+KC-46A (AE5F9B | 18-46048)
+KC-46A (AE5F9A | 18-46047)
+KC-135R (AE0628 | 58-0122)
+KC-46A (AE5FA0 | 18-46053)
+
+فارسی
+
+#USAF (نیروی هوایی ایالات متحده) 🇺🇸 تانکرهایی در منطقه تا ساعت ۱۶۳۱Z (۲۰:۰۱ به وقت تهران):
+
+KC-46A (AE5F9B | 18-46048)
+KC-46A (AE5F9A | 18-46047)
+KC-135R (AE0628 | 58-0122)
+KC-46A (AE5FA0 | 18-46053)
+
+𝕏 · @shin_persian
+</div>
+
+## ManotoTV — post 105898
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105898_1780331648.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سخنان عزت‌الله همایون‌فر، ادیب و سیاستمدار، درباره روحیه قوی ملت ایران و ریشه‌های آن در سی قرن تاریخ کشور
+</div>
+
+## Dirty_Kids — post 390761
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آن‌ها نه نیروی دریایی دارند، نه نیروی هوایی، نه قلقلی، نه فلفلی، نه مرغ زرد کاکلی.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390760
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390760_1780331649.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حالا با عمو شوخی میکنید بکنید اما بدونید تمام جنگ‌های تاریخ اکثرا سر همین بوده
+
+
+@Dirty_Kids 👻
+</div>
+
+## manototv — post 105898
+
+<div align="center">
+  <a href="telegram/content/manototv_105898_1780331650.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سخنان عزت‌الله همایون‌فر، ادیب و سیاستمدار، درباره روحیه قوی ملت ایران و ریشه‌های آن در سی قرن تاریخ کشور
+</div>
+
+## alonews — post 124255
+
+<div align="center">
+  <a href="telegram/content/alonews_124255_1780331651.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزارت خارجه پاکستان: وزیر خارجه پاکستان در تماسی با همتای ایرانی خود، وضعیت جاری منطقه را مورد بحث و تبادل نظر قرار داد.
+
+
+🔴عراقچی نگرانی خود را درباره تحولات اخیر، نقض آتش‌بس در لبنان از سوی رژیم اسرائیل و حمله احتمالی به بیروت ابراز کرد.
+
+
+🔴وزیر امور خارجه پاکستان به عراقچی تأکید کرد که تضمین تداوم آتش‌بس برای جلوگیری از فروپاشی تفاهم‌های موجود ضروری است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124254
+
+<div align="center">
+  <a href="telegram/content/alonews_124254_1780331651.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ارتش اسرائیل : فرمانده یه واحد تو سامانه موشکی حزب‌الله رو از بین بردیم 
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/11 19:53
 ---
 

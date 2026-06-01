@@ -7,6 +7,175 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/12 00:53
+---
+
+## VahidOOnLine — post 243285
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243285_1780349012.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ به گزارش فارس، خبرگزاری وابسته به سپاه، محمدباقر قالیباف، رئیس مجلس شورای اسلامی روز دوشنبه، در تماس تلفنی با نبیه بری، رئیس مجلس لبنان با تاکید به اینکه «پیوند جمهوری اسلامی و لبنان ناگسستنی است» گفت: «جان ما و شما یکی است و چنانچه توافقی برای پایان جنگ بین ایران و آمریکا شکل بگیرد، این آتش‌بس شامل توقف حملات در همه جبهه‌ها به‌ویژه لبنان خواهد بود.» قالیباف با اشاره به اینکه در دو روز گذشته توقف حملات اسرائیل با جدیت دنبال شده است، گفت در صورت تداوم این حملات، تهران نه‌تنها روند گفتگوها را متوقف می‌کند، بلکه در برابر این اقدامات خواهد ایستاد. براساس این گزارش، در مقابل، رئیس مجلس لبنان با تقدیر از تلاش‌های جمهوری اسلامی، تاکید کرد که لبنان هرگز مواضع تهران را در این مرحله حساس فراموش نخواهد کرد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## IranIntlTV — post 340115
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340115_1780349013.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرماندهی مرکزی آمریکا اعلام کرد نیروهای این کشور دو موشک بالستیک شلیک‌شده از سوی جمهوری اسلامی به سمت پایگاه‌های آمریکا در کویت را رهگیری و منهدم کردند. سنتکام گفت هیچ نیروی آمریکایی آسیب ندید. مصر، قطر و عربستان نیز این حمله را محکوم کردند.
+@iranintltv
+</div>
+
+## IranIntlTV — post 340114
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340114_1780349015.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «بعد از ضربات شدید جنگ‌های ۱۲ روزه و ۴۰ روزه جمهوری اسلامی تقریبا تبدیل به یک حکومت زیر‌زمینی شده است. رهبر جدید هنوز پنهان است و رونمایی نشده و بسیاری از مقامات و فرماندهان ارشد هم زندگی مخفیانه دارند و اکثر اوقات در مخفیگاه‌ها هستند. نهادهای حکومتی نیز کارکرد عادی خود را از دست داه‌اند.»
+@iranintltv
+</div>
+
+## Shin_Persian — post 6382
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6382_1780349016.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔁 Quoting above tweet: Shin ✓ @hey_itsmyturn Mon, 01 Jun 2026 21:14:21 UTC Hezbollah MP Hassan Fadlallah: "We reject the American proposal, received hours ago through intermediaries, which stipulates a cessation of Hezbollah operations in exchange for Israel…
+</div>
+
+## Shin_Persian — post 6381
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔁 Quoting above tweet:
+Shin ✓ @hey_itsmyturn
+Mon, 01 Jun 2026 21:14:21 UTC
+
+Hezbollah MP Hassan Fadlallah:
+
+"We reject the American proposal, received hours ago through intermediaries, which stipulates a cessation of Hezbollah operations in exchange for Israel not bombing the southern suburbs.
+
+Our steadfast position is that any comprehensive ceasefire, as a pathway for the enemy's withdrawal from our land, must be part of the solution.
+
+A complete ceasefire, no return to the pre-March 2nd status quo, and no such thing as 'freedom of movement for Israel'. "
+
+[Source: Hezballah-affiliated Telegram channels]
+
+فارسی
+
+حسن فضل‌الله، نماینده پارلمان از فراکسیون حزب‌الله:
+
+«ما پیشنهاد آمریکا را که ساعاتی پیش از طریق میانجی‌ها دریافت شد و بر توقف عملیات حزب‌الله در ازای عدم بمباران ضاحیه جنوبی توسط اسرائیل تصریح دارد، رد می‌کنیم.
+
+موضع استوار ما این است که هرگونه آتش‌بس جامع، به عنوان مسیری برای عقب‌نشینی دشمن از خاک ما، باید بخشی از راه حل باشد.
+
+آتش‌بس کامل، عدم بازگشت به وضعیت پیش از ۲ مارس، و چیزی به نام "آزادی عمل برای اسرائیل" وجود نخواهد داشت.»
+
+[منبع: کانال‌های تلگرامی وابسته به حزب‌الله]
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6380
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6380_1780349016.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet: Open Source Intel ✓ @Osint613 Mon, 01 Jun 2026 17:32:55 UTC Trump: “I had a very productive call with Prime Minister Bibi Netanyahu, of Israel, and there will be no Troops going to Beirut, and any Troops that are on their way, have already…
+</div>
+
+## Shin_Persian — post 6379
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+Open Source Intel ✓ @Osint613
+Mon, 01 Jun 2026 17:32:55 UTC
+
+Trump: “I had a very productive call with Prime Minister Bibi Netanyahu, of Israel, and there will be no Troops going to Beirut, and any Troops that are on their way, have already been turned back. Likewise, through highly placed Representatives, I had a very good call with
+
+↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
+
+فارسی
+
+ترامپ: «من تماس بسیار سازنده‌ای با بی‌بی نتانیاهو، نخست‌وزیر اسرائیل داشتم و هیچگونه نیروی نظامی (نیروهای ارتش) به بیروت اعزام نخواهد شد، و هر نیرویی که در راه بوده، در حال حاضر بازگردانده شده است. به همین ترتیب، از طریق نمایندگان عالی‌رتبه، تماس بسیار خوبی با...»
+
+𝕏 · @shin_persian
+</div>
+
+## alonews — post 124335
+
+<div align="center">
+  <a href="telegram/content/alonews_124335_1780349017.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈توییت جدید کاخ سفید:
+
+«به ترامپ اعتماد کنید.
+فقط بنشینید و آرام باشید، در نهایت همه‌چیز خوب پیش خواهد رفت — همیشه همین‌طور بوده است!»
+— رئیس‌جمهور دونالد جی. ترامپ 🇺🇸
+﻿
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124334
+
+<div align="center">
+  <a href="telegram/content/alonews_124334_1780349017.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢تاج: ۱۰۰ هزار دلار به مالی برای بازی دوستانه پول دادیم؛ هزینه پرواز و هتل‌شان را هم پرداخت کردیم.
+
+@AloSport
+</div>
+
+## alonews — post 124333
+
+<div align="center">
+  <a href="telegram/content/alonews_124333_1780349019.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈اگه واستون سواله که موج انفجارِ نزدیک چه شکلیه؛
+
+
+🔴این ویدئو از حمله به تهران رو تا آخر ببینید
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124331
+
+<div align="center">
+  <a href="telegram/content/alonews_124331_1780349021.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💔جاوید نام سید داوود امامی 39 ساله، دارای دو فرزند، از شهر میبد.
+
+
+🔴هیچ کجا اسمی از این جوان که در 39 سالگی پیر و جاویدنام شد نیومده.
+
+
+🔴رنج زندگی رو تو چهرش میبینید؟ هم وطن ماست
+
+
+🤔عرزشی حرام زاده، این تروریست بود که با اسلحه به قتل رسوندینش؟
+
+
+✅@AloNews
+</div>
+
+---
 📅 بروزرسانی: 1405/03/12 00:43
 ---
 

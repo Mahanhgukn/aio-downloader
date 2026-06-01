@@ -7,6 +7,185 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/11 10:23
+---
+
+## VahidOOnLine — post 243168
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243168_1780296784.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسماعیل بقائی، سخنگوی وزارت خارجه جمهوری اسلامی، در پیامی در شبکه ایکس، در واکنش به بیانیه سخنگوی اتحادیه اروپا که حملات به کشورهای خلیج فارس را محکوم کرده بود، نوشت: «این بیانیه، ریاکارانه و غیرمسئولانه است.»
+
+او افزود: «دولت‌ها تعهد قانونی دارند که مانع از استفاده طرف‌های متجاوز از قلمرو و امکانات آنها برای تعرض به یک کشور دیگر شوند.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243167
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_243167_1780296785.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در پی راه‌اندازی کارزار مردمی رشت از سوی ایران‌اینترنشنال، یکی از شهروندان ویدیویی برای ما ارسال کرده که رد خون جاویدنامان ۱۸ و ۱۹ دی ۱۴۰۴ را در خیابان‌های رشت نشان می‌دهد.
+این ویدیو در مسیر بازار تا میدان صیقلان رشت ضبط شده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13126
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صدای انفجار مهمات عمل نکرده اصفهان پادگان پانزده خرداد
+@withyashat
+</div>
+
+## WithYashar — post 13125
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+البته توجه کنید که گفته بودند از قبل که خنثی سازی مهمات عمل نکرده دارن @withyashar ولی با توجه به اینکه سنتکام ساعتی پیش گفته حمله کرده و رادار زده هشیار باشید
+</div>
+
+## pm_afshaa — post 91987
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91987_1780296787.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📢 بازم می‌رسیم به حرف‌های ⁧نوید افکاری⁩؛
+‏ملت شریف ایران!
+سکوت شما یعنی حمایت از ظلم و ظالم...
+
+
+🔺 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91986
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پرتاب موشک از خوزستان به سمت کویت 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91985
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سنتکام:حملات هوایی دقیق به سایت‌های راداری و فرماندهی و کنترل پهپادی ایران طی روزهای شنبه و یکشنبه در جزیره قشم و دیگر مناطق ایران انجام شد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91984
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_91984_1780296788.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قوه قضائیه جمهوری جنایتکار اسلامی، صبح امروز و همزمان با اذان صبح، مهرداد محمدی‌نیا و اشکان مالکی را به اتهام «آتش زدن مسجد جعفری در محله گیشا تهران» و «انسداد خیابان‌ها» اعدام کرد...
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 339988
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339988_1780296789.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرماندهی مرکزی ایالات متحده، سنتکام، تاکید کرد در پاسخ به تجاوز بی‌اساس جمهوری اسلامی در طول آتش‌بس موقت جاری، به حفاظت از دارایی‌ها و منافع ایالات متحده ادامه خواهد داد.
+
+گفت‌وگو با هوشنگ حسن‌یاری، کارشناس خاورمیانه و امور نظامی
+
+@iranintltv
+</div>
+
+## IranIntlTV — post 339987
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339987_1780296791.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسماعیل بقائی، سخنگوی وزارت خارجه جمهوری اسلامی، در پیامی در شبکه ایکس، در واکنش به بیانیه سخنگوی اتحادیه اروپا که حملات به کشورهای خلیج فارس را محکوم کرده بود، نوشت: «این بیانیه، ریاکارانه و غیرمسئولانه است.»
+
+او افزود: «دولت‌ها تعهد قانونی دارند که مانع از استفاده طرف‌های متجاوز از قلمرو و امکانات آنها برای تعرض به یک کشور دیگر شوند.»
+https://iranintl.com/202606018880
+</div>
+
+## FarsiVOA — post 219232
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219232_1780296792.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرماندهی مرکزی ایالات متحده آمریکا (سنتکام) اعلام کرد که در دفاع از خود در مقابل تجاوزهای رژیم ایران، حملاتی به سایت‌های راداری و مراکز فرماندهی و کنترل پهپادهای جمهوری اسلامی در گروک و جزیره قشم در جنوب ایران انجام داد.
+
+سنتکام با انتشار بیانیه‌ای نوشت که این حملات «سنجیده و هدفمند» در طول آخر هفته (شنبه و یکشنبه) صورت گرفت و «در پاسخ به اقدامات تهاجمی ایران انجام شد که شامل سرنگونی یک پهپاد ام‌کیو-۱ آمریکا بود که در حال انجام عملیات بر فراز آب‌های بین‌المللی بود.»
+
+بر اساس گزارش ارتش آمریکا، جنگنده‌های آمریکایی به سرعت واکنش نشان دادند و سامانه‌های پدافند هوایی رژیم ایران، یک ایستگاه کنترل زمینی و دو پهپاد انتحاری یک‌طرفه را که «تهدیدی آشکار برای کشتی‌های در حال عبور از آب‌های منطقه بودند»، منهدم کردند.
+
+سنتکام افزود که هیچ‌یک از نیروهای نظامی آمریکا آسیب ندیدند. این نهاد تأکید کرد که در طول آتش‌بس جاری، در واکنش به «تجاوز بی‌دلیل ایران» به حفاظت از دارایی‌ها و منافع ایالات متحده ادامه خواهد داد.
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 15422
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15422_1780296793.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرماندهی مرکزی ایالات متحده (CENTCOM) دیشب حملات دفاع از خود را علیه سایت‌های راداری ایران و مراکز فرماندهی و کنترل پهپادها در گورکِ ایران و جزیره قشم انجام داد.
+
+این حملات سنجیده و برنامه‌ریزی‌شده در روزهای شنبه و یکشنبه، در پاسخ به اقدامات تهاجمی ایران صورت گرفت؛ اقداماتی که شامل سرنگونی یک پهپاد آمریکایی ام‌کیو-1 بود که بر فراز آب‌های بین‌المللی در حال فعالیت بود. هواپیماهای جنگنده آمریکا به سرعت واکنش نشان دادند و سامانه‌های پدافند هوایی ایران، یک ایستگاه کنترل زمینی و دو پهپاد انتحاری را که تهدیدی آشکار برای کشتی‌های عبوری در آب‌های منطقه محسوب می‌شدند، منهدم کردند.
+
+هیچ‌یک از نیروهای نظامی آمریکایی آسیب ندیدند. سنتکام اعلام کرد که در طول آتش‌بس جاری، در پاسخ به آنچه تجاوزات غیرموجه ایران خوانده است، به حفاظت از دارایی‌ها و منافع ایالات متحده ادامه خواهد داد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## alonews — post 124096
+
+<div align="center">
+  <a href="telegram/content/alonews_124096_1780296794.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈یمت نفت صعودی شد
+
+
+🔴قیمت آتی نفت خام آمریکا ۲ دلار و ۲۹ سنت معادل ۲.۶۲ درصد افزایش یافت و به ۸۹ دلار و ۶۵ سنت در هر بشکه رسید
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124095
+
+<div align="center">
+  <a href="telegram/content/alonews_124095_1780296794.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / گزارش انفجار از بندرعباس 
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/11 10:12
 ---
 

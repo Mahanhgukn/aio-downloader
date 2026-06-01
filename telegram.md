@@ -7,6 +7,21 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/11 07:52
+---
+
+## IranianMinds — post 21168
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21168_1780287756.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 صفحه یوتیوب امیر تتلو اعلام کرده تتلو بیش از 20 روزه داره تمرینای سخت و فشرده انجام تا به تیم ملی فوتبال دعوت بشه و روی عملکرد تیم ملی تاثیر مثبت داشته باشه هم چنین از مسولین خواسته تتلو رو آزاد کنن و به جام جهانی ببرنش.
+
+@IranianMinds
+</div>
+
+---
 📅 بروزرسانی: 1405/03/11 07:42
 ---
 

@@ -7,6 +7,241 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/11 17:13
+---
+
+## VahidOOnLine — post 243230
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243230_1780321434.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️خبرگزاری تسنیم، وابسته به سپاه پاسداران، روز دوشنبه ۱۱ خرداد ماه، به نقل از «منابع آگاه» گزارش داد جمهوری اسلامی ایران در اعتراض به ادامه عملیات نظامی اسرائیل در لبنان، روند «گفتگوها و تبادل متون از طریق میانجی» با آمریکا را متوقف خواهد کرد.
+بر اساس این گزارش، مقام‌های جمهوری اسلامی ایران معتقدند آتش‌بسی که پیش‌تر درباره آن توافق شده بود، از جمله در جبهه لبنان، نقض شده است. به گفته این منبع، توقف عملیات نظامی اسرائیل در غزه و لبنان و همچنین خروج کامل نیروهای اسرائیلی از مناطق اشغالی لبنان از جمله شروط مورد تاکید تهران برای آتش‌بس بوده است.
+خبرگزاری تسنیم که به عنوان منبعی برای بازتاب دیدگاه‌ هسته‌های نزدیک به قدرت در ایران شناخته می‌شود، در ادامه نوشت: تا زمانی که خواسته‌های ایران و «محور مقاومت» تامین نشود، روند گفتگوها از سر گرفته نخواهد شد.
+این خبرگزاری در ادامه به نقل از منابع خود مدعی شد ایران و گروه‌های هم‌پیمانش در حال بررسی اقداماتی از جمله «انسداد کامل تنگه هرمز» و فعال کردن سایر جبهه‌ها از جمله تنگه باب‌المندب در واکنش به اقدامات اسرائیل و حامیان آن هستند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## mwarmonitor — post 9977
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴شب گذشته ساعت ۱۱ شب به وقت شرق آمریکا (ET)، نیروهای ایالات متحده با موفقیت دو موشک بالستیک ایرانی را که نیروهای آمریکایی مستقر در کویت را هدف قرار داده بودند، رهگیری و منهدم کردند. این موشک‌ها بلافاصله خنثی شدند و هیچ‌یک از نیروهای آمریکایی آسیبی ندیدند.
+
+🔸فرماندهی مرکزی ایالات متحده همچنان در حالت آماده‌باش باقی می‌ماند و به حفاظت از نیروهای خود در برابر اقدامات تهاجمی ایران ادامه خواهد داد، در عین حال که از آتش‌بس جاری حمایت می‌کند.
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 92015
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92015_1780321434.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴قیمت دلار امروز با جهش 6 هزار تومنی به 176,000 تومن رسید.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92014
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🟠جمهوری اسلامی مذاکرات با آمریکا را متوقف کرد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 340054
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340054_1780321434.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایرانیان ساکن نروژ با برگزاری تجمعی مقابل پارلمان اسلو، حمایت خود را از انقلاب ملی و شاهزاده رضا پهلوی اعلام کردند.
+
+گزارش مهران عباسیان، خبرنگار ایران‌اینترنشنال و گفت‌وگوی او با شرکت‌کنندگان در این تجمع
+@iranintltv
+</div>
+
+## FarsiVOA — post 219265
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219265_1780321437.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در میدان پرسیدیم چرا جامعه تا این حد خشمگین است و گروه‌های مختلف خشم خود را بر سر یکدیگر خالی می‌کنند؟ حسین قاضیان، جامعه‌شناس می‌گوید خشم بازار پررونقی پیدا کرده است و جامعه به آن پاداش می‌دهد.
+</div>
+
+## FarsiVOA — post 219264
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219264_1780321439.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تصاویر انفجار و آتش‌سوزی در کارخانه تولید لوازم آتش‌بازی «لوردز» در مالت، که بامداد ۱۱ خرداد ۱۴۰۵ رخ داد در شبکه‌های اجتماعی پربازدید شده است. در این انفجار مهیب، دست‌کم سه نفر زخمی شدند، چهار گاو از بین رفتند و به ساختمان‌ها و خودروهای مجاور آسیب رسید. تا این لحظه تلفات جانی گزارش نشده و علت حادثه هنوز مشخص نیست.
+</div>
+
+## FarsiVOA — post 219263
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تیم ملی فوتبال جمهوری اسلامی ایران، در فاصله ده روز مانده به آغاز رقابت‌ها ، همچنان بلاتکلیف است. ویزای ایالات متحده برای تیم صادر نشده و قول همکاری سفارت مکزیک در آنکارا، هنوز به صدور روادید ختم نشده است.
+</div>
+
+## Persian_Trend_Official — post 15437
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15437_1780321443.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 تراست VPN دوباره قیمت سرویس‌هاش رو کاهش داده و پلن‌های جدیدش واقعاً ارزش بررسی دارن. 👌
+
+فرقی نمی‌کنه روی نت ملی باشین یا نت بین‌الملل، برای هر شرایطی سرویس مناسب دارن:
+
+✅ سرور مناسب نت ملی
+✅ سرور اقتصادی مناسب نت بین‌الملل
+
+اگر قصد خرید یا تمدید VPN دارین، پیشنهاد می‌کنم حتماً یه پیام به پشتیبانی‌شون بدین و تعرفه‌های جدید رو استعلام بگیرین.
+👇👇
+
+@trusstvpnn_admin
+@trusstvpnn_admin
+@trusstvpnn_admin
+</div>
+
+## BBCPersian — post 282572
+
+<div align="center">
+  <a href="https://t.me/bbcpersian/282572" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تازه‌ترین خبرهای جهان دوشنبه ۱۱ خرداد ۱۴۰۵ از رادیو بی‌بی‌سی
+</div>
+
+## BBCPersian — post 282571
+
+<div align="center">
+  <a href="telegram/content/BBCPersian_282571_1780321444.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ سرخط خبرهای دوشنبه ۱۱ خرداد ۱۴۰۵
+</div>
+
+## Dirty_Kids — post 390740
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390740_1780321447.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فوری: فیفا در یه حرکت خفن و پشم ریزون، توی آپدیت جدیدش تیم ملی ایران رو اضافه کرده و اسامی بازیکنان تیم ملی، جاویدنام ها هستن
+🇮🇷 نیکا شاکرمی، کیان پیرفلک، نوید افکاری و... @Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390739
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390739_1780321447.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فوری: فیفا در یه حرکت خفن و پشم ریزون، توی آپدیت جدیدش تیم ملی ایران رو اضافه کرده و اسامی بازیکنان تیم ملی، جاویدنام ها هستن
+🇮🇷
+
+نیکا شاکرمی، کیان پیرفلک، نوید افکاری و...
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 124203
+
+<div align="center">
+  <a href="telegram/content/alonews_124203_1780321449.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈شبکه ۱۵ اسرائیل : ایران موضوع غزه رو هم وارد مذاکرات و هر توافق احتمالی با آمریکا کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124202
+
+<div align="center">
+  <a href="telegram/content/alonews_124202_1780321450.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈صدا و سیما نزدیک نیم ساعته داره در مورد اینکه حملات اسرائیل به لبنان غیرقابل تحمله و باعث نقض آتش بس شده زیرنویس می‌کنه!
+
+
+🔴خبری در راهه؟
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124201
+
+<div align="center">
+  <a href="telegram/content/alonews_124201_1780321450.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈مقام ارشد ایرانی به خبرگزاری فارس : خون یه فلسطینی برای ما هم‌ارزش خون یه ایرانیه!
+
+
+🔴 همون‌طور که خون یه لبنانی هم با خون یه ایرانی فرقی نداره، ما همه جزو یه امت هستیم و تو این نبرد کنار هم ایستادیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124200
+
+<div align="center">
+  <a href="telegram/content/alonews_124200_1780321450.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈جمهوری اسلامی در واکنش به بسته بودن تنگه هرمز گفت: برای لغو انسداد تنگه هرمز لطفا عدد ۱۱ را کامنت کنید
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124199
+
+<div align="center">
+  <a href="telegram/content/alonews_124199_1780321451.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ارتش اسرائیل : داریم توانایی‌های حزب‌الله رو یکی‌یکی از بین می‌بریم و این روند ادامه داره
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124198
+
+<div align="center">
+  <a href="telegram/content/alonews_124198_1780321451.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈هم اکنون ، نفت برنت: ۹۳.۸ دلار
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/11 17:03
 ---
 

@@ -7,6 +7,150 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/11 23:54
+---
+
+## VahidOOnLine — post 243282
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243282_1780345475.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️به گزارش انتخاب، با افزایش بارندگی‌ها و بهبود چشمگیر ورودی آب، میزان پرشدن مخزن سد امیرکبیر (کرج) به حدود ۷۰ درصد ظرفیت خود رسیده است که این موضوع پس از سال‌ها خشکسالی و کاهش مداوم ذخایر، «نویدبخش بهبود وضعیت منابع آبی» برای میلیون‌ها ساکن پایتخت و استان البرز است. این سد با ظرفیت بیش از ۱۸۰ میلیون مترمکعب، از اصلی‌ترین منابع تامین آب شرب تهران و کرج به شمار می‌رود و اگرچه افت محسوس سال‌های گذشته را تا حدی جبران کرده، اما کارشناسان حوزه آب همچنان تاکید دارند که این بهبود نسبی نباید موجب غفلت از مدیریت مصرف و ضرورت صرفه‌جویی در جامعه شود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243281
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243281_1780345475.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روابط عمومی نیروی دریایی سپاه اعلام کرد که در پی حمله ارتش آمریکا به کشتی ایرانی «لیان استار» در محدوده دریای عمان، نیروی دریایی سپاه طی یک عملیات مقابله به مثل، کشتی «ام‌اس‌سی. ساریسکا» با مالکیت «دشمن آمریکایی-اسرائیلی» را با موشک کروز مورد هدف قرار داد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243280
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_243280_1780345476.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ روابط عمومی سپاه، روز دوشنبه، ۱۱ خردادماه، با انتشار تصاویری از شلیک موشک، خبر از هدف قرار دادن یک کشتی «با مالکیت آمریکا و اسرائیل» در محدوده دریای عمان داد. سپاه نوشت: در پی حمله ارتش آمریکا به کشتی ایرانی «لیان استار» در محدوده دریای عمان، نیروی دریایی سپاه طی یک عملیات مقابله به مثل، کشتی «msc. sariska» با مالکیت امریکا و اسرائیل را با موشک کروز مورد هدف قرار داد. نیروی دریایی سپاه اعلام کرد: «هر گونه حمله امریکا در این منطقه با پاسخ قاطع روبرو خواهد شد».
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13206
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+@withyashar مسیر ما
+</div>
+
+## FoxNewsTwitter — post 342485
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342485_1780345477.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+A sexually suggestive Kik profile linked to Maine Senate candidate Graham Platner is still active — despite his campaign saying he deleted the app long ago.
+
+Kik has been labeled a "predator's paradise" by the National Center on Sexual Exploitation over concerns about child exploitation and predatory behavior on the platform. It is unclear who Platner messaged on the platform, but there is no evidence he communicated with minors.
+
+The Wall Street Journal previously reported that Platner sent sexually explicit messages to multiple women while married to his wife, Amy Gertner. After the allegations surfaced, Gertner released a video defending her husband and blasting media coverage as "gossip."
+
+Through it all, Platner remains a candidate for the U.S. Senate.
+</div>
+
+## IranIntlTV — post 340112
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340112_1780345478.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روابط عمومی نیروی دریایی سپاه اعلام کرد که در پی حمله ارتش آمریکا به کشتی ایرانی «لیان استار» در محدوده دریای عمان، نیروی دریایی سپاه طی یک عملیات مقابله به مثل، کشتی «ام‌اس‌سی. ساریسکا» با مالکیت «دشمن آمریکایی-اسرائیلی» را با موشک کروز مورد هدف قرار داد.
+https://iranintl.com/202606012218
+</div>
+
+## FarsiVOA — post 219313
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺نتانیاهو پس از تماس با پرزیدنت ترامپ؛ ارتش اسرائیل «به عملیات خود در جنوب لبنان طبق برنامه ادامه می‌دهد»
+
+▪️بنیامین نتانیاهو، نخست‌وزیر اسرائیل، روز دوشنبه ۱۱ خرداد اعلام کرد در گفت‌وگو با دونالد ترامپ، رئیس جمهوری ایالات متحده، تأکید کرده در صورتی که حزب‌الله به حملات خود علیه شهرها و شهروندان اسرائیلی ادامه دهد، اسرائیل اهداف وابسته به این گروه در بیروت را هدف قرار خواهد داد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/netanyahu-says-if-hezbollah-does-not-cease-attacking-israel-will-target-strongholds-in-beirut/8156170.html
+@FarsiVOA
+</div>
+
+## IranianMinds — post 21215
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+من قدیم گفتم الانم میگم
+
+این کانال جای خرزشی و حکومتی و هرکسی که یه درصد حامی این حکومت قاتل باشه نیست
+
+هیچ آزادی بیانیم برای موجوداتی که چون عقایدمون باهاشون یکی‌ و نیست و از نظرشون حکممون مرگه نداریم
+
+پس بی زحمت سیکتونو بزنید این کانال جای شما نیست و متعلق به مردم ایرانه !
+</div>
+
+## IranianMinds — post 21214
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21214_1780345479.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نرمال ترین خرزشی :
+
+@IranianMinds
+</div>
+
+## alonews — post 124322
+
+<div align="center">
+  <a href="telegram/content/alonews_124322_1780345479.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری/رئیس کمیسیون امنیت ملی مجلس: اگر جنگ در لبنان به صورت کامل متوقف نشود، روزهای تاریکی در انتظار آمریکا و اسرائیل خواهد بود.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124320
+
+<div align="center">
+  <a href="telegram/content/alonews_124320_1780345480.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈جنگنده‌های اسرائیلی به حملات هوایی در جنوب لبنان ادامه می‌دهند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124319
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📱لطفا توییتر الونیوز رو دنبال کنین 
+🔴پست های انگلیسی در رابطه با جنایت های حکومت به انگلیسی نوشته شده و افراد مهم منشن و هشتگ های مهم قرار داده شده. 
+🔴ریپست کنین. مهمترین کمک این روزها جلوگیری از پروپاگاندا حکومت علیه این قتل عام مردم هستش. خونشون نباید پایمال…
+</div>
+
+---
 📅 بروزرسانی: 1405/03/11 23:43
 ---
 

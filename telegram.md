@@ -7,6 +7,233 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/11 20:53
+---
+
+## WithYashar — post 13177
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+العربیه به نقل از رادیو و تلویزیون اسرائیل:
+با مداخله آمریکا حمله بزرگی به ضاحیه بیروت لغو شد!
+@withyashar
+</div>
+
+## WithYashar — post 13176
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+منابع امنیتی اسرائیلی می گویند ترامپ دستور لغو حملات به بیروت را صادر کرده است
+@withyashar
+</div>
+
+## WithYashar — post 13175
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ:در تماس با نخست‌وزیر نتانیاهو فقط میخواهم شرایط را در جبهه لبنان ارزیابی کنم
+
+@withyashar
+</div>
+
+## WithYashar — post 13174
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تسنیم: اسرائیل از ترس تهدیدهای جمهوری اسلامی حمله نکرده.
+@withyashar
+</div>
+
+## WithYashar — post 13173
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبکه کان اسرائیل: حمله به حومه جنوبی (بیروت) به تعویق افتاد.
+
+تلویزیون ارتش اسرائیل: عقب‌نشینی میکنیم
+@withyashar
+</div>
+
+## WithYashar — post 13172
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال ۱۲ اسرائیل: همه منتظر نتایج گفتگوی دراماتیک بین ترامپ و نتانیاهو هستند تا بفهمند اوضاع به کدام سمت خواهد رفت
+@withyashar
+</div>
+
+## mwarmonitor — post 9990
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✈️یک تانکر سوخت‌رسان KC-46A نیروی هوایی آمریکا در حال حاضر بر فراز دریای عمان در حال عملیات است، در حالی که یک فروند دیگر نیز از تل‌آویو به سمت خلیج فارس در حال پرواز است.
+
+✈️همچنین یک تانکر KC-135R نیز از پایگاه هوایی پرینس سلطان به سمت خلیج فارس در حال حرکت است.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9989
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴هزاران نیروی نظامی آمریکا در دریا، آسمان و زمین از محاصره در حال انجام ایالات متحده علیه ایران حمایت می‌کنند. تا تاریخ ۱ ژوئن، نیروهای سنتکام ۱۲۱ کشتی تجاری را تغییر مسیر داده و ۵ کشتی را از کار انداخته‌اند تا از رعایت این اقدامات اطمینان حاصل شود.
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 92046
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92046_1780334630.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مراسم برای رئیس جدید موساد به دلیل گفت‌و‌گوی تلفنی ترامپ و نتانیاهو لغو شد. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92045
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92045_1780334631.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴شبکه کان اسرائیل: حمله به بیروت به دنبال دخالت آمریکا به تعویق افتاد. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92044
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92044_1780334631.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کانال 12 اسرائیل: همه منتظر نتایج گفتگوی دراماتیک بین ترامپ و نتانیاهو هستن تا بفهمن اوضاع به کدوم سمت خواهد رفت.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5230
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5230_1780334632.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🔸 جمهوری اسلامی بزرگترین دشمن زنان ایران
+
+*پژمان گلچین، پژوهشگر فلسفه
+
+#زنان_ایران #جمهوری_اسلامی
+@DEJradio
+</div>
+
+## DEJradio — post 5229
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5229_1780334634.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺📢 خبرگزاری تسنیم وابسته به سـ.ـپاه پاسداران در واکنش به حمله اسرائیل به مواضع حـ.زب‎الله در جنوب لبنان نوشت، با توجه به تداوم جنگ در لبنان و با عنایت به اینکه لبنان جزو پیش شرط‌های آتش‌بس بوده و هم اینک این آتش‌بس در همه جبهه‌ها از جمله لبنان نقض شده است، تیم مذاکره‌کننده ایرانی «گفتگوها و تبادل متون از طریق میانجی» را متوقف می‌کند.
+
+#حزب_الله_لبنان
+</div>
+
+## IranIntlTV — post 340090
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340090_1780334634.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جمهوری اسلامی در واکنش به تشدید عملیات اسرائیل در لبنان، تبادل پیام با آمریکا را متوقف کرد.
+همزمان، ارتش اسرائیل برای ساکنان حومه جنوبی بیروت دستور تخلیه صادر کرد.
+
+گزارش سمیرا قرایی و بابک اسحاقی، خبرنگاران ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## FarsiVOA — post 219290
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219290_1780334636.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حسین قاضیان، جامعه‌شناس در میدان با ابراز نگرانی از خشم و ترامای درمان‌نشده در جامعه می‌گوید جنگ داخلی که درباره‌اش هشدار می‌دهند از قبل شروع شده، مردم با مسلسل کلمات به هم تیراندازی می‌کنند و ممکن است به‌زودی مسلسل واقعی هم دست بگیرند
+</div>
+
+## FarsiVOA — post 219289
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219289_1780334637.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رئیس جمهوری آمریکا به شبکه خبری ان‌بی‌سی گفت که در جریان تصمیم جمهوری اسلامی برای توقف گفتگوها قرار ندارد، اما از نظر او این اقدام مشکلی ایجاد نمی‌کند.
+پرزیدنت ترامپ گفت: « «من فکر می‌کنم اگر کار آن‌ها با گفتگو تمام شده است، اشکالی ندارد. این سخن به‌جایی است، چون آن‌ها مذاکره‌کنندگان بهتری هستند تا جنگجو. اما آن‌ها این موضوع را به ما اطلاع نداده بودند.»
+رئیس‌جمهور آمریکا با تأکید بر اینکه پایان گفتگوها لزوماً به معنای آغاز فوری حمله به جمهوری اسلامی نیست، گفت که آمریکا محاصره دریایی را حفظ خواهد کرد و گفت: «اگر آن‌ها نمی‌خواهند گفتگو کنند، برای من مشکلی نیست. من فکر می‌کنم این خوب است. من هم به‌طور ویژه تمایلی به گفتگو ندارم. ما بیش از حد گفتگو می‌کنیم.»
+</div>
+
+## Dirty_Kids — post 390766
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 تسنیم:
+اسرائیل از ترس تهدیدای جمهوری اسلامی حمله نکرده.
+
++ ببین کاراتو ترامپ
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Hranews — post 113311
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جرائم مواد مخدر؛ یک زندانی در زندان قم اعدام شد
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– حکم اعدام یک زندانی که پیشتر از بابت اتهامات مرتبط با جرائم مواد مخدر به #اعدام محکوم شده بود، روز دوشنبه ۴ خردادماه، در زندان قم اجرا شد.
+
+ادامه مطلب
+
+#بهنام_حسنیانی
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## Hranews — post 113310
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نریمان فرهادی به دادسرای اهواز احضار شد
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– نریمان فرهادی، از اعضای کانون صنفی فرهنگیان خوزستان، به شعبه ۲۲ بازپرسی دادسرای اهواز احضار شد.
+
+ادامه مطلب
+
+#نریمان_فرهادی
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+---
 📅 بروزرسانی: 1405/03/11 20:43
 ---
 

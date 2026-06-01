@@ -7,6 +7,146 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/11 09:33
+---
+
+## VahidOOnLine — post 243159
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243159_1780293791.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+غلامحسین محسنی اژه‌ای، رییس قوه قضاییه، گفت که بعد از جنگ «جایگاه جمهوری اسلامی رفیع‌تر از گذشته شده است» و افزود: «سناتورها و اندیشمندان دشمن می‌گویند جمهوری اسلامی قدرت چهارم دنیا شده است.»
+
+او اضافه کرد: «دشمن با همه ساز و برگش در برابر ما زانو زد.»
+
+محسنی اژه‌ای ادامه داد: «امروز وحدت و انسجام ملی ما در دنیا زبان‌زد است.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13118
+
+
+
+
+## WithYashar — post 13117
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یعنی جنگ رو پنهان میکنن ؟؟
+</div>
+
+## WithYashar — post 13116
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اتاق جنگ با شما : صداش دقیقا مثل جنگنده آمریکایی یا اسرائیلی بود
+@withyashar
+</div>
+
+## WithYashar — post 13115
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش های زیاد از صدای جنگنده در تهران
+@withyashar
+</div>
+
+## WithYashar — post 13114
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سنتکام : ما حملات دفاعی به رادار پهپاد و سایت‌های فرماندهی و کنترل در گوروک و قشم ایران انجام دادیم. @withyashar
+</div>
+
+## IranIntlTV — post 339978
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339978_1780293792.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایرانیان مقیم کلگری کانادا در حمایت از انقلاب ملی و در اعتراض به تداوم اعدام‌ها در ایران، مقابل ساختمان شهرداری این شهر تجمع کردند.
+
+گزارش سپیدار ولیان، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 339977
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339977_1780293794.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش تازه شبکه ان‌بی‌سی نشان می‌دهد فناوری و تجهیزات نظامی چین ممکن است در حمایت از جمهوری اسلامی در جریان جنگ اخیر با آمریکا نقش داشته باشد.
+
+جزییات بیشتر با علیرضا محبی، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 339976
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339976_1780293796.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+غلامحسین محسنی اژه‌ای، رییس قوه قضاییه، گفت که بعد از جنگ «جایگاه جمهوری اسلامی رفیع‌تر از گذشته شده است» و افزود: «سناتورها و اندیشمندان دشمن می‌گویند جمهوری اسلامی قدرت چهارم دنیا شده است.»
+
+او اضافه کرد: «دشمن با همه ساز و برگش در برابر ما زانو زد.»
+
+محسنی اژه‌ای ادامه داد: «امروز وحدت و انسجام ملی ما در دنیا زبان‌زد است.»
+https://iranintl.com/202606010480
+</div>
+
+## DW_Farsi — post 125358
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125358_1780293797.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 سپاه پاسداران: یک پایگاه هوایی آمریکا هدف قرار گرفت
+ 
+سپاه پاسداران دوشنبه ۱۱ خرداد (اول ژوئن) در اطلاعیه‌ای اعلام کرد که یک "پایگاه هوایی مبدأ تجاوز" را که به گفته سپاه، آمریکا از آن در حمله به یک "دکل مخابراتی در شهرستان سیریک استان هرمزگان" استفاده کرده بود، هدف قرار داده است.
+ 
+به گزارش سپاه نیوز نیروهای هوافضای سپاه این پایگاه را "مورد هدف قرار دادند و اهداف پیش‌بینی شده منهدم گردید".
+ 
+در اطلاعیه سپاه به کشوری که این پایگاه هوایی در آن مستقر بوده، اشاره‌ای نشده است، با این حال به گزارش خبرگزاری فرانسه همزمان کویت در همین روز از حملات موشکی و پهپادی به خاک خود خبر داد.
+ 
+سپاه در بیانیه‌ خود هشدار داده است که "در صورت تکرار تجاوز، پاسخ کاملاً متفاوت خواهد بود" و مسئولیت بر عهده آمریکاست.
+ 
+همزمان فرماندهی ایالات متحده آمریکا نیز اعلام کرد که "حملات دفاعی را در روزهای شنبه و یکشنبه علیه مراکز راداری و مراکز فرماندهی و کنترل پهپادهای ایران در شهر گروک و جزیره قشم" انجام داده است. در اطلاعیه سنتکام گفته شده که این حملات در واکنش به اقدامات تهاجمی ایران در زمان آتش‌بس صورت گرفت.
+@dw_farsi
+</div>
+
+## alonews — post 124081
+
+<div align="center">
+  <a href="telegram/content/alonews_124081_1780293798.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ارتش اسرائیل: به ساکنان شهرهای ملیخ و کفرهونه در شهرستان جزین در جنوب لبنان هشدار تخلیه داده شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124080
+
+<div align="center">
+  <a href="telegram/content/alonews_124080_1780293798.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈جوزف عون: لبنان با تجاوز وحشیانه و محکوم‌شده‌ی اسرائیل مواجه است و ما با گام‌هایی سنگین به سمت بازسازی دولت پیش می‌رویم.
+
+
+🔴 ما در مسیر کار برای پایان دادن به رنج لبنانی‌ها به‌طور کلی و جنوبی‌ها به‌طور خاص، و نیز پایان دادن به عذاب‌های آن‌ها ادامه می‌دهیم.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/11 09:22
 ---
 

@@ -7,6 +7,47 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/12 02:33
+---
+
+## VahidOOnLine — post 243291
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243291_1780355015.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمدباقر قالیباف در تماس با نبیه بری، رییس مجلس لبنان، گفت که چنانچه توافقی برای پایان جنگ بین جمهوری اسلامی و آمریکا شکل بگیرد شامل توقف حملات در همه جبهه‌ها به ویژه لبنان خواهد بود. او افزود: « پیوند جمهوری اسلامی و لبنان ناگسستنی است و جان ما و شما یکی است.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342489
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342489_1780355016.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Karen Bass isn't holding back as the Los Angeles mayoral race heats up.
+
+One day before the primary election, Bass dismissed Spencer Pratt as a "reality TV star villain" with "no track record," arguing he lacks the experience needed for the job.
+
+"I know he has no idea how the city government is run," Bass said as she contrasted Pratt's candidacy with her own record in office.
+</div>
+
+## IranIntlTV — post 340122
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340122_1780355018.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمدباقر قالیباف در تماس با نبیه بری، رییس مجلس لبنان، گفت که چنانچه توافقی برای پایان جنگ بین جمهوری اسلامی و آمریکا شکل بگیرد شامل توقف حملات در همه جبهه‌ها به ویژه لبنان خواهد بود. او افزود: « پیوند جمهوری اسلامی و لبنان ناگسستنی است و جان ما و شما یکی است.»
+https://iranintl.com/202606018473
+</div>
+
+---
 📅 بروزرسانی: 1405/03/12 02:23
 ---
 

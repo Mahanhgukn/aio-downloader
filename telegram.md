@@ -7,6 +7,228 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/11 19:34
+---
+
+## VahidOOnLine — post 243249
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243249_1780329872.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️حساب منتسب به سازمان اطلاعات سپاه پاسداران در شبکه اجتماعی ایکس، روز دوشنبه ۱۱ خرداد ماه، با انتشار پیامی هشدار داد که جمهوری اسلامی ایران عبور از «خطوط قرمز» در لبنان و غزه را به منزله جنگ مستقیم علیه امنیت ملی خود و گروه‌های هم‌پیمانش تلقی می‌کند.
+
+در این پیام که روز دوشنبه منتشر شد، آمده است: «هرکه باد بکارد، طوفان درو می‌کند.»
+این حساب همچنین اعلام کرد ایران در واکنش به تحولات اخیر، «عزم خود را برای عملیات دفاعی» حفظ کرده و اقداماتی از جمله «گشودن جبهه‌های جدید» و حفظ «معادله تنگه هرمز» را در دستور کار قرار خواهد داد.
+
+در این پیام ادعا شده است که تشدید تحولات در لبنان و غزه می‌تواند به اقدامات متقابل ایران و گروه‌های موسوم به «مقاومت اسلامی» منجر شود.
+
+این اظهارات در حالی مطرح می‌شود که فرمانده قرارگاه خاتم الانبیا نیز در پیامی که در رسانه‌های دولتی ایران منتشر شد، برای ساکنان شهرک‌های شمالی اسرائیل هشدار تخلیه صادر کرده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243248
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243248_1780329873.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️علی عبداللهی، فرمانده قرارگاه مرکزی خاتم‌الانبیا سپاه پاسداران، روز دوشنبه ۱۱ خرداد ماه، به ساکنان مناطق شمالی اسرائیل و شهرک‌های نظامی این کشور هشدار داد در صورت تشدید حملات اسرائیل به بیروت، این مناطق را ترک کنند.
+رسانه‌های دولتی ایران به نقل از فرمانده قرارگاه خاتم‌الانبیا نوشتند: «با توجه به نقض مکرر آتش بس توسط رژیم، در صورت عملی شدن این تهدید به ساکنان بخش‌های شمالی و شهرک‌های نظامی در اسرائیل هشدار می‌دهیم اگر نمی‌خواهند آسیب ببینند منطقه را ترک نمایند.»
+علی عبداللهی، با یادآوری هشدار تخلیه اسرائیل به ساکنان منطقه ضاحیه بیروت، سخنان بنیامین نتانیاهو، نخست وزیر اسرائیل را «اقدامات خصمانه» اسرائیل در منطقه توصیف کرد.
+پیش از این، خبرگزاری تسنیم به نقل از «منابع آگاه» گزارش داده بود که جمهوری اسلامی ایران در اعتراض به ادامه عملیات نظامی اسرائیل در لبنان، روند «گفتگوها و تبادل متون از طریق میانجی» با آمریکا را متوقف خواهد کرد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243247
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243247_1780329873.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علی عبداللهی، فرمانده قرارگاه مرکزی خاتم‌الانبیا، در واکنش به صدور هشدار تخلیه برای شهروندان مناطقی در بیروت از سوی اسرائیل، گفت: «با توجه به نقض مکرر آتش‌بس توسط اسرائیل، در صورت عملی‌شدن این تهدید به ساکنان بخش‌های شمالی و شهرک‌های نظامی در اسرائیل هشدار می‌دهیم اگر نمی‌خواهند آسیب ببینند منطقه را ترک نمایند.»
+
+پیش‌تر ‌ارتش اسرائیل در بیانیه‌ای به ساکنان منطقه ضاحیه در جنوب بیروت هشدار داد و از آن‌ها خواست برای حفظ جان خود این منطقه را تخلیه کنند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13155
+
+
+
+
+## WithYashar — post 13154
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صدا و سیما: بسیار محتمل است که آتش‌بس بین ایران و آمریکا در صورت ادامه حملات در لبنان به پایان برسد
+@withyashar
+</div>
+
+## WithYashar — post 13153
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هشدار قرارگاه مرکزی خاتم‌الانبیا مبنی بر تخلیه شمال اسرائیل:
+
+نتانیاهو در ادامۀ شرارت‌های خود در منطقه، ضاحیه و بیروت را تهدید به بمباران نموده و برای ساکنان آن هشدار تخلیه اعلام کرده است.
+با توجه به نقض مکرر آتش‌بس ، در صورت عملی‌شدن این تهدید به ساکنان بخش های شمالی و شهرک‌های نظامی در اسرائیل هشدار می‌دهیم اگر نمی‌خواهند آسیب ببینند منطقه را ترک نمایند.
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342471
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342471_1780329874.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: Iran is halting its indirect talks with U.S. negotiators in protest against Israel's attacks on Hezbollah in Lebanon, Iranian state-linked media reported Monday.
+
+Iran's Tasnim news agency, linked to the Iranian Revolutionary Guard Corps, reported that Tehran is cutting off talks due to the "continued crimes of the Zionist regime in Lebanon."
+
+The report comes after Iranian Foreign Minister Abbas Araghchi posted to social media saying Lebanon must be included in the ongoing ceasefire between the U.S. and Iran.
+
+"The United States and Israel bear responsibility for the consequences of any breach of the truce," Araghchi wrote.
+
+@TreyYingst reports the latest.
+</div>
+
+## IranIntlTV — post 340074
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340074_1780329877.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علی عبداللهی، فرمانده قرارگاه مرکزی خاتم‌الانبیا، در واکنش به صدور هشدار تخلیه برای شهروندان مناطقی در بیروت از سوی اسرائیل، گفت: «با توجه به نقض مکرر آتش‌بس توسط اسرائیل، در صورت عملی‌شدن این تهدید به ساکنان بخش‌های شمالی و شهرک‌های نظامی در اسرائیل هشدار می‌دهیم اگر نمی‌خواهند آسیب ببینند منطقه را ترک نمایند.»
+
+پیش‌تر ‌ارتش اسرائیل در بیانیه‌ای به ساکنان منطقه ضاحیه در جنوب بیروت هشدار داد و از آن‌ها خواست برای حفظ جان خود این منطقه را تخلیه کنند.
+https://iranintl.com/202606012660
+</div>
+
+## IranIntlTV — post 340073
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340073_1780329878.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل روز یکشنبه اعلام کرد که نیروهای این کشور قلعه ۹۰۰ ساله بوفورت و یک خط‌الراس استراتژیک را در جنوب لبنان تصرف کرده‌اند که به آن‌ها اشراف کاملی بر بخش‌های زیادی از جنوب لبنان و شمال اسرائیل می‌دهد. این پیشروی، نخستین بار پس از مه سال ۲۰۰۰ است که اسرائیل این موقعیت را در اختیار می‌گیرد؛ یعنی زمانی که اسرائیل پس از ۱۸ سال حضور، نیروهای خود را از جنوب لبنان خارج کرد. در همین حال، اسرائیل کاتس، وزیر دفاع، اعلام کرد که سربازان قلعه بوفورت را به عنوان بخشی از منطقه امنیتی اسرائیل در جنوب لبنان حفظ خواهند کرد.
+@iranintltv
+</div>
+
+## FarsiVOA — post 219279
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هزینه دسترسی به اینترنت آزاد در ایران، پس از سه ماه قطع مستمر و هم‌زمان با ادامه فیلترینگ و اختلال‌های گسترده، به یکی از هزینه‌های ثابت خانوارها تبدیل شده است. گزارشی که اقتصادنیوز منتشر کرده نشان می‌دهد بازار فیلترشکن نیز مانند بسیاری از کالاها و خدمات دیگر، با جهش شدید قیمت روبه‌رو شده و هزینه «وصل‌ماندن» برای کاربران ایرانی چند برابر شده است.
+
+بر اساس این گزارش، پیش از قطعی‌های گسترده دی‌ماه ۱۴۰۴، بسته ۳۰ روزه ۳۰ گیگابایتی فیلترشکن با قیمت ۵۹ هزار و ۹۰۰ تومان فروخته می‌شد؛ یعنی هر گیگابایت حدود یک هزار و ۹۹۶ تومان. اما اکنون همین بسته به ۴۳۹ هزار تومان رسیده و قیمت هر گیگابایت آن حدود ۱۴ هزار و ۶۳۳ تومان شده است.
+
+گزارش کامل را در وب‌سایت صدای آمریکا بخوانید.
+
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 15444
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گفتگوی تلفنی عراقچی با عاصم منیر و وزیر خارجه پاکستان
+
+عراقچی در تماس‌های تلفنی جداگانه با محمد اسحق‌دار معاون نخست وزیر و وزیر امور خارجه پاکستان و فیلد مارشال عاصم منیر فرمانده ارتش پاکستان در خصوص تحولات منطقه‌ای و روندهای مرتبط با آتش‌بس گفتگو و رایزنی کرد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15443
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15443_1780329880.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سخنگوی ارتش اسرائیل: ارتش اسرائیل فرمانده یک واحد در سامانه موشکی حزب‌الله را از بین برد.
+
+نیروی هوایی، تحت فرماندهی تیپ گولانی، دیروز (یکشنبه) در منطقه نبطیه حمله کرد و محمد موسی ماترک، فرمانده یک واحد در سامانه موشکی حزب‌الله را از بین برد.
+
+در طول سال‌ها، ماترک سمت‌های مختلفی در سامانه موشکی حزب‌الله داشت. ماترک مسئول ترویج و اجرای صدها پرتاب موشک و پهپاد علیه شهروندان اسرائیلی و نیروهای ارتش اسرائیل، از جمله تیپ گولانی فعال در منطقه بوفورت بود که به نیروی هوایی دستور حذف او را داد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Dirty_Kids — post 390759
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390759_1780329880.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گفتار علی:
+
+زنان ناقص العقل هستند. (نهج البلاغه خطبه ٨٠)
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390758
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390758_1780329880.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آخرش سوپرایز شدم😂
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 124245
+
+<div align="center">
+  <a href="telegram/content/alonews_124245_1780329883.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری /صدا و سیما: بسیار محتمل است که آتش‌بس بین ایران و آمریکا در صورت ادامه حملات در لبنان به پایان برسد 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124244
+
+<div align="center">
+  <a href="telegram/content/alonews_124244_1780329883.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈اکسیوس : حزب‌الله به دولت ترامپ گفته که آماده‌ست همین الان با اسرائیل یه آتش‌بس کامل و فوری داشته باشه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124243
+
+<div align="center">
+  <a href="telegram/content/alonews_124243_1780329884.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فیلد مارشال ، محسن رضایی : تنگه هرمز تحت مدیریت ایران است. اجازه تداوم محاصره دریایی را نخواهیم داد و تشدید تنش در لبنان هم تحمل نخواهد شد. صبر نیروهای مسلح جمهوری اسلامی ایران حدی دارد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/11 19:23
 ---
 

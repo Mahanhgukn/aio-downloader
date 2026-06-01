@@ -7,6 +7,203 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/11 11:13
+---
+
+## VahidOOnLine — post 243175
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243175_1780299798.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+احمد میدری، وزیر کار و رفاه اجتماعی، گفت که «کالابرگ خرداد به روال ماه‌های قبل پرداخت می‌شود»، افزود: «بخش‌های مختلف دولت مانند سازمان برنامه به‌دنبال منابع جدید برای کالابرگ هستند، اما هنوز منابع جدیدی نداریم.»
+
+او اضافه کرد: «فعلا برنامه‌ای برای تغییر حداقل مزد کارگران نداریم.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243174
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243174_1780299799.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️بنیامین نتانیاهو، نخست وزیر اسرائیل روز دوشنبه ۱۱ خردادماه اعلام کرد دستور حمله دوباره به منطقه ضاحیه در جنوب بیروت، پایتخت لبنان را صادر کرده است.
+
+این خبر درحالی منتشر می‌شود که براساس گزارش‌ها، مذاکرات میان لبنان و اسرائیل با میانجیگری آمریکا شکست خورده است.
+
+با وجود برقراری «رسمی» آتش‌بس میان لبنان و اسرائیل و تمدید آن، درگیری‌ها میان دو طرف حتی یک روز هم متوقف نشده است. حزب‌الله مواضع ارتش اسرائیل در جنوب لبنان را روزانه و به‌ویژه با استفاده از پهپادهای هدایت شونده با فیبر نوری هدف قرار می‌دهد و اسرائیل «زیرساخت‌های حزب‌الله» در جنوب و شرق لبنان را عملا هر روز بمباران می‌کند.
+
+ارتش اسرائیل صبح دوشنبه اعلام کرد یک سرباز دیگر این کشور در جریان درگیری‌ها در جنوب لبنان کشته شده است و به این ترتیب شمار کشته‌های نظامی این کشور از اسفندماه گذشته در جنگ با حزب‌الله، به ۲۶ نفر رسید.
+وزارت بهداشت لبنان هفته گذشته اعلام کرد شمار قربانیان این کشور از اسفندماه گذشته، بیش از سه هزار نفر کشته شدند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13128
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اطلاعات تایید نشده بهم رسیده که اندیشه ترور هدفمند بوده شخص‌ مورد نظر مسئول قراردادهای بین صدا و سیما و قرارگاه خاتم‌الانبیا بود @withyashar
+</div>
+
+## pm_afshaa — post 91993
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴حملات سنگین اسراییل به جنوب لبنان
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91992
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_91992_1780299800.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پرتاب موشک از ایلام
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91991
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_91991_1780299801.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شلیک موشک از کرمانشاه
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 339996
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339996_1780299801.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+احمد میدری، وزیر کار و رفاه اجتماعی، گفت که «کالابرگ خرداد به روال ماه‌های قبل پرداخت می‌شود»، افزود: «بخش‌های مختلف دولت مانند سازمان برنامه به‌دنبال منابع جدید برای کالابرگ هستند، اما هنوز منابع جدیدی نداریم.»
+
+او اضافه کرد: «فعلا برنامه‌ای برای تغییر حداقل مزد کارگران نداریم.»
+https://iranintl.com/202606015094
+</div>
+
+## IranIntlTV — post 339995
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339995_1780299802.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بر اساس گزارش اختصاصی ایران‌اینترنشنال و به نقل از یک منبع آگاه، مسعود پزشکیان در نامه‌ای رسمی خطاب به دفتر مجتبی خامنه‌ای، درخواست کناره‌گیری فوری از سمت خود را مطرح کرده است.
+
+گفت‌وگو با مرتضی کاظمیان، عضو تحریریه ایران‌اینترنشنال
+
+@iranintltv
+</div>
+
+## IranIntlTV — post 339994
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339994_1780299805.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهوری آمریکا، در شبکه اجتماعی تروث‌سوشال نوشت: «جمهوری اسلامی واقعا می‌خواهد به یک توافق برسد و این معامله برای آمریکا و متحدانش مفید خواهد بود.»
+
+گفت‌وگو با محمد جواد اکبرین، عضو تحریریه ایران‌اینترنشنال
+
+@iranintltv
+</div>
+
+## Persian_Trend_Official — post 15426
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15426_1780299808.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیویی از تخلیه ضاحیه بیروت توسط شهروندان لبنانی
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Dirty_Kids — post 390713
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390713_1780299809.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این الان باید من و تو میبودیم:)))
+
+وسط کنسرت دیشب کانیه وست از دوست دخترش خواستگاری میکنه
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390712
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390712_1780299812.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نقش خايمالى بهتر بهت مياد شکیب جان✋🏼
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390711
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کارگردان روش نشده اسم فیلمشو بذاره جنده خانوم گذاشته بدنام.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 124106
+
+<div align="center">
+  <a href="telegram/content/alonews_124106_1780299815.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ به نیوزویک: مردم ایران از من تشکر میکنند چون بجای یکبار، دوبار رژیم رو عوض کردم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124105
+
+<div align="center">
+  <a href="telegram/content/alonews_124105_1780299815.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈بی‌سی: تصاویر ماهواره‌ای نشان می‌دهد حملات ایران از آغاز جنگ به ۲۰ سایت نظامی آمریکا آسیب زده
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/11 11:03
 ---
 

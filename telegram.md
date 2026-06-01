@@ -7,6 +7,133 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/12 00:13
+---
+
+## VahidOOnLine — post 243283
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243283_1780346608.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️خبرگزاری صداوسیما، روز دوشنبه، به نقل از روابط عمومی سپاه قم اعلام کرد که دو عضو این نهاد به نام‌های «حسین رمضانیان فردویی» و «محمد اویسی»، بر اثر «انفجار پرتابه‌های باقی‌مانده از جنگ اخیر» در جبهه‌های دفاعی این استان کشته شده‌اند. پیش از این نیز، سپاه انصارالمهدی زنجان، ۱۱ اردیبهشت خبر داد که حین «عملیات خنثی‌سازی مهمات عمل‌نکرده» جنگ چهل روزه، ۱۴ نفر از نیروهایش کشته شده‌اند. بر این اساس، تعداد تلفات سپاه در دوره آتش‌بس موقت جاری میان واشنگتن با تهران، دستکم به ۱۶ نفر افزایش یافت.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13208
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حزب‌الله پیشنهاد آتش‌بس جزئی را رد کرد
+@withyashar
+</div>
+
+## WithYashar — post 13207
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نیروی دریایی ۳پا کشتی «msc. sariska» با مالکیت  امریکایی اسرائیلی را هدف قرار داد.
+@withyashar
+</div>
+
+## Shin_Persian — post 6377
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6377_1780346608.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Mon, 01 Jun 2026 20:38:42 UTC
+
+Looks like Hezbollah heard Trump loud and clear.
+Sirens in Metula, #Israel 🇮🇱
+
+فارسی
+
+به نظر می‌رسد حزب‌الله پیام ترامپ را رسا و واضح شنیده است.
+آژیرهای خطر در متولا، #Israel 🇮🇱
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 219314
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219314_1780346609.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️بابک دربیکی در برنامه تفسیر خبر: هدف واشنگتن تغییر رفتار حکومت اسلامی است
+@FarsiVOA
+</div>
+
+## IranianMinds — post 21217
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فوری از پست جدید ترامپ: من یک تماس بسیار سازنده با نخست‌وزیر بی‌بی نتانیاهو، از اسرائیل، داشتم و هیچ نیرویی به بیروت اعزام نخواهد شد، و هر نیرویی که در راه بود، قبلاً بازگردانده شده. همچنین، از طریق نمایندگان بلندپایه، تماس بسیار خوبی با حزب‌الله داشتم…
+</div>
+
+## IranianMinds — post 21216
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21216_1780346609.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚫️ نه میبخشیم نه فراموش میکنیم
+
+صحبت های مادر جاویدنام امیرحسین احمدی شریف 🖤
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 390782
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 تسنیم:
+حزب‌الله پیشنهاد آتش‌بس جزئی آمریکا رو رد کرد.
+
++ حالا که اسرائیل داره میزنه
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390780
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 بعد از صحبت‌های موفق آمیز ترامپ و نتانیاهو راجع به آتش بس اسرائیل و لبنان؛
+
+هم‌اکنون جنگنده‌های اسرائیلی دارن به صورت هوایی جنوب لبنان رو شخم میزنن.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390779
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 امروز صبح تو دانشکده‌ دندونپزشکی قزوین، یه مرده با کلت کمری وارد دانشگاه شد و همونجا زنش رو کشت و بعدشم به خودش شلیک و خودکشی کرد.../رکنا @Dirty_Kids 👻
+</div>
+
+## alonews — post 124327
+
+<div align="center">
+  <a href="telegram/content/alonews_124327_1780346611.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حزب‌الله چندین راکت به شمال اسرائیل شلیک کرده است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/12 00:03
 ---
 

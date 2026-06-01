@@ -7,6 +7,152 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/12 01:43
+---
+
+## WithYashar — post 13222
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هگست وزیر جنگ آمریکا: آماده‌ایم به جنگ برگردیم
+@withyashar
+</div>
+
+## mwarmonitor — post 10012
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_10012_1780352013.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸تصاویر حمله به تأسیسات نفت و گاز ایران در عسلویه در جریان جنگ اخیر.
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 342487
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342487_1780352015.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+RT @WillCainShow: 🔥MULLIN: WE CAN PROTECT OUR BUILDINGS. CAN YOU PROTECT YOUR STREETS?
+
+As anti-I.C.E. protests intensified at Delaney Hall, federal officials say they asked a basic question: Can local authorities keep federal employees safe?
+
+@SecMullinDHS says when the answer appeared to be no, DHS considered reallocating CBP resources from Newark Airport. Today, he says state and local officials are cooperating—and that's why the officers remain in place.
+
+@willcain | @FoxNews
+</div>
+
+## VahidOnline — post 75863
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_75863_1780352018.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رئیس‌جمهوری آمریکا، در گفتگوی تلفنی با شبکه خبری «ای‌بی‌سی نیوز» اعلام کرد که به نظر او، توافق با تهران برای تمدید آتش‌بس و بازگشایی تنگه هرمز «طی هفته آینده» حاصل خواهد شد.
+ترامپ روز دوشنبه در گفتگو با جاناتان کارل، خبرنگار ارشد این شبکه در واشنگتن، با ابراز خوش‌بینی گفت: «اوضاع خوب به نظر می‌رسد.»
+رئیس‌جمهوری آمریکا با اشاره به تنش‌های اخیر افزود: «امروز مشکل کوچکی پیش آمد، اما همان‌طور که احتمالا پیش‌تر متوجه شدید، من خیلی سریع آن را برطرف کردم.»
+او توضیح داد که این مشکل ناشی از ناراحتی و عصبانیت مقام‌های ایران از حملات اسرائیل به لبنان بوده است؛ ترامپ در تشریح نحوه حل این بحران گفت: «من با حزب‌الله صحبت کردم و گفتم تیراندازی نکنید؛ با بنیامین نتانیاهو، نخست‌وزیر اسرائیل هم صحبت کردم و گفتم تیراندازی نکنید، و هر دو طرف شلیک به یکدیگر را متوقف کردند.»
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 340117
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/340117" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی برنامه با کامبیز حسینی | چرا سرنوشت ایران باید به لبنان گره بخورد؟
+@iranintlTV
+</div>
+
+## BBCPersian — post 282597
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_282597_1780352019.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌ ‌ ‌ ‌
+ایتامار بن گویر، وزیر امنیت ملی اسرائیل، از اعلام ترامپ مبنی بر توقف حملاتی که اسرائیل قصد داشت علیه مناطقی در حومه جنوبی بیروت انجام دهد، انتقاد کرده و گفته است: «وقت آن رسیده که به ترامپ نه بگوییم».
+
+این وزیر راست افراطی اسرائیل در برنامه‌ای در شبکه اجتماعی ایکس نوشت: «زمان آن رسیده که آنچه وظیفه می‌طلبد را انجام دهیم و آنچه لازم است حمله به حزب‌الله، آزادسازی جنگجویانمان و بازگرداندن امنیت به شمال است.»
+
+او نوشت: «آقای نخست وزیر، شما گفتید که یک نخست وزیر قوی به رئیس جمهور ایالات متحده می‌گوید، در صورت امکان «بله» و در صورت لزوم «نه». اکنون زمان آن است که به دوستمان، رئیس جمهور ترامپ بگوییم «نه».
+
+https://bbc.in/4uPbKrm
+📷 Reuters
+@BBCPersian
+</div>
+
+## alonews — post 124356
+
+<div align="center">
+  <img src="telegram/content/alonews_124356_1780352019.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔥 همراه با ساب + حجم مصرفی، فقط 8T! 🚀
+
+😍فقط گیگی 8 تومن😍
+
+✅ باخرید 90 گیگ 100 گیگ تحویل بگیرید 😍✅
+❌ فقط تا پایان امشب ❌
+
+🔥 اگه دنبال یه VPN پایدار و بدون دردسر می‌گردی، این پلن مخصوص خودته!
+
+@Netaazaadbot
+@NetAazaadBot
+
+✅ همراه با ساب + حجم مصرفی
+✅ 15 سرور اختصاصی پرسرعت
+✅ اتصال پایدار و بدون قطعی
+✅ سرعت بالا حتی در ساعات شلوغ
+
+@Netaazaadbot
+@NetAazaadBot
+
+📩 برای خرید و دریافت سرویس استارت رو بزن✅
+</div>
+
+## alonews — post 124355
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: ایرانی‌ها از حملات اسرائیل به لبنان ناراحت بودند و من سریع مشکل را حل کردم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124354
+
+<div align="center">
+  <a href="telegram/content/alonews_124354_1780352020.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈آکسیوس: ترامپ تنها به دنبال توافق است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124353
+
+<div align="center">
+  <a href="telegram/content/alonews_124353_1780352020.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کارشناس صدا و سیما: خون یک لبنانی اندازه خون یک ایرانی با ارزشه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/12 01:33
 ---
 

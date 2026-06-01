@@ -7,6 +7,217 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/11 19:44
+---
+
+## WithYashar — post 13157
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل : فرمانده یه واحد تو سامانه موشکی حزب‌الله رو از بین بردیم
+@withyashar
+</div>
+
+## WithYashar — post 13156
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قرارگاه خاتم الانبیا:
+در صورت حمله اسرائیل به بیروت،
+ایران پایان آتش‌بس را اعلام می‌کند.
+@withyashar
+</div>
+
+## DEJradio — post 5227
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5227_1780330463.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺📢 اعتراض یک راننده کامیون به مشکلات معیشتی
+
+یک راننده کامیون از تهران با انتقاد از وضعیت زندگی خودش و همکارانش می‌گوید، سعید مصطفوی رئیس صنف کامیونداران به‌جای رسیدگی به مشکلات و چالش‌های شخصی و صنفی رانندگان شدیدا مانع از کسب درآمد آنها می‌شود و مشغول چرب زبانی و چاپلوسی در مقابل سردمداران رژیم است.
+
+#کامیونداران
+@DEJradio
+</div>
+
+## IranIntlTV — post 340076
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340076_1780330466.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یونسکو در مقر خود در پاریس میزبان کنفرانسی درباره منشور کوروش و نقش این سند باستانی در شکل‌گیری مفاهیم حقوق بشر و تنوع فرهنگی است.
+
+گزارش ساجده شریفی، روزنامه‌نگار و گفت‌وگو با طهورا طباطبایی، شاعر ایرانی‌تبار
+@iranintltv
+</div>
+
+## IranIntlTV — post 340075
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340075_1780330469.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+همزمان با افزایش تنش در خلیج فارس در نتیجه شلیک‌های متقابل سپاه پاسداران و آمریکا، ترامپ و جمهوری اسلامی روایت کاملا متفاوتی از پیش‌‌نویس توافق احتمالی دارند. واقعیتی که نشان می‌دهد طرفین بر سر تنگه هرمز و برنامه هسته‌ای تهران دچار اختلاف نظر شدید هستند.
+
+گزارشی از مجتبا پورمحسن
+@iranintltv
+</div>
+
+## Shin_Persian — post 6364
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔁 Quoting above tweet:
+Shin ✓ @hey_itsmyturn
+Mon, 01 Jun 2026 16:06:57 UTC
+
+U.S. forces are enforcing a blockade against Iran. As of June 1, CENTCOM has redirected 121 commercial vessels and disabled 5 others to ensure compliance.
+
+Source: @CENTCOM
+https://x.com/CENTCOM/status/2061479583631741344
+
+فارسی
+
+نیروهای ایالات متحده در حال اجرای محاصره علیه ایران هستند. تا تاریخ ۱ ژوئن، سنتکام (فرماندهی مرکزی ایالات متحده) ۱۲۱ کشتی تجاری را تغییر مسیر داده و ۵ فروند دیگر را برای اطمینان از پایبندی، متوقف کرده است.
+
+منبع: @CENTCOM
+https://x.com/CENTCOM/status/2061479583631741344
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6363
+
+<div align="center">
+  <a href="telegram/content/Shin_Persian_6363_1780330472.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet: U.S. Central Command ✓ @CENTCOM Mon, 01 Jun 2026 16:06:47 UTC Thousands of U.S. service members at sea, in the skies, and from land are supporting the ongoing U.S. blockade against Iran. As of June 1, CENTCOM forces have redirected 121 commercial…
+</div>
+
+## Shin_Persian — post 6362
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+U.S. Central Command ✓ @CENTCOM
+Mon, 01 Jun 2026 16:06:47 UTC
+
+Thousands of U.S. service members at sea, in the skies, and from land are supporting the ongoing U.S. blockade against Iran. As of June 1, CENTCOM forces have redirected 121 commercial vessels and disabled 5 to ensure compliance.
+
+↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
+
+فارسی
+
+هزاران نفر از پرسنل نظامی ایالات متحده در دریا، آسمان و زمین از محاصره جاری ایالات متحده علیه ایران حمایت می‌کنند. تا تاریخ ۱ ژوئن، نیروهای سنتکام (CENTCOM - ستاد فرماندهی مرکزی ایالات متحده) جهت اطمینان از پایبندی، مسیر ۱۲۱ کشتی تجاری را تغییر داده و ۵ فروند را متوقف کرده‌اند.
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 219280
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کایا کالاس گفت اتحادیه اروپا در صورت شکل‌گیری توافق احتمالی میان آمریکا و حکومت ایران، می‌تواند با ابزارهای امنیت دریایی، مشوق‌های اقتصادی و ظرفیت دیپلماتیک به پایدار ماندن و اجرای آن کمک کند.
+</div>
+
+## Persian_Trend_Official — post 15446
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://youtube.com/live/bKStpJNvOXI?feature=share
+</div>
+
+## Persian_Trend_Official — post 15445
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15445_1780330475.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه نیروی هوافضا سپاه ویدیویی از لحظه سرنگونی پهپاد MQ-1 امریکایی در تاریخ بامداد 10 خرداد 1405 منتشر کرد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Hranews — post 113308
+
+<div align="center">
+  <img src="telegram/content/Hranews_113308_1780330477.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سمیرا نوروز ناصری در تهران بازداشت شد
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– امروز دوشنبه، سمیرا نوروز ناصری، فیلمساز ساکن تهران پس از تفتیش منزلش توسط نیروهای امنیتی #بازداشت و به مکانی نامعلوم منتقل شده است.
+
+به گزارش خبرگزاری هرانا، ارگان خبری مجموعه فعالان حقوق بشر در ایران، سمیرا نوروز ناصری بازداشت شد.
+
+بر اساس اطلاعات دریافتی هرانا، بازداشت خانم نوروز ناصری صبح امروز دوشنبه ۱۱ خردادماه، توسط نیروهای امنیتی بدون ارائه حکم قضایی صورت گرفته است. ماموران همچنین اقدام به تفتیش منزل این کارگردان کرده‌اند.
+
+ادامه مطلب
+
+#سمیرا_نوروز_ناصری
+
+↘️
+@hranews_bot تماس ✉️ -  @Hranews  کانال هرانا 🆑
+</div>
+
+## alonews — post 124248
+
+<div align="center">
+  <a href="telegram/content/alonews_124248_1780330478.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈مکرون: در گفتگوی دیشب خود با ترامپ درباره وضعیت خاورمیانه، از تلاشهای قاطعانه ایشان برای دستیابی سریع به توافقی بین ایالات متحده و ایران استقبال کردم؛ توافقی که فرصتی منحصربه‌فرد برای ایجاد چارچوب امنیتی جدید با مشارکت تمام بازیگران مرتبط به منظور تثبیت پایدار منطقه به شمار می‌رود.
+
+
+
+
+🔴بیان داشتم که ما آماده‌ایم کاملاً از این تلاش‌ها حمایت کرده و سهم خود را در اجرای آنها ایفا کنیم. این همان هدف مأموریت بین‌المللی است که با همکاری بریتانیا و شرکای خود ساخته‌ایم و به محض حصول توافق، برای کمک به تأمین امنیت ترافیک دریایی در تنگه هرمز قابل استقرار خواهد بود. همچنین آمادگی داریم تخصص و قابلیت‌های خود را به گفتگوهای گسترده‌تری که باید آغاز شود، به ویژه در بخش هسته‌ای یک توافق، ارائه دهیم.
+
+
+🔴در پایان، از تعهد پرزیدنت ترامپ به حاکمیت و تمامیت ارضی لبنان استقبال کرده و بر اهمیت آتش‌بس قوی و حمایت جمعی ما از مقامات لبنانی تأکید کردم.
+
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124247
+
+<div align="center">
+  <a href="telegram/content/alonews_124247_1780330479.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈عراقچی یه تماس تلفنی فوری با میانجی پاکستانی برقرار کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124246
+
+<div align="center">
+  <a href="telegram/content/alonews_124246_1780330479.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ارتش اسرائیل : فرمانده یه واحد تو سامانه موشکی حزب‌الله رو از بین بردیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/11 19:34
 ---
 

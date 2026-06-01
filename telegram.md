@@ -7,6 +7,104 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/12 00:23
+---
+
+## WithYashar — post 13212
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمد رضا شاه پهلوی چرا اونجوری شد ؟ مگه مردم چیزیشون کم بود ؟ نه ! چون بیشتر ما حسودیم چشم دیدن همو نداریم ! حالا اینو تو کل تاریخ هم بری ‌میبینی ! تو یه شهر کوچیک میبینی ! میبینی که همون دوستاتن که میفروشنت ! اگه مهارجت کرده باشی میبینی که فقط خودی بهت میزنه ! 😞و این داستان ادامه دارد…
+</div>
+
+## WithYashar — post 13211
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+داداش مثل اینکه کون خیلیارو سوزوندی دارن جر میدن خودشونو
+</div>
+
+## WithYashar — post 13210
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هم اکنون شلیک موشک از سمت حزب الله به شمال اسرائیل
+@withyashar
+</div>
+
+## WithYashar — post 13209
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نتانیاهو :موضع ما در حمله به بیروت تغییری نکرده است.
+@withyashar
+</div>
+
+## FarsiVOA — post 219315
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219315_1780347209.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️خبرگزاری‌های حکومتی در ایران شامگاه دوشنبه ۱۱ خرداد حوالی ساعت ۱۱:۳۰ شب به وقت تهران به نقل از روابط عمومی سپاه مدعی شدند که نیروی دریایی آن به یک «کشتی آمریکایی» به نام «ساریسکا» را در دریای عمان هدف قرار داده است. این در حالی است که آژانس «عملیات تجارت دریایی بریتانیا» در این روز از حمله‌ای به یک کشتی تجاری در جنوب شرقی عراق خبر داده بود. براساس ادعای مطرح شده سپاه، این حمله به تلافی حمله آمریکا به کشتی ایرانی «لیان استار»و در محدوده دریای عمان با موشک کروز صورت گرفته است. بیانیه سپاه به جزئیات و زمان این حمله ادعایی اشاره‌ای نکرده است. ایالات متحده و شمار دیگری از کشورها سپاه پاسداران را در فهرست سازمان‌های تروریستی قرار داده‌اند.
+@FarsiVOA
+</div>
+
+## RadioFarda — post 157791
+
+<div align="center">
+  <a href="https://t.me/radiofarda/157791" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📻بشنوید: سرخط خبرهای نیمه‌شب با رادیوفردا، ۱۲ خرداد ۱۴۰۵‌
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 21219
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21219_1780347209.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 حزب الله پیشنهاد آتش بس ترامپ رو رد کرد. @IranianMinds
+</div>
+
+## IranianMinds — post 21218
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21218_1780347210.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 شبکه البرز داشت مثلا اون گوشه پخش زنده حضور پرشور خرزشیارو‌ نشون میداد که یهو از دستشون در رفت تایم ویدیویی که گذاشته بودن تموم شد رفت تو‌ ویدیو پلیر 😂
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 390785
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نمیزاریم با چفیه و دستبد بیرون بری، بِچ
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390783
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 بانی بلو سوراخ اشتراکی که رکورد دار رابطه جنسی با 1000 هزار مرد تو یه روز بود
+
+اعلام کرده باردار شده و یه جشن گرفته برای اعلام پدر بچه و به 400 تا از مردایی که باهاشون بوده پیام داده شاید بابای بچه تو باشی تو جشن شرکت کن😐
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/03/12 00:13
 ---
 

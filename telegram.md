@@ -7,6 +7,327 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/12 18:54
+---
+
+## VahidOOnLine — post 243374
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243374_1780413889.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ مارکو روبیو، وزیر امور خارجه ایالات متحده، روز سه‌شنبه ۱۲ خرداد در جلسه استماع سنا تاکید کرد که شرط اول آمریکا برای مذاکره با جمهوری اسلامی، بازگشایی کامل و بدون قید و شرط تنگه هرمز است. او در ادامه تاکید کرد که منظور از بازگشایی، بازگشت شرایط به پیش از جنگ و عبور و مرور آزاد تمام کشتی‌ها از این آبراه راهبردی، بدون محدودیت و مانند سایر آبراه‌های جهان است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13272
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دایرکتاتون انقدر ماه بود که الان میرم اتاق جنگ 
+💻
+</div>
+
+## FoxNewsTwitter — post 342501
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342501_1780413889.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+“See you at SCOTUS.”
+
+Secretary Pete Hegseth cutting straight to the point after a federal appeals court ruled 2-1 against the Trump administration's ban on transgender troops serving in the military.
+
+The three-judge panel found the administration likely violated the constitutional rights of transgender servicemembers and largely upheld a lower court's decision blocking the policy.
+
+The ruling is temporarily on hold, but the legal battle now appears headed toward a potential Supreme Court showdown.
+</div>
+
+## FoxNewsTwitter — post 342500
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342500_1780413890.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+JUST IN: Secretary of State Marco Rubio delivers a blunt assessment of Iran's military power, declaring that the regime's naval forces have been entirely eliminated.
+
+Rubio mocked their remaining maritime assets and said their sunken ship are nothing more than soon-to-be underwater reefs.
+
+"Today, there is no Iranian navy. There is no such thing. There's a bunch of Boston whalers with machine guns on them.”
+
+“But there is no navy. There is no Iranian navy. It lies at the bottom of the ocean. And we'll assume, within a number of years, be prime fishing spots because they'll turn into reefs."
+</div>
+
+## pm_afshaa — post 92113
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شاهدخت نور پهلوی:ما برای تاج و تخت مبارزه نمیکنیم ما برای ازادی مردم که از آنها سلب شده است مبارزه میکنیم 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92112
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92112_1780413892.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شاهدخت نور پهلوی:ما برای تاج و تخت مبارزه نمیکنیم ما برای ازادی مردم که از آنها سلب شده است مبارزه میکنیم
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92111
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92111_1780413893.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مارکو روبیو: اگر مذاکرات به نتیجه نرسه، به وضوح همچنان مشکلی در مورد جاه‌طلبی‌های هسته‌ای آنها وجود خواهد داشت؛ اما چیزی که دیگر به عنوان سپر متعارفی برای پنهان شدن پشت آن است، ندارن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92110
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴روبیو: اگر ایران با توقف هدف قرار دادن کشتی‌ها موافقت کند، به محاصره پایان خواهیم داد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 340224
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340224_1780413894.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری کار ایران (ایلنا) در گزارشی نوشت با توجه به ثابت ماندن کرایه بار و افزایش هزینه‌ها، ادامه کار برای رانندگان کامیون صرفه اقتصادی ندارد.
+
+احمد علوی، اقتصاددان، به ایران‌اینترنشنال گفت که این مشکل ریشه در اقتصاد سیاسی حاکمیت و نحوه اختصاص منابع دارد
+@iranintltv
+</div>
+
+## Shin_Persian — post 6407
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6407_1780413896.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Tue, 02 Jun 2026 15:20:54 UTC
+
+Wing of Zion FCF flight from and to Nevatim AB
+#Israel 🇮🇱
+
+فارسی
+
+پرواز FCF (چک فنی پرواز) هواپیمای «بال صهیون» از مبدأ و به مقصد پایگاه هوایی نواتیم
+#Israel 🇮🇱
+
+𝕏 · @shin_persian
+</div>
+
+## DW_Farsi — post 125427
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 دانشجویان زیر فشارهای امنیتی؛ موج تازه اخراج و تعلیق
+
+🔻گزارشی از نیلوفر غلامی
+
+روزنامه شرق در گزارشی از افزایش فشار بر دانشجویان اندکی پس از بازگشایی دانشگاه‌ها به دنبال تعطیلی دو ماهه در نتیجه جنگ خبر داده است. بر اساس این گزارش، ده‌ها و در برخی موارد صدها دانشجو در دانشگاه‌های مختلف با روندهای انضباطی، احکام تعلیق و حتی اخراج مواجه شده‌اند.
+
+آنگونه که شرق نوشته، در دانشگاه شریف پنج تا هفت دانشجو حکم اخراج گرفته، بیش از ۲۰ دانشجو یک تا سه ترم از تحصیل تعلیق شده‌اند و سامانه‌های آموزشی ۲۰ تا ۲۵ دانشجوی دانشگاه بهشتی از دسترس‌شان خارج شده است. همچنین برای بیش از صد دانشجوی دانشگاه علم و صنعت پرونده انضباطی تشکیل شده و ۱۵۰ تا ۲۰۰ دانشجوی دانشگاه تهران در حال نوشتن دفاعیه‌های خود هستند.
+
+به گفته شورای صنفی دانشگاه صنعتی شریف، بخش قابل توجهی از پرونده‌ها به "فعالیت دانشجویان در فضای مجازی، از جمله محتوای پروفایل، پیام در گروه‌های خصوصی یا بازنشر مطالب در شبکه‌های اجتماعی" مربوط بوده است.
+
+لیلا حسین‌زاده، فعال سابق دانشجویی چپ، در گفت‌وگو با دویچه وله فارسی می‌گوید از نگاه او این موج برخوردها، در واقع "تکمیل پروسه‌ تصفیه‌ دانشگاه پس از دی‌ماه گذشته است". او می‌افزاید: «با فروکش کردن نسبی شرایط جنگی، رژیم با فراغ بال بیشتری انتقام از دانشگاه و مشخصا پاکسازی مجدد آن را پی گرفته است.»
+
+خبرنگار روزنامه شرق در گزارش مفصل خود با شماری از دانشجویان در دانشگاه‌های گوناگون تهران صحبت کرده است و به گفته آنان شرایط پیش آمده باعث شده «دانشجویان در ابتدایی‌ترین امور تحصیلی خود مثل انتخاب واحد، حذف و اضافه و حتی ثبت نمرات میان‌ترم دچار مشکل جدی شوند.»
+
+از سوی دیگر روایت‌های دانشجویان حاکی از آن است که برخوردهای صورت گرفته در دانشگاه‌ها مواد و اصول مختلفی از "شیوه‌نامه اجرایی آیین‌نامه انضباطی دانشجویان" را نقض می‌کند.
+
+لیلا حسین‌زاده معتقد است که حتی با تشدید سرکوب دانشجویان و امنیتی‌تر شدن فضای دانشگاه نیز جمهوری اسلامی قادر به پیشبرد سیاست‌های خود نخواهد بود.
+
+او می‌گوید: «رژیم طی سال‌های گذشته موفق شده بود کار متشکل در دانشگاه‌ها را تا حدود زیادی سرکوب کند؛ امروز در پی سرکوب تمام‌عیار وجه جنبشی دانشگاه‌ها هم هست، اما این ابدا به معنای خاموشی دانشگاه‌ها نیست. شاید دانشگاه در نقش پیشروانه و روشنفکرانه برای جنبش‌های مردمی، تحت سرکوب مداوم و تصفیه‌های سیستماتیک طبقاتی، جغرافیایی، جنسیتی و مستقیما سیاسی، توانش کاهش بیابد، اما دانشگاه به عنوان پایگاه و بخشی از جنبش جوانان در ایران، پیش خواهد رفت.»
+
+دانشگاه در ایران هرگز تنها یک نهاد آموزشی نبوده، بلکه در دهه‌های گذشته یکی از مهم‌ترین فضاهای تولید اندیشه، شکل‌گیری مطالبات اجتماعی و سازماندهی کنش‌های سیاسی و مدنی بوده است.
+
+از همین رو، دانشگاه همواره زیر ذره‌بین حکومت قرار داشته و جمهوری اسلامی تلاش کرده است این فضا را تحت کنترل خود نگه دارد. از "انقلاب فرهنگی" در سال‌های ابتدایی پس از انقلاب تا برخورد با تشکل‌های دانشجویی، استادان منتقد و فعالان دانشگاهی در دهه‌های بعد، دانشگاه بارها به عنوان عرصه‌ای حساس از منظر حاکمیت تعریف شده است.
+
+این حساسیت ریشه در نقش تاریخی دانشجویان در تحولات سیاسی و اجتماعی ایران دارد. دانشگاه‌ها به دلیل تمرکز جمعیت جوان، دسترسی به اطلاعات و امکان شکل‌گیری شبکه‌های اجتماعی و فکری، اغلب به محلی برای طرح نقدها و اعتراضات تبدیل شده‌اند.
+
+به همین دلیل، بسیاری از ناظران معتقدند که سیاست‌های کنترلی در دانشگاه‌ها تنها به مدیریت فضای آموزشی محدود نمی‌شود، بلکه بخشی از تلاش گسترده‌تر حکومت برای کنترل عرصه عمومی و جلوگیری از شکل‌گیری جنبش‌های اعتراضی است؛ رویکردی که در دوره‌های مختلف، با شدت و شیوه‌های متفاوت، ادامه یافته است.
+
+متن کامل گزارش را در وب سایت دویچه وله فارسی بخوانید.
+
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 15516
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مارکو روبیو، وزیر امور خارجه: در ازای بازگشایی تنگه هرمز هیچ تحریمی رفع نخواهد شد، بلکه این امتیاز فقط در ازای برنامه هسته‌ای داده می‌شود.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 21247
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21247_1780413896.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 حسینی؛ سردبیر خط انرژی:
+
+وقتی میرم صداوسیما میگن یه چیزایی رو نگو تا مردم نترسن و امیدشون رو از دست ندن ولی الان اینجا میگم.
+
+۲۵ درصد از زیرساخت انرژی کشور توی جنگ اخیر از بین رفته. منتظر تابستونی بسیار گرم و زمستونی بسیار سرد باشید.
+
+کمبود شدید بنزین داریم. توی تابستون خاموشی زیادی داریم و زمستون هم کمبود گاز شدید داریم.
+اگه الان هنوز چیزی حس نمیکنید چون فصل بهاریم.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21246
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21246_1780413897.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فقط 
+5️⃣ روز فرصت باقی مونده
+🔴
+
+🎉 500 هزارتومن بونوس رایگان فقط با ثبت نام بدون هیچگونه واریزی!
+
+
+😮 تنها سایتی که با عضویت بدون واریز 500,000 تومان شارژ بی قیدو شرط میده #وینرو هست
+💰
+
+
+7️⃣
+1️⃣ خرداد، افتتاحیه سایت با جوایز بزرگ
+🔥
+
+
+👑 #معتبرترین سایت ایرانی 
+⬇️
+
+🌐 Winro.io
+
+🌐 Winro.io
+
+📱کانال اخبار و هدایا AR12 
+🎁
+
+📱 @winro_io
+</div>
+
+## Dirty_Kids — post 390837
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جنگ Ai ادامه داره
+از کافه شروع شد دیگه به همه‌جا سرایت کرد
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 124508
+
+<div align="center">
+  <a href="telegram/content/alonews_124508_1780413898.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈روبیو: ناتو یک جلسه سرگرم‌کننده خواهد بود...
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124507
+
+<div align="center">
+  <a href="telegram/content/alonews_124507_1780413899.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈روبیو: هیچ تغییری در سیاست ایالات متحده نسبت به تایوان ایجاد نشده است.
+
+
+🔴به نظر من، به وضوح، طرف چینی دوست دارد تغییری را ببیند، اما در این زمینه هیچ تغییری ایجاد نشده است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124506
+
+<div align="center">
+  <a href="telegram/content/alonews_124506_1780413900.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 وزیر امور خارجه مارکو روبیو می‌گوید نشانه‌هایی وجود دارد که نشان می‌دهد رهبر جمهوری اسلامی ایران، مجتبی خامنه‌ای، زنده است و «در سطحی» در تصمیم‌گیری‌ها مشارکت دارد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124504
+
+<div align="center">
+  <a href="telegram/content/alonews_124504_1780413901.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈مارکو روبیو در مورد ایران: اگر مذاکرات به نتیجه نرسد، به وضوح همچنان مشکلی در مورد جاه‌طلبی‌های هسته‌ای آن‌ها وجود خواهد داشت.
+
+
+🔴اما چیزی که دیگر به عنوان سپر متعارفی برای پنهان شدن پشت آن است، ندارند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124503
+
+<div align="center">
+  <a href="telegram/content/alonews_124503_1780413902.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈روبیو، وزیر امور خارجه آمریکا در مورد ایران: اگر ایران می‌خواهد بتواند دوباره نفت خود را از طریق تنگه عبور دهد، باید تنگه‌ها را باز کند.
+
+
+🔴اگر از انجام این کار خودداری کنند، گزینه‌های دیگری نیز در اختیار ما قرار دارد، اما ترجیح می‌دهیم برای باز شدن این تنگه مذاکره کنیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/12 18:44
 ---
 

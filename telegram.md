@@ -7,6 +7,104 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/12 17:04
+---
+
+## VahidOOnLine — post 243361
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243361_1780407294.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری فارس، وابسته به سپاه پاسداران، به نقل از یک منبع آگاه نوشت که تبادل پیام بین جمهوری اسلامی و آمریکا برای آنچه دست‌یابی به یادداشت تفاهم اولیه بین تهران و واشینگتن خوانده می‌شود، دست‌کم چند روز است که متوقف شده است.
+
+فارس نوشت که درحالی‌که دیشب ترامپ مدعی شده بود که گفت‌وگوها با جمهوری اسلامی با سرعت بالایی در جریان است، آخرین پیام جمهوری اسلامی به واشینگتن، پیامی آشکار در خصوص لبنان بود که بازتاب گسترده بین‌المللی یافت.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13263
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک منبع آگاه به فارس: درحال حاضر تبادل پیامی با آمریکا انجام نمی‌شود
+
+تبادل پیام بین ایران و آمریکا برای آنچه دست‌یابی به یادداشت تفاهم اولیه بین تهران و واشنگتن خوانده می‌شود، دست‌کم چند روز است که متوقف شده. درحالی‌که دیشب ترامپ مدعی شده بود که گفت‌وگوها با ایران با سرعت بالایی در جریان است، این منبع آگاه تصریح کرد که آخرین پیام جمهوری به فارس اسلامی ایران به واشنگتن، پیامی آشکار در خصوص لبنان بود که بازتاب گستردۀ بین‌المللی یافت.
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342496
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: Trump names Federal Housing Finance Agency Director Bill Pulte acting director of national intelligence after Tulsi Gabbard's resignation
+</div>
+
+## IranIntlTV — post 340210
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340210_1780407295.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری فارس، وابسته به سپاه پاسداران، به نقل از یک منبع آگاه نوشت که تبادل پیام بین جمهوری اسلامی و آمریکا برای آنچه دست‌یابی به یادداشت تفاهم اولیه بین تهران و واشینگتن خوانده می‌شود، دست‌کم چند روز است که متوقف شده است.
+
+فارس نوشت که درحالی‌که دیشب ترامپ مدعی شده بود که گفت‌وگوها با جمهوری اسلامی با سرعت بالایی در جریان است، آخرین پیام جمهوری اسلامی به واشینگتن، پیامی آشکار در خصوص لبنان بود که بازتاب گسترده بین‌المللی یافت.
+https://iranintl.com/202606020029
+</div>
+
+## FarsiVOA — post 219371
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219371_1780407295.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تصاویری دیگر از اعتراض دانش‌آموزان به تاثیر معدل در کنکور؛
+صدها دانش‌آموز روز سه‌شنبه ۱۲ خرداد با تجمع مقابل ساختمان آموزش و پرورش و شورای عالی انقلاب فرهنگی به تغییر قوانین کنکور، افزایش تأثیر معدل و پیامدهای جنگ بر آمادگی برای آزمون سراسری اعتراض کردند.
+
+در ویدئوهای منتشرشده در شبکه‌های اجتماعی، شعارهایی از جمله «دانش‌آموز بیداره، از تبعیض بیزاره»، «دانش‌آموز می‌میرد، ذلت نمی‌پذیرد»، «وعده زیاد شنیدیم، عدالت و ندیدیم» و «فشار روانی کافیه، زندگی‌مونو پس بدین» شنیده می‌شود.
+</div>
+
+## DW_Farsi — post 125419
+
+<div align="center">
+  <a href="telegram/content/DW_Farsi_125419_1780407297.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎥 اینجا یک غار معمولی نیست؛ سفری به عصر یخبندان در آلمان
+
+در دل منطقه کوهستانی "شوابین یورا" یا "شوابین آلب" در جنوب غرب آلمان، غاری پنهان شده است که انسان‌های اولیه در آن زندگی می‌کردند، شکار می‌کردند و بیش از ۳۰ هزار سال پیش برخی از نخستین آثار هنری جهان را خلق کردند.
+
+@dw_farsi
+</div>
+
+## alonews — post 124480
+
+<div align="center">
+  <a href="telegram/content/alonews_124480_1780407298.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈شبکه اجتماعی لینکدین پس از بازگشایی تدریجی اینترنت بین‌الملل، بدون نیاز به فیلترشکن در دسترس کاربران ایرانی قرار گرفت.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124479
+
+<div align="center">
+  <a href="telegram/content/alonews_124479_1780407298.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈بانک مرکزی: سقف کارت به کارت رو از ۱۰ میلیون به ۱۵ میلیون افزایش دادیم مردم حال کنن.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/12 16:54
 ---
 

@@ -7,6 +7,140 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/12 16:44
+---
+
+## VahidOOnLine — post 243359
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243359_1780406063.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ سرلشکر رومن گوفمن روز سه‌شنبه ۱۲ خرداد طی مراسمی رسما به عنوان مدیر جدید موساد منصوب شد. گوفمن که متولد بلاروس است و در کودکی به اسرائیل مهاجرت کرده، پیش از این سوابق درخشانی در سپاه زرهی داشته و اخیرا به عنوان دبیر نظامی نخست‌وزیر خدمت کرده است. انتصاب او پس از رد شکایت‌های قانونی در دیوان عالی اسرائیل نهایی شد.
+
+دیوید بارنیا، مدیر پیشین موساد، در مراسم تودیع ضمن آرزوی موفقیت برای جانشین خود، بر تداوم تقابل با تهران تاکید کرد. بارنیا در سخنان خود اعلام کرد که تغییر واقعیت در ایران و در نهایت جایگزینی رژیم، هدفی دست‌یافتنی است که باید در صدر اولویت‌های استراتژیک اسرائیل باقی بماند. او این ماموریت را «وظیفه‌ای در قبال نسل‌های آینده» خواند.
+
+بنیامین نتانیاهو، نخست‌وزیر اسرائیل، نیز در این مراسم با اشاره به تضعیف پایه‌های جمهوری اسلامی گفت: «پایه‌های رژیم ترور ایران لرزیده است؛ این حکومت هرگز به وضعیت قبلی باز نخواهد گشت و سرنوشت آن سقوط است». گوفمن با پیشینه‌ای قدرتمند در فرماندهی تیپ‌ها و لشکر‌های زرهی، اکنون هدایت سیزدهمین دوره ریاست این سازمان اطلاعاتی را بر عهده دارد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13262
+
+<div align="center">
+  <a href="telegram/content/WithYashar_13262_1780406064.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آهنگ تابستون کوتاه ورژن عرزشی
+@withyashar
+</div>
+
+## pm_afshaa — post 92098
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92098_1780406066.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴بحرین به دلیل شرایط امنیتی، سفر شهروندان خود به عراق و ایران رو ممنوع اعلام کرد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 340205
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+«#سیاست با #مراد_ویسی»؛ شنبه تا چهارشنبه ساعت ۰۰:۳۰ تهران
+
+در اینجا به سیاست، «آنگونه که هست» و نه « آنگونه که برای ما می‌خوانند» نگاه خواهیم کرد.
+
+دسترسی به سایر قسمت‌ها در کانال یوتیوب و اپلیکیشن اینتل‌پلاس
+
+لینک یوتیوب سیاست با مراد ویسی:
+
+https://www.youtube.com/playlist?list=PLrqEUp1jEA7XbyLZn3GVY3skYdN7lMN8K
+
+@iranintltv
+</div>
+
+## FarsiVOA — post 219369
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219369_1780406067.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صدها دانش‌آموز روز سه‌شنبه ۱۲ خرداد با تجمع مقابل ساختمان آموزش و پرورش و شورای عالی انقلاب فرهنگی به تغییر قوانین کنکور، افزایش تأثیر معدل و پیامدهای جنگ بر آمادگی برای آزمون سراسری اعتراض کردند.
+
+در ویدئوهای منتشرشده در شبکه‌های اجتماعی، شعارهایی از جمله «دانش‌آموز بیداره، از تبعیض بیزاره»، «دانش‌آموز می‌میرد، ذلت نمی‌پذیرد»، «وعده زیاد شنیدیم، عدالت و ندیدیم» و «فشار روانی کافیه، زندگی‌مونو پس بدین» شنیده می‌شود.
+</div>
+
+## Dirty_Kids — post 390830
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+از محور مقاومت دیگه فقط ترامپ مونده.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390829
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏امروز دوستم میخواست از دوستپسرش تعریف کنه گفت خیلی تربیت‌پذیره=)))))
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390827
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خانوم رئیس (نه ببخشید)
+نایب‌رئیس شورای «اسلامی» شهر دزفول!ً
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390826
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390826_1780406070.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدئویی پش ریزون از لحظه حمله هوایی به یه سامانه موشکی تو جنگ ۴۰ روزه تو کرج:
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 124477
+
+<div align="center">
+  <a href="telegram/content/alonews_124477_1780406072.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خسروپناه؛ دبیرشورای عالی انقلاب فرهنگی:
+من در زمان شاه به خاطر اینکه فیلما مبتذل بودن به سینما نرفتم؛ بعد از انقلاب هم نرفتم.
+گاهی وقتا بهم میگن فلان فیلمو دیدی؟! میگم من سینما نمیرم. فیلمو بیارید اینجا ببینم. به جوونا هم توصیه میکنم سینما نرن.
+در زمان شاه هر خانوم بی حجاب و پا لختی میومد مغازه پدرم من از بالا پشت بوم با تیروکمان میزدمش. پدرم هم میگفت چون حجاب ندارن کار خوبی میکنی و شرعا ضامن هستی.
+جوون که بودم یه شب خواب حضرت علی رو دیدم که اومد گفت برو طلبه شو. منم رفتم طلبه شدم.
+خسروپناه کسیه که تاثیر معدل نهایی بر کنکور رو تصویب کرده و دانش آموزا ازش ناراحتن.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/12 16:34
 ---
 

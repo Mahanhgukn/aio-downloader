@@ -7,6 +7,89 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/12 03:35
+---
+
+## FoxNewsTwitter — post 342490
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342490_1780358700.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"These are the guys who are making sure that America stays America."
+
+Rep. Brandon Gill praised ICE and Border Patrol agents for their role in defending U.S. sovereignty and keeping communities safe.
+
+"ICE and Border Patrol are on the front lines of not only defending American sovereignty, but keeping our communities safe," Gill said.
+
+Gill's comments came during an event honoring the heroism of ICE officers during a 2025 sniper attack on a Dallas ICE facility, during which two detainees were killed.
+</div>
+
+## IranIntlTV — post 340132
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340132_1780358703.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نشست سالانه مجمع آمریکایی-یهودیان ۲۰۲۶ با حضور بیش از دو هزار فعال، دیپلمات، سیاستمدار و رهبران مدنی از کشورهای مختلف برگزار می‌شود. مسیح علینژاد، روزنامه‌نگار و فعال حقوق بشر، نیز در این نشست سخنرانی کرد.
+
+گزارش مرضیه حسینی، خبرنگار ایران‌اینترنشنال و گفت‌وگو با مسیح علینژاد
+@iranintltv
+</div>
+
+## IranIntlTV — post 340131
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340131_1780358706.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در آستانه جام جهانی ۲۰۲۶، ممنوعیت ورود پرچم شیر و خورشید به ورزشگاه‌ها، به مناقشه‌ای تازه میان شماری از ایرانیان مخالف جمهوری اسلامی و فیفا تبدیل شده است؛ مناقشه‌ای که از مرز ورزش فراتر رفته و به بحثی درباره هویت و وحدت رسیده است. نیلوفر منصوری, خبرنگار ایران اینترنشنال، در لس‌آنجلس با شماری از ایرانیان در این ارتباط گفت‌وگو کرده است. لس‌آنجلس میزبان دو بازی ایران با نیوزیلند و بلژیک در جام جهانی خواهد بود.
+@iranintltv
+</div>
+
+## Shin_Persian — post 6391
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+OSINTdefender ✓ @sentdefender
+Mon, 01 Jun 2026 23:25:45 UTC
+
+Major ballistic missile attack underway against the Ukrainian capital of Kyiv.
+
+فارسی
+
+حمله موشکی بالستیک گسترده‌ای علیه کی‌یف، پایتخت اوکراین، در جریان است.
+
+𝕏 · @shin_persian
+</div>
+
+## BBCPersian — post 282608
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_282608_1780358709.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌ ‌ ‌
+دونالد ترامپ، رئيس جمهور آمريکا، در گفت وگو با شبکه ای‌بی‌سی گفت معتقد است ظرف «هفته آينده» توافقی با ايران برای تمديد آتش‌بس و بازگشايی تنگه هرمز حاصل خواهد شد.
+
+او در گفت وگوی تلفنی با جاناتان کارل، خبرنگار ارشد ای‌بی‌سی در واشنگتن، گفت: «اوضاع خوب به نظر می‌رسد، خيلی خوب.»
+
+آقای ترامپ افزود: «امروز يک مشکل کوچک پيش آمد، اما همان طور که احتمالا متوجه شديد، خيلی سريع آن را حل کردم.»
+
+به گفته رئيس‌جمهوری آمريکا، اين مشکل از نارضايتی ايرانی‌ها نسبت به حملات اسرائيل به لبنان ناشی شده بود.
+
+رئیس‌جمهور آمریکا گفت: «با حزب‌الله صحبت کردم و گفتم شليک نکنيد. با بی‌بی [بنيامين نتانياهو، نخست وزير اسرائيل] هم صحبت کردم و گفتم شليک نکنيد. هر دو طرف هم دست از شليک به يکديگر برداشتند.»
+
+او افزود: «اين موضوع ساده‌ای نيست. شما درباره يک کشور بسيار بزرگ صحبت می‌کنيد که می‌خواهد توافقی انجام دهد. خصومت‌های بسيار عميقی وجود دارد. بنابراين اين کار برای آنها آسان نيست. از ديد ما هم آسان نيست. اما داريم به آنچه نياز داريم دست پيدا می‌کنيم.»
+
+https://bbc.in/4x28ev7
+📷Reuters
+@BBCPersian
+</div>
+
+---
 📅 بروزرسانی: 1405/03/12 03:23
 ---
 

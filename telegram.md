@@ -7,6 +7,115 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/13 00:15
+---
+
+## WithYashar — post 13293
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پست جدید از صحبت‌های بسیار زیبای شاهنشاه آریامهر
+
+ارتباط قلبی ما❤️‍🩹 فرا مرزی شده
+
+https://www.instagram.com/reel/DZGNeRLxq-Y/?igsh=MXQ1dTZmdXk2bGZpdQ==
+</div>
+
+## FarsiVOA — post 219411
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺روبیو: جمهوری اسلامی حاضر به مذاکره درباره بخش‌هایی از برنامه هسته‌ای خود شده که قبلا حاضر نبود درباره آن‌ها گفت‌وگو کند
+
+▪️مارکو روبیو، وزیر خارجه ایالات متحده، روز سه‌شنبه ۱۲ خرداد در نخستین حضور علنی خود در کنگره از زمان آغاز عملیات «خشم حماسی» علیه رژیم ایران، نسبت به ازسرگیری مذاکرات هسته‌ای با تهران ابراز خوش‌بینی کرد، هرچند تاکید کرد که هیچ تضمینی برای دستیابی به توافق نهایی وجود ندارد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/rubio-optimistic-on-eventual-iran-nuclear-talks-despite-congressional-skepticism/8156545.html
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 15536
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ وزیر خارجه آمریکا: ما به ایران (ج.ا) اجازه نخواهیم داد که هر کسی را که با سپاه پاسداران مرتبط است در هیئت اعزامی جام جهانی خود بگنجاند.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## RadioFarda — post 157832
+
+<div align="center">
+  <a href="https://t.me/radiofarda/157832" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📻بشنوید: سرخط خبرهای نیمه‌شب با رادیوفردا، ۱۳خرداد ۱۴۰۵‌
+
+@RadioFarda
+</div>
+
+## BBCPersian — post 282707
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻خانواده زوج بریتانیایی که در ایران به اتهام جاسوسی بازداشت و به ۱۰ سال زندان محکوم شده‌اند، می‌‌گویند درخواست تجدیدنظرشان رد شده است. مقام‌های قضائی یا رسانه‌های رسمی ایران هنوز این خبر را تایید نکرده‌اند. لیندزی و کریگ فورمن در سفر دور دنیا بودند که در…
+</div>
+
+## BBCPersian — post 282706
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_282706_1780433144.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻خانواده زوج بریتانیایی که در ایران به اتهام جاسوسی بازداشت و به ۱۰ سال زندان محکوم شده‌اند، می‌‌گویند درخواست تجدیدنظرشان رد شده است.
+
+مقام‌های قضائی یا رسانه‌های رسمی ایران هنوز این خبر را تایید نکرده‌اند.
+
+لیندزی و کریگ فورمن در سفر دور دنیا بودند که در دی سال ۱۴۰۳ در ایران بازداشت شدند.
+
+این زوج بریتانیایی که حکمشان اواخر بهمن صادر شد، در حال حاضر در زندان اوین در اعتصاب غذا به‌سر می‌برند.
+
+جو بنت، پسر لیندزی فورمن، گفت که «مادرم لیندزی و ناپدری‌‌ام کریگ، اجازه نیافتند در جلسه دادگاه تجدیدنظر حضور داشته باشند.»
+
+به گفته جو بنت، از این زوج خواسته‌اند که اسنادی را به زبان فارسی امضا کنند اما چون این زبان را بلد نبودند از امضا خودداری کرده‌اند.
+
+یکی از اعضای تیم حقوقی لیندزی و کریگ فورمن به بی‌بی‌سی گفت که به این زوج هیچ توضیحی در مورد دلیل رد درخواست تجدیدنظرشان داده نشده است.
+
+به گفته آقای بنت، پرونده این زوج زندانی اکنون به دیوان عالی ایران ارجاع شده است.
+
+📷 Social Media
+https://bbc.in/4ajpnXp
+@BBCPersian
+</div>
+
+## alonews — post 124606
+
+<div align="center">
+  <a href="telegram/content/alonews_124606_1780433145.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وضعیت آسمان منطقه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124605
+
+<div align="center">
+  <a href="telegram/content/alonews_124605_1780433145.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈الحدث: وزارت خزانه‌داری آمریکا اعلام کرد واشنگتن تحریم‌های جدیدی مرتبط با ایران را وضع کرده است که افراد و پلتفرم‌های تبادل ارز دیجیتال را هدف قرار می‌دهد.
+
+
+✅ @AloNews خبر
+</div>
+
+---
 📅 بروزرسانی: 1405/03/13 00:04
 ---
 

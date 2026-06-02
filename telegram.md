@@ -7,6 +7,221 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/12 23:34
+---
+
+## VahidOOnLine — post 243409
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_243409_1780430680.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوهایی که به تازگی به ایران اینترنشنال رسیده صحنه‌هایی از درگیری ماموران حکومت با مردم معترض در گوهردشت کرج در ۱۸ دی‌ماه را نشان می‌دهد. در این صحنه ماموران اقدام به تیراندازی می کنند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243408
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243408_1780430682.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به گزارش رویترز، اسکات بسنت، وزیر خزانه‌داری آمریکا، درباره تحریم‌های جدید این کشور علیه جمهوری اسلامی گفت: «در حالی که اقتصاد ایران در حال سقوط آزاد است، حکومت تصمیم گرفته فناوری دارایی‌های دیجیتال را برای دستورکار فاسد خود به کار بگیرد، از جمله برای دور زدن تحریم‌ها و انتقال ثروت از کشور.»
+
+وزارت خزانه‌داری آمریکا در بیانیه خود درباره تحریم صرافی نوبیتکس اعلام کرد که این صرافی «حمایت قابل توجهی» به جمهوری اسلامی ارائه داده و تعداد «قابل توجهی» از تراکنش‌های دیجیتال مرتبط با سپاه و بانک مرکزی ایران را تسهیل کرده است.
+
+همچنین در بیانیه وزارت خزانه‌داری آمریکا آمده است: «پس از آغاز عملیات نظامی آمریکا در ایران، نوبیتکس نقش مهمی در حفاظت و جابه‌جایی دارایی‌ها و انتقال وجوه از ایران ایفا کرد تا ثروت حکومت را حتی با وجود قطعی اینترنت محفوظ نگه دارد.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13289
+
+
+
+
+## WithYashar — post 13288
+
+
+
+
+## IranIntlTV — post 340274
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340274_1780430683.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوهای رسیده به ایران‌اینترنشنال نشان می‌دهند گروهی از ایرانیان مقیم آلمان سه‌شنبه ۱۲ خرداد در اعتراض به اعدام‌های جمهوری اسلامی و در حمایت از شاهزاده رضا پهلوی در شهر هانوفر تجمع کردند و تصاویر اعدام‌شدگان و جاویدنامان را به دست گرفتند.
+</div>
+
+## IranIntlTV — post 340273
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340273_1780430685.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوهایی که به تازگی به ایران اینترنشنال رسیده صحنه‌هایی از درگیری ماموران حکومت با مردم معترض در گوهردشت کرج در ۱۸ دی‌ماه را نشان می‌دهد. در این صحنه ماموران اقدام به تیراندازی می کنند.
+</div>
+
+## IranIntlTV — post 340272
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/340272" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی ۲۴ با فرداد فرحزاد: روایت‌های متضاد در تهران و واشینگتن درباره مذاکرات
+@iranintlTV
+</div>
+
+## IranIntlTV — post 340271
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340271_1780430687.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به گزارش رویترز، اسکات بسنت، وزیر خزانه‌داری آمریکا، درباره تحریم‌های جدید این کشور علیه جمهوری اسلامی گفت: «در حالی که اقتصاد ایران در حال سقوط آزاد است، حکومت تصمیم گرفته فناوری دارایی‌های دیجیتال را برای دستورکار فاسد خود به کار بگیرد، از جمله برای دور زدن تحریم‌ها و انتقال ثروت از کشور.»
+
+وزارت خزانه‌داری آمریکا در بیانیه خود درباره تحریم صرافی نوبیتکس اعلام کرد که این صرافی «حمایت قابل توجهی» به جمهوری اسلامی ارائه داده و تعداد «قابل توجهی» از تراکنش‌های دیجیتال مرتبط با سپاه و بانک مرکزی ایران را تسهیل کرده است.
+
+همچنین در بیانیه وزارت خزانه‌داری آمریکا آمده است: «پس از آغاز عملیات نظامی آمریکا در ایران، نوبیتکس نقش مهمی در حفاظت و جابه‌جایی دارایی‌ها و انتقال وجوه از ایران ایفا کرد تا ثروت حکومت را حتی با وجود قطعی اینترنت محفوظ نگه دارد.»
+https://iranintl.com/202606028099
+</div>
+
+## IranIntlTV — post 340270
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340270_1780430688.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پژوهشگران از نتایج امیدوارکننده یک داروی آزمایشی جدید به نام «داراکسون‌راسیب» در درمان سرطان پانکراس خبر دادند؛ دارویی که با هدف قرار دادن جهش‌های ژنی مرتبط با این بیماری، می‌تواند روند پیشرفت آن را کند و عمر بیماران را افزایش دهد.
+
+گفت‌وگو با شهرام کردستی، استاد و مدیر تحقیقات دانشکده سرطان‌شناسی و علوم دارویی کینگز کالج
+@iranintltv
+</div>
+
+## FarsiVOA — post 219409
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219409_1780430689.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ترامپ: گفت‌وگو بین ما و حکومت ایران ادامه داشته و گزارش‌های قطع مذاکرات نادرست بوده است
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219408
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺ترامپ فرمان جدید ریاست‌جمهوری «هوش مصنوعی» را امضا کرد؛ دولت می‌تواند مدل‌های پیشرفته را قبل از عرضه عمومی بررسی کند
+
+◾️دونالد ترامپ، رئیس جمهوری ایالات متحده، روز سه‌شنبه ۱۲ خرداد یک فرمان ریاست‌جمهوری مهم در حوزه هوش مصنوعی امضا کرد که بر اساس آن دولت فدرال می‌تواند پیش از آنکه شرکت‌های آمریکایی مدل‌های پیشرفته هوش مصنوعی را به شرکای مطمئن عرضه کنند، آن‌ها را از نظر مخاطرات امنیتی و سایبری ارزیابی کند.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/president-trump-signs-executive-order-for-early-access-to-powerful-ai-models-before-release/8156531.html
+@FarsiVOA
+</div>
+
+## RadioFarda — post 157831
+
+<div align="center">
+  <a href="https://t.me/radiofarda/157831" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جزئیات تایید حکم اعدام برای زهرا شهباز طبری در گفت‌وگو با فرزندش
+
+🔸بنا بر خبرها از ایران، حکم اعدام زهرا شهباز طبری، زندانی سیاسی محبوس در زندان لاکان رشت، در دادگاه تجدیدنظر تایید شده است. زهرا شهباز طبری که ۶۸ ساله است دانش‌آموختهٔ رشتهٔ انرژی‌های پایدار از سوئد است. او حدود پنج سال پیش اولین بار در پی به اشتراک گذاشتن یک پست در شبکه‌های اجتماعی بازداشت شد و بعد از سه ماه با پابند الکترونیکی آزاد شد. سپس فروردین سال ۱۴۰۴ بار دیگر در منزلش در گیلان بازداشت شد و چند ماه بعد با اتهام‌های امنیتی به اعدام محکوم شد و حالا این حکم در دادگاه تجدید نظر تایید شده است. سروش سماک فرزند خانم شهباز طبری در سوئد درباره این پرونده به رادیوفردا می‌گوید.
+
+@RadioFarda
+</div>
+
+## BBCPersian — post 282705
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻فرماندهی مرکزی آمریکا (سنتکام) با انتشار عکسی از ناو هواپیمابر آبراهام لینکلن نوشته است که این ناو در حال عبور از دریای عرب است و همچنان از عملیات محاصره دریایی آمریکا علیه ایران پشتیبانی می‌کند.
+
+سنتکام در پستی در شبکه اجتماعی ایکس نوشته است: «نیروهای آمریکایی برای اطمینان از اجرای این محاصره، ۱۲۲ کشتی تجاری را وادار به تغییر مسیر کرده‌اند.»
+
+https://bbc.in/4dN1PwA
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 390863
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390863_1780430691.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 اگه میخوای گوشت تنت بریزه، این ویدیو رو تا آخر ببین :
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390862
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390862_1780430692.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 محمود قیم، مداح: کوروش اگه سگِ آستان اهل بیت نیست،‌ پس خاک بر تمدن ایران باستان!!!!!!!!
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 124598
+
+<div align="center">
+  <a href="telegram/content/alonews_124598_1780430693.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈میدل ایست آی: مالک برجسته کشتی‌های یونانی حاضر به پرداخت عوارض عبور از تنگه هرمز به ایران است
+
+
+🔴 غول کشتیرانی یونان و مالک بیش از ۱۵۰ فروند کشتی: این عوارض می‌تواند «خسارات» وارد شده به ایران در اثر جنگ آمریکا و اسرائیل را جبران کند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124597
+
+<div align="center">
+  <a href="telegram/content/alonews_124597_1780430694.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈محمود قیم، مداح: کوروش اگه سگِ آستان اهل بیت نیست،‌ پس خاک بر تمدن ایران باستان
+‼️
+
+
+🔴پ.ن: محمود کاش اون شب بابات میرفت داروخونه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124596
+
+<div align="center">
+  <a href="telegram/content/alonews_124596_1780430695.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تسلیحات و پیمان ابراهیم؛ پیشی گرفتن فروش سلاح اسرائیل به اعراب نسبت به آمریکا
+
+
+🔴 آمارهای جدید نشان می‌دهد تحت تأثیر پیمان ابراهیم، میزان فروش تسلیحات اسرائیل به متحدان عرب خود از میزان صادرات نظامی آن به ایالات متحده فراتر رفته است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/12 23:24
 ---
 

@@ -214,7 +214,7 @@ jobs:
             for f in "$DOWNLOAD_DIR"/*; do
               [ -f "$f" ] || continue
               fname=$(basename "$f")
-              RAND5=$(tr -dc 'a-z' </dev/urandom | head -c5)
+              RAND5=$( (tr -dc 'a-z' </dev/urandom || true) | head -c5 )   # ← fixed
               ZIP_BASE="${fname}_${RAND5}"
               ZIP_NAME="${ZIP_BASE}.zip"
               echo "Zipping: $fname → $ZIP_NAME"

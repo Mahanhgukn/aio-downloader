@@ -7,6 +7,458 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/13 02:34
+---
+
+## VahidOOnLine — post 243444
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_243444_1780441442.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یکی از مخاطبان ایران‌اینترنشنال با اشاره به تغییر زمان امتحانات نهایی «به‌دلیل پیاده‌روی اربعین» گفت دانش‌آموزان به زمان‌بندی قبلی نیز معترض بودند و این تغییرات «بازی با روح و روان دانش‌آموزان است
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13325
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حمله دوباره جمهوری اسلامی به اقلیم کردستان
+@withyashar
+</div>
+
+## WithYashar — post 13324
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مهر: یک موشک به ساحل ایران برخورد کرد
+
+خبرگزاری مهر گزارش داد یک پرتابه در محدوده ساحلی بین شهر سوزا و روستای ماسان برخورد کرده است
+@withyashar
+</div>
+
+## WithYashar — post 13323
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انفجار در بحرین
+@withyashar
+</div>
+
+## WithYashar — post 13322
+
+<div align="center">
+  <img src="telegram/content/WithYashar_13322_1780441444.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رژیم جمهوری اسلامی به بحرین حمله
+کرد
+پدافند بحرین فعال شد
+@withyashar
+</div>
+
+## mwarmonitor — post 10050
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴روزنامه وال‌استریت ژورنال گزارش ما را تأیید کرده و می‌نویسد دونالد ترامپ با عصبانیت صدایش را بالا برد و به بنیامین نتانیاهو گفت که باید اطاعت کند، زیرا بدون حمایت کاخ سفید در زندان خواهد بود. باراک راوید
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 92158
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92158_1780441444.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیویی از حمله موشکی به بحرین :
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92157
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عجیبه امارات رو نزدن هنوز
+</div>
+
+## pm_afshaa — post 92156
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_92156_1780441445.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هم‌اکنون آسمان بحرین :
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92155
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92155_1780441446.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴منابع عربی: نیروی هوایی ایران دقایقی قبل با جنگنده مواضع کردها در اربیل، کردستان عراق رو بمباران کرده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92154
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_92154_1780441446.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رد موشک در بحرین
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92153
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92153_1780441447.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴تصویر رد موشک شلیک شده از شیراز
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92152
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92152_1780441447.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴شلیک چندین موشکی بالستیک از ایران به سمت پایگاه آمریکا در کویت و بحرین.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92151
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴آژیر خطر در بحرین هم فعال شد. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92150
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴آژیر خطر در بحرین هم فعال شد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## VahidOnline — post 75886
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_75886_1780441448.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیام‌های دریافتی:
+عکس بالا: بندر کنگان دو تا موشک شلیک شد سمت کشور های عربی 2.19
+
+ساعت ۲:۲۰ از جم بوشهر موشک زدن
+
+درود همین الان از جم دو عدد موشک شلیک شد به سمت خلیج فارس
+
+از جم ساعت ۲:۲۱
+دو تا موشک پرتاب شد
+
+از جم بوشهر هم دو تا زدن
+همين الان
+
+شلیک موشک از شهرک موشکی شهید چمران جم هم اکنون
+ساعت ۲:۲۳ دقیقه صبح دو موشک همزمان
+
+آپدیت: پرتاب سوم
+
+سومی هم پرتاب شد
+
+یکی دیگه هم همین الان شلیک شد
+
+۲:۲۴ از جم یکی دیگه پرتاب شد
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 340299
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340299_1780441448.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یکی از مخاطبان ایران‌اینترنشنال با اشاره به تغییر زمان امتحانات نهایی «به‌دلیل پیاده‌روی اربعین» گفت دانش‌آموزان به زمان‌بندی قبلی نیز معترض بودند و این تغییرات «بازی با روح و روان دانش‌آموزان است
+</div>
+
+## Shin_Persian — post 6433
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Tue, 02 Jun 2026 23:01:41 UTC
+
+And it was Khorramshahr 4 BM.
+
+فارسی
+
+و آن موشک بالستیک خرمشهر ۴ بود.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6432
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Tue, 02 Jun 2026 22:53:12 UTC
+
+Source on the ground tells me the previous missile was launched from Borazjan, Bushehr Province, #Iran
+
+فارسی
+
+منابع میدانی به من می‌گویند موشک قبلی از برازجان، استان بوشهر، #Iran پرتاب شده است.
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 219418
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219418_1780441449.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️کانال تلگرامی وحید‌آنلاین گزارش‌هایی از کاربران منتشر کرده است که از شنیده شدن صدای انفجار در داراب و همچنین در کویت خبر داده‌اند. جمهوری اسلامی در روزهای اخیر به کویت حمله موشکی کرده بود. ارتش کویت دقایقی قبل گفته بود با حملات هوایی متخاصم در حال مقابله است و صداهای انفجار ممکن است ناشی از رهگیری باشد.
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 15563
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15563_1780441450.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبتون بخیر 🌃
+Su-34 Fullback
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15562
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15562_1780441451.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇧🇭 بحرین هم اکنون:
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15561
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨فووری!!!!! آژیر های هشدار در بحرین نیز فعال شدند! 📝 Nick 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15560
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15560_1780441451.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تایید نشده:
+
+سیگنالی در ایران، اعدادی را به زبان انگلیسی و با صدای گوینده انسانی ارسال می‌کند که نشان می‌دهد پیام به سمت عدد "۱۷۳" است.
+
+پ.ن: روز اول جنگ هم چنین اتفاق مشابهی رخ داد و یکسری رشته اعداد به صورت رمزنگاری مخابره شده بود!
+
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Dirty_Kids — post 390876
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارشات اولیه از حمله به بحرین (هنوز تایید نمیشه)
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 124654
+
+<div align="center">
+  <a href="telegram/content/alonews_124654_1780441452.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تاکنون ۸ انفجار در بحرین گزارش شده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124653
+
+<div align="center">
+  <a href="telegram/content/alonews_124653_1780441452.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈آژیر هشدای موشکی در بحرین مجدد به صدا درآمد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124652
+
+<div align="center">
+  <a href="telegram/content/alonews_124652_1780441452.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ویدیویی از حمله به بحرین
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124651
+
+<div align="center">
+  <a href="telegram/content/alonews_124651_1780441453.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈بیانیه صادر شده از سوی فرماندهی سپاه پاسداران انقلاب اسلامی:
+
+
+🔴بسم الله الرحمن الرحیم
+﴿قَاتِلُوهُمْ يُعَذِّبْهُمُ اللَّهُ بِأَيْدِيكُمْ وَيُخْزِهِمْ وَيَنْصُرْكُمْ عَلَيْهِمْ وَيَشْفِ صُدُورَ قَوْمٍ مُؤْمِنِينَ﴾
+(خداوند بزرگ و بلندمرتبه راست گفته است)
+
+
+ای فرزندان آزاد امت اسلامی و مردم مقاوم و سربلند ایران:
+
+🔴در پاسخ به گستاخی و تجاوز آشکاری که نیروهای تروریستی آمریکایی با هدف قرار دادن حاکمیت ملی جمهوری اسلامی ایران در جزیره عزیز "قشم" مرتکب شدند، نیروی هوافضای سپاه پاسداران انقلاب اسلامی، به فضل خدا و یاری او و وفاداری به عهد خود در حفاظت از خاک وطن، با حملات دقیق و متمرکز موشکی، پایگاه‌های نظامی اشغالگران آمریکایی در کشور کویت را هدف قرار داد که منجر به نابودی موفقیت‌آمیز اهداف و شعله‌ور شدن آتش در دژهای متجاوزان شد.
+
+
+🔴سپاه پاسداران انقلاب اسلامی ضمن اعلام این پاسخ اولیه برای ضربه زدن دو برابر، هشدار شدیداللحن و قاطعانه‌ای به دولت آمریکا و رأس استکبار جهانی و هر کسی که اجازه استفاده از خاک یا آسمان خود را برای آغاز تجاوز علیه ایران می‌دهد، می‌دهد:
+
+
+🔴هر حماقت جدید، تجاوز دیگر یا حرکتی که حتی یک وجب از مرزها و حاکمیت ما را لمس کند، با پاسخی لرزه‌انگیز، خردکننده و قاطع مواجه خواهد شد که از قواعد و مرزهای معمول فراتر خواهد رفت و نیروهای شجاع ما در تبدیل تمام مقرهای متجاوزان و منافعشان در منطقه به خاکستر تردید نخواهند کرد.
+
+
+🔴زمان "بزن و فرار کن" به پایان رسیده است و نیروهای ستمگر باید عواقب وخیم نادانی و ماجراجویی‌های بی‌محاسبه خود را بپذیرند.
+
+﴿وَمَا النَّصْرُ إِلَّا مِنْ عِنْدِ اللَّهِ الْعَزِيزِ الْحَكِيمِ﴾
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124650
+
+<div align="center">
+  <a href="telegram/content/alonews_124650_1780441453.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈این نخستین تشدید تنش بزرگ از سوی ایران از زمان آتش‌بس است که به‌طور هم‌زمان سه کشور مختلف را هدف قرار داده است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124649
+
+<div align="center">
+  <a href="telegram/content/alonews_124649_1780441453.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈آسمان بحرین.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124648
+
+<div align="center">
+  <a href="telegram/content/alonews_124648_1780441454.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حمله موشکی ایران از استان بوشهر
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124647
+
+<div align="center">
+  <a href="telegram/content/alonews_124647_1780441454.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سامانه‌های پدافند هوایی در بحرین فعال شدند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124646
+
+<div align="center">
+  <a href="telegram/content/alonews_124646_1780441454.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈شلیک موشک به سمت پایگاه‌ آمریکا در بحرین
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/13 02:23
 ---
 

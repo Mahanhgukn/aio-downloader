@@ -7,6 +7,57 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/12 05:03
+---
+
+## VahidOOnLine — post 243299
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243299_1780364000.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️به گزارش رویترز به نقل از منابع آگاه، جمهوری اسلامی در حالی که با بحران فزاینده اقتصادی، کاهش ارزش پول ملی و نارضایتی گسترده اجتماعی روبه‌رو است، به‌دنبال دستیابی به یک توافق موقت و محدود با دولت دونالد ترامپ است؛ توافقی که به گفته منابع آگاه، هدف اصلی آن خرید زمان، کاهش فشارهای اقتصادی، دسترسی به منابع مالی و جلوگیری از بازگشت اعتراضات سراسری است، نه حل‌وفصل اختلافات اصلی بر سر برنامه هسته‌ای.
+به گزارش رویترز، مقام‌های جمهوری اسلامی معتقدند تزریق منابع مالی کوتاه‌مدت از طریق یک توافق موقت می‌تواند اقتصاد کشور را سرپا نگه دارد، فشارهای فوری را کاهش دهد و مانع از شکل‌گیری دوباره اعتراضات گسترده شود.
+این نگرانی در شرایطی مطرح می‌شود که سال‌ها تحریم، سوءمدیریت اقتصادی و هزینه‌های ناشی از درگیری‌های منطقه‌ای باعث افزایش تورم، سقوط ارزش ریال و کاهش شدید سطح زندگی مردم شده است. منابع نزدیک به تصمیم‌گیران جمهوری اسلامی می‌گویند رهبران حکومت بیش از هر چیز نگران پیامدهای داخلی بحران اقتصادی و تاثیر آن بر ثبات سیاسی هستند.
+بر اساس این گزارش، تهران خواهان یک توافق موقت است که بدون دادن امتیازهای اساسی در برنامه هسته‌ای، بخشی از فشارهای اقتصادی را کاهش دهد. جمهوری اسلامی امیدوار است از طریق چنین توافقی به میلیاردها دلار درآمد نفتی دسترسی پیدا کند، محدودیت‌های صادرات نفت کاهش یابد و بخشی از محاصره بنادر ایران از سوی آمریکا برطرف شود.
+منابع رویترز می‌گویند این توافق احتمالی، مسائل اصلی از جمله ظرفیت غنی‌سازی اورانیوم و ذخایر اورانیوم با غنای بالا را به آینده موکول خواهد کرد.
+رویترز می‌نویسد حکومت ایران همچنان کنترل و نفوذ خود بر تنگه هرمز را مهم‌ترین اهرم فشار راهبردی خود می‌داند و مایل است هرگونه توافق، این ابزار را برای تهران حفظ کند.
+به گفته یکی از منابع، مقام‌های جمهوری اسلامی معتقدند توافق محدود می‌تواند شرایط پیش از جنگ را بازگرداند، بدون آنکه تهران ناچار به پذیرش خواسته‌های اصلی واشینگتن شود. این منبع مدعی شده است که آغاز درگیری‌ها عملا موقعیت جمهوری اسلامی را در تنگه هرمز تقویت کرده است.
+کارشناسان به رویترز گفته‌اند که تمایل تهران به مذاکره بیش از آنکه ناشی از نگرانی‌های نظامی باشد، نتیجه فشارهای اقتصادی و نگرانی از فرسایش توان حکومت برای اداره کشور و مهار نارضایتی‌های داخلی است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## Shin_Persian — post 6398
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6398_1780364001.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn Tue, 02 Jun 2026 01:30:28 UTC President Trump @POTUS: "If Iran surrenders, admits their Navy is gone and resting at the bottom of the sea, and their Air Force is no longer with us, and if their entire Military walks out of Tehran, weapons…
+</div>
+
+## Shin_Persian — post 6397
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Tue, 02 Jun 2026 01:30:28 UTC
+
+President Trump @POTUS:
+"If Iran surrenders, admits their Navy is gone and resting at the bottom of the sea, and their Air Force is no longer with us, and if their entire Military walks out of Tehran, weapons dropped and hands held high, each shouting “I surrender, I surrender” while wildly waving the representative White Flag, and if their entire remaining Leadership signs all necessary “Documents of Surrender,” and admit their defeat to the great power and force of the magnificent U.S.A., The Failing New York Times, The China Street Journal (WSJ!), Corrupt and now Irrelevant CNN, and all other members of the Fake News Media, will headline that Iran had a Masterful and Brilliant Victory over The United States of America, it wasn’t even close. The Dumacrats and Media have totally lost their way. They have gone absolutely CRAZY!!! President DJT"
+
+فارسی
+
+رئیس‌جمهور ترامپ @POTUS:
+
+«اگر ایران تسلیم شود، اعتراف کند که نیروی دریایی‌شان نابود شده و در کف دریا آرمیده است، و نیروی هوایی‌شان دیگر در میان ما نیست، و اگر تمام نظامیانشان از تهران بیرون بیایند، در حالی که سلاح‌ها را زمین گذاشته و دست‌ها را بالا برده‌اند و هر یک فریاد می‌زنند "من تسلیم هستم، من تسلیم هستم" و همزمان پرچم سفیدِ نشان‌دهنده تسلیم را دیوانه‌وار تکان می‌دهند، و اگر تمام رهبری باقی‌مانده‌شان تمام "اسناد تسلیم" لازم را امضا کنند و به شکست خود در برابر قدرت و نیروی عظیم ایالات متحده (U.S.A.) با شکوه اعتراف کنند، روزنامه رو به زوال نیویورک تایمز، چاینا استریت ژورنال (وال استریت ژورنال/WSJ!)، سی‌ان‌انِ (CNN) فاسد و اکنون بی‌اهمیت، و تمام دیگر اعضای رسانه‌های اخبار جعلی، تیتر خواهند زد که ایران پیروزی استادانه و درخشانی بر ایالات متحده آمریکا داشته است و حتی رقابت نزدیکی هم نبود. دموکرات‌های احمق و رسانه‌ها کاملاً راه خود را گم کرده‌اند. آن‌ها مطلقاً دیوانه شده‌اند!!! رئیس‌جمهور دی.جی.تی (DJT)»
+
+𝕏 · @shin_persian
+</div>
+
+---
 📅 بروزرسانی: 1405/03/12 04:53
 ---
 

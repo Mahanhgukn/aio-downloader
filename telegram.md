@@ -7,6 +7,142 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/12 11:13
+---
+
+## VahidOOnLine — post 243326
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_243326_1780386200.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوهای رسیده به ایران‌اینترنشنال نشان می‌دهند گروهی از دانش‌آموزان کنکوری و یازدهمی در تهران، سه‌شنبه ۱۲ خرداد در اعتراض به تاثیر معدل نهایی بر کنکور مقابل ساختمان آموزش و پرورش و شورای عالی انقلاب فرهنگی تجمع کردند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## IranIntlTV — post 340157
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340157_1780386202.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوهای رسیده به ایران‌اینترنشنال نشان می‌دهند گروهی از دانش‌آموزان کنکوری و یازدهمی در تهران، سه‌شنبه ۱۲ خرداد در اعتراض به تاثیر معدل نهایی بر کنکور مقابل ساختمان آموزش و پرورش و شورای عالی انقلاب فرهنگی تجمع کردند و فریاد زدند: «محصل داد بزن، حقتو فریاد بزن»
+</div>
+
+## IranIntlTV — post 340156
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340156_1780386204.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻به گزارش فاکس‌نیوز، مقامات مکزیک یک تونل زیرزمینی پیشرفته و مجهز را کشف کردند. این تونل مخفی کارتل‌های مواد مخدر که دارای سیستم تهویه، روشنایی و ریل الکترونیکی است، به احتمال زیاد محله «نوئوا تیخوانا» را به سن‌دیگوی آمریکا متصل می‌کند.
+
+🔹مقامات امنیتی معتقدند از این تونل احتمالا به عنوان مرکز پشتیبانی و انبار اسلحه، مواد منفجره و مواد مخدر استفاده می‌شده است.
+
+🔹این رویداد امنیتی در حالی رخ می‌دهد که شهر تیخوانا به عنوان محل برپایی کمپ تیم ملی فوتبال ایران انتخاب شده است و تیم ملی قرار است تا چند روز دیگر عازم این شهر شود.
+
+🔹مقامات جمهوری اسلامی، از جمله ابوالفضل پسندیده، سفیر جمهوری اسلامی در مکزیک، گفتند ناامنی تیخوانا ساختگی است و این شهر را مشابه اصفهان و مشهد توصیف کردند.
+
+🔹با این حال، به‌نظر می‌رسد مسئولان جمهوری اسلامی برای پرهیز از مواجهه با ایرانیان مخالف در آریزونای آمریکا، با انتقال کمپ تیم ملی به تیخوانا موافقت کردند.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 340155
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340155_1780386205.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوهای رسیده به ایران‌اینترنشنال نشان می‌دهند گروهی از دانش‌آموزان کنکوری و یازدهمی در تهران، سه‌شنبه ۱۲ خرداد در اعتراض به تاثیر معدل نهایی بر کنکور مقابل ساختمان آموزش و پرورش و شورای عالی انقلاب فرهنگی تجمع کردند.
+</div>
+
+## Persian_Trend_Official — post 15476
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15476_1780386207.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ به گزارش NBC News، بیش از نیمی از پست‌های سفیر آمریکا در جهان در حال حاضر خالی است.
+
+بر اساس این گزارش، از حدود ۱۹۵ پست سفیر آمریکا، بیش از ۱۰۰ سمت هنوز سفیر تأییدشده ندارند و توسط کارداران یا مقام‌های موقت اداره می‌شوند.
+
+همچنین به نقل از انجمن دیپلمات‌های آمریکا (AFSA)، حدود ۲۰۰۰ دیپلمات آمریکایی طی یک سال گذشته در نتیجه تعدیل نیرو، بازنشستگی یا خروج از خدمت، وزارت خارجه آمریکا را ترک کرده‌اند.
+
+این تحولات در حالی رخ می‌دهد که دولت ترامپ در حال اجرای یکی از بزرگ‌ترین برنامه‌های بازسازی و کوچک‌سازی وزارت خارجه آمریکا در دهه‌های اخیر است.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Dirty_Kids — post 390805
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390805_1780386208.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+واکنش نتانیاهو به پیام امشب ترامپ:
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390804
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390804_1780386209.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این عکس بفرستید برای عرزشیا، پاره میشن از سوزش زوزه میکشن
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390803
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390803_1780386209.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سگی در جستجوی معنا
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 124395
+
+<div align="center">
+  <a href="telegram/content/alonews_124395_1780386210.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈با گذشت حدود ۸۰ سال از پایان جنگ‌جهانی دوم، در پی انفجار بمب برجای مانده از این جنگ در شرق اندونزی، پنج نفر کشته و سه اندونزیایی مفقود شدند!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124394
+
+<div align="center">
+  <a href="telegram/content/alonews_124394_1780386211.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈جان بولتون، مشاور پیشین امنیت ملی آمریکا:فکر میکنم ترامپ واقعا در تله‌ای گرفتار شده که خودش ساخته است. به نظرم وقتی حملات به ایران آغاز شد، اهدافش را به‌روشنی تعریف نکرده بود.
+
+
+🔴فکر نمیکنم هدف ترامپ در این جنگ، تغییر رژیم بوده باشد، با اینحال ترامپ می‌داند اگر توافق بدی هم انجام دهد، چه در مقایسه با توافق هسته‌ای اوباما و چه هر گزینه دیگر، به‌شدت در معرض انتقاد عمومی قرار خواهد گرفت
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/12 11:03
 ---
 

@@ -7,6 +7,282 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/13 02:53
+---
+
+## VahidOOnLine — post 243446
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243446_1780442629.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت کشور بحرین با اعلام به صدا درآمدن آژیرهای هشدار در این کشور به دلیل حمله‌های پهپادی و موشکی، از شهروندان و ساکنان خواست ضمن حفظ آرامش، به نزدیک‌ترین مکان امن بروند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13330
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اخبار تایید نشده از صدای آژیر خطر در عربستان
+@withyashar
+</div>
+
+## WithYashar — post 13329
+
+
+
+
+## mwarmonitor — post 10055
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حمله موشکی به دبی
+</div>
+
+## mwarmonitor — post 10054
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📌رسانه‌های آمریکایی گزارش دادند مردی که ادعا می‌کند بمبی به بدنش بسته شده، حداقل یک نفر را به گروگان در یکی از شعب بانک چیس در شهر بیکرزفیلد در ایالت کالیفرنیا در ایالات متحده آمریکا گرفته است.
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 92176
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فعالیت پدافند در عربستان
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92175
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صدای توافق تو کل خاورمیانه پیچیده🔥
+</div>
+
+## pm_afshaa — post 92174
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴گزارشاتی از حمله به فرودگاه دبی
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92173
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امارات:
+</div>
+
+## pm_afshaa — post 92172
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92172_1780442630.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امارات:
+</div>
+
+## pm_afshaa — post 92171
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴آژیر خطر در عربستان فعال شد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92170
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عربستان هم زدن😂
+</div>
+
+## pm_afshaa — post 92169
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ خطاب به کانفیگ‌ فروشا:
+کمک در راه است!
+</div>
+
+## pm_afshaa — post 92168
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قشم صدای انفجار شنیده شده
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92167
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92167_1780442631.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴گزارش‌ها از آژیر حمله هوایی در پایگاه ناوگان پنجم نیروی دریایی ارتش آمریکا در بحرین.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92165
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92165_1780442631.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیویی از حمله به کویت :
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 340300
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340300_1780442633.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت کشور بحرین با اعلام به صدا درآمدن آژیرهای هشدار در این کشور به دلیل حمله‌های پهپادی و موشکی، از شهروندان و ساکنان خواست ضمن حفظ آرامش، به نزدیک‌ترین مکان امن بروند.
+https://iranintl.com/202606025087
+</div>
+
+## Shin_Persian — post 6434
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Tue, 02 Jun 2026 23:14:35 UTC
+
+New blasts in Qeshm island, Hormozgan Province, #Iran
+
+فارسی
+
+انفجارهای جدید در جزیره قشم، استان هرمزگان، #Iran_
+
+𝕏 · @shin_persian
+</div>
+
+## Persian_Trend_Official — post 15572
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+منابع عربی: پایگاه «الجفری» و مقر ناوگان پنجم نیروی دریایی آمریکا در بحرین مورد اصابت قرار گرفته است!
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15571
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15571_1780442633.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ گزارش های اولیه از حمله ج.ا به امارات 🇦🇪
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15570
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ گزارش‌های اولیه از حمله ج.ا به یک کشتی در تنگه هرمز.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15569
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ هشدار حملات در عربستان نیز به صدا درآمد!
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15568
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15568_1780442633.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ سپاه پاسداران در اطلاعیه ای اعلام کرد حملات انجام شده به کویت و بحرین در پاسخ به حمله نیروهای امریکایی به چند سایت راداری و پدافندی در جزیره قشم انجام شده است. 📝 Nick 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15567
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15567_1780442634.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+❗️فعال شدن آژیرها در ستاد ناوگان پنجم نیروی دریایی ایالات متحده در منامه، بحرین.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## BBCPersian — post 282722
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻‌ساعتی پس از انتشار بیانیه سنتکام مبنی بر متوقف کردن یک نفتکش در مسیر بنادر ایران، خبرگزاری‌های داخل ایران و نزدیک به سپاه پاسداران از به صدا در آمدن آژیرهای خطر در کویت در پی حمله موشکی به پایگاه‌های نظامی آمریکا در این کشور خبر دادند. خبرگزاری تسنیم اگر…
+</div>
+
+## Dirty_Kids — post 390877
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انتقامی که کانفیگ فروشا میخوان ازمون بگیرن از حمله آمریکا ترسناک تره.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/03/13 02:44
 ---
 

@@ -7,6 +7,338 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/12 21:53
+---
+
+## WithYashar — post 13283
+
+
+
+
+## FoxNewsTwitter — post 342511
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342511_1780424631.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NEW: President Trump confirms he will attend the rescheduled WHCA Dinner after an assassination attempt interrupted the original event:
+
+"This announcement is a very good thing in that we cannot allow Lunatics to change our way of life, or even its scheduling."
+
+"I was asked to be there, and speak, by Weijia Jiang, President of The White House Correspondents’ Association, and have accepted. I don’t know whether or not I will give the same rather nasty statements, at least as it concerns certain people, but we will soon find out. In any event, it will be a “HOT” ticket!"
+</div>
+
+## FoxNewsTwitter — post 342510
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342510_1780424632.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH LIVE: Rubio testifies on the State Department budget before House subcommittee https://twitter.com/i/broadcasts/1nGnRRbjjkBGO
+</div>
+
+## FoxNewsTwitter — post 342509
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342509_1780424632.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+“Treating stupid is really hard.”
+
+CMS Administrator Dr. Oz gives his medical advice for Americans suffering from "the very serious ailment" of Trump Derangement Syndrome.
+</div>
+
+## pm_afshaa — post 92132
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مبارک باشه طبق آمار جدید 60 درصدمون زیر خط فقر قرار گرفتیم
+</div>
+
+## pm_afshaa — post 92131
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92131_1780424634.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴یکی از رهبران حزب‌الله:
+آتش‌بس باید مقدمه‌ای برای عقب‌نشینی اسرائیل از تمام سرزمین‌های لبنان باشه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5268
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ ترامپ اخبار توقف مذاکره با جمهوری اسلامی را ساختگی خواند
+
+دونالد ترامپ، گزارش‌ رسانه‌‌ها درمورد توقف گفت‌وگو با جمهوری اسلامی را رد کرد و آن‌ها را ساختگی خواند.
+رئیس جمهوری آمریکا گفت گفت‌وگوها به‌طور مداوم ادامه دارد.
+ترامپ شامگاه سه‌شنبه تأکید کرد واشینگتن چهار روز پیش، سه روز پیش، دو روز پیش، یک روز پیش و امروز نیز با تهران گفت‌وگو کرد.
+ترامپ از سویی به جمهوری اسلامی هشدار داد که زمان توافق فرا رسیده است.
+او در تروث سوشال نوشت به جمهوری اسلامی گفته زمان آن رسیده است که توافق «به هر طریق ممکن» انجام شود.
+او افزود مشخص نیست مذاکرات به کجا برسد، اما ادامهٔ وضعیت کنونی هم ممکن نیست.
+به گفتهٔ رئیس جمهوری آمریکا، رژیم حاکم ‌بر ایران ۴۷ سال این پرونده را به تعویق انداخته است.
+ترامپ گفت دیگر نمی‌توان اجازه داد که این روند ادامه یابد.
+در روزهای اخیر، گزارش‌هایی دربارهٔ توقف یا کند شدن روند مذاکرات منتشر شده بود.
+
+#خبر #دژ #مذاکره
+@DEJradio
+</div>
+
+## IranIntlTV — post 340254
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/340254" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی تیتراول با نیوشا صارمی: تنش در لبنان؛ ترامپ توقف مذاکره را رد کرد؛ پشت‌پرده لحن تند او با نتانیاهو
+@iranintlTV
+</div>
+
+## IranIntlTV — post 340253
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340253_1780424635.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مهدی مهدوی‌آزاد در برنامه «چشم‌انداز» گفت: «جمهوری اسلامی پس از مرگ علی خامنه‌ای در گرداب هرج‌ومرج سیاسی فرو رفته است. در چنین شرایطی، قوه قضاییه بار دیگر به دنبال مصادره اموال شهروندان است. این روند از سال ۱۳۵۷ و پس از انقلاب آغاز شد؛ زمانی که با گنجاندن اصولی در قانون اساسی، به این اقدامات ظاهری قانونی بخشیده شد.»
+@iranintltv
+</div>
+
+## Shin_Persian — post 6411
+
+<div align="center">
+  <a href="telegram/content/Shin_Persian_6411_1780424636.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Tue, 02 Jun 2026 18:06:19 UTC
+
+Jet activity over Karaj
+Alborz Province, #Iran
+
+فارسی
+
+فعالیت جنگنده‌ها در آسمان کرج
+استان البرز، #Iran
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 219399
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺تاکید سناتور گراهام بر لزوم توجه به شرط «عدم حمایت از گروه‌های تروریستی نیابتی» در توافق با رژیم ایران
+
+▪️سناتور لیندسی گراهام روز سه‌شنبه ۱۲ خرداد، با انتشار پستی در رسانه اجتماعی ایکس تاکید کرد: «هرگونه توافق با جمهوری اسلامی باید به وضوح بیان کند که حمایت رژیم ایران از سازمان‌های تروریستی مانند حزب‌الله در آینده، منجر به تحریم‌های فلج‌کننده و سایر اقدامات تنبیهی خواهد شد.»
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/lindsey-graham-agreement-with-the-iranian-regime-no-support-for-proxy-terrorist-groups-iran/8156438.html/?nocach=1
+</div>
+
+## FarsiVOA — post 219398
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مارکو روبیو، وزیر خارجه آمریکا در جلسه کمیته روابط خارجی سنا گفت که نشانه‌هایی وجود دارد مجتبی خامنه‌ای رهبر جدید جمهوری اسلامی در سطحی به شکل فزاینده‌ای در حال مشارکت در روند مذاکرات است، «اگرچه تمام ارتباطات او به صورت مکتوب و از طریق واسطه‌ها بوده است.» بخشی از پوشش ویژه صدای آمریکا با ترجمه همزمان مهرناز صمیمی
+</div>
+
+## FarsiVOA — post 219397
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علیرضا منافی در میدان در ارتباط با بحران دسترسی آزاد به اینترنت می‌گوید: جمهوری اسلامی اینترنت رازمانی قطع کرد که مردم بیشترین نیاز را به آن داشتند
+</div>
+
+## DW_Farsi — post 125436
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125436_1780424637.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 روبیو: نشانه‌هایی از مشارکت مجتبی خامنه‌ای در روند مذاکرات مشاهده کردیم
+
+مارکو روبیو، وزیر امور خارجه ایالات متحده در تازه‌ترین نشست‌های پرسش و پاسخ کنگره آمریکا که تحت تاثیر تحولات جنگ ایران و چشم‌انداز مذاکرات تهران و واشنگتن قرار داشت، به پرسش‌های نمایندگان درباره روند دیپلماسی دولت ترامپ و آخرین وضعیت مذاکرات با تهران پاسخ داد.
+
+روبیو در اظهارات خود مدعی شد، "مذاکره‌کنندگان آمریکایی نشانه‌هایی از مشارکت مجتبی خامنه‌ای، رهبر جدید ایران در روند مذاکرات مشاهده کرده‌اند، هرچند او تاکنون به‌صورت علنی ظاهر نشده است."
+
+به گفته وزیر خارجه آمریکا، ارتباطات مربوط به این روند به شکل مکتوب و از طریق واسطه‌ها انجام شده و عدم حضور عمومی او با توجه به شرایط داخلی جمهوری اسلامی "قابل درک" است.
+
+وزیر امور خارجه آمریکا همچنین از برخی پیشرفت‌ها در روند گفت‌وگوها سخن گفت و اظهار داشت، "ایران پذیرفته است درباره بخش‌هایی از برنامه هسته‌ای خود مذاکره کند که تا پیش از این، حاضر به طرح آنها نبود".
+
+با این حال، او تاکید کرد، "این موضوع به معنای دستیابی قطعی به توافقی قابل قبول برای کنگره آمریکا نیست".
+
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 15531
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15531_1780424638.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یکی از خلبانان های F-15 ساقط شده در ایران خلبان یکی از F-15 های ساقط شده در کویت است!
+
+یک مجله آمریکایی مدعی شده است که یکی از خدمه جنگنده F-15E Strike Eagle متعلق به نیروهای ایالات متحده که بر فراز ایران ساقط شد، خلبانی است که پیش‌تر نیز به عنوان خلبان یک جنگنده F-15 دیگر، بر فراز کویت توسط یک جنگنده F/A-18 Hornet در حادثه آتش خودی سرنگون شده بود.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 21260
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سازمان رادیو و تلویزیون اسرائیل:
+
+آمریکا با ادامه حضور نظامی اسرائیل در جنوب لبنان موافقت کرد.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 282701
+
+<div align="center">
+  <a href="https://t.me/bbcpersian/282701" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پادکست برنامه رادیویی جام جهان‌نما، سه‌شنبه ۱۲ خرداد ۱۴۰۵
+
+این برنامه رادیویی را می‌توانید هر شب ساعت ۲۰ به وقت ایران، روی موج متوسط ۷۰۲ کیلوهرتز و موج کوتاه ۹۴۶۵ کیلوهرتز بشنوید.
+تکرار برنامه را هم می‌توانید ساعت ۲۱:۳۰ روی موج متوسط ۷۰۲ کیلوهرتز و موج کوتاه ۵۳۹۵ کیلوهرتز گوش کنید.
+@BBCPersian
+</div>
+
+## Hranews — post 113343
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پس از تحمل ۱۷ سال حبس؛ یک زندانی زن از مجازات اعدام رهایی یافت
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– یک زندانی زن در خوزستان که پیشتر از بابت اتهام قتل به اعدام محکوم شده بود، پس از تحمل ۱۷ سال حبس، با کسب رضایت از اولیای دم، از مجازات مرگ رهایی یافت.
+
+#اعدام
+
+ادامه مطلب
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## Hranews — post 113342
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارشی از معوقات مزدی، بیمه‌ای و اخراج کارگران پتروشیمی و شهرداری چابهار
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– شماری از کارکنان پتروشیمی چابهار از تداوم معوقات مزدی و تعدیل نیرو در این مجموعه خبر دادند. همچنین، کارگران شهرداری چابهار با اشاره به عدم پرداخت مطالبات مزدی و حق بیمه خود، خواستار رسیدگی به وضعیتشان شدند.
+
+#چابهار
+
+ادامه مطلب
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## alonews — post 124547
+
+<div align="center">
+  <a href="telegram/content/alonews_124547_1780424639.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈یک املاکی دیگر جایگزین تولسی گابارد شد !
+
+
+🔴پس از استعفای تولسی گابارد مدیر اطلاعات ملی امریکا ، بیل پالت مدیر آژانس فدرال تامین مالی مسکن (FHFA) از سوی ترامپ به عنوان سرپرست اداره اطلاعات ملی امریکا انتخاب شد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124546
+
+<div align="center">
+  <a href="telegram/content/alonews_124546_1780424639.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈آزاده مختاری، خبرنگار: قدرت خرید مردم با سرعتی بی‌سابقه در حال سوختن است و مقامات با بهانه جویی درباره فقط جنگ ۱۴۰۴، واقعیت ۸ سال سیاست‌گذاری غلط را سانسور می‌کنند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124544
+
+<div align="center">
+  <a href="telegram/content/alonews_124544_1780424639.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈آژانس بین‌المللی انرژی اتمی (IAEA) اعلام کرد که انعقاد هرگونه توافق با ایران بدون سازوکارهای دقیق راستی‌آزمایی و نظارت سخت‌گیرانه بر تأسیسات هسته‌ای، غیرمنطقی  است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124543
+
+<div align="center">
+  <a href="telegram/content/alonews_124543_1780424640.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 ترامپ: در نشانه‌ای از قدرت و استقامت، به تازگی اعلام شده است که شام خبرنگاران کاخ سفید که به طور ناگهانی و خشونت‌آمیز در ۲۵ آوریل به پایان رسید، به تاریخ ۲۴ ژوئیه موکول شده است.
+
+
+🔴این اعلامیه خبر بسیار خوبی است زیرا نمی‌توانیم اجازه دهیم دیوانگان سبک زندگی ما یا حتی زمان‌بندی آن را تغییر دهند. از من خواسته شده بود که در آنجا حضور داشته باشم و سخنرانی کنم، توسط ویجیا جیانگ، رئیس انجمن خبرنگاران کاخ سفید، و من پذیرفته‌ام.
+
+
+🔴نمی‌دانم آیا همان اظهارات نسبتاً تند را خواهم داشت، حداقل در مورد برخی افراد، اما به زودی خواهیم فهمید. به هر حال، این یک بلیت "داغ" خواهد بود!
+
+
+🔴جالب است که مکان برگزاری، والدورف آستوریا در خیابان پنسیلوانیا خواهد بود، ساختمانی و سالن رقصی که من ساخته‌ام.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124542
+
+<div align="center">
+  <a href="telegram/content/alonews_124542_1780424640.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پرواز شبانه جنگنده‌های ارتش روی کرج، استان البرز
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/12 21:34
 ---
 

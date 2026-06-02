@@ -7,6 +7,56 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/12 05:43
+---
+
+## VahidOOnLine — post 243301
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️فرهاد کاظمی، مربی باسابقه فوتبال ایران، در گفتگو با «طرفداری»، ضمن ضعیف خواندن تیم ملی در مقایسه با چهار سال گذشته، در پاسخ به سوالی درباره گزینه‌ای شایسته برای ریاست فدراسیون فوتبال تاکید کرد: «علی دایی باید رئیس فدراسیون شود، علی دایی شناسنامه فوتبال ایران است.» کاظمی همچنین با انتقاد از حواشی مربوط به دریافت ویزای برخی از اعضای تیم ملی افزود: «اگر می‌گویید مرگ بر آمریکا، در مسابقات‌شان شرکت نکنید. شما برای یک ویزا گدایی می‌کنید. اگر کسی بود که جلوی این‌ها را می‌گرفت، می‌گفت به مملکت ما بی‌احترامی شده است و این‌جا هر کاری خواسته‌اند، کرده‌اند.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342492
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342492_1780366401.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Sunny Hostin unloaded on Democratic Senate candidate Graham Platner during a heated discussion on The View — then argued Democrats should still back him in Maine's critical Senate race.
+
+Hostin acknowledged that "character does matter," but argued the need for congressional checks on President Trump outweighs concerns about the candidate.
+
+"The only way that we can maybe bring a bit of our democracy back," she said, "is to win that seat in Maine."
+</div>
+
+## FarsiVOA — post 219336
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺لبنان می‌گوید میان حزب‌الله و اسرائيل آتش‌بس محدود برقرار شد
+
+▪️لبنان روز دوشنبه اعلام کرد که میان حزب‌الله و اسرائیل یک آتش‌بس محدود برقرار شده است.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8156405.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219332
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ستاد فرماندهی مرکزی آمریکا دوشنبه شب به وقت واشنگتن تصاویری از تمرین‌های نظامی تفنگداران دریایی ایالات متحده بر روی ناو هواپیمابر یواس‌اس تریپولی در دریای عرب را منتشر کرد.
+@FarsiVOA
+</div>
+
+---
 📅 بروزرسانی: 1405/03/12 05:33
 ---
 

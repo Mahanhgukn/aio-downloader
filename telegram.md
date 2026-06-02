@@ -7,6 +7,262 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/12 21:34
+---
+
+## VahidOOnLine — post 243396
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243396_1780423465.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رافائل گروسی، مدیرکل آژانس بین‌المللی انرژی اتمی، در ابوظبی اعلام کرد بسیاری از فعالیت‌های هسته‌ای که در ایران در حال انجام بود، اکنون متوقف شده است.
+
+او گفت ارزیابی از برنامه هسته‌ای ایران به‌طور بنیادین تغییر کرده، زیرا شرایط جنگی حاکم است و این برنامه هدف قرار گرفته است.
+
+گروسی افزود قرار است نشست‌هایی برای بررسی درس‌های آموخته‌شده و نحوه آمادگی در آینده برگزار شود و مجموعه‌ای از فعالیت‌ها نیز برای تکمیل روند تعمیرات انجام خواهد شد.
+
+او همچنین گفت مقام‌های امارات متحده عربی در واکنش به حمله به نیروگاه هسته‌ای براکه بسیار سریع عمل کردند و به دلیل از دست رفتن برق خارجی، یک راکتور را خاموش کردند. گروسی تاکید کرد این موضوع نشان می‌دهد عاملان این حمله دقیقا می‌دانسته‌اند چه می‌کنند.
+
+مدیرکل آژانس تصریح کرد دستیابی به توافق برای پایان جنگ ایران بدون راستی‌آزمایی و نظارت بسیار قوی بر مفاد آن قابل تصور نیست. او افزود آژانس علاوه بر حمایت اخلاقی، حمایت فنی نیز به امارات ارائه می‌دهد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243395
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_243395_1780423465.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یکی از مخاطبان ایران‌اینترنشنال گفت میان مردم ایران و جمهوری اسلامی «دریایی از خون فاصله است» و با اشاره به شرایط سخت زندگی افزود: «دوام بیاوریم تا از این شب سیاه بگذریم؛ نور بر تاریکی پیروز است.»
+
+صدای او با هوش مصنوعی تغییر داده شده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243394
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243394_1780423468.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ دونالد ترامپ، رئیس‌جمهوری آمریکا، در پیامی در شبکه اجتماعی «تروث سوشال»، گزارش‌ها مبنی بر توقف مذاکرات میان واشنگتن و تهران را تکذیب کرد. ترامپ با «جعلی» خواندن این اخبار، تاکید کرد که گفتگوها میان دو کشور به‌طور مستمر در جریان است و حتی در تمامی روزهای اخیر نیز ادامه داشته است.
+
+او با اشاره به نامشخص بودن نتیجه این مذاکرات، تاکید کرد که در این مذاکرات پیام او به ایران واضح بوده است: «وقت آن رسیده که به هر شکلی توافق کنید؛ شما ۴۷ سال است که به این رویه ادامه داده‌اید و دیگر نمی‌توان اجازه داد این وضع تداوم یابد.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13282
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بریم برای سوال و جواب، هر سوالی دارین توی متن کامل بنویسین و دایرکت کنین، فقط در یک پیام.
+</div>
+
+## FoxNewsTwitter — post 342508
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342508_1780423469.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: Dr. Oz reveals why President Trump gets so many medical check-ups from his team of doctors:
+
+REPORTER: "If the president is in such perfect health, why does he keep going back in for checkups?"
+
+DR. OZ: "I think he likes the results. He does really well. He aces the test every single day. I do actually believe that he is curious to make sure everything is going in the right direction."
+
+"He's a very meticulous person in so many ways that are often under appreciated. But for him to want to know all the numbers and keep on top of him, it's the same reason he calls people at you know, odd hours because something's on his mind. He wants to deal with it."
+</div>
+
+## pm_afshaa — post 92130
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سازمان رادیو و تلویزیون اسرائیل:آمریکا با ادامه حضور نظامی اسرائیل در جنوب لبنان موافقت کرد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92129
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♨️
+♨️
+♨️
+</div>
+
+## pm_afshaa — post 92128
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#مهم
+عزیزای دلم همگی الان چنل زاپاس‌مون رو جوین بشید کانال تحت ریپورت شدیده اگه چیزی شد زاپاس رو داشته باشید فعالیت میاد اونور
+👇
+
+https://t.me/pmtvzapas
+https://t.me/pmtvzapas
+</div>
+
+## IranIntlTV — post 340252
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340252_1780423471.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رافائل گروسی، مدیرکل آژانس بین‌المللی انرژی اتمی، در ابوظبی اعلام کرد بسیاری از فعالیت‌های هسته‌ای که در ایران در حال انجام بود، اکنون متوقف شده است.
+
+او گفت ارزیابی از برنامه هسته‌ای ایران به‌طور بنیادین تغییر کرده، زیرا شرایط جنگی حاکم است و این برنامه هدف قرار گرفته است.
+
+گروسی افزود قرار است نشست‌هایی برای بررسی درس‌های آموخته‌شده و نحوه آمادگی در آینده برگزار شود و مجموعه‌ای از فعالیت‌ها نیز برای تکمیل روند تعمیرات انجام خواهد شد.
+
+او همچنین گفت مقام‌های امارات متحده عربی در واکنش به حمله به نیروگاه هسته‌ای براکه بسیار سریع عمل کردند و به دلیل از دست رفتن برق خارجی، یک راکتور را خاموش کردند. گروسی تاکید کرد این موضوع نشان می‌دهد عاملان این حمله دقیقا می‌دانسته‌اند چه می‌کنند.
+
+مدیرکل آژانس تصریح کرد دستیابی به توافق برای پایان جنگ ایران بدون راستی‌آزمایی و نظارت بسیار قوی بر مفاد آن قابل تصور نیست. او افزود آژانس علاوه بر حمایت اخلاقی، حمایت فنی نیز به امارات ارائه می‌دهد.
+https://iranintl.com/202606027114
+</div>
+
+## IranIntlTV — post 340251
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340251_1780423472.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یکی از مخاطبان ایران‌اینترنشنال گفت میان مردم ایران و جمهوری اسلامی «دریایی از خون فاصله است» و با اشاره به شرایط سخت زندگی افزود: «دوام بیاوریم تا از این شب سیاه بگذریم؛ نور بر تاریکی پیروز است.»
+
+صدای او با هوش مصنوعی تغییر داده شده است.
+</div>
+
+## IranIntlTV — post 340250
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اکسیوس به نقل از یک منبع آگاه گزارش داد مقام‌های آمریکایی به بری گفته‌اند تصور نمی‌کنند نتانیاهو با چنین طرحی موافقت کند
+
+گفت‌وگو با اردوان روزبه و بابک اسحاقی، خبرنگارهای ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## FarsiVOA — post 219396
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺ارتش اسرائیل خبر داد:کشته شدن یک فرمانده دیگر حماس در غزه
+
+▪️ارتش اسرائیل اعلام کرد: «یوسف عایش عواد رمضان، تروریست عضو حماس که در جنایت ربودن شهروندان اسرائیلی در هفتم اکتبر شرکت داشت، در غزه کشته شد.»
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/hamas-commander-yusuf-ramadan-israel/8156477.html/?nocach=1
+</div>
+
+## FarsiVOA — post 219395
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺وصیت‌نامه عرفان شکورزاده، نخبه اعدام‌شده: ترسی از مرگ ندارم؛ به زودی ایران‌مان آزاد خواهد شد
+
+▪️عرفان شکورزاده، دانشجوی نخبه رشته هوافضای دانشگاه علم‌و‌صنعت که ۲۱ اریبهشت ۱۴۰۵، توسط جمهوری اسلامی به اتهام واهی جاسوسی اعدام شد در وصیت‌نامه‌ای به برادرش از او خواسته تا به یادش و برای رشد و شکوفایی علمی فرزندان ایران یک «بنیاد علمی» بنا شود.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/erfan-shakurzadeh-elite-forced-confession-will-execution/8156491.html/?nocach=1
+</div>
+
+## FarsiVOA — post 219394
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیام تازه آمریکا به عراق؛ خلع سلاح روی کاغذ کافی نیست
+</div>
+
+## DW_Farsi — post 125435
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125435_1780423474.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 آغاز مذاکرات حساس و فشرده میان اسرائیل و لبنان در آمریکا
+
+در حالی که درگیری‌ها میان اسرائیل و حزب‌الله همچنان ادامه دارد، مذاکرات حساس و فشرده میان اسرائیل و لبنان در وزارت امور خارجه آمریکا آغاز شد.
+
+مایک نیدهام، معاون جدید مشاور امنیت ملی آمریکا، رهبری این دور از گفتگوها که با حضور سفیران اسرائیل و لبنان در ایالات متحده برگزار می‌شود را برعهده دارد.
+
+آغاز این گفت‌وگوها در حالی است که رسانه‌های دولتی ایران اعلام کردند، جمهوری اسلامی به دلیل اقدامات بنیامین نتانیاهو، نخست‌وزیر اسرائیل در لبنان، مذاکرات صلح با آمریکا را به حالت تعلیق درآورده است.
+
+با این حال، خبرگزاری سی‌ان‌ان اعلام کرده است،روز سه‌شنبه دوم ژوئن (۱۲ خرداد) سیگنال‌هایی از ایران مبنی بر اینکه گفت‌وگوها میان تهران و واشنگتن همچنان در جریان است، فرستاده شده است.
+
+گفت‌وگوهای حساس میان اسرائیل و لبنان همچنین در حالی آغاز شده است که سفارت لبنان در واشنگتن با صدور بیانیه‌ای اعلام کرد، "مقامات لبنانی تاییدیه موافقت حزب‌الله با طرح پیشنهادی آمریکا برای برقراری آتش‌بس با اسرائیل را دریافت کرده‌اند".
+
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 15530
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15530_1780423475.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرنگار: اگر رئیس جمهور ترامپ از سلامت کامل برخوردار است، چرا مدام برای معاینات پزشکی مراجعه می‌کند؟
+
+دکتر آز: او از نتایج راضی است. او واقعاً خوب عمل می‌کند. او هر روز در آزمایش‌ها عالی عمل می‌کند.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## alonews — post 124541
+
+<div align="center">
+  <a href="telegram/content/alonews_124541_1780423477.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سازمان رادیو و تلویزیون اسرائیل:
+آمریکا با ادامه حضور نظامی اسرائیل در جنوب لبنان موافقت کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124540
+
+<div align="center">
+  <a href="telegram/content/alonews_124540_1780423477.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خبرنگار وال استریت ژورنال: چیزی که ایرانی‌ها گفتند این بود که دیگر پیشنهاد رد و بدل نمی‌کنند. کاملاً مشخص بود که میانجیگری ادامه دارد. بنابراین اینجا تناقض مستقیمی وجود ندارد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124539
+
+<div align="center">
+  <a href="telegram/content/alonews_124539_1780423477.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈شبکه کان به نقل از یک مقام اسرائیلی:
+تل‌آویو به دلیل فشار آمریکا انتظار حمله به بیروت را ندارد، با این حال تأکید کرد که ارتش اسرائیل از "منطقه امنیتی" که اسرائیل در داخل مرزهای لبنان در آن نفوذ کرده، خارج نمی‌شود.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/12 21:24
 ---
 

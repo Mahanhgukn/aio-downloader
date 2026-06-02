@@ -7,6 +7,126 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/12 12:03
+---
+
+## WithYashar — post 13242
+
+<div align="center">
+  <a href="telegram/content/WithYashar_13242_1780389209.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دموکرات‌ها نیروی نیابتی ایران هستند !
+
+برایان مست، نماینده جمهوری‌خواه کنگره: "تهدید شماره دو ما، جدا از سپاه پاسداران، دموکرات‌های مجلس نمایندگان هستند. آنها دومین نیروی نیابتی بزرگ ایران هستند!"
+
+@withyashar
+</div>
+
+## IranIntlTV — post 340165
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340165_1780389210.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نیویورک‌تایمز به نقل از مقام‌های آمریکایی گزارش داد ارتش ایالات متحده در سه هفته گذشته به حدود ۷۰ کشتی تجاری برای عبور از تنگه هرمز کمک کرده است. بر اساس این گزارش، بسیاری از این کشتی‌ها برای کاهش احتمال شناسایی، فرستنده‌های موقعیت‌یاب خود را خاموش کرده‌اند و از مسیرهایی دورتر از سواحل ایران عبور کرده‌اند.
+مریم رحمتی، خبرنگار ایران‌اینترنشنال، گزارش می‌دهد
+@iranintltv
+</div>
+
+## Shin_Persian — post 6399
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6399_1780389212.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Tue, 02 Jun 2026 08:32:23 UTC
+
+Earlier, State-owned Mehr News reported Explosion(s) in southern Isfahan due to EOD ops.
+
+(Yet, source tells me that 2 regime forces were KIA: Amir Shayegan &amp; Sepehr Pour Rostam)
+
+فارسی
+
+پیش‌تر، خبرگزاری دولتی مهر از وقوع انفجار(هایی) در جنوب اصفهان به دلیل عملیات واحد خنثی‌سازی بمب (EOD) گزارش داد.
+
+(با این حال، یک منبع به من می‌گوید که ۲ تن از نیروهای رژیم کشته شدند: امیر شایگان و سپهر پوررستم)
+
+𝕏 · @shin_persian
+</div>
+
+## DW_Farsi — post 125404
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125404_1780389212.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📸 عکس روز: نظاره‌گر ماه
+ 
+یک هواپیمای خطوط هوایی "تپ" (TAP)، متعلق به پرتغال در حالی که برای فرود به فرودگاه لیسبون نزدیک می‌شود، در برابر قرص کامل ماه، لحظه‌ای چشم‌نواز و تماشایی خلق کرده است.
+ 
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 15487
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15487_1780389213.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آخرین ویدیو از خلبانِ کشته شده در جنگ رمضان قبل از شروع ماموریت
+
+خلبان جابر طاهریان در ۷ فروردین جان خود را از دست داد ...
+
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## alonews — post 124406
+
+<div align="center">
+  <a href="telegram/content/alonews_124406_1780389214.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈روزنامه ودوموستی روسیه: جنگ علیه ایران، آزمونی برای شراکت استراتژیک این تهران با مسکو، همانطور که در توافق ۲۰۲۵ تصریح شده است، خواهد بود. فشار غرب و جغرافیا، روسیه و ایران را به هم نزدیک کرده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124405
+
+<div align="center">
+  <a href="telegram/content/alonews_124405_1780389214.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ادعای نتانياهو: نظام ایران در نهایت سقوط خواهد کرد
+
+
+🔴بنیادهای نظام ایرانی تضعیف شده و آنها در نهایت سقوط خواهند کرد.
+
+
+🔴هزینه‌ای که ایران تا کنون پرداخت کرده، بسیار بالا است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124404
+
+<div align="center">
+  <a href="telegram/content/alonews_124404_1780389215.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سخنگوی سپاه: برای تمامی سناریوهای احتمالی آمادگی داریم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/12 11:53
 ---
 

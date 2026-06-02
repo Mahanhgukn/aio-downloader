@@ -7,6 +7,262 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/13 03:03
+---
+
+## VahidOOnLine — post 243447
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️به گزارش رویترز، مقامات قضایی آمریکا از کشف یک تونل فوق‌پیشرفته و مجهز در مرز ایالات متحده و مکزیک خبر دادند که برای قاچاق گسترده مواد مخدر استفاده می‌شد. بر اساس بیانیه دادستانی حوزه جنوبی کالیفرنیا، این تونل به طول ۵۸۹ متر، شهر «تیخوانا» در مکزیک را به انباری در نزدیکی گذرگاه مرزی «اوتی مِسا» در سن‌دیگوی آمریکا متصل می‌کرد. این تونل زیرزمینی به دیوارهای بتنی مقاوم، سیستم برق‌رسانی، تهویه هوا و ریل‌کشی مجهز بوده و خروجی آن در خاک آمریکا، زیر کف یک فروشگاه خرده‌فروشی و مجهز به بالابر هیدرولیکی پنهان شده بود. ماموران امنیتی در این عملیات بیش از یک تُن کوکائین به ارزش تقریبی ۴۵ میلیون دلار کشف و ۴ متهم را بازداشت کردند.
+کشف این تونل بزرگ قاچاق در تیخوانا در حالی خبرساز می‌شود که این شهر محل برگزاری کمپ و اردوهای تیم ملی فوتبال ایران است. پیش‌تر، مهدی تاج، رئیس فدراسیون فوتبال، در گفتگو با صداوسیما در پاسخ به ابهامات و نگرانی‌ها درباره ناامنی شدید این شهر مکزیکی و حضور گسترده کارتل‌های بزرگ مخدر گفته بود: «ما کار به موادفروش‌ها نداریم و نمی‌خواهیم برویم آنجا اصلاحشان کنیم»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13331
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امارات هیچ آلارمی ‌نیست سایت فرودگاه هم کنسل شدن پرواز نشون نمیده فیکه !
+@withyashar
+</div>
+
+## mwarmonitor — post 10059
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حمله موشکی به دبی
+</div>
+
+## mwarmonitor — post 10058
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨آژیرهای هشدار در بحرین متوقف شده‌اند و هشدار مربوط به حمله موشکی نیز لغو شده است.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10057
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حمله به عربستان
+</div>
+
+## mwarmonitor — post 10056
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_10056_1780443235.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+❌حریم هوایی بحرین به‌طور کامل به روی تمامی پروازها از ساعت ۰۳:۳۰ به وقت UTC تا ۱۶:۰۰ بسته شده است و تنها پروازهای محدودِ از پیش تأیید شده اجازه خروج دارند.
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 92183
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امارات:
+</div>
+
+## pm_afshaa — post 92182
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴گزارشاتی از حمله به فرودگاه دبی 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92181
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ الان میاد میگه درحال توافقیم و همه‌چی خوب پیش میره
+</div>
+
+## pm_afshaa — post 92180
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92180_1780443235.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴آسمان ایران، کویت و بحرین کلیر شد و کلیه‌ی پروازها در دبی در پی آژیر هشدار لغو شدن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92179
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92179_1780443236.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴طبق گزارشات، یک کشتی نظامی در سواحل امارات هدف قرار گرفته.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92178
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پروازهای بحرین و کویت لغو شدن. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92177
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پروازهای بحرین و کویت لغو شدن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## Shin_Persian — post 6437
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6437_1780443237.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Tue, 02 Jun 2026 23:29:02 UTC
+
+Jet activity over Ilam Province, #Iran
+
+فارسی
+
+فعالیت جنگنده‌ها بر فراز استان ایلام، #Iran
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6436
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6436_1780443237.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Tue, 02 Jun 2026 23:25:11 UTC
+
+Disrupted Air traffic over Persian Gulf
+
+فارسی
+
+اختلال در ترافیک هوایی برفراز خلیج فارس
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6435
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Tue, 02 Jun 2026 23:23:59 UTC
+
+Jet activity over Tehran, Tehran Province, #Iran
+
+فارسی
+
+فعالیت جت‌ها بر فراز تهران، استان تهران، #Iran
+
+𝕏 · @shin_persian
+</div>
+
+## Persian_Trend_Official — post 15578
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15578_1780443237.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لحظه فیل شدن و انفجار موشک پدافندی سامانه پدافندی پاتریوت مستقر در کویت در جریان تلاش برای مقابله با موشک‌های بالستیک ایرانی
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15577
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15577_1780443238.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ اختلال در ترافیک هوایی بر فراز خلیج فارس:
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15576
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 رسانه‌های عربی گزارش دادند که فعالیت فرودگاه‌ها و تمام پروازها در بحرین، کویت و امارات عربی متحده به‌دلیل حملات هوایی متوقف شده است.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15574
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15574_1780443239.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تصاویری از فعالیت پدافند هوایی در آسمان کویت در پی حمله موشکی پهپادی ایران
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15573
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ صداهایی در تهران!!!
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 21280
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴آژیرها در بحرین به صدا درآمدند و از مردم خواسته شده به مناطق امن بروند .
+
+@IranianMinds
+</div>
+
+---
 📅 بروزرسانی: 1405/03/13 02:53
 ---
 

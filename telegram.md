@@ -7,6 +7,474 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/12 23:05
+---
+
+## VahidOOnLine — post 243407
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243407_1780428934.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت خزانه‌داری آمریکا اعلام کرد دور تازه‌ای از تحریم‌های مرتبط با جمهوری اسلامی را اعمال کرده است.
+
+بر اساس این اعلام، محمد آقامیر، محمدعلی آقامیر، علی خویی و امیرحسین راد به دلیل ارتباط با صرافی رمزارز نوبیتکس تحریم شده‌اند.
+
+همچنین چهار شرکت فعال در حوزه خدمات مالی و رمزارز شامل نوبیتکس، بیت‌پین، رمزینکس و والکس به فهرست تحریم‌ها اضافه شده‌اند.
+
+وزارت خزانه‌داری آمریکا همچنین دو فرد از جمهوری دموکراتیک کنگو را در این فهرست قرار داده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243406
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243406_1780428935.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت خزانه‌داری آمریکا اعلام کرد دور تازه‌ای از تحریم‌های مرتبط با جمهوری اسلامی را اعمال کرده است.
+
+بر اساس این اعلام، محمد آقامیر، محمدعلی آقامیر، علی خویی و امیرحسین راد به دلیل ارتباط با صرافی رمزارز نوبیتکس تحریم شده‌اند.
+
+همچنین چهار شرکت فعال در حوزه خدمات مالی و رمزارز شامل نوبیتکس، بیت‌پین، رمزینکس و والکس به فهرست تحریم‌ها اضافه شده‌اند.
+
+وزارت خزانه‌داری آمریکا همچنین دو فرد از جمهوری دموکراتیک کنگو را در این فهرست قرار داده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243405
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243405_1780428935.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت خزانه‌داری آمریکا اعلام کرد دور تازه‌ای از تحریم‌های مرتبط با جمهوری اسلامی را اعمال کرده است.
+
+بر اساس این اعلام، محمد آقامیر، محمدعلی آقامیر، علی خویی و امیرحسین راد به دلیل ارتباط با صرافی رمزارز نوبیتکس تحریم شده‌اند.
+
+همچنین چهار شرکت فعال در حوزه خدمات مالی و رمزارز شامل نوبیتکس، بیت‌پین، رمزینکس و والکس به فهرست تحریم‌ها اضافه شده‌اند.
+
+وزارت خزانه‌داری آمریکا همچنین دو فرد از جمهوری دموکراتیک کنگو را در این فهرست قرار داده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## pm_afshaa — post 92138
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴روبیو: یک ایرانی دیروز به اتهام تلاش برای ترور رئیس‌جمهور آمریکا دستگیر شد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92137
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وزارت خزانه‌داری آمریکا یه دور جدید تحریم علیه ایران اعلام کرد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92136
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_92136_1780428936.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دوباره فروش رو باز کردیم ولی این بار با کاهش قیمت
+😉
+
+
+⭐️ تضمین کیفیت: امکان دریافت تست رایگان قبل از خرید برای اطمینان از سرعت
+
+
+💳 خرید امن: دارای گارانتی و ضمانت بازگشت وجه در صورت عدم رضایت
+
+
+⚡️ تعرفه ثابت: هر گیگابایت ترافیک با ساب، فقط و فقط ۱۸ هزار تومان!
+
+برای تحویل آنی و پشتیبانی، همین حالا به آیدی زیر پیام دهید:
+👇
+👇
+👇
+
+
+🔤 @Gliitch_Admin
+
+🔤 @Gliitch_Admin
+
+🔤 @Gliitch_Admin
+</div>
+
+## mamlekate — post 103610
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 ظاهرا" پدافندهای شمال کرج، دارن شلیک می‌کنند. سه شنبه ۱۲ خرداد ساعت ۲۲:۲۰ دقیقه. منطقه عظیمیه کرج
+
+@mamlekate
+</div>
+
+## mamlekate — post 103609
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 روبیو: تحریم‌های ایران با کنار گذاشتن فعالیت‌های هسته‌ایش کاهش خواهد یافت
+
+مارکو روبیو می‌گوید ایران با مذاکره دربارهٔ برخی جنبه‌های برنامهٔ هسته‌ایش که پیش‌تر از گفت‌وگو درباره آن‌ها خودداری می‌کرد، موافقت کرده است.
+
+@mamlekate
+</div>
+
+## IranIntlTV — post 340266
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340266_1780428937.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک روز پس از حمله جمهوری اسلامی به کویت، انور قرقاش گفت کشورهای منطقه از جمله یمن، لبنان و عراق بهای جاه‌طلبی‌های تهران را می‌پردازند. همزمان، بحرین با اشاره به ادامه تنش‌ها، سفر شهروندانش به ایران و عراق را تا اطلاع ثانوی ممنوع کرد.
+
+ارزیابی شهرام خلدی، پژوهشگر تاریخ خاورمیانه و روابط بین‌الملل
+@iranintltv
+</div>
+
+## IranIntlTV — post 340265
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340265_1780428939.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت خزانه‌داری آمریکا اعلام کرد دور تازه‌ای از تحریم‌های مرتبط با جمهوری اسلامی را اعمال کرده است.
+
+بر اساس این اعلام، محمد آقامیر، محمدعلی آقامیر، علی خویی و امیرحسین راد به دلیل ارتباط با صرافی رمزارز نوبیتکس تحریم شده‌اند.
+
+همچنین چهار شرکت فعال در حوزه خدمات مالی و رمزارز شامل نوبیتکس، بیت‌پین، رمزینکس و والکس به فهرست تحریم‌ها اضافه شده‌اند.
+
+وزارت خزانه‌داری آمریکا همچنین دو فرد از جمهوری دموکراتیک کنگو را در این فهرست قرار داده است.
+https://iranintl.com/202606022111
+</div>
+
+## IranIntlTV — post 340264
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340264_1780428940.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت خزانه‌داری آمریکا اعلام کرد دور تازه‌ای از تحریم‌های مرتبط با جمهوری اسلامی را اعمال کرده است.
+
+بر اساس این اعلام، محمد آقامیر، محمدعلی آقامیر، علی خویی و امیرحسین راد به دلیل ارتباط با صرافی رمزارز نوبیتکس تحریم شده‌اند.
+
+همچنین چهار شرکت فعال در حوزه خدمات مالی و رمزارز شامل نوبیتکس، بیت‌پین، رمزینکس و والکس به فهرست تحریم‌ها اضافه شده‌اند.
+
+وزارت خزانه‌داری آمریکا همچنین دو فرد از جمهوری دموکراتیک کنگو را در این فهرست قرار داده است.
+https://iranintl.com/202606022111
+</div>
+
+## IranIntlTV — post 340263
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340263_1780428941.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت خزانه‌داری آمریکا اعلام کرد دور تازه‌ای از تحریم‌های مرتبط با جمهوری اسلامی را اعمال کرده است.
+
+بر اساس این اعلام، محمد آقامیر، محمدعلی آقامیر، علی خویی و امیرحسین راد به دلیل ارتباط با صرافی رمزارز نوبیتکس تحریم شده‌اند.
+
+همچنین چهار شرکت فعال در حوزه خدمات مالی و رمزارز شامل نوبیتکس، بیت‌پین، رمزینکس و والکس به فهرست تحریم‌ها اضافه شده‌اند.
+
+وزارت خزانه‌داری آمریکا همچنین دو فرد از جمهوری دموکراتیک کنگو را در این فهرست قرار داده است.
+https://iranintl.com/202606022111
+</div>
+
+## IranIntlTV — post 340262
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340262_1780428941.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهوری آمریکا، در تروت سوشال نوشت: «گزارش‌های مربوط به توقف مذاکره با جمهوری اسلامی نادرست و اشتباه است.»
+
+گفت‌وگو با حسین علیزاده، تحلیل‌گر مسائل بین‌الملل
+@iranintltv
+</div>
+
+## Shin_Persian — post 6412
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Tue, 02 Jun 2026 19:31:05 UTC
+
+Treasury's Economic Fury campaign targets Iran's largest digital asset exchange 𝐍𝐨𝐛𝐢𝐭𝐞𝐱 for processing over 50% of Iranian crypto inflows in 2025 and facilitating IRGC-linked transactions, sanctions evasion, and terror finance. Action includes designation of three additional Iranian exchanges and key Nobitex leadership with connections to Supreme Leader Khamenei's inner circle.
+
+𝐈𝐍𝐃𝐈𝐕𝐈𝐃𝐔𝐀𝐋𝐒 𝐃𝐄𝐒𝐈𝐆𝐍𝐀𝐓𝐄𝐃:
+
+• 𝐀𝐦𝐢𝐫 𝐇𝐨𝐬𝐬𝐞𝐢𝐧 𝐑𝐚𝐝 (Iranian) - Nobitex chairman, co-founder, and former CEO who helped reconstitute operations after $90 million hack in June 2025
+
+• 𝐒𝐞𝐲𝐞𝐝 𝐌𝐨𝐡𝐚𝐦𝐦𝐚𝐝 𝐀𝐥𝐢 𝐀𝐠𝐡𝐚𝐦𝐢𝐫 𝐌𝐨𝐡𝐚𝐦𝐦𝐚𝐝 𝐀𝐥𝐢 (Iranian) - Nobitex co-founder and member of Kharrazi family, part of Supreme Leader Khamenei's inner circle
+
+• 𝐒𝐞𝐲𝐞𝐝 𝐌𝐨𝐡𝐚𝐦𝐦𝐚𝐝 𝐀𝐠𝐡𝐚𝐦𝐢𝐫 𝐌𝐨𝐡𝐚𝐦𝐦𝐚𝐝 𝐀𝐥𝐢 (Iranian) - Nobitex co-founder and blockchain lead, member of Kharrazi family
+
+• 𝐒𝐞𝐲𝐞𝐝 𝐀𝐥𝐢 𝐊𝐡𝐨𝐞𝐞 (Iranian) - Current Nobitex CEO, previously director of product and marketing
+
+𝐄𝐍𝐓𝐈𝐓𝐈𝐄𝐒 𝐃𝐄𝐒𝐈𝐆𝐍𝐀𝐓𝐄𝐃:
+
+• 𝐍𝐨𝐛𝐢𝐭𝐞𝐱 (Tehran) - Iran's largest digital asset exchange processing 50%+ of Iranian crypto inflows, facilitated IRGC ransomware payments and Central Bank of Iran stablecoin access worth hundreds of millions
+
+• 𝐖𝐚𝐥𝐥𝐞𝐱 (Iran) - Second-largest Iranian exchange by volume, received 12% of Iranian crypto inflows in 2025, facilitated IRGC-linked transactions
+
+• 𝐁𝐢𝐭𝐩𝐢𝐧 (Iran) - Digital asset exchange receiving 10% of Iranian crypto inflows, processed millions in IRGC-linked transactions, investors reportedly tied to sanctions evasion
+
+• 𝐑𝐚𝐦𝐳𝐢𝐧𝐞𝐱 (Tehran) - Exchange founded 2018, processed $2.45 billion including IRGC and Iranian government-backed financial institution transactions
+
+𝐊𝐄𝐘 𝐓𝐄𝐂𝐇𝐍𝐈𝐂𝐀𝐋 𝐃𝐄𝐓𝐀𝐈𝐋𝐒:
+
+• State Department offers $15 million reward for information disrupting IRGC financial mechanisms
+• Treasury references FAQ 1250 and FAQ 1257 for Iranian digital asset sanctions risk guidance
+• Economic Fury has frozen nearly $500 million in regime-linked cryptocurrency
+• Treasury recently designated Iran's "Persian Gulf Strait Authority" for Strait of Hormuz extortion scheme on May 27, 2026
+
+Designations made under E.O. 13224 (counterterrorism) and E.O. 13902 (Iranian financial sector) as part of NSPM-2 maximum pressure strategy during ongoing U.S. combat operations in Iran.
+
+ترجمه فارسی در بخش نظرات
+
+𝕏 · @shin_persian
+</div>
+
+## DW_Farsi — post 125439
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125439_1780428944.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 ترامپ توقف مذاکرات میان واشنگتن و تهران را دوباره تکذیب کرد
+
+دونالد ترامپ، رئیس‌جمهور آمریکا با انتشار پیامی در شبکه اجتماعی تروث سوشال، گزارش‌ها مبنی بر توقف مذاکرات میان واشنگتن و تهران را تکذیب کرد.
+
+ترامپ این اخبار را "جعلی" خواند و تاکید کرد، "گفتگوها میان دو کشور به‌طور مستمر در جریان و حتی در تمامی روزهای اخیر نیز ادامه داشته است".
+
+خبرگزاری فارس، نزدیک به سپاه پاسداران روز سه‌شنبه ۱۲ خرداد مدعی شد، "روند تبادل پیام بین ایران و آمریکا بر خلاف گزارش رسانه‌ها و مقام‌های غربی، دست‌کم چند روزی است که متوقف شده است.»
+
+خبرگزاری تسنیم هم روز گذشته در خبری مشابه اعلام کرد: «با توجه به اینکه وضعیت لبنان از پیش‌شرط‌های آتش‌بس بوده و این آتش‌بس حالا در همه جبهه‌ها از جمله لبنان نقض شده است، تیم مذاکره‌کننده ایران گفتگوها و تبادل متون از طریق میانجی را متوقف می‌کند.»
+
+ترامپ همان دیروز در واکنش به خبر تسنیم گفت که "گزارشی مبنی بر توقف مذاکرات با ایران دریافت نکرده است".
+
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 15533
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تا دقایقی دیگه لایو آغاز میشه
+</div>
+
+## RadioFarda — post 157830
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸برادر فاطمه سپهری، زندانی سیاسی، از وخامت وضعیت جسمی خواهرش در زندان خبر داد و گفت که روند درمان او از زمان بازگشت به زندان پس از عمل قلب باز، «تحت کنترل و تصمیم مسئولان زندان» بوده است. 🔸اصغر سپهری روز سه‌شنبه ۱۲ خرداد در شبکهٔ اجتماعی ایکس نوشت خانواده…
+</div>
+
+## RadioFarda — post 157829
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_157829_1780428945.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸برادر فاطمه سپهری، زندانی سیاسی، از وخامت وضعیت جسمی خواهرش در زندان خبر داد و گفت که روند درمان او از زمان بازگشت به زندان پس از عمل قلب باز، «تحت کنترل و تصمیم مسئولان زندان» بوده است.
+
+🔸اصغر سپهری روز سه‌شنبه ۱۲ خرداد در شبکهٔ اجتماعی ایکس نوشت خانواده در ملاقات با فاطمه سپهری گزارش داده‌اند که از مهرماه ۱۴۰۲، پس از انتقال او از بخش مراقبت‌های ویژه به زندان، تهیه داروها، انتخاب پزشک و اعزام برای معاینه با تصمیم مسئولان زندان انجام شده است.
+
+🔸به گفته او، اخیراً به خانواده اعلام شده که برخی داروهای قلبی خانم سپهری به‌دلیل گرانی و نایاب شدن دیگر قابل تهیه نیست.
+
+@RadioFarda
+</div>
+
+## BBCPersian — post 282704
+
+<div align="center">
+  <a href="telegram/content/BBCPersian_282704_1780428946.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻آخرین خبرهای مهم سه‌شنبه ۱۲ خرداد ۱۴۰۵
+@BBCPersian
+</div>
+
+## Hranews — post 113347
+
+<div align="center">
+  <img src="telegram/content/Hranews_113347_1780428949.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تداوم بازداشت و بلاتکلیفی مرتضی مهدی و مهدی خسروی در زندان تربت حیدریه
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– مرتضی مهدی و مهدی خسروی، دو شهروند ساکن سبزوار، با گذشت ماه‌ها از زمان بازداشت، همچنان به‌صورت بلاتکلیف در زندان تربت حیدریه نگهداری می‌شوند. مرتضی مهدی از بازداشت‌شدگان اعتراضات دی‌ماه ۱۴۰۴ و مهدی خسروی در رابطه با درگیری‌های نظامی اخیر بازداشت شده است.
+
+به گزارش خبرگزاری هرانا، ارگان خبری مجموعه فعالان حقوق بشر در ایران، مرتضی مهدی و مهدی خسروی کماکان در بازداشت به‌سر می‌برند.
+
+بر اساس اطلاعات دریافتی هرانا، این دو شهروند در حال حاضر به‌صورت بلاتکلیف در زندان تربت حیدریه نگهداری می‌شوند و رسیدگی قضایی نتیجه‌بخشی به پرونده آنها صورت نگرفته است.
+
+#مرتضی_مهدی
+#مهدی_خسروی
+
+ادامه مطلب
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## Hranews — post 113346
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دستکم ۲ تجمع اعتراضی برگزار شد
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– امروز سه‌ شنبه ۱۲ خردادماه، شماری از کارگران قراردادی، شرکتی و پیمانکاری شرکت پایانه‌ها و مخازن پتروشیمی ماهشهر، با برگزاری تجمع اعتراضی در این شهر خواستار رسیدگی به مطالبات خود شدند. از سوی دیگر، جمعی از مالباختگان شرکت فرهان دیزل در اسلامشهر طی روزهای اخیر دست به تجمع اعتراضی زدند.
+
+#تجمع
+
+ادامه مطلب
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## alonews — post 124583
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📱لطفا توییتر الونیوز رو دنبال کنین 
+🔴پست های انگلیسی در رابطه با جنایت های حکومت به انگلیسی نوشته شده و افراد مهم منشن و هشتگ های مهم قرار داده شده. 
+🔴ریپست کنین. مهمترین کمک این روزها جلوگیری از پروپاگاندا حکومت علیه این قتل عام مردم هستش. خونشون نباید پایمال…
+</div>
+
+## alonews — post 124582
+
+<div align="center">
+  <a href="telegram/content/alonews_124582_1780428950.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈مارکو روبیو: بگذارید بگویم ونزوئلا امروز آن جایی نیست که ما برای مردم ونزوئلا آرزو داریم.
+
+
+🔴اما در مسیری قرار دارد که فکر می‌کنم اگر ادامه یابد، بسیار مثبت است و باید ادامه یابد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124581
+
+<div align="center">
+  <a href="telegram/content/alonews_124581_1780428952.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈بانک مرکزی اروپا اعلام کرده است که طلا جایگزین اوراق قرضه خزانه‌داری آمریکا به عنوان برترین دارایی ذخیره‌ای جهان شده است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124580
+
+<div align="center">
+  <a href="telegram/content/alonews_124580_1780428953.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈الجزیره: ترامپ ترمز نتانیاهو را کشید
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124579
+
+<div align="center">
+  <a href="telegram/content/alonews_124579_1780428953.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈هم اکنون پرواز گسترده پهپاد های اسرائیلی بر فراز بیروت
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124578
+
+<div align="center">
+  <a href="telegram/content/alonews_124578_1780428953.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خیلی اتفاقی علی جوانمردی معروف به علی تجزیه که مدعی آزادی برای مردم ایران هستن، بصورت کاملا خواسته در راستای جمهوری اسلامی که بیش از 47 ساله مردم ایران رو به گروگان گرفته صحبت میکنن.
+
+
+🤔حرام زاده های کراواتی رو بهتر بشناسید.
+
+
+✅@AloNews
+</div>
+
+## alonews — post 124577
+
+<div align="center">
+  <a href="telegram/content/alonews_124577_1780428956.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈روبیو در جلسه استماع کنگره مدعی شد: اکنون ما افرادی را داریم که در آمریکا به‌جرم تلاش برای ترور محکوم شده‌اند و یک نفر هم دیروز دستگیر شد؛ از مأموران ایرانی که درحال توطئه برای ترور رهبران سیاسی، از جمله رئیس‌جمهور آمریکا بودند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124576
+
+<div align="center">
+  <a href="telegram/content/alonews_124576_1780428957.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / روبیو در کنگره مدعی شد یک ایرانی دیروز به اتهام تلاش برای ترور رئیس‌جمهور آمریکا دستگیر شده است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124575
+
+<div align="center">
+  <a href="telegram/content/alonews_124575_1780428957.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزارت خزانه داری آمریکا از اعمال تحریم‌های علیه ایران خبر داد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/12 22:54
 ---
 

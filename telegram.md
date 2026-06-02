@@ -7,6 +7,47 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/12 05:13
+---
+
+## FoxNewsTwitter — post 342491
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342491_1780364599.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"Isn't a reality TV star a job? He made millions of dollars."
+
+Mayor Karen Bass stayed silent after FOX News correspondent @MattFinnFNC pressed her on her dismissive comments about Spencer Pratt.
+
+Bass ripped Pratt as a "reality TV villain" who has "never had a job" during a campaign stop just one day before Los Angeles voters head to the polls.
+
+The incumbent mayor has repeatedly argued that Pratt lacks the experience to run the nation's second-largest city, claiming he doesn't understand how city government operates.
+</div>
+
+## BBCPersian — post 282612
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_282612_1780364600.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صدها نفر در مرکز کنیا در اعتراض به برنامه‌ ایالات متحده برای ایجاد یک مرکز قرنطینه ابولا در یک پایگاه نظامی آمریکایی در این کشور دست به اعتراض زدند.
+
+معترضان با مسدود کردن جاده‌ها اقدام به آتش زدن لاستیک خودروها کردند.
+
+تظاهرکنندگان در شهر نانیوکی می‌گویند که علیرغم حکم دادگاه عالی در روز جمعه که دستور تعلیق موقت این طرح را داده است، آماده‌سازی برای این مرکز قرنطینه ادامه دارد.
+
+مردم محلی نگران هستند که این واحد ۵۰ تختخوابی که برای مراقبت از شهروندان آمریکایی مبتلا به ابولا در صورت نیاز طراحی شده است، مردم را به خطر بیندازد.
+
+مارکو روبیو، وزیر خارجه آمریکا، گفته است که این برنامه‌ بخشی از تلاش‌ها برای دور نگه داشتن ویروس ابولا از ایالات متحده است.
+
+📷Reuters
+@BBCPersian
+</div>
+
+---
 📅 بروزرسانی: 1405/03/12 05:03
 ---
 

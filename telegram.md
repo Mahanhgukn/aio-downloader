@@ -7,6 +7,125 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/13 01:04
+---
+
+## WithYashar — post 13299
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اتاق جنگ با شما : صدای انفجار از سمت دریا نبود
+به اون کوهه زدن که پر از مهماته نزدیکمونه قشنگ به چشم دیدیم
+@withyashar
+</div>
+
+## WithYashar — post 13298
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش انفجار قشم 🚨🚨🚨🚨 @withyashar
+</div>
+
+## mwarmonitor — post 10044
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📌خلبان جنگنده F-15E که بر فراز ایران سرنگون شد، همان خلبانی بود که یکی از جنگنده‌هایش در ابتدای جنگ بر اثر آتش خودی کویت هدف قرار گرفته و سقوط کرده بود.
+
+🔸تنها کمی بیش از ۳۰ روز پس از آن‌که در آن حادثه با موفقیت ایجکت کرده و جان سالم به در برده بود، او در مأموریتی بر فراز ایران بود که جنگنده‌اش توسط یک موشک زمین به هوا هدف قرار گرفت. CBS
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10043
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸ایالات متحده صرافی نوبیتکس، بزرگ‌ترین صرافی دارایی دیجیتال ایران، و ۳ صرافی دیگر را تحریم کرده و آن‌ها را به حمایت از شبکه دور زدن تحریم‌های تهران متهم کرده است.
+
+@mwarmonitor
+</div>
+
+## DEJradio — post 5272
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5272_1780436066.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🔸 خبر ۲۱
+سه‌شنبه ۱۲ خرداد ۱۴۰۵
+
+#خبر۲۱
+@DEJradio
+</div>
+
+## DEJradio — post 5271
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5271_1780436068.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺📷 تصاویر ماهواره‌ای شرکت «ایرباس دی‌اس» جاده‌های منتهی به تأسیسات اتمی فُردو با موانع سنگی-خاکی پر شده است، تا در صورت عملیات احتمالی زمینی آمریکا و اسرائیل برای تخلیه اورانیوم‌ها سخت شود.
+
+#فردو
+@DEJradio
+</div>
+
+## DEJradio — post 5270
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5270_1780436068.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🛩️
+🚨 سنتکام اعلام کرد نیروهای آمریکایی یک نفتکش را که در مسیر یکی از بنادر جمهوری اسلامی در خلیج فارس در حرکت بود، از کار انداختند.
+
+بر اساس بیانیه فرماندهی مرکزی ایالات متحده، نفتکش «لکسی» با پرچم بوتسوانا هنگام حرکت به سوی جزیره خارک، به هشدارهای مکرر نیروهای آمریکایی بی‌اعتنایی کرده و طی ۲۴ساعت چندین بار از اجرای دستورهای صادرشده خودداری کرده است.
+سنتکام افزود در نهایت یک هواگرد آمریکایی با شلیک موشک هلفایر به اتاق موتور این کشتی، آن را از کار انداخت و مانع رسیدن آن به ایران شد.
+فرماندهی مرکزی ایالات متحده همچنین اعلام کرد از زمان آغاز اجرای محاصره دریایی بنادر جمهوری اسلامی، تاکنون شش کشتی تجاری را از کار انداخته و ۱۲۲کشتی دیگر را ناگزیر به تغییر مسیر کرده است.
+
+#خبر #محاصره_دریایی #سنتکام
+@DEJradio
+</div>
+
+## FarsiVOA — post 219415
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️علی خامنه‌ای کشته شد اما رد جنایات او همچنان باقی است؛ هم بر جان و روانِ جمعی ملتی و هم در سینه‌ تاریخ. آیا راهی برای دست یافتن به عدالت هست؟
+
+@FarsiVOA
+</div>
+
+## alonews — post 124613
+
+<div align="center">
+  <a href="telegram/content/alonews_124613_1780436069.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 مقر گروهک‌های تجزیه‌طلب کرد هدف قرار گرفت
+
+
+🔴منابع عراقی از انفجار در یک مقر گروهک‌های کرد تجزیه‌طلب در شمال اربیل خبر دادند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124612
+
+<div align="center">
+  <a href="telegram/content/alonews_124612_1780436070.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تعداد ماهواره هایی که شرکت های مختلف جهان در فضا دارند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/13 00:54
 ---
 

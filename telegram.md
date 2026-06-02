@@ -7,6 +7,186 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/12 16:54
+---
+
+## VahidOOnLine — post 243360
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_243360_1780406664.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دوربین‌های مداربسته در منطقه ماراکانا در شهر ریودوژانیرو برزیل، صبح یکشنبه دهم خردادماه، لحظه سقوط یک زن به درون یک دریچه فاضلاب را ثبت کردند. این زن پس از پیاده شدن از موتورسیکلت و در مسیر محل کار خود، روی درپوش دریچه قدم گذاشت و ناگهان به داخل گودال سقوط کرد.
+
+خبرگزاری «گلوبو» برزیل گزارش داد بررسی تصاویر دوربین‌های مداربسته نشان می‌دهد حدود ساعت ۲ بامداد همان روز، دو مرد درپوش این دریچه را باز کرده بودند. مقام‌های شهرداری ریودوژانیرو اعلام کردند این افراد احتمالا قصد سرقت تجهیزات داخل کانال را داشتند، اما پس از ناکامی، محل را بدون ایمن‌سازی رها کردند.
+موتورسوار و شماری از رهگذران بلافاصله برای کمک به زن آسیب‌دیده وارد عمل شدند. نیروهای آتش‌نشانی برزیل نیز پس از حضور در محل، او را با جراحات متوسط به بیمارستان فدرال آندارای منتقل کردند. مقام‌ها هنوز گزارشی درباره وضعیت کنونی او منتشر نکرده‌اند.
+
+پلیس برزیل در حال بررسی ارتباط احتمالی دو مظنون با سرقت از یک دکه روزنامه‌فروشی در همان منطقه است که در ساعات اولیه بامداد رخ داده بود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342495
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342495_1780406665.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH LIVE: Newark mayor announces legal push to close ICE detention center https://twitter.com/i/broadcasts/1XxyggnBlpvGM
+</div>
+
+## FoxNewsTwitter — post 342494
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342494_1780406665.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"You're f****** crazy. You'd be in prison if it weren't for me. I'm saving your a***. Everybody hates you now. Everybody hates Israel because of this."
+
+That's what a U.S. official tells Axios President Trump unloaded on Israeli Prime Minister Benjamin Netanyahu during a heated phone call over Israel's military actions in Lebanon.
+
+Trump was reportedly furious that Israel's moves risked blowing up U.S. diplomatic efforts in the region, at one point also asking Netanyahu: "What the f*** are you doing?"
+</div>
+
+## pm_afshaa — post 92099
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فارس:مذاکرات با آمریکا متوقف شد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5248
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5248_1780406666.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🔸 علیرضا دبیر؛ چکیده‌ای از پلشتی‌های نظام در ورزش
+
+#حکومتی #علیرضا_دبیر
+@DEJradio
+</div>
+
+## IranIntlTV — post 340209
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340209_1780406669.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزیر دفاع اسرائیل با اشاره به ضرورت ادامه عملیات نظامی در جنوب لبنان، بر خلع سلاح حزب‌الله تاکید کرد. او گفت ارتش گزینه‌های جدید را برای گسترش دامنه حملات بررسی می‌کند
+
+گفت‌وگو با بابک اسحاقی و اردوان روزبه، خبرنگارهای ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 340208
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340208_1780406672.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻کنی دالگلیش، اسطوره فوتبال لیورپول و اسکاتلند، در صفحه اینستاگرام خود اعلام کرد که به سرطان مبتلا شده و در حال حاضر تحت درمان است.
+
+🔹این ستاره پیشین خبر داد که روند درمانش به‌خوبی پیش می‌رود و از رسانه‌ها و مردم خواست که به حریم خصوصی او و خانواده‌اش احترام بگذارند.
+
+🔹باشگاه لیورپول بلافاصله با انتشار پیامی حمایت خود را از او اعلام کرد. دالگلیش در دوران بازی خود ۱۷۲ گل برای لیورپول به ثمر رساند و به‌عنوان سرمربی نیز این تیم را به سه عنوان قهرمانی لیگ رساند.
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 340207
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340207_1780406672.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سومین هفته رسیدگی به پرونده دو متهم حمله به پوریا زراعتی، مجری ایران‌اینترنشنال، در دادگاه وولیج لندن ادامه دارد. در روز اول، دادستانی با ارائه مدارک به نقش متهمان پرداخت و در روز دوم نیز یکی از آن‌ها در جایگاه حاضر شد تا به پرسش‌ها پاسخ دهد.
+
+علی رشید، خبرنگار ایران‌اینترنشنال، گزارش می‌دهد
+@iranintltv
+</div>
+
+## IranIntlTV — post 340206
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340206_1780406675.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سومین هفته رسیدگی به پرونده دو متهم حمله به پوریا زراعتی، مجری ایران‌اینترنشنال، در دادگاه وولیج لندن ادامه دارد. در روز اول، دادستانی با ارائه مدارک به نقش متهمان پرداخت و در روز دوم نیز یکی از آن‌ها در جایگاه حاضر شد تا به پرسش‌ها پاسخ دهد.
+
+علی رشید، خبرنگار ایران‌اینترنشنال، گزارش می‌دهد
+@iranintltv
+</div>
+
+## Shin_Persian — post 6402
+
+<div align="center">
+  <a href="telegram/content/Shin_Persian_6402_1780406678.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Tal Inbar @inbarspace
+Tue, 02 Jun 2026 13:19:48 UTC
+
+More footage of Israeli strikes on Iran continues to emerge - this time of an air defense system destroyed in Karg. Note the secondary explosions of the missiles - and the effect of the burning of the propellants.
+
+فارسی
+
+تصاویر بیشتری از حملات اسرائیل به ایران در حال انتشار است - این بار از یک سامانه پدافند هوایی منهدم شده در کرج. به انفجارهای ثانویه موشک‌ها و اثر سوختن پیشران‌ها توجه کنید.
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 219370
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219370_1780406679.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یکی از ویدیوهای دیگری که به تازگی بعد از بازگشایی محدود اینترنت منتشر و در شبکه‌های اجتماعی پربازدید شده منتسب است به لحظه انهدام ناحیه مقاومت بسیج مقداد، یکی از اصلی‌ترین نهادهای سرکوب جمهوری اسلامی، در نزدیکی میدان آزادی در غرب تهران.
+
+این پایگاه در هفته دوم اسفند هدف حملات آمریکا و اسرائیل قرار گرفت.
+</div>
+
+## DW_Farsi — post 125418
+
+<div align="center">
+  <a href="telegram/content/DW_Farsi_125418_1780406681.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎥 ارزيابى تيم ملى فوتبال آلمان در آستانه جام جهانى ٢٠٢۶
+ 
+ تیم ملی‌ فوتبال آلمان با کسب ۴ عنوان قهرمانی جهان، در جام جهانی ۲۰۲۶ نیز از مدعیان کسب مقام قهرمانی به شمار می‌رود. 
+ 
+کیفیت کادر ۲۶ نفره ملی‌پوشان فوتبال آلمان چه ویژگی‌های منحصر به فردی دارد؟
+ 
+بابک کیهان‌فر، مربی پیشین تیم‌های ماینتس و اونیون برلین در بوندس‌لیگا و مربی جدید تیم زیر ۲۳ سال بایرن‌مونیخ، در گفت‌و‌گوی اختصاصی با دویچه ‌وله فارسی جزئیات و تمام پست‌های تیم ملی آلمان، از دروازه‌بان مانوئل نویر، مدافع‌ها و هافبک‌ها گرفته تا دنیز اونداو در نوک حمله، را زیر ذره‌بین قرار داده است.
+
+@dw_farsi
+</div>
+
+## alonews — post 124478
+
+<div align="center">
+  <a href="telegram/content/alonews_124478_1780406684.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خبرگزاری معتبر فارس: یک منبع آگاه می‌گوید که تبادل پیام بین ایران و آمریکا برای آنچه دست‌یابی به یادداشت تفاهم اولیه بین تهران و واشنگتن خوانده می‌شود، دست‌کم چند روز است که متوقف شده.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/12 16:44
 ---
 

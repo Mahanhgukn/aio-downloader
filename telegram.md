@@ -7,6 +7,242 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/13 20:46
+---
+
+## VahidOOnLine — post 243539
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243539_1780506967.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️سازمان همکاری و توسعه اقتصادی (OECD) در گزارشی که روز چهارشنبه ۱۳ خرداد منتشر شد، هشدار داد که تداوم اختلال در عرضه انرژی از خاورمیانه به دلیل جنگ، ضربه شدیدی به اقتصاد جهانی وارد خواهد کرد. این وضعیت می‌تواند برخی کشورها را با رکود مواجه کرده و باعث گسترش تورم و افزایش نرخ بیکاری شود. بر اساس این گزارش، اقتصادهای آسیایی وابسته به نفت خام، سوخت و گاز طبیعی خلیج فارس و همچنین کشورهای فقیرتر که بخش بزرگی از درآمد مردم در آن‌ها صرف سوخت و غذا می‌شود، بیشترین آسیب را خواهند دید.
+
+این گزارش دو سناریوی احتمالی را تحلیل کرده است که در صورت تداوم اختلالات، رشد اقتصادی جهان از ۳.۴ درصد در سال گذشته به ۲.۱ درصد در سال جاری و ۱.۸ درصد در سال ۲۰۲۷ کاهش می‌یابد و برخی اقتصادها را به سمت رکود سوق می‌دهد. در سناریوی دوم که بر مبنای اختلال محدود زمانی است، اگر تولید انرژی و محموله‌های خلیج فارس از میانه سال جاری به سطوح پیش از جنگ بازگردد، نرخ رشد اقتصادی در سال جاری به ۲.۸ درصد کاهش یافته و در سال آینده به ۳.۱ درصد بازمی‌گردد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13414
+
+
+
+
+## WithYashar — post 13413
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یعنی چی ؟ منظورش اینه جنگ تموم شد ؟
+</div>
+
+## WithYashar — post 13412
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یعنی چی ؟
+منظورش اینه جنگ تموم شد ؟
+</div>
+
+## mwarmonitor — post 10102
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_10102_1780506968.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴بحرین اعلام کرد که ۱۵ نفر را در ارتباط با پرونده عوامل وابسته به سپاه پاسداران انقلاب اسلامی که در ایران حضور دارند، بازداشت کرده است.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10101
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_10101_1780506968.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚢کشتی MSC PANAYA دیروز در بحرین مشاهده شد، در مختصات:
+26.1981, 50.6704
+
+🚢این کشتی پیش از اصابت موشکی تأییدنشده از سوی ایران ، در بندر شهر صنعتی سلمان پهلو گرفته بود.
+
+@mwarmonitor
+</div>
+
+## Shin_Persian — post 6486
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6486_1780506969.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet: Fox News ✓ @FoxNews Wed, 03 Jun 2026 16:58:47 UTC BREAKING: California tech CEO Jamshid Ghomi arrested for allegedly supplying equipment to Iranian nuclear, military programs, DOJ announces ↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.…
+</div>
+
+## Shin_Persian — post 6485
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+Fox News ✓ @FoxNews
+Wed, 03 Jun 2026 16:58:47 UTC
+
+BREAKING: California tech CEO Jamshid Ghomi arrested for allegedly supplying equipment to Iranian nuclear, military programs, DOJ announces
+
+↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
+
+فارسی
+
+فوری: وزارت دادگستری (DOJ) اعلام کرد جمشید قمی، مدیرعامل یک شرکت فناوری در کالیفرنیا، به اتهام تأمین تجهیزات برای برنامه‌های هسته‌ای و نظامی ایران بازداشت شد.
+
+𝕏 · @shin_persian
+</div>
+
+## RadioFarda — post 157866
+
+<div align="center">
+  <a href="https://t.me/radiofarda/157866" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📻بشنوید: ایستگاه ۱۹ با رادیوفردا، ۱۳ خرداد ۱۴۰۵
+
+@RadioFarda
+</div>
+
+## idfinfarsi — post 11738
+
+<div align="center">
+  <a href="telegram/content/idfinfarsi_11738_1780506970.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‼️کشف و انهدام ده‌ها مورد تسلیحات: فعالیت نیروهای لشکر ۹۱ در جنوب لبنان
+
+🔸نیروهای ذخیره تیم رزمی تیپ یفتاح (۶۷۹) به فعالیت خود تحت فرماندهی لشکر ۹۱ در جنوب لبنان ادامه می‌دهند.
+
+🔸در یک عملیات شبانه در جنوب لبنان، نیروها یک انبار تسلیحاتی متعلق به سازمان تروریستی حزب‌الله را شناسایی و مورد بازرسی قرار دادند که حاوی مقادیر زیادی تسلیحات برای استفاده علیه شهروندان کشور اسرائیل و نیروهای ارتش اسرائیل در منطقه بود.
+
+🔸در مدت زمانی کوتاه، نیروها بیش از ۲۰ زیرساخت متعلق به سازمان تروریستی حزب‌الله را در منطقه با استفاده از شش تُن مواد منفجره منهدم کردند.
+
+🔸در عملیاتی دیگر در جنوب لبنان، رزمندگان تیپ حشمونائیم یک انبار تله‌گذاری‌شده حاوی بمب‌های دستی متعلق به سازمان تروریستی حزب‌الله را شناسایی و منهدم کردند.
+
+🔸در طول شبانه‌روز گذشته، لشکر ۹۱ به حملات خود علیه زیرساخت‌ها و تروریست‌های سازمان تروریستی حزب‌الله در جنوب لبنان ادامه داد.
+</div>
+
+## Dirty_Kids — post 390925
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390925_1780506972.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ظاهرا شهبازى خوشش اومده راضى بوده🤭
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390924
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390924_1780506973.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حقیقتا وضعیت کصشعری شده
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390923
+
+<div align="center">
+  <a href="https://t.me/Dirty_Kids/390923" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✅ اپلیکیشن اندروید سایت جهانی دربی بت
+
+💰اولین سایت جهانی با امکان شارژ و برداشت ریالی(کارت به کارت)
+
+🔗 برای ورود فیلترشکن روی کشور مناسب قرار دهید مانند فنلاند و المان و....
+
+😀Telegram Channel
+👇
+https://t.me/+bcynkEgSW2dlYTc0
+</div>
+
+## Dirty_Kids — post 390922
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390922_1780506975.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😤دنبال یه سایت شرط بندی بین المللی بودی که به ایرانیا خدمات بده؟!
+⛔
+
+
+👍دربی بت همون انتخاب  100%
+
+
+💎ویژگی های سایت جهانی Derby Bet:
+
+⬅️امکان شارژ امن با کارت بانکی
+
+⬅️واریز اول دوبل شارژ می شوید(بونوس۱۰۰٪)
+
+⬅️پر اپشن ترین سایت فعال در ایران
+
+⬅️تسویه حساب کمتر از 5 دقیقه
+
+⬅️برگشت بخشی از باخت به صورت هفتگی
+
+
+🚨کد هدیه ثبت نام:GG007
+
+
+⚠️برای دانلود اپلکیشن کلیک کنید
+👉
+
+
+🔔کانال دربی بت :
+
+🪙https://t.me/+bcynkEgSW2dlYTc0
+</div>
+
+## alonews — post 124871
+
+<div align="center">
+  <a href="telegram/content/alonews_124871_1780506976.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نتانیاهو : ما با مردم ایران دشمنی نداریم، ما با این آیت‌الله‌ها طرف هستیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124870
+
+<div align="center">
+  <a href="telegram/content/alonews_124870_1780506976.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 روبیو: گفتگوها با ایران درباره غنی‌سازی اورانیوم و بحث ذخایر است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124869
+
+<div align="center">
+  <a href="telegram/content/alonews_124869_1780506976.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 ترامپ: رابطه من با نتانیاهو عالی است و در مورد مسئله لبنان بین ما توافق وجود دارد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/13 20:35
 ---
 

@@ -7,6 +7,154 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/13 13:54
+---
+
+## WithYashar — post 13366
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ در پادکست :
+: احتمالاً تا روز کارگر (Labor Day) بتونیم محاصره ایران رو برداریم
+
+هیچ‌وقت به دیدار با هیچ‌یک از مقام‌های ایرانی فکر نکرده‌ام
+
+آیت‌الله ایران تو مذاکرات با آمریکا نقش داره و تو جریان گفت‌وگوهاست.
+
+احتمالاً یه زمانی با آیت‌الله ایران دیدار خواهم کرد
+
+قیمت بنزین به زودی کاهش می‌یابد
+
+وضعیت ایران خیلی سریع داره تغییر می‌کنه، و در نهایت اوضاع خیلی خوب پیش می‌ره
+@withyashar
+</div>
+
+## WithYashar — post 13365
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: ایران موافقت کرده است که سلاح هسته‌ای نداشته باشد.
+@withyashar
+</div>
+
+## WithYashar — post 13364
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صدای انفجار بندر عباس (گفته بودن ۳ روز مهمات عمل نکرده است که دیروز روز سوم بود )
+@withyashar
+</div>
+
+## mwarmonitor — post 10085
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_10085_1780482260.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ پیش‌بینی می‌کند که با «رهبر معظم ایران، مجتبی خامنه‌ای» که گفته می‌شود «احتمالاً همجنس‌گرا است» دیدار خواهد کرد و می‌گوید: «با هم خیلی خوب کنار می‌آییم.» ایران پذیرفته است که سلاح هسته‌ای نداشته باشد؛ آیت‌الله در مذاکرات دخیل است. نیویورک پست
+
+@mwarmonitor
+</div>
+
+## Shin_Persian — post 6468
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6468_1780482260.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Wed, 03 Jun 2026 10:19:28 UTC
+
+Blast sound in Qeshm island @ 1016Z
+Hormozgan Province, #Iran
+
+فارسی
+
+صدای انفجار در جزیره قشم در ۱۰۱۶ زولو (۱۳:۴۶ به وقت تهران)
+استان هرمزگان، #Iran
+
+𝕏 · @shin_persian
+</div>
+
+## alonews — post 124746
+
+<div align="center">
+  <a href="telegram/content/alonews_124746_1780482261.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ تو مصاحبه پادکست : وضعیت ایران خیلی سریع داره تغییر می‌کنه، و در نهایت اوضاع خیلی خوب پیش می‌ره
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124745
+
+<div align="center">
+  <a href="telegram/content/alonews_124745_1780482261.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: قیمت بنزین به زودی کاهش می‌یابد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124744
+
+<div align="center">
+  <a href="telegram/content/alonews_124744_1780482261.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / ترامپ : احتمالاً تا روز کارگر (Labor Day) بتونیم محاصره ایران رو برداریم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124743
+
+<div align="center">
+  <a href="telegram/content/alonews_124743_1780482261.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ : هیچ‌وقت به دیدار با هیچ‌یک از مقام‌های ایرانی فکر نکرده‌ام
+
+
+🔴 آیت‌الله ایران تو مذاکرات با آمریکا نقش داره و تو جریان گفت‌وگوهاست.
+
+
+🔴احتمالاً یه زمانی با آیت‌الله ایران دیدار خواهم کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124742
+
+<div align="center">
+  <a href="telegram/content/alonews_124742_1780482261.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / ترامپ : داریم روی رسیدن به یک توافق با ایران کار می‌کنیم؛ ایران قبول کرده که سلاح هسته‌ای نداشته باشه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124741
+
+<div align="center">
+  <a href="telegram/content/alonews_124741_1780482262.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رئیس سازمان هواپیمایی کشوری: ۹۵ درصد بلیت پروازهای لغو شده جنگ تعیین تکلیف شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/13 13:44
 ---
 

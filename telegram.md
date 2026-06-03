@@ -7,6 +7,149 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/13 11:13
+---
+
+## mwarmonitor — post 10066
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سازمان هواپیمایی کشوری کویت اعلام کرد که حمله شبانه پهپادی و موشکی ایران که کویت را هدف قرار داد، خسارات شدیدی به ترمینال یک فرودگاه بین‌المللی کویت وارد کرده و شمار نامعلومی از افراد را مجروح کرده است. 🔸بر اساس گزارش نیوزنیشن، فرودگاه طرح واکنش اضطراری خود…
+</div>
+
+## IranIntlTV — post 340323
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340323_1780472634.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وال‌استریت ژورنال گزارش داد آمریکا فشار بر عمان برای کاهش روابط با جمهوری اسلامی را افزایش داده و از مسقط خواسته است میان تهران و واشینگتن یکی را انتخاب کند.
+
+گزارش مریم رحمتی، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## FarsiVOA — post 219446
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219446_1780472636.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تصاویری از مقابله پدافند هوایی با حملات موشکی جمهوری اسلامی بر فراز کویت؛
+
+مقامات کویتی گزارش دادند که این کشور بامداد چهارشنبه مورد حمله موشکی و پهپادی جمهوری اسلامی قرار گرفته است.
+
+ارتش آمریکا نیز اعلام کرد دو موشک سپاه پاسداران که به سوی کویت شلیک شده، متلاشی و سه موشک دیگر به سوی بحرین نیز توسط نیروهای آمریکایی و بحرینی رهگیری شدند.
+
+سنتکام همچنین اعلام کرد رژیم ایران موشک‌های بالستیک به سوی همسایگان منطقه‌ای شلیک کرده، اما همه آنها در اصابت به اهداف ناکام مانده‌اند.
+@FarsiVOA
+</div>
+
+## RadioFarda — post 157841
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_157841_1780472639.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸کویت اعلام کرد پس از هدف قرار گرفتن ساختمان «ترمینال ۱» فرودگاه بین‌المللی کویت در حملات پهپادی ایران، طرح اضطراری این فرودگاه به اجرا درآمده و پروازها به حالت تعلیق درآمده است.
+
+🔸سازمان هواپیمایی کشوری کویت صبح چهارشنبه ۱۳ خرداد این خبر را اعلام کرد اما جزئیات بیشتری دربارهٔ میزان خسارت احتمالی واردشده به ترمینال ۱ منتشر نکرد.
+
+🔸خبرگزاری دولتی کویت اما گزارش دادند که در پی حمله موشکی و پهپادی ایران به فرودگاه بین‌المللی کویت، شماری زخمی شده‌اند و پروازها نیز به حالت تعلیق درآمده یا به فرودگاه‌های دیگر هدایت شده‌اند.
+
+🔸ساعتی بعد، سخنگوی وزارت دفاع کویت این حمله را «تجاوز جنایتکارانه ایران» توصیف و اعلام کرد «خسارات مادی قابل‌توجهی به ساختمان وارد شده و شماری مجروح بر جای گذاشته است.»
+
+🔸کویت شب گذشته هدف حملات موشکی و پهپادی سپاه پاسداران قرار گرفت و مقام‌های کویتی و سنتکام پیش‌تر از رهگیری حملات موشکی خبر داده بودند.
+
+🔸مقام‌های کویتی تاکنون جزئیات بیشتری درباره شمار زخمی‌ها یا میزان خسارت‌های واردشده منتشر نکرده‌اند.
+
+@Radiofarda
+</div>
+
+## Dirty_Kids — post 390898
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390898_1780472640.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به کیرم
+
+چقدر کسشر میشناسید
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390897
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390897_1780472640.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏- تا کجا میشه جا کرد؟
++ تا دسته!
+
+@Dirty_Kids 👻۰۰
+</div>
+
+## Hranews — post 113349
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارشی از بازداشت یک شهروند در زاهدان
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– حمیدالله مزارزهی، شهروند ساکن زاهدان روز دوشنبه ۱۱ خردادماه، توسط نیروهای امنیتی در این شهرستان بازداشت و به مکان نامعلومی منتقل شد.
+
+#حمیدالله_مزارزهی
+
+ادامه مطلب
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## alonews — post 124702
+
+<div align="center">
+  <a href="telegram/content/alonews_124702_1780472641.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈آسیب‌های وارد شده به فرودگاه بین‌المللی کویت پس از هدف قرار گرفتن آن توسط پهپادها و موشک‌های ایرانی
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124701
+
+<div align="center">
+  <a href="telegram/content/alonews_124701_1780472641.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈عراقچی: روابط تهران-باکو در مسیر توسعه و پیشرفت است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124700
+
+<div align="center">
+  <a href="telegram/content/alonews_124700_1780472641.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نیکزاد، نایب رئیس مجلس: در مذاکرات پاکستان، قالیباف به آمریکایی‌ها گفت با عدم اطمینان و عدم اعتماد پای مذاکره آمدیم/ هیئت آمریکایی دیگر بازنگشت و همین باعث می‌شود آن‌ها را بدعهد بدانیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/13 11:03
 ---
 

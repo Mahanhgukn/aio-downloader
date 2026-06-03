@@ -7,6 +7,80 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/14 01:54
+---
+
+## VahidOOnLine — post 243583
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243583_1780525494.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️به گزارش رویترز، مجلس نمایندگان آمریکا روز چهارشنبه از طرحی حمایت کرد که هدف آن محدود کردن اختیارات دونالد ترامپ درباره ادامه جنگ ایران بدون دریافت مجوز رسمی کنگره است.
+این طرح با ۲۱۵ رای موافق در برابر ۲۰۸ رای مخالف تصویب شد؛ چهار نماینده جمهوری‌خواه نیز در رای‌گیری به دموکرات‌ها پیوستند.
+دمکرات‌ها پس از هفت تلاش ناموفق، در هشتمین رای‌گیری سرانجام توانستند این طرح را برای مهار اختیارات نظامی کاخ سفید به تصویب برسانند. با این حال، طرح مذکور اکنون باید در سنای آمریکا به تصویب نهایی برسد و در صورت موافقت سنا، به کاخ سفید ارسال خواهد شد؛ جایی که دونالد ترامپ حق وتو دارد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOnline — post 75931
+
+<div align="center">
+  <a href="telegram/content/VahidOnline_75931_1780525495.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لحظه اصابت پهپاد انتحاری شاهد 136 به ترمینال فرودگاه کویت از دید دوربین مدار بسته.
+mohsenreyhani01
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 340442
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340442_1780525496.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+همزمان با گزارش‌ها از مذاکرات میان تهران و واشینگتن، حملات موشکی و پهپادی سپاه به مواضعی در کشورهای منطقه، از جمله کویت و بحرین، با واکنش‌های گسترده مواجه شده است. قالیباف نیز گفت دوران تهدید بی‌هزینه جمهوری اسلامی به پایان رسیده است.
+
+گفت‌وگو با بیژن کیان، کارشناس امنیت ملی
+@iranintltv
+</div>
+
+## IranIntlTV — post 340441
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340441_1780525497.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مقام‌های آمریکایی از بازداشت جمشید قمی، مدیرعامل ایرانی-آمریکایی، در کالیفرنیا خبر دادند. او متهم است تجهیزات پیشرفته ساخت آمریکا را به نهادهای نظامی و هسته‌ای جمهوری اسلامی منتقل و میلیون‌ها دلار درآمد کسب کرده است.
+
+جزییات بیشتر با امیر گیتی، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## FarsiVOA — post 219522
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️اتحادیه اروپا پیشنهاد کرده است مأموریت دریایی «آسپیدس» نقش اصلی را در پاک‌سازی مین‌ها در تنگه هرمز بر عهده بگیرد؛ اقدامی که می‌تواند در قالب یک ائتلاف به رهبری فرانسه و بریتانیا انجام شود.
+@FarsiVOA
+</div>
+
+## IranianMinds — post 21336
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21336_1780525499.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مجلس نمایندگان ایالات متحده، قطعنامه‌ای درباره اختیارات جنگی مرتبط با جنگ ایران با رأی ۲۱۵ به ۲۰۸ تصویب کرد.
+این قطعنامه تا وقتی‌که توسط سنا نیز تصویب نشود، اثر قانونی الزام‌آور ندارد و بنابراین تأثیر فوری آن محدود می‌باشد.
+
+@IranianMinds
+</div>
+
+---
 📅 بروزرسانی: 1405/03/14 01:46
 ---
 

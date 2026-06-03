@@ -7,6 +7,174 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/13 18:04
+---
+
+## VahidOOnLine — post 243517
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243517_1780497293.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️علی الزیدی، نخست‌وزیر عراق، دستور داد تا فعالیت شرکت‌های نفتی در اقلیم کردستان از روز پنج‌شنبه ۱۴ خرداد از سر گرفته شود. بر اساس بیانیه‌ای که دفتر نخست‌وزیری روز چهارشنبه منتشر کرد، این تصمیم شامل تمامی شرکت‌های فعال در این منطقه می‌شود.
+
+پیش از این، برخی از شرکت‌های انرژی فعال در کردستان عراق به دلیل حملات پهپادی مکرر به میادین نفتی و زیرساخت‌های انرژی، تولید نفت و گاز خود را متوقف کرده بودند.
+
+توقف تولید در اقلیم کردستان، در کنار مسدود شدن تنگه هرمز، باعث تشدید اختلال در عرضه انرژی در بازار خاورمیانه شده بود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243516
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243516_1780497294.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ابراهیم عزیزی، رییس کمیسیون امنیت ملی مجلس، در دیدار با عبدالله صفی‌الدین، نماینده حزب‌الله لبنان در تهران، گفت حزب‌الله «پاره تن ایران» است و توقف جنگ در تمام جبهه‌ها، به‌ویژه لبنان، در صدر متن توافق «ما» با آمریکا قرار دارد.
+او افزود: «اجازه نخواهیم داد آمریکا و اسرائیل خدشه‌ای بر اتحاد مقاومت و جمهوری اسلامی اسلامی وارد کنند. به پیروزی مقاومت معتقدیم و ایمان داریم با فهم مشترک و تلاش، هدف نهایی که همان نابودی اسرائیل است، محقق می‌شود.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13388
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روبیو: امیدواریم امروز بین اسرائیل و لبنان توافق صورت گیرد
+وزیر امور خارجه ایالات متحده:
+رهبران دولت‌های لبنان و اسرائیل در حال حاضر در مقر وزارتخانه ما برای مذاکره دیدار می‌کنند.
+ما امیدواریم که جلسه امروز بین لبنان و اسرائیل به بیانیه و برنامه عملی برای مسیر امنیتی لبنان مستقل از حزب‌الله منجر شود.
+@withyashar
+</div>
+
+## WithYashar — post 13387
+
+<div align="center">
+  <img src="telegram/content/WithYashar_13387_1780497295.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تانکر ترکرز: یک ابرتانکر VLCC برای اولین بار در چهار هفته اخیر، نفت خام را در جزیره خارک ایران بارگیری می‌کند
+
+@withyashar
+</div>
+
+## pm_afshaa — post 92222
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92222_1780497296.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نتانیاهو: ترامپ معتقده که میتونه مشکل غنی‌سازی رو با مذاکرات حل کنه؛ من فکر میکنم باید بهش فرصت داد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## VahidOnline — post 75910
+
+<div align="center">
+  <a href="telegram/content/VahidOnline_75910_1780497296.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Gholipour:
+"آغاز پویش صیغه ساعتی در تجمعات شبانه حامیان خامنه‌ای"
+beehnam
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 340370
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340370_1780497297.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ابراهیم عزیزی، رییس کمیسیون امنیت ملی مجلس، در دیدار با عبدالله صفی‌الدین، نماینده حزب‌الله لبنان در تهران، گفت حزب‌الله «پاره تن ایران» است و توقف جنگ در تمام جبهه‌ها، به‌ویژه لبنان، در صدر متن توافق «ما» با آمریکا قرار دارد.
+او افزود: «اجازه نخواهیم داد آمریکا و اسرائیل خدشه‌ای بر اتحاد مقاومت و جمهوری اسلامی اسلامی وارد کنند. به پیروزی مقاومت معتقدیم و ایمان داریم با فهم مشترک و تلاش، هدف نهایی که همان نابودی اسرائیل است، محقق می‌شود.»
+https://iranintl.com/202606038926
+</div>
+
+## RadioFarda — post 157860
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_157860_1780497298.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸کویت روز چهارشنبه در پی حمله ایران به فرودگاه این کشور که به کشته شدن یک نفر و زخمی شدن ده‌ها نفر دیگر منجر شد، دو کارمند سفارت ایران را اخراج کرد.
+
+🔸وزارت خارجه کویت اعلام کرد که حمد سلیمان المشعان، معاون وزیر امور خارجه کویت، حامد حمید یعقوبی‌فر، کاردار سفارت ایران در کویت، را احضار کرده است.
+
+🔸در بیانیه این وزارتخانه آمده که مقام کویتی اعتراض رسمی نسبت به ادامه حملات ایران را به کاردار ایران تسلیم کرد و «تصمیم دولت کویت برای کاهش تعداد اعضای سفارت ایران در کشور، نامطلوب اعلام کردن دو عضو هیئت دیپلماتیک ایران و درخواست خروج آنها از قلمرو دولت کویت ظرف حداکثر ۲۴ ساعت را به او ابلاغ کرد.»
+
+🔸وزارت دفاع کویت گفته است که ایران بامداد چهارشنبه با ۳۰ موشک بالستیک و پهپاد به خاک این کشور حمله کرد. بر اثر حمله پهپادی به فرودگاه پایتخت این کشور، یک تبعه هندی کشته و دست‌کم ۶۳ تن دیگر زخمی شدند.
+
+@RadioFarda
+</div>
+
+## RadioFarda — post 157859
+
+<div align="center">
+  <a href="https://t.me/radiofarda/157859" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📎 Document
+</div>
+
+## RadioFarda — post 157858
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_157858_1780497299.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## IranianMinds — post 21316
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عزیزان اخبار رو از چنل مردمی و‌ خوب توئیت اسیدی هم میتونید دنبال کنید سریع براتون پوشش میدن و موضوعش کاملا شبیه چنل خودمونه جوین باشید حتما:
+
+@TweetAsidi
+@TweetAsidi
+</div>
+
+## alonews — post 124807
+
+<div align="center">
+  <a href="telegram/content/alonews_124807_1780497300.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نتانیاهو: ترامپ معتقده که میتونه مشکل غنی‌سازی رو با مذاکرات حل کنه؛ من فکر میکنم باید بهش فرصت داد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124806
+
+<div align="center">
+  <a href="telegram/content/alonews_124806_1780497300.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈مجری: ترامپ شما را «دیوانه لعنتی» خطاب کرد.
+
+
+🔴نتانیاهو: گاهی اوقات، مانند بهترین خانواده‌ها، ما این اختلافات تاکتیکی را داریم. همیشه راهی برای حل آن‌ها پیدا می‌کنیم.
+
+
+🔴می‌توانیم صبح با هم اختلاف نظر داشته باشیم و تا بعدازظهر اقدام مشترکی انجام دهیم.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/13 17:56
 ---
 

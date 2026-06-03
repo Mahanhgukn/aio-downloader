@@ -7,6 +7,31 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/14 03:25
+---
+
+## VahidOOnLine — post 243590
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_243590_1780530945.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهوری آمریکا، چهارشنبه ۱۳ خرداد، گفت ممکن است طی چند روز آینده در مذاکرات با ایران پیشرفت حاصل شود و در صورت دستیابی به توافق، آمریکا انتظار دارد ذخایر اورانیوم غنی‌شده جمهوری اسلامی را در اختیار بگیرد و نابود کند. او افزود این توافق شاید تا آخر هفته حاصل شود.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## IranIntlTV — post 340452
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340452_1780530947.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهوری آمریکا، چهارشنبه ۱۳ خرداد، گفت ممکن است طی چند روز آینده در مذاکرات با ایران پیشرفت حاصل شود و در صورت دستیابی به توافق، آمریکا انتظار دارد ذخایر اورانیوم غنی‌شده جمهوری اسلامی را در اختیار بگیرد و نابود کند. او افزود این توافق شاید تا آخر هفته حاصل شود.
+</div>
+
+---
 📅 بروزرسانی: 1405/03/14 03:15
 ---
 

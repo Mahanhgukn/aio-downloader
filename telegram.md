@@ -7,6 +7,116 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/14 01:24
+---
+
+## WithYashar — post 13461
+
+<div align="center">
+  <a href="telegram/content/WithYashar_13461_1780523678.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مجلس نمایندگان ایالات متحده قطعنامه‌ای درباره اختیارات جنگ مرتبط با جنگ ایران را با رای ۲۱۵ به ۲۰۸ تصویب کرد.
+این قطعنامه تا زمانی که توسط سنا نیز تصویب نشود، اثر قانونی الزام‌آور ندارد و بنابراین تأثیر فوری آن محدود است.
+با این حال، این اولین رای موفق مجلس نمایندگان است که قدرت‌های جنگی کنگره را در مورد جنگ ایران تأیید می‌کند و اقدام نظامی آینده بدون تأیید کنگره را محدود می‌سازد.
+چهار جمهوری‌خواه به نفع آن رای دادند.
+@withyashar
+</div>
+
+## WithYashar — post 13460
+
+<div align="center">
+  <a href="telegram/content/WithYashar_13460_1780523680.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+داداش اون بحث خیلی طولانیه اون میشه زمان ریست فکتوری طوفان بزرگ ( که با داستان خیالی نوح میشناسید ) تا اینجا بدون که قبلش تمدنهای بسیار پیشرفته بود روی زمین ، باشه برای بعد از آزادی 
+😂
+</div>
+
+## IranIntlTV — post 340439
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340439_1780523681.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «پس از جنایت بزرگ جمهوری اسلامی در دی‌ماه، بسیاری از ایرانیان در برابر یک انتخاب قرار گرفته‌اند؛ ایستادن در کنار جمهوری اسلامی یا در کنار بازپس‌گیری ایران؟ ترساندن مردم از تغییر دیگر کارایی گذشته را ندارد و بسیاری بر سرنگونی و براندازی جمهوری اسلامی اصرار دارند.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 340438
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340438_1780523682.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «مردم ایران در طول سال‌های حکومت خمینی و خامنه‌ای، آرام‌آرام بخش‌های مختلف زندگی و رفاه خود را از دست داده‌اند تا جایی که امروز دغدغه بسیاری از آنها به تامین هزینه‌های اولیه زندگی، اجاره یا قسط خانه محدود شده است. پرسش مشترک بسیاری از ایرانیان این است که چگونه کار به جایی رسیده که سفر، تفریح، پس‌انداز و حتی گذران ماهانه زندگی به آرزو تبدیل شده است.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 340437
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/340437" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی برنامه با کامبیز حسینی؛ خمینی و خامنه‌ای چه گلی به سر ایران زدند؟
+@iranintlTV
+</div>
+
+## FarsiVOA — post 219519
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺ابلاغ حکم اعدام حسن مصلاوی، فعال مدنی محبوس در زندان شیبان اهواز
+
+▪️سازمان حقوق بشر کارون روز چهارشنبه ۱۳ خرداد ۱۴۰۵ اعلام کرد که حکم اعدام حسن مصلاوی (طرفی)، فعال مدنی و فرهنگی ۳۸ ساله اهل خوزستان، پس از گذشت بیش از دو سال از تایید آن در دیوان عالی کشور، به‌تازگی به‌طور رسمی در زندان شیبان اهواز به او ابلاغ شده است.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/death-sentence-served-to-ahvaz-activist-hassan-maslawi/8157016.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219518
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️دونالد ترامپ از احتمال دستیابی به نتایجی در مذاکرات با جمهوری اسلامی تا پایان این هفته خبر داد
+@FarsiVOA
+</div>
+
+## alonews — post 124944
+
+<div align="center">
+  <a href="telegram/content/alonews_124944_1780523684.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈مجلس نمایندگان ایالات متحده قطعنامه‌ای درباره اختیارات جنگ مرتبط با جنگ ایران را با رای ۲۱۵ به ۲۰۸ تصویب کرد. 
+🔴این قطعنامه تا زمانی که توسط سنا نیز تصویب نشود، اثر قانونی الزام‌آور ندارد و بنابراین تأثیر فوری آن محدود است. 
+🔴با این حال، این اولین رای موفق…
+</div>
+
+## alonews — post 124943
+
+<div align="center">
+  <a href="telegram/content/alonews_124943_1780523684.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈مجلس نمایندگان ایالات متحده قطعنامه‌ای درباره اختیارات جنگ مرتبط با جنگ ایران را با رای ۲۱۵ به ۲۰۸ تصویب کرد.
+
+
+🔴این قطعنامه تا زمانی که توسط سنا نیز تصویب نشود، اثر قانونی الزام‌آور ندارد و بنابراین تأثیر فوری آن محدود است.
+
+
+🔴با این حال، این اولین رای موفق مجلس نمایندگان است که قدرت‌های جنگی کنگره را در مورد جنگ ایران تأیید می‌کند و اقدام نظامی آینده بدون تأیید کنگره را محدود می‌سازد.
+
+
+🔴چهار جمهوری‌خواه به نفع آن رای دادند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/14 01:15
 ---
 

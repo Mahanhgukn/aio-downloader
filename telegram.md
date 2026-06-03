@@ -7,6 +7,93 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/13 06:14
+---
+
+## VahidOOnLine — post 243465
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243465_1780454655.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ستاد فرماندهی مرکزی آمریکا، سنتکام، اعلام کرد موج دیگری از پهپادهای جمهوری اسلامی که قصد حمله به نیروهای آمریکا در کویت را داشتند، امشب نتوانستند به اهداف مورد نظر اصابت کنند و پدافند هوایی آمریکا چندین پهپاد را سرنگون کردند. در این حمله هیچ‌یک از نیروها یا تجهیزات آمریکا آسیب ندیدند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOnline — post 75891
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیام‌های دریافتی:
+
+شرق تهران
+تهران نو صدای انفجار شنیده شد
+
+وحید جان ۵:۵۸ صدای تک انفجار شمال شرق تهران، سنگین بود. مثل بمب بود
+
+سمت شرق تهران یه تک صدا اومد ۵:۵۷ وحید جان
+
+ساعت 5:56 تهران شرق یه صدایی مثل انفجار شنیدم دقیق نمیدونم
+
+سلام، ساعت ۵:۵۷
+شرق تهرانیم و انگار صدای انفجار از جنوب غربی بود
+
+تهرانپارس صدای انفجار اومد ساعت۶صبح
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 340308
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340308_1780454656.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ستاد فرماندهی مرکزی آمریکا، سنتکام، اعلام کرد موج دیگری از پهپادهای جمهوری اسلامی که قصد حمله به نیروهای آمریکا در کویت را داشتند، امشب نتوانستند به اهداف مورد نظر اصابت کنند و پدافند هوایی آمریکا چندین پهپاد را سرنگون کردند. در این حمله هیچ‌یک از نیروها یا تجهیزات آمریکا آسیب ندیدند.
+https://iranintl.com/202606030741
+</div>
+
+## FarsiVOA — post 219436
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219436_1780454657.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️کانال تلگرامی وحیدآنلاین به نقل از کاربران از شنیده شدن صدای انفجار در مناطق شرق و شمال شرق تهران در ساعات اولیه روز چهارشنبه خبر می‌دهد.
+@FarsiVOA
+</div>
+
+## Dirty_Kids — post 390894
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390894_1780454657.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیو وایرال از دختری که دوتا دختر رو خفت کرده چکی‌شون میکنه
+
+باران بگیرمت کردمت
+توله‌هاتون از پارک جمع کنید
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390893
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390893_1780454660.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به کیرم
+
+چقدر کسشر میشناسید
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/03/13 06:03
 ---
 

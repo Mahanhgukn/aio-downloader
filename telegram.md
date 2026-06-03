@@ -7,6 +7,212 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/13 03:33
+---
+
+## VahidOOnLine — post 243452
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️مارکو روبیو، وزیر امور خارجه ایالات متحده، سه‌شنبه ۱۲ خرداد در جلسه استماع سنا، در پاسخ به سوال تد کروز، سناتور ارشد جمهوری‌خواه آمریکا، درباره برنامه واشنگتن برای تسلیح معترضان در ایران گفت: «من از هیچ برنامه‌ای برای مسلح کردن غیرنظامیان در ایران به منظور سرنگونی حکومتشان آگاهی ندارم.»
+پیش از این اظهارات، تد کروز با تاکید بر اینکه منصفانه نیست از مردم و معترضان ایرانی انتظار داشت با سنگ در برابر سربازان مسلح به تیربار ایستادگی کنند، اعلام کرد که پیش از این از دولت آمریکا و اسرائیل خواسته بود تا معترضان را در ایران مسلح کنند. روبیو در پاسخ به این موضع‌گیری افزود: «منظورم این است که ممکن است کشورها یا عناصر دیگری دست به این کار بزنند، اما دولت ایالات متحده قطعا چنین برنامه‌ای ندارد.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13335
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ الان میاد میگه چون موشک ها از رو آب رد شده مسافر حساب‌ میشن و رعب و وحشتشون شکسته حساب میشه پس این جنگ نیست !!! هرچی شده رفع بلا بوده فکر کنین دادین خمس و زکات حالا، هم آشتی و من به یک جنگ دیگه پایان دادم و رژیم هم تغییر کرد ولی سلاح هسته ای نباید داشته باشن
+@withyashar 👱🏽‍♂️📿
+</div>
+
+## pm_afshaa — post 92195
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ الان میاد میگه من یه جنگ دیگه رو پایان دادم
+</div>
+
+## pm_afshaa — post 92194
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92194_1780445036.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴بیانیه سپاه پاسداران: در اواخر شب گذشته ارتش متجاوز آمریکا یک نفتکش ایرانی رو در حوالی تنگه هرمز مورد اصابت پرتابه هوایی قرار داد که این نفتکش از محل موتورخانه دچار خسارت گردید. در پاسخ به این تجاوز و نقض مقررات تنگه هرمز شناور متعلق به دشمن آمریکایی صهیونی…
+</div>
+
+## pm_afshaa — post 92193
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تو آتش‌بس همدیگه رو میزنن هردو طرف هم میگن اقدام دفاعی کردیم!
+خاورمیانه عالیهههههه
+</div>
+
+## pm_afshaa — post 92192
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92192_1780445037.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سنتکام: نیروهای آمریکایی چندین موشک بالستیک و پهپاد ایرانی رو رهگیری کردن و پس از تلاش ایران برای حمله به نقاط مختلف خاورمیانه، یک ایستگاه کنترل زمینی نظامی در جزیره قشم رو هدف قرار دادن. دو موشک ایرانی پرتاب‌شده به سمت کویت قبل از اصابت به هدف نرسیدن، در…
+</div>
+
+## IranIntlTV — post 340303
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340303_1780445037.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ستاد فرماندهی مرکزی آمریکا، سنتکام، با انتشار ویدیویی در ایکس از هدف قرار دادن یک نفتکش خالی از محموله که در حال حرکت به سوی جزیره خارک در خلیج فارس بود، خبر داد.
+
+به گفته سنتکام، خدمه این کشتی که با پرچم بوتسوانا در حال حرکت بود، طی یک دوره ۲۴ ساعته به هشدارهای نیروهای آمریکایی توجه نکردند. در نهایت، یک هواپیمای آمریکایی با شلیک یک موشک به اتاق موتور کشتی، سامانه پیشران آن را از کار انداخت و مانع رسیدن نفتکش به ایران شد.
+
+بر اساس بیانیه سنتکام، ارتش آمریکا تاکنون شش کشتی تجاری را از کار انداخته و ۱۲۲ کشتی دیگر را وادار به تغییر مسیر کرده است.
+@iranintltv
+</div>
+
+## Shin_Persian — post 6444
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6444_1780445038.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔁 Quoting above tweet: Shin ✓ @hey_itsmyturn Tue, 02 Jun 2026 23:57:31 UTC Following IRGC claims of striking U.S. 5th Fleet headquarters and a regional air base, U.S. Central Command says the claims are false and all Iranian attacks on American forces failed.…
+</div>
+
+## Shin_Persian — post 6443
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔁 Quoting above tweet:
+Shin ✓ @hey_itsmyturn
+Tue, 02 Jun 2026 23:57:31 UTC
+
+Following IRGC claims of striking U.S. 5th Fleet headquarters and a regional air base, U.S. Central Command says the claims are false and all Iranian attacks on American forces failed.
+
+Source: @CENTCOM
+https://x.com/CENTCOM/status/2061960381245891028
+
+فارسی
+
+در پی ادعاهای سپاه پاسداران انقلاب اسلامی (IRGC) مبنی بر هدف قرار دادن مقر ناوگان پنجم ایالات متحده و یک پایگاه هوایی منطقه‌ای، فرماندهی مرکزی ایالات متحده (سنتکام - CENTCOM) اعلام کرد که این ادعاها کذب است و تمامی حملات ایران به نیروهای آمریکایی شکست خورده است.
+
+منبع: @CENTCOM
+https://x.com/CENTCOM/status/2061960381245891028
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6442
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6442_1780445039.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet: U.S. Central Command ✓ @CENTCOM Tue, 02 Jun 2026 23:57:18 UTC 🚫 CLAIM: Iran’s Islamic Revolutionary Guard Corps claims they struck U.S. 5th Fleet headquarters in Bahrain and a U.S. air base in the region with missiles and drones today. FALSE.…
+</div>
+
+## Shin_Persian — post 6441
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+U.S. Central Command ✓ @CENTCOM
+Tue, 02 Jun 2026 23:57:18 UTC
+
+🚫 CLAIM: Iran’s Islamic Revolutionary Guard Corps claims they struck U.S. 5th Fleet headquarters in Bahrain and a U.S. air base in the region with missiles and drones today. FALSE.
+
+✅ TRUTH: All Iranian attacks on American forces failed. U.S. forces remain vigilant and ready to
+
+↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
+
+فارسی
+
+🚫 ادعا: سپاه پاسداران انقلاب اسلامی ایران (IRGC) ادعا می‌کند که امروز با موشک و پهپاد به مقر ناوگان پنجم ایالات متحده در بحرین و یک پایگاه هوایی آمریکا در منطقه حمله کرده است. کذب.
+
+✅ واقعیت: تمام حملات ایران به نیروهای آمریکایی شکست خورد. نیروهای ایالات متحده هوشیار و آماده باقی می‌مانند.
+
+𝕏 · @shin_persian
+</div>
+
+## BBCPersian — post 282724
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻ساعتی پس از مخابره گزارش‌های متعدد از حملات موشکی به نقاطی در کویت و بحرین، سپاه پاسداران با انتشار اطلاعیه‌ای رسما از حمله به پایگاه ناوگان پنجم نیروی دریایی آمریکا خبر داد. در بیانیه بامداد چهارشنبه سپاه پاسداران آمده است: «در اواخر شب گذشته ارتش متجاوز…
+</div>
+
+## BBCPersian — post 282723
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_282723_1780445039.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻ساعتی پس از مخابره گزارش‌های متعدد از حملات موشکی به نقاطی در کویت و بحرین، سپاه پاسداران با انتشار اطلاعیه‌ای رسما از حمله به پایگاه ناوگان پنجم نیروی دریایی آمریکا خبر داد.
+
+در بیانیه بامداد چهارشنبه سپاه پاسداران آمده است: «در اواخر شب گذشته ارتش متجاوز آمریکا یک نفتکش ایرانی را در حوالی تنگه هرمز مورد اصابت پرتابه هوایی قرار داد که این نفتکش از محل موتورخانه دچار خسارت گردید. در پاسخ به این تجاوز و نقض مقررات تنگه هرمز شناور متعلق به دشمن آمریکایی صهیونی به نام پانایا مورد هدف موشک های نیروی دریایی سپاه قرار گرفت.» ️در ادامه این بیانیه آمده است که نیروهای آمریکایی همچنین یک دکل مخابراتی سپاه در جنوب جزیره قشم را هدق قرار داده‌اند و در مقابل: «در پاسخ به این تجاوز پایگاه هوایی و بالگردی آنان مستقر در یکی از کشورهای منطقه و همچنین مرکز ناوگان پنجم دریایی آمریکا مورد تهاجم موشکی و پهپادی نیروی هوافضای سپاه قرار گرفتند.»
+
+📷 Getty Images
+https://bbc.in/43Jbe25
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 390884
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390884_1780445040.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترور هدفمند در خودرو در استان میسان در جنوب عراق
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390883
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال ۱۴ اسرائیل:
+اگر رژیم ایران امشب حتی یک گلوله به سمت اسرائیل شلیک کند، تمام دروازه های جهنم به رویشان باز خواهد شد.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390882
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390882_1780445041.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حمله جمهوری اسلامی به عربستان
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390881
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390881_1780445042.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فوری، سنتکام: موشک هایی که ایران به سمت کویت و بحرین پرتاب کرد یا تو راه خراب شدن یا توسط ما منهدم شدن و هیچ اصابتی نداشتیم.
+
+ایران به ما حمله کرد و ما هم طی اقدامی دفاعی، ایستگاه کنترل زمینی نظامی ایران رو تو جزیره قشم زدیم.
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/03/13 03:23
 ---
 

@@ -7,6 +7,92 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/13 04:43
+---
+
+## VahidOOnLine — post 243462
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243462_1780449231.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️نیویورک‌پست می‌نویسد، بر اساس گزارشی جدید، یک خلبان جنگنده «اف-۱۵ئی استرایک ایگل» نیروی هوایی آمریکا در جریان جنگ ایران در کمتر از یک ماه دو بار در کویت (آتش خودی) و ایران سرنگون شد، اما هر دو بار زنده ماند.
+هویت این خلبان هرگز به‌طور علنی اعلام نشده است. مقام‌های کنونی و سابق نظامی به نشریه «های ساید ساب‌استک» گفتند که او یکی از دشوارترین پنج هفته‌های دوران خدمت یک خلبان نیروی هوایی آمریکا را از زمان جنگ ویتنام پشت سر گذاشته است.
+به نوشته نیویورک‌پست، بدبیاری او از دوم مارس آغاز شد؛ زمانی که در یک حادثه آتش خودی در کویت، نیروهای دفاعی این کشور به اشتباه به سوی سه فروند جنگنده اف-۱۵ئی آمریکایی شلیک کردند.
+در این حادثه، هر شش خدمه این سه جنگنده مجبور شدند با استفاده از صندلی پران از هواپیما خارج شوند و با چتر در خاک کویت فرود آیند. همه آن‌ها سالم نجات پیدا کردند.
+با وجود این حادثه، به گفته پیت هگست، وزیر جنگ آمریکا، خلبانان تنها چهار هفته بعد دوباره به ماموریت بازگشتند و در عملیات بمباران اهدافی در تهران شرکت کردند؛ اقدامی که او آن را نشانه شجاعت و فداکاری این نیروها دانست.
+نیویورک‌پست می‌نویسد، اما چند روز پس از آن ماموریت، بدشانسی بار دیگر به سراغ یکی از این خلبانان آمد. یک جنگنده اف-۱۵ئی بر فراز ایران هدف قرار گرفت و دو سرنشین آن در خاک ایران سقوط کردند.
+این خلبان در سوم آوریل به‌سرعت نجات داده شد، اما افسر سامانه‌های تسلیحاتی همراه او زخمی شده بود و پس از آنکه ایران برای دستگیری او جایزه تعیین کرد، ناچار شد مخفی شود.
+این سرهنگ نیروی هوایی روز بعد در عملیاتی نجات پیدا کرد. ارتش آمریکا محل اختفای او را در کوه‌های زاگرس شناسایی کرده بود؛ جایی که برای در امان ماندن پناه گرفته بود.
+مقام‌های نظامی به های ساید گفته‌اند این خلبان که ظرف پنج هفته دو بار سرنگون شده است، «تقریبا با قطعیت» نخستین خلبان هواپیمای بال‌ثابت نیروی هوایی آمریکا از زمان جنگ ویتنام به شمار می‌رود که در یک درگیری واحد دو بار سرنگون شده است.
+فرماندهی مرکزی آمریکا (سنتکام) به درخواست روزنامه نیویورک پست برای اظهارنظر درباره این گزارش پاسخی نداد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243461
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243461_1780449232.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️فرماندهی مرکزی آمریکا (سنتکام)، بامداد چهارشنبه اعلام کرد، نیروهای این کشور در پاسخ به تلاش‌های نافرجام سپاه برای حمله در سراسر خاورمیانه، حملاتی تدافعی را علیه یک ایستگاه کنترل زمینی نظامی در جزیره قشم انجام داده و هم‌زمان چندین موشک بالستیک و پهپاد سپاه را منهدم کرده‌اند. به گفته سنتکام، سپاه چندین موشک بالستیک را به سمت کشورهای همسایه شلیک کرد که همگی ناکام ماندند؛ از جمله دو موشک شلیک‌شده به سمت کویت قبل از رسیدن به هدف سقوط کردند و سه موشک شلیک‌شده به سمت بحرین نیز بلافاصله توسط نیروهای پدافند هوایی آمریکا و بحرین رهگیری و نابود شدند. همچنین ارتش آمریکا سه پهپاد انتحاری را که به سمت کشتی‌های تجاری غیرنظامی در آب‌های منطقه هدایت می‌شدند، سرنگون کرد.
+در همین حال، سنتکام با تکذیب ادعای سپاه پاسداران مبنی بر اصابت موشک و پهپاد به مقر ناوگان پنجم آمریکا در بحرین و یک پایگاه هوایی دیگر در منطقه، این ادعا را کاملا «دروغ» خواند و تاکید کرد که تمامی حملات ایران علیه نیروهای آمریکایی شکست خورده است و هیچ نیروی آمریکایی آسیب ندیده‌اند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342534
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342534_1780449233.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Acting Deputy Attorney General Todd Blanche says President Trump would have faced prison time if he hadn't won the 2024 election.
+
+Blanche, who represented Trump during the New York criminal trial that resulted in 34 felony convictions, called the case an "incredible travesty" during an interview on "Hang Out with @seanhannity."
+
+Asked whether it was "the White House or the big house," Blanche's answer was simple: "Absolutely."
+</div>
+
+## FoxNewsTwitter — post 342530
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Legendary singer-songwriter Peabo Bryson has died at age 75.
+
+Bryson died on Tuesday after suffering a stroke, according to a statement from the family.
+
+"While our hearts are broken, we find comfort in knowing how deeply Peabo was loved and how many lives were touched by his voice and his generous spirit. His legacy and music will live on for generations to come," the family said.
+
+Best known for performing Disney classics like Beauty and the Beast with Celine Dion and A Whole New World with Regina Belle, Bryson's soaring vocals made him one of the most recognizable voices in pop and R&B.
+</div>
+
+## FarsiVOA — post 219430
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️نگرانی خانواده فاطمه سپهری از وضعیت وخیم جسمانی این فعال سیاسی
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219429
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219429_1780449233.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ابرتورم در ایران؛ مرکز آمار نرخ تورم را حدود ۸۴ درصد اعلام کرد؛ گفت‌وگو با رضا غیبی
+@FarsiVOA
+</div>
+
+---
 📅 بروزرسانی: 1405/03/13 04:33
 ---
 

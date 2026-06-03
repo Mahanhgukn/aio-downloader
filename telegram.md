@@ -7,6 +7,20 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/13 04:33
+---
+
+## FarsiVOA — post 219428
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219428_1780448637.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️بازگشت محدود اینترنت و بلاتکلیفی خریداران «پرو»؛ واکنش کاربران شبکه‌های اجتماعی
+@FarsiVOA
+</div>
+
+---
 📅 بروزرسانی: 1405/03/13 04:23
 ---
 

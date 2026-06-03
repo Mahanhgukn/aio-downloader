@@ -7,6 +7,127 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/13 04:13
+---
+
+## VahidOOnLine — post 243457
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_243457_1780447421.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️به گزارش فرارو، حمام تاریخی گنجعلی‌خان کرمان، یکی از شاخص‌ترین بناهای دوره صفوی، با آسیب‌های جدی در تزئینات کاشی‌کاری خود روبه‌رو شده است. بخش‌هایی از کاشی‌ها به‌قدری فرسوده شده‌اند که با کوچک‌ترین تماس فرو می‌ریزند و در برخی نقاط دیوار گرمینه نیز تورم و جداشدگی کاشی‌ها، خطر ریزش کامل آن‌ها را افزایش داده است. این حمام که در مجموعه تاریخی گنجعلی‌خان قرار دارد، به‌دلیل معماری منحصربه‌فرد کاشی‌کاری‌های نفیس، مقرنس‌کاری‌ها، حجاری‌ها و نقاشی‌های دیواری، از ارزشمندترین گرمابه‌های تاریخی ایران به شمار می‌رود. حمام گنجعلی‌خان که تا حدود ۶۰ تا ۷۰ سال پیش فعال بود، اکنون به موزه مردم‌شناسی تبدیل شده و از پربازدیدترین جاذبه‌های گردشگری کرمان است. با این حال، روند فرسودگی و تخریب آن در سایه بی‌توجهی مسئولان ادامه دارد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243456
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️تصاویر منتشر شده در شبکه‌های اجتماعی، بامداد چهارشنبه، هدف قرار گرفتن و سقوط موشک‌های سپاه را در کویت نشان می‌دهد. همزمان سنتکام در بیانیه‌ای اعلام کرد چندین موشک بالستیک با موفقیت رهگیری شدند و تاکید کرده که رژیم ایران حمله‌های موشکی متعددی علیه همسایگان منطقه‌ای خود انجام داده اما هیچ‌یک به هدف برخورد نکرده‌اند. قطعات دو موشک نیز در راه کویت از هم پاشیده است. سپاه نیز با انتشار بیانیه‌ای اعلام کرد ناوگان پنجم نیروی دریایی آمریکا که مقر آن در بحرین است را مورد تهاجم پهپادی و موشکی قرار داده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## Shin_Persian — post 6451
+
+
+
+
+## Shin_Persian — post 6448
+
+<div align="center">
+  <a href="telegram/content/Shin_Persian_6448_1780447424.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Wed, 03 Jun 2026 00:37:30 UTC
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6447
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Wed, 03 Jun 2026 00:35:45 UTC
+
+Got visuals now, not a fighter jet, but a twin engine low passing NW -&gt; SE
+
+فارسی
+
+تصاویر را دریافت کردم، یک جنگنده نیست، بلکه یک هواپیمای دو موتوره است که در ارتفاع پایین از سمت شمال غربی به سمت جنوب شرقی عبور می‌کند.
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 219425
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️رزمایش سالانه ناتو در دریای بالتیک در مقیاس کوچکتر برگزار می‌شود
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219424
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219424_1780447425.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️افزایش چشمگیر اعدام زندانیان سیاسی و بازداشت‌شدگان اعتراضات دی‌ماه ۱۴۰۴؛ گفت‌وگو با سینا یوسفی
+@FarsiVOA
+</div>
+
+## IranianMinds — post 21285
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 بنده خدا اومد یه تور گذاشت برن یکم آب بازی کنن و بگردن بعد از شانسش رسانه ای شد همه جا پخشش کردن و این حکومتیام دیدن دختر پسر با همن و مختلطه توره و ریختن سرشو نذاشتن برگزار کنه چیزیو ...
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21284
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21284_1780447426.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فقط 
+5️⃣ روز فرصت باقی مونده
+🔴
+
+🎉 500 هزارتومن بونوس رایگان فقط با ثبت نام بدون هیچگونه واریزی!
+
+
+😮 تنها سایتی که با عضویت بدون واریز 500,000 تومان شارژ بی قیدو شرط میده #وینرو هست
+💰
+
+
+7️⃣
+1️⃣ خرداد، افتتاحیه سایت با جوایز بزرگ
+🔥
+
+
+👑 #معتبرترین سایت ایرانی 
+⬇️
+
+🌐 Winro.io
+
+🌐 Winro.io
+
+📱کانال اخبار و هدایا Aa12 
+🎁
+
+📱 @winro_io
+</div>
+
+---
 📅 بروزرسانی: 1405/03/13 04:03
 ---
 

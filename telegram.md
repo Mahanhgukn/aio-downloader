@@ -7,6 +7,192 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/13 19:54
+---
+
+## VahidOOnLine — post 243533
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243533_1780503885.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عباس عراقچی، وزیر خارجه جمهوری اسلامی، در شبکه ایکس نوشت: «نیروهای مسلح ما در حال انجام حملات دفاعی در چارچوب حق مشروع دفاع از خود علیه مکان‌هایی هستند که از آنجا به ایالات متحده اجازه داده می‌شود برای حمله به کشتیرانی غیرنظامی و نقض آتش‌بس استفاده کند.»
+
+او همچنین تاکید کرد: «هرگونه اقدام خصمانه با پاسخی فوری و قاطع مواجه خواهد شد.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13399
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💩فوری خبرگزاری فارس: 💩
+
+تاریخ برگزاری آئین وداع، تشییع و خاکسپاری علی خامنه‌ای اعلام شد
+
+۲۰، ۲۱، ۲۲ خرداد؛ وداع در حرم امام‌ خمینی
+۲۳ خرداد؛ تشییع در تهران
+۲۴ خرداد؛ تشییع در قم
+۲۵ خرداد؛ تشییع در عراق
+۲۶ خرداد؛ تشییع و خاکسپاری در مشهد
+@withyashar
+</div>
+
+## mwarmonitor — post 10099
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_10099_1780503886.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨یک ملوان آمریکایی در ناوشکن USS Rafael Peralta (DDG 115) هنگام گشت‌زنی این ناو در دریای عرب و در چارچوب اجرای محاصره/بلاکاد آمریکا علیه ایران، یک کشتی تجاری را زیر نظر دارد. تا تاریخ ۳ ژوئن، نیروهای فرماندهی مرکزی آمریکا (سنتکام) ۱۲۵ کشتی تجاری را تغییر مسیر داده و ۶ کشتی را از کار انداخته‌اند تا از رعایت مقررات اطمینان حاصل شود.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10098
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_10098_1780503886.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✈️نیروی هوایی ایالات متحده امروز در پی درگیری های اخیر با ایران، به انتقال گسترده تجهیزات و جنگنده‌ها از طریق اروپا به سمت خاورمیانه ادامه داده و ظرفیت نظامی در حال افزایش است.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10097
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴(رویترز) – مارکو روبیو، وزیر خارجه ایالات متحده، روز چهارشنبه به قانون‌گذاران گفت که آمریکا فروش تسلیحاتی به ارزش حداکثر ۱۴ میلیارد دلار به تایوان را متوقف نکرده است، اما افزود که این فروش همچنان در دست بررسی است.
+
+🔸روبیو در جریان جلسه‌ای از کمیته روابط خارجی مجلس نمایندگان، در پاسخ به پرسشی درباره این توقف از سوی جیم کاستا، نماینده ایالت کالیفرنیا، این توضیحات را ارائه کرد.
+
+@mwarmonitor
+</div>
+
+## IranIntlTV — post 340386
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340386_1780503889.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عباس عراقچی، وزیر خارجه جمهوری اسلامی، در شبکه ایکس نوشت: «نیروهای مسلح ما در حال انجام حملات دفاعی در چارچوب حق مشروع دفاع از خود علیه مکان‌هایی هستند که از آنجا به ایالات متحده اجازه داده می‌شود برای حمله به کشتیرانی غیرنظامی و نقض آتش‌بس استفاده کند.»
+
+او همچنین تاکید کرد: «هرگونه اقدام خصمانه با پاسخی فوری و قاطع مواجه خواهد شد.»
+https://iranintl.com/202606034024
+</div>
+
+## IranIntlTV — post 340385
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340385_1780503889.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روزنامه اسرائیل هیوم به نقل از رئیس پیشین موساد نوشت اگر ترامپ به تهران امتیاز اقتصادی ندهد، جمهوری اسلامی تا پایان سال ۲۰۲۶ سرنگون خواهد شد. همزمان یک مقام ارشد موساد از تشکیل واحد ویژه نفوذ و یک ارتس سری با هدف تغییر رژیم در ایران خبر داد.
+
+گزارشی از مجتبا پورمحسن
+@iranintltv
+</div>
+
+## FarsiVOA — post 219487
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مارکو روبیو، وزیر خارجه آمریکا که در کمیته امور خارجی مجلس نمایندگان حضور داشت در پاسخ به سارا جیکوب، عضو دموکرات کمیته گفت که عملیات خشم حماسی پایان یافته است و گزارش‌هایی که ادعای قدرتمندتر شدن رژیم ایران را دارند، دروغ است
+</div>
+
+## FarsiVOA — post 219486
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جزئیات دور تازه تحریم‌های آمریکا علیه جمهوری اسلامی
+</div>
+
+## Dirty_Kids — post 390918
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏از شیراز به پایین جنگه، از شیراز به بالا آتش‌بس.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390917
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390917_1780503891.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هوش مصنوعی اگه دختر بود:
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 124847
+
+<div align="center">
+  <a href="telegram/content/alonews_124847_1780503891.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈واکنش چین به تهدید تعرفه‌ای ترامپ:
+جنگ تعرفه‌ای و جنگ تجاری به سود هیچ طرفی نیست
+
+
+🔴 سخنگوی وزارت امور خارجه چین به گزارش‌هایی درباره پیشنهاد دونالد ترامپ رئیس‌جمهوری آمریکا برای اعمال تعرفه‌های اضافی ۱۰ تا ۱۲.۵ درصدی بر کالاهای وارداتی از ۶۰ اقتصاد از جمله چین واکنش نشان داد و گفت: پکن همواره با تمامی اقدامات تعرفه‌ای یکجانبه مخالف بوده است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124846
+
+<div align="center">
+  <a href="telegram/content/alonews_124846_1780503891.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزارت کشور بحرین: ۱۵ نفر عوامل مرتبط با سپاه بازداشت شدند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124845
+
+<div align="center">
+  <a href="telegram/content/alonews_124845_1780503892.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کیم جونگ اون رهبر کره شمالی با تیم فوتبال زنان ناگوهیانگ ، اولین تیم از کره شمالی که قهرمان لیگ قهرمانان زنان آسیا شد دیدار کرد
+
+
+🔴واکنش اعضای تیم بعد از دیدن رهبرشون دیدنیه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124844
+
+<div align="center">
+  <a href="telegram/content/alonews_124844_1780503893.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حزب‌الله فیلمی منتشر کرد که یک پهپاد FPV مجهز به دوربین حرارتی را نشان می‌دهد که دیروز گروهی از سربازان ارتش اسرائیل را در حومه زوطر الشرقیه در جنوب لبنان هدف قرار داد.
+
+
+🔴 پهپاد FPV مستقیماً به صورت یکی از سربازان ارتش اسرائیل اصابت کرد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/13 19:45
 ---
 

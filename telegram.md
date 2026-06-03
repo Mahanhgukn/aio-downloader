@@ -7,6 +7,64 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/13 07:33
+---
+
+## VahidOOnLine — post 243466
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️محسن جلیلوند، استاد روابط بین‌الملل، در برنامه «کامنت» فرارو، با اشاره به پیش‌بینی‌پذیر بودن رفتارهای نظامی در منطقه گفت: «من به شما قول می‌دهم که آمریکایی‌ها از قبل محاسبه تنگه هرمز را کرده بودند. این‌گونه نیست که فکر کنیم یکدفعه غافلگیر شده‌اند. مسائلی مثل انسداد یا محدودیت در تنگه هرمز در استراتژی‌های نظامی و امنیتی ایالات متحده فرضیاتی کاملا پیش‌بینی‌شده و از‌پیش‌محاسبه‌بردار هستند.» او تاکید کرد: «آن‌ها حتی یک امتحان هم در جهان زدند تا ببینند اگر نفت، مواد اولیه شیمیایی یا هلیوم از تنگه هرمز نرود، دنیا چه خواهد شد. آمریکایی‌ها قبل از این وضعیت، ونزوئلا را جمع کردند تا بتوانند نفت آن را جایگزین نفت تنگه هرمز کنند و با روسیه هم معاملاتی کردند تا نفتش را بفروشد. آن‌ها از این طریق هم خواستند اروپای همراهی‌نکرده را ادب کنند و هم چین را تحت کنترل درآورند تا ۴۰ درصد نفتی که از خاورمیانه می‌برد، کنترل شود».
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342541
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342541_1780459405.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Eyes are now turning to California as voters weigh in on a slate of races that could reshape the state's political landscape.
+
+In Los Angeles, independent challenger Spencer Pratt has emerged in recent months as an unexpected force with his bid to unseat Mayor Karen Bass, who has been criticized over homelessness, infrastructure and the city's emergency response. Bass is also facing a left-wing challenge from Councilwoman Nithya Raman.
+
+The battle to replace Gov. Gavin Newsom is also generating its own political drama, with Republicans Steve Hilton and Chad Bianco fighting a field of Democrats in the state's jungle primary system.
+</div>
+
+## BBCPersian — post 282731
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻به گزارش رویترز سازمان اطلاعات مرکزی آمریکا، سیا، مشارکت در بعضی از ارزیابی‌های اطلاعاتی را متوقف کرده است. به گفته منابع آگاه، سازمان سیا در ارزیابی‌های مربوط به جنگ با ایران که دفتر جاسوسی ارشد کشور تهیه می‌کند مشارکت نمی‌کند. توقف مشارکت به علت «بالا…
+</div>
+
+## BBCPersian — post 282730
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_282730_1780459406.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻به گزارش رویترز سازمان اطلاعات مرکزی آمریکا، سیا، مشارکت در بعضی از ارزیابی‌های اطلاعاتی را متوقف کرده است.
+
+به گفته منابع آگاه، سازمان سیا در ارزیابی‌های مربوط به جنگ با ایران که دفتر جاسوسی ارشد کشور تهیه می‌کند مشارکت نمی‌کند. توقف مشارکت به علت «بالا گرفتن اختلافات بر سر حوزه‌های مسئولیت و اشتراک‌گذاری اطلاعات» گزارش شده است.
+
+یک مقام دولت آمریکا و سه منبع آگاه به رویترز گفتند که درگیری میان سی‌آی‌ای و دفتر مدیر اطلاعات ملی آمریکا «بیش از یک سال است که بالا گرفته» و تحلیل‌های امنیت ملی این کشور را دچار «اختلال» کرده است. روسای جمهور آمریکا همیشه از این تحلیل‌ها برای مقابله با چالش‌های سیاست خارجی آمریکا استفاده می‌کنند.
+
+این منابع به علت حساسیت موضوع نخواستند نامشان فاش شود.
+
+این افراد گفتند یک کارگروه که تولسی گابارد، مدیر سابق اطلاعات ملی آمریکا، در آوریل ۲۰۲۵ تشکیل داده بود موضوع اختلاف است.
+
+
+📷Bloomberg via Getty Images
+https://bbc.in/3RO0jS8
+@BBCPersian
+</div>
+
+---
 📅 بروزرسانی: 1405/03/13 07:23
 ---
 

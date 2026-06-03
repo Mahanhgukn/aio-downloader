@@ -7,6 +7,141 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/14 02:05
+---
+
+## FoxNewsTwitter — post 342585
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342585_1780526154.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+FOX NEWS REPORT: The House has passed a war powers resolution directing President Trump to either end U.S. military action against Iran or seek authorization from Congress to continue it, according to FOX News' @BillMelugin_.
+</div>
+
+## IranIntlTV — post 340448
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340448_1780526157.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در نامه‌ای به مجتبی؛
+نمایندگان مجلس: باید بُرد موشک‌ها به دفتر ترامپ برسد
+
+گروهی از نمایندگان مجلس در نامه‌ای به مجتبی خامنه‌ای خواستار افزایش بُرد موشک‌های جمهوری اسلامی تا سطحی شدند که به گفته آن‌ها «به دفتر کار دونالد ترامپ برسد».
+
+کامبیز حسینی در «برنامه» به این موضوع می‌پردازد.
+
+«یک ایران صدای شما را می‌شنود»
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/6zvdzHHR308
+@iranintltv
+</div>
+
+## IranIntlTV — post 340447
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340447_1780526160.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری سپاهی فارس خبر داد:
+پویش «فعال‌سازی قطع داوطلبانه دسترسی به اینترنت بین‌الملل»
+
+خبرگزاری فارس از راه‌اندازی پویش «فعال‌سازی قطع داوطلبانه دسترسی به اینترنت بین‌الملل» خبر داده است.
+
+در حالی که میلیون‌ها ایرانی برای کار، آموزش، ارتباطات و کسب‌وکار به اینترنت وابسته‌اند و سال‌ها با فیلترینگ و محدودیت دست‌وپنجه نرم کرده‌اند، حالا عده‌ای پیشنهاد می‌کنند مردم داوطلبانه اینترنت جهانی را برای خودشان قطع کنند.
+
+کامبیز حسینی در «برنامه» به این موضوع می‌پردازد.
+
+«یک ایران صدای شما را می‌شنود»
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/6zvdzHHR308
+@iranintltv
+</div>
+
+## IranIntlTV — post 340446
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340446_1780526162.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آرین از تهران: ما برای خودمان رفتیم به خیابان و جنگیدیم
+
+«یک ایران صدای شما را می‌شنود»
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/6zvdzHHR308
+@iranintltv
+</div>
+
+## IranIntlTV — post 340445
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340445_1780526164.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حسین از اهواز: در هر محله ۲۰ نفر با پرچم حزب‌الله بیرون می‌آیند، بعد به ما می‌گویند وطن‌فروش
+
+«یک ایران صدای شما را می‌شنود»
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/6zvdzHHR308
+@iranintltv
+</div>
+
+## IranIntlTV — post 340444
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340444_1780526167.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اشکان از تهران: در این سه ماهی که ما نبودیم...
+
+«یک ایران صدای شما را می‌شنود»
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/6zvdzHHR308
+@iranintltv
+</div>
+
+## IranIntlTV — post 340443
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/340443" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی سیاست با مراد ویسی: ایرانِ امروز؛ میراث سیاه و خونین خمینی و خامنه‌ای
+@iranintlTV
+</div>
+
+## FarsiVOA — post 219523
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺روایت مژده هاشمی بازرگانی از زندان قزوین؛ از شکنجه و بازجویی تا پرونده‌سازی‌های امنیتی
+
+▪️مژده هاشمی بازرگانی، شهروند زندانی در زندان مرکزی قزوین، در یک فایل صوتی از زندان به بیان روایتی تکان‌دهنده از بازداشت شبانه، ضرب‌وشتم، بازجویی‌های طولانی، فشار برای اعتراف اجباری و نگرانی از وضعیت مادر سالخورده‌اش پرداخته است.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/iranian-protester-mojdeh-hashemi-abuse-qazvin-prison/8157026.html
+@FarsiVOA
+</div>
+
+---
 📅 بروزرسانی: 1405/03/14 01:54
 ---
 

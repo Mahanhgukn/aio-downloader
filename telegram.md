@@ -7,6 +7,25 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/13 08:13
+---
+
+## FoxNewsTwitter — post 342543
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"An unbelievable honor."
+
+With the race still too soon to call, Republican California gubernatorial candidate Steve Hilton thanks his supporters in the state, saying as a "proud American," it's an honor to have gotten the support he's received.
+
+"One million Californians, and rising, putting their hopes in me to bring change and put our state back on track, it's an unbelievable honor."
+
+"We've got to turn this state around, and I think tonight looks like the first step down that very important road."
+</div>
+
+---
 📅 بروزرسانی: 1405/03/13 08:03
 ---
 

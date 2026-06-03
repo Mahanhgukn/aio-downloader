@@ -7,6 +7,22 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/13 07:04
+---
+
+## alonews — post 124660
+
+<div align="center">
+  <a href="telegram/content/alonews_124660_1780457642.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کارشناس صدا و سیما: کوروش و ایران باستان تخیلی هستن
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/13 06:54
 ---
 

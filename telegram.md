@@ -7,6 +7,238 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/13 18:14
+---
+
+## WithYashar — post 13390
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نتانیاهو به ان‌بی‌سی: وضعیت در ایران تمام نشده، اما ضعیف شده است. ما و آمریکایی‌ها آماده‌ایم در صورت لزوم اقدام کنیم.
+اگر تشدید تنش لازم باشد، آن را به ترامپ واگذار می‌کنیم و باز کردن تنگه هرمز از طریق نظامی امکان‌پذیر است.
+
+ترامپ در حال بررسی چندین گزینه است و ما هر دو روز یکبار با هم صحبت می‌کنیم.
+ایران هنوز با حذف مواد هسته‌ای موافقت نکرده است، اما فشار فزاینده‌ای وجود دارد.
+@withyashar
+</div>
+
+## WithYashar — post 13389
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روبیو: سکوهای پرتاب موشک ایران آسیب شدیدی دیده‌اند که منجر به زوال قابل توجه قابلیت‌های آنها شده است.
+
+ما می‌خواهیم شاهد تغییر در ایران و حکومت مردم بر آن باشیم و دیگر تهدیدی برای منطقه نباشد.
+
+امیدواریم که ایران جاه‌طلبی‌های هسته‌ای خود را کنار بگذارد و حمایت از تروریسم در سراسر جهان را متوقف کند.
+
+«عملیات خشم حماسی» به هدف خود یعنی شکستن سپر سنتی ایران و کشاندن آن به پای میز مذاکره دست یافته است.
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342559
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342559_1780497862.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Middle East tensions are on the rise after U.S. forces disabled an Iranian vessel near Karg Island and struck a military communications site on Qeshm Island, prompting Iran to launch retaliatory attacks on Kuwait and Bahrain while other missiles and drones were intercepted.
+
+@BillHemmer describes what's happening in the Middle East as clashes between Israel and Hezbollah continue along the Israel–Lebanon border, adding another layer of pressure to an already volatile region.
+</div>
+
+## FoxNewsTwitter — post 342558
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342558_1780497864.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH LIVE: Senate hearing spotlights debate over gender transition procedures for minors https://twitter.com/i/broadcasts/1qxoNNbvyygJv
+</div>
+
+## pm_afshaa — post 92223
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92223_1780497865.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎙️مجری: ترامپ شما رو «دیوانه لعنتی» خطاب کرد؟
+
+نتانیاهو: گاهی اوقات، مانند بهترین خانواده‌ها، ما این اختلافات تاکتیکی رو داریم. همیشه راهی برای حل آنها پیدا می‌کنیم. میتونیم صبح با هم اختلاف نظر داشته باشیم و تا بعدازظهر اقدام مشترکی انجام بدیم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 340372
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340372_1780497867.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻لامین یامال، ستاره جوان بارسلونا و تیم ملی اسپانیا، بر اساس گزارش جدید مرکز بین‌المللی مطالعات ورزشی (CIES)، گران‌ترین بازیکن جهان است. ارزش این بازیکن ۱۸ ساله اسپانیایی ۳۵۸ میلیون یورو برآورد شده است.
+
+🔹ارلینگ هالند، مهاجم منچسترسیتی، با ارزش ۲۲۷ میلیون یورو در رتبه دوم این فهرست قرار دارد. یامال و هالند تنها بازیکنان فوتبال جهان هستند که ارزش آنها از مرز ۲۰۰ میلیون یورو عبور کرده است.
+
+🔹کیلیان امباپه، ستاره فرانسوی رئال مادرید، با ارزش تقریبی ۱۶۶ میلیون یورو در رتبه سوم این رده‌بندی قرار گرفته است.
+
+🔹مایکل اولیسه، بازیکن فرانسوی بایرن مونیخ، با ارزش ۱۴۰ میلیون یورو در جایگاه چهارم قرار دارد.
+
+🔹مورگان راجرز، بازیکن ۲۳ ساله استون ویلا، با ارزش ۱۳۶ میلیون یورو در رتبه پنجم این فهرست ایستاده است.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 340371
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340371_1780497868.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرخط خبرهای چهارشنبه ۱۳ خرداد
+@iranintltv
+</div>
+
+## FarsiVOA — post 219476
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219476_1780497869.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️مارکو روبیو، وزیر خارجه آمریکا در کمیته امور خارجی مجلس نمایندگان آمریکا در پاسخ به انتقادات گرگوری میکس عضو ارشد دموکرات کنگره درباره افزایش هزینه‌ها در آمریکا در پی جنگ با جمهوری اسلامی گفت جلوگیری از دستیابی رژیم ایران به سلاح هسته‌ای از افزایش موقت قیمت‌ها مهم‌تر است.
+</div>
+
+## DW_Farsi — post 125460
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125460_1780497869.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 تشدید حملات اسرائیل به لبنان هم‌زمان با ادامه مذاکرات در واشنگتن
+
+لبنان می‌گوید، روز چهارشنبه سوم ژوئن از سوی اسرائیل به هدفی در نزدیکی بیروت، پایتخت این کشور حمله شده است.
+
+خبرگزاری رسمی لبنان (NNA)اعلام کرده که یک خودرو در جاده "خالده"، در ورودی جنوبی بیروت هدف واقع شده است. این خبرگزاری همچنین از حمله به حدود ۲۰ نقطه در جنوب کشور در روز چهارشنبه خبر داده است.
+
+پیش از این ارتش اسرائیل به ساکنان چندین روستای جنوب لبنان هشدار داده بود، تا پیش از آغاز حملات خانه‌های خود را تخلیه کنند.
+
+یک منبع پزشکی در شهر صور در جنوب لبنان به خبرگزاری فرانسه گفت که دو حمله اسرائیل به منطقه "الحوش" در نزدیکی این شهر ساحلی در روز چهارشنبه، منجر به کشته شدن شش نفر شد که چهار نفر از آن‌ها اتباع سوریه و دو نفر فلسطینی بودند.
+
+از سوی دیگر، ارتش اسرائیل نیز از رهگیری یک "هواگرد متخاصم" که از لبنان وارد حریم هوایی این کشور شده بود خبر داد که نخستین مورد از چنین نفوذهایی است که ارتش این کشور در بیش از ۲۴ ساعت گذشته گزارش می‌کند.
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 15632
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15632_1780497870.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 نخستین بارگیری ابرنفتکش از خارگ پس از چهار هفته
+
+به گزارش تانکر ترکرز ؛
+یک ابرنفتکش از نوع VLCC برای نخستین بار در چهار هفته گذشته در حال بارگیری نفت خام از پایانه نفتی جزیره خارگ است.
+این تحول پس از هفته‌ها اختلال و کاهش فعالیت در مهم‌ترین پایانه صادرات نفت ایران رخ می‌دهد و می‌تواند نشانه‌ای از بازگشت تدریجی جریان صادرات نفت خام کشور باشد.
+
+ازسرگیری بارگیری ابرنفتکش‌ها در خارگ، در صورت تداوم، می‌تواند نشانه‌ای از احیای ظرفیت صادراتی ایران و کاهش فشار بر زنجیره صادرات نفت کشور باشد؛ موضوعی که از منظر درآمدهای ارزی و بازار انرژی اهمیت ویژه‌ای دارد.
+
+
+👺Phantom
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15630
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 گزارش‌ها از ثبت آتش‌سوزی در یک کمپ نظامی در بحرین
+بر اساس تصاویر ماهواره‌ای منتشرشده، سامانه‌های رصد آتش ناسا وقوع آتش‌سوزی در محدوده کمپ نظامی صخیر در بحرین را ثبت کرده‌اند.
+
+این پایگاه بامداد امروز توسط موشک‌های بالستیک و پهپاد سپاه مورد هدف قرار گرفته بود.
+
+
+👺Phantom
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 21317
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 اسرائیل هیوم: آمریکا از ایران خواسته قبل از اعلام توافق، محل ذخیره اورانیوم غنی‌شده رو روشن کنه.
+
+واشنگتن به تهران اطلاع داده که پیش از اطلاع از مکان اورانیوم غنی‌شده، محاصره و تحریم‌ها رو لغو نخواهد کرد.
+
+@IranianMinds
+</div>
+
+## idfinfarsi — post 11733
+
+<div align="center">
+  <img src="telegram/content/idfinfarsi_11733_1780497870.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سخنگوی ارتش اسرائیل و سخنگوی پلیس:
+
+نیروهای ارتش اسرائیل و مرزبانی موفق شدند تلاش برای قاچاق تسلیحات را در مرز شرقی خنثی کنند
+
+در طول شب (سه‌شنبه)، رزمندگان یگان متیلان (کمین، رصد، رهگیری، جنگ سیار) از مرزبانی در یهودا و سامره به‌همراه نیروهای تیپ بیکعا و هاعماکیم با هدایت دیده‌بانان گردان ۹۰۹، در نزدیکی حصار مرز شرقی اقدام به جست‌وجو کردند و یک کیف را که در آن ۱۰ قبضه سلاح کمری و خشاب‌های مهمات پنهان شده بود، شناسایی کردند.
+
+تسلیحات کشف‌شده برای ادامه بررسی به منطقه یهودا و سامره از پلیس اسرائیل منتقل شد.
+
+نیروهای امنیتی در منطقه مرز شرقی مستقر هستند تا امنیت شهروندان کشور اسرائیل را حفظ کنند.
+</div>
+
+## alonews — post 124809
+
+<div align="center">
+  <a href="telegram/content/alonews_124809_1780497871.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈روبیو، وزیر خارجه آمریکا: رهبرانی از لبنان و اسرائیل هم‌اکنون در ساختمان وزارت خارجه آمریکا برای مذاکره نشسته‌اند.
+
+
+🔴امیدواریم نشست امروز بین لبنان و اسرائیل به بیانیه و برنامه عملی برای یک مسیر امنیتی در لبنان منجر شود.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124808
+
+<div align="center">
+  <a href="telegram/content/alonews_124808_1780497871.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 روبیو: ترامپ به ایران اجازه نمی‌داد که یک سپر تسلیحات متعارف بسازد که بتواند پشت آن پنهان شود و برنامه هسته‌ای خود را توسعه دهد.
+
+
+🔴عملیات خشم حماسی به هدف خود که درهم شکستن دفاع سنتی ایران و کشاندن آن به پای میز مذاکره بود، دست یافت.
+
+
+🔴نیروی دریایی ایران اکنون در قعر دریا است، دیگر نیروی هوایی ندارد و قابلیت‌های موشکی و صنایع دفاعی آن تضعیف شده است.
+
+
+🔴سکوهای پرتاب موشک ایران آسیب قابل توجهی دیده‌اند که قابلیت‌های آنها را به شدت کاهش داده است.
+
+
+🔴ما امیدواریم که ایران جاه‌طلبی‌های هسته‌ای خود را کنار بگذارد و حمایت از تروریسم در سراسر جهان را متوقف کند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/13 18:04
 ---
 

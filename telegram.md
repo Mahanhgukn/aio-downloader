@@ -7,6 +7,110 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/13 09:13
+---
+
+## WithYashar — post 13339
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وال‌استریت ژورنال: حمله سنتکام به جزیره قشم، قیمت نفت را صعودی کرد و چشم‌انداز بازگشایی تنگه هرمز را کمرنگ ساخت.
+@withyashar
+</div>
+
+## IranIntlTV — post 340313
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340313_1780465403.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های دولتی و تحلیلگران چینی در ساعت‌های گذشته روایت‌هایی از بن‌بست در مذاکرات تهران و آمریکا ارائه کرده‌اند که ممکن است به رویه «جنگ همراه مذاکره» تبدیل شود.
+
+گفت‌وگو با توماج طاهباز، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## FarsiVOA — post 219439
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Farsi VOA pinned an audio file
+</div>
+
+## FarsiVOA — post 219438
+
+<div align="center">
+  <a href="https://t.me/farsivoa/219438" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴📢‌ پادکست خبری سه‌شنبه ۱۲ خرداد ۱۴۰۵
+
+🛜در صورتی که با مشکل اینترنت مواجه هستید میتوانید اخبار صدای آمریکا را از نسخه‌های پادکست خبری ما روزانه دنبال کنید و یا اخبار را از نسخه سبک وب‌سایت ما پیگیر باشید:
+https://ir.voanews.com/lite
+
+📡بروزترین فرکانسهای ماهواره‌ای را نیز میتوانید از صفحه زیر پیگیری کنید:
+https://ir.voanews.com/satellite
+
+🔔دیگر شبکه‌های اجتماعی ما هم دنبال کنید:
+https://linktr.ee/voafarsi
+
+
+
+ما را به اشتراک بگذارید
+@farsivoa
+</div>
+
+## DW_Farsi — post 125440
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125440_1780465405.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 حملات پهپادی و موشکی سپاه به کویت و بحرین
+
+فرماندهی مرکزی آمریکا (سنتکام) و سپاه پاسداران از حملات جدید موشکی و پهپادی خبر دادند.
+
+کویت از رهگیری حملات موشکی و پهپادی ایران خبر داد، در بحرین آژیر خطر به صدا درآمد. وزارت کشور بحرین بامداد چهارشنبه ۱۳ خرداد (۳ ژوئن) از شهروندان و ساکنان این کشور خواست که آرامش خود را حفظ کنند و به نزدیک‌ترین مکان امن بروند.
+
+رسانه‌های نزدیک به سپاه پاسداران از حمله به فرودگاه دبی در امارات متحده عربی و همچنین از به صدا درآمدن آژیرهای خطر در شرق عربستان خبر دادند.
+
+فرماندهی مرکزی آمریکا (سنتکام) هم تائید کرد که چند موشک بالستیک و پهپاد ایرانی و یک ایستگاه کنترل زمینی نظامی در قشم را منهدم کردند.
+
+سنتکام همچنین گفته است بامداد روز چهارشنبه ۱۳ خرداد (۳ ژوئن) موج دیگری از پهپادهای منتسب به ایران که قصد حمله به نیروهای آمریکایی در کویت را داشتند، توسط سامانه‌های پدافند هوایی آمریکا سرنگون شدند.
+
+طبق داده‌های سنتکام هیچ‌یک از نیروها یا تاسیسات آمریکا در کویت دچار آسیب نشده‌اند.
+
+@dw_farsi
+</div>
+
+## alonews — post 124675
+
+<div align="center">
+  <a href="telegram/content/alonews_124675_1780465406.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈احتمال شنیده شدن صدای انفجار کنترل شده در محدوده جنوب اصفهان
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124674
+
+<div align="center">
+  <a href="telegram/content/alonews_124674_1780465406.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سخنگوی آتش‌نشانی: صبح امروز خودروی نیسان در حال سوخت‌گیری در جایگاه سوخت گاز واقع در بزرگراه یاسینی بود که به‌دلایل نامشخص دچار انفجار شد.
+
+
+🔴در این حادثه دو نفر مصدوم شدند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/13 09:03
 ---
 

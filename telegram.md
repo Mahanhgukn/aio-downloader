@@ -7,6 +7,265 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/14 00:04
+---
+
+## VahidOOnLine — post 243573
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243573_1780518874.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دیوان امیری قطر اعلام کرد که شیخ تمیم بن حمد آل ثانی، امیر قطر، چهارشنبه ۱۳ خردادماه در گفتگویی تلفنی با دونالد ترامپ، رئیس‌جمهوری ایالات متحده، آخرین تحولات خاورمیانه و تلاش‌های منطقه‌ای و بین‌المللی برای کاهش تنش و تقویت ثبات را بررسی کرد.
+
+بر اساس این بیانیه، امیر قطر در این گفتگو بر ضرورت اولویت دادن به راه‌حل‌های سیاسی و دیپلماتیک و گفتگوی همه طرف‌ها تاکید کرد و گفت این رویکرد به تقویت امنیت و ثبات منطقه‌ای و جلوگیری از تشدید تنش‌ها کمک می‌کند.
+دو طرف همچنین بر اهمیت ادامه مسیرهای گفتگو برای رسیدگی به مسائل جاری، حفظ امنیت کشتیرانی، ایمنی گذرگاه‌های راهبردی دریایی و تضمین تداوم زنجیره‌های تامین و جریان انرژی در سطح جهانی تاکید کردند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13449
+
+<div align="center">
+  <a href="telegram/content/WithYashar_13449_1780518874.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ درباره ایران:
+
+«ما می‌توانیم دو یا سه هفته دیگر ادامه بدهیم و همه را از بین ببریم. انجام این کار خیلی آسان است.
+
+اما اگر بتوانیم چیزی را روی کاغذ بیاوریم و مکتوب کنیم که بدون کشتن همه، همان نتیجه را به دست بدهد، ترجیح می‌دهم آن راه را انتخاب کنیم.»
+@withyashar
+</div>
+
+## WithYashar — post 13448
+
+<div align="center">
+  <a href="telegram/content/WithYashar_13448_1780518876.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ درباره ایران:
+
+در آن بخش از جهان«خاورمیانه»، آتش‌بس زمانی است که شما به شیوه‌ای معتدل‌تر تیراندازی می‌کنید.
+@withyashar 🤣
+</div>
+
+## WithYashar — post 13447
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ درباره حمله ایران به کویت:
+
+برای هر چیزی دلیلی وجود دارد، و ما به آنها ضربه‌ای سخت زدیم... آنها کمی تحریک شده بودند؛ آنها در حال پاسخ دادن بودند.
+@withyashar
+</div>
+
+## WithYashar — post 13446
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ : مذاکرات عالی پیش میره
+
+می‌توانیم جنگ را دو یا سه هفته دیگر ادامه دهیم و همه را نابود کنیم اما ترجیح می‌دهم این کار را نکنم
+
+هر اتفاقی ممکن است برای ایران بیفتد، و رهبری ایران سه بار تغییر کرده است
+@withyashar
+</div>
+
+## pm_afshaa — post 92240
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92240_1780518878.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سنتکام:
+
+ادعا: ایران اکنون مدعی شده که یک ناوشکن نیروی دریایی آمریکا رو در خلیج عمان هدف قرار داده.
+
+حقیقت: ایران دروغ میگه. تجهیزات و نیروهای نظامی آمریکا در دریا همچنان بدون هیچ مانعی، ایمن و طبق روال به پرواز، دریانوردی و عملیات خود ادامه می‌دهند.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92239
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92239_1780518878.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: حملات ایران و کویت یک واکنش متقابل بود.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## VahidOnline — post 75929
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_75929_1780518879.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 340429
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340429_1780518879.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ گفت ممکن است به‌زودی و حتی همین آخر هفته پیشرفتی در مذاکرات با ایران حاصل شود و تهران به امضای اسناد نزدیک است.
+
+او در کاخ سفید به خبرنگاران گفت: «ممکن است اتفاق نیفتد، اما ممکن است همین آخر هفته رخ دهد.»
+
+ترامپ درباره اورانیوم غنی‌شده ایران گفت: «می‌خواهم آن را به دست بیاوریم و در آینده‌ای نه‌چندان دور به دست خواهیم آورد.»
+
+ترامپ همچنین گفت در تلاش است موضوع بازگشایی تنگه هرمز را از درگیری‌ها در لبنان جدا کند.
+https://iranintl.com/202606032010
+</div>
+
+## IranIntlTV — post 340428
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340428_1780518880.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بلومبرگ به نقل از مقام‌های غربی و بر اساس داده‌های جدید آژانس بین‌المللی انرژی اتمی گزارش داد خطر تلاش مخفیانه تهران برای دستیابی به سلاح هسته‌ای در مقایسه با پیش از جنگ افزایش یافته است.
+
+گفت‌وگو با امید معماریان، تحلیلگر سیاسی در موسسه دان
+@iranintltv
+</div>
+
+## IranianMinds — post 21335
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ:
+
+دیشب و پریشب به ایران حمله کردیم و ضربات سختی بهشون زدیم.
+
+مذاکرات با ایران خوب پیش می‌ره و اگر توافقی امضاء شه می‌تونه آخر هفته باشه
+
+من ترجیحم اینه که ایران رو نابود نکنم.
+
+@IranianMinds
+</div>
+
+## alonews — post 124928
+
+<div align="center">
+  <a href="telegram/content/alonews_124928_1780518881.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: سی‌ان‌ان یک سازمان بسیار فاسد است، با یک خبرنگار فاسد که درست آنجا ایستاده است. هرگز لبخند نمی‌زند. زنی جوان و زیبا، هرگز لبخند نمی‌زند. من هرگز لبخندی بر صورتش نمی‌بینم. او را می‌بینم که با نفرت در چشمانش ایستاده است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124927
+
+<div align="center">
+  <a href="telegram/content/alonews_124927_1780518882.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 ترامپ: آتش‌بس در لبنان با آتش‌بس در سایر نقاط جهان متفاوت است
+
+
+🔴اگر توافق کتبی امکان‌پذیر باشد، ما آن را ترجیح می‌دهیم.
+
+
+🔴ایران موافقت کرد که ما وارد شویم و اورانیوم غنی‌شده را بیرون بیاوریم اما سپس موافقت نکردند.
+
+
+🔴نیروهای ما آماده‌اند، اما بهترین گزینه رسیدن به توافقی با ایران است که بدون کشتن همه، به همان نتیجه برسد.
+
+
+🔴ما برای اولین بار با حزب‌الله صحبت کردیم و آنها موافقت کردند که به اسرائیل شلیک نکنند
+
+
+🔴ایران علاوه بر اسرائیل، به ۵ کشور در منطقه موشک پرتاب کرده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124926
+
+<div align="center">
+  <a href="telegram/content/alonews_124926_1780518882.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ درباره ایران: آنها به امضای اسناد نزدیک هستند. اما برای رقص تانگو دو نفر لازم است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124925
+
+<div align="center">
+  <a href="telegram/content/alonews_124925_1780518882.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ : شی‌جین پینگ برای چین خوبه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124924
+
+<div align="center">
+  <a href="telegram/content/alonews_124924_1780518882.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خبرنگار : آتش‌بس رو چطور تعریف می‌کنید؟
+
+
+🔴ترامپ : تو اون منطقه از دنیا، آتش‌بس یعنی وقتی دارن با یه شدت کمتر و کنترل‌شده‌تر همدیگه رو می‌زنن
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124923
+
+<div align="center">
+  <a href="telegram/content/alonews_124923_1780518883.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خبرنگار : با توجه به حملات ایران به کویت، آتش‌بس با ایران هنوز سر جاشه؟
+
+
+🔴ترامپ : ببین، برای هر چیزی یه دلیلی هست. ما شب قبلش بهشون حسابی ضربه زدیم، حتی دیشب هم همین کارو کردیم.
+
+
+🔴(بقیه حرفاش به خاطر مشکل صدا قطع شد)
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124922
+
+<div align="center">
+  <a href="telegram/content/alonews_124922_1780518885.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: ترجیح می‌دهم ایران را نابود نکنم، ما میتوانیم ۲ تا ۳ هفته دیگر ادامه دهیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/13 23:54
 ---
 

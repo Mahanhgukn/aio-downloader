@@ -7,6 +7,128 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/13 04:23
+---
+
+## VahidOOnLine — post 243460
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243460_1780448034.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️به گزارش رسانه های داخلی، قرار است تیم فوتبال ایران پیش از شروع جام جهانی به جای پورتوریکو به مصاف تیم ملی گرنادا برود.
+گرنادا منطقه‌ای جزیره‌ای در بخش جنوب شرقی دریای کارائیب و در بخش شمال ونزوئلا و جنوب شرقی میامی قرار دارد.
+قرار بود طبق برنامه از قبل تعیین شده، تیم ایران در آخرین دیدار تدارکاتی خود پیش از شروع مسابقات جام جهانی ۲۰۲۶ در آمریکا به مصاف پورتوریکو برود. از آنجایی که کمپ تیم از آمریکا به کمپی در منطقه تیخوانا مکزیک منتقل شد، برگزاری این مسابقه در هاله‌ای از ابهام قرار گرفت.
+فرارو می‌نویسد، روز سه‌شنبه رایزنی مسئولان فدراسیون فوتبال با پورتوریکو برای برگزاری بازی تدارکاتی در مکزیک به جایی نرسید تا به فکر گزینه دیگری بیفتند. بر اساس این گزارش، با توجه به زمان کم، فدراسیون فوتبال با کشور گرنادا صحبت‌هایی انجام داد تا شاگردان امیر قلعه‌نویی در مکزیک به مصاف این تیم بروند. قرار است جزئیات این موضوع مورد بررسی قرار بگیرد و در صورت نهایی شدن دو تیم به مصاف هم بروند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243459
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243459_1780448034.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️فرماندهی مرکزی ایالات متحده، سنتکام، در اطلاعیه‌ای ادعای سپاه مبنی بر حمله موشکی و پهپادی به «ناوگان پنجم آمریکا در بحرین» را تکذیب کرد. در این پیام آمده است: «سپاه پاسداران انقلاب اسلامی ایران ادعا می‌کند که امروز با موشک و پهپاد به مقر ناوگان پنجم آمریکا در بحرین و یک پایگاه هوایی آمریکا در منطقه حمله کرده است. این ادعا نادرست است.» در ادامه این پیام آمده است: «حقیقت: همه حملات ایران علیه نیروهای آمریکایی شکست خورده‌اند. نیروهای آمریکا همچنان هوشیار هستند و برای دفاع در برابر اقدامات تهاجمی غیرموجه ایران آماده‌اند.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243458
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243458_1780448035.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تامی پیکوت، سخنگوی وزارت خارجه آمریکا، در ایکس با اشاره به برگزاری چهارمین دور گفت‌وگوهای مستقیم هیئت‌های سیاسی و امنیتی اسرائیل و لبنان در وزارت خارجه آمریکا گفت این مذاکرات در مسیر پیشرفت و توافق جامع قرار دارد و دور دیگری از این گفت‌وگوها چهارشنبه برگزار می‌شود.
+او افزود: «ما از ناکامی‌های ۲۰ سال گذشته فاصله می‌گیریم و به سوی توافقی جامع حرکت می‌کنیم که هدف آن بازگرداندن حاکمیت لبنان و تضمین امنیت اسرائیل است. ایالات متحده همچنان به طور کامل به تسهیل این مذاکرات تاریخی متعهد است.»
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342529
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342529_1780448035.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+The progressive Democrat who campaigned alongside "Abolish ICE" activists is moving on to November.
+
+Rep. Analilia Mejia secured victory in New Jersey's Democratic primary, keeping her on track to seek a full term in Congress just months after winning a special election.
+
+Mejia has drawn national attention for her support of abolishing ICE and her criticism of Trump's immigration agenda.
+</div>
+
+## FoxNewsTwitter — post 342528
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342528_1780448036.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"Karen Bass just violated election law."
+
+LA mayoral candidate Spencer Pratt says his campaign has filed a formal complaint accusing Los Angeles Mayor Karen Bass of illegally campaigning too close to a ballot box.
+
+Pratt says Bass filmed herself campaigning within 100 feet of a ballot box, calling it a blatant violation of election law and evidence of what he calls a "rules for thee, but not for me" culture at City Hall.
+
+"We must protect our democracy," he wrote on X, saying the complaint is about protecting election integrity and holding public officials accountable.
+
+The 42-year-old included a photo of the complaint in his post, saying "Enjoy your conference calls with your lawyers, Karen!"
+</div>
+
+## VahidOnline — post 75889
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_75889_1780448036.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ستاد فرماندهی مرکزی آمریکا در شبکه‌های اجتماعی اعلام کرد که سپاه پاسداران مدعی شده که در حملات امروز با موشک و پهپاد به مقر ناوگان پنجم آمریکا در بحرین و یک پایگاه هوایی آمریکا در منطقه ضربه زده است.
+سنتکام گفت این ادعا نادرست است و تمام حملات جمهوری اسلامی به نیروهای آمریکایی شکست خورد.
+@VahidHeadline
+(مثل دو روز گذشته در این ساعت، ده‌ها پیام دیگر از تهران دریافت کردم درباره صدای عجیب پرواز هواپیما که منجر به بیدار شدن خیلی‌ها شد.)
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 340306
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340306_1780448036.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تامی پیکوت، سخنگوی وزارت خارجه آمریکا، در ایکس با اشاره به برگزاری چهارمین دور گفت‌وگوهای مستقیم هیئت‌های سیاسی و امنیتی اسرائیل و لبنان در وزارت خارجه آمریکا گفت این مذاکرات در مسیر پیشرفت و توافق جامع قرار دارد و دور دیگری از این گفت‌وگوها چهارشنبه برگزار می‌شود.
+او افزود: «ما از ناکامی‌های ۲۰ سال گذشته فاصله می‌گیریم و به سوی توافقی جامع حرکت می‌کنیم که هدف آن بازگرداندن حاکمیت لبنان و تضمین امنیت اسرائیل است. ایالات متحده همچنان به طور کامل به تسهیل این مذاکرات تاریخی متعهد است.»
+
+https://iranintl.com/202606033066
+</div>
+
+## FarsiVOA — post 219427
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️«الفبای نیاکان» دوباره در تاجیکستان مورد توجه قرار گرفته است.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219426
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219426_1780448037.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️کاخ سفید، هشدار دونالد ترامپ، رئیس‌جمهوری آمریکا به جمهوری اسلامی را روز سه‌شنبه در حساب خود در شبکه اجتماعی ایکس منتشر کرد. آقای ترامپ در هشداری که در تروت‌سوشال منتشر کرده بود، گفت که «همانطور که به [جمهوری اسلامی] ایران گفتم، 'وقت آن رسیده که به هر طریقی شده، به توافق برسید. شما ۴۷ سال است که این کار را می‌کنید و دیگر نمی‌توان اجازه داد که [این وضعیت] ادامه یابد!'»
+@FarsiVOA
+</div>
+
+---
 📅 بروزرسانی: 1405/03/13 04:13
 ---
 

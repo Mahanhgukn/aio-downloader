@@ -7,6 +7,59 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/13 08:33
+---
+
+## FoxNewsTwitter — post 342544
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342544_1780463003.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Trump-endorsed Rep. Randy Feenstra lost Iowa’s Republican gubernatorial primary Tuesday night to businessman and farmer Zach Lahn.
+
+Trump had praised Feenstra as “MAGA all the way” in a last-minute Truth Social endorsement last week, and the congressman was widely expected to win the race.
+
+The upset marks a notable break from recent GOP primaries in states like Texas and Kentucky, where Trump-backed candidates prevailed.
+
+Lahn now advances to Iowa’s general election on Nov. 3.
+</div>
+
+## VahidOnline — post 75892
+
+<div align="center">
+  <a href="telegram/content/VahidOnline_75892_1780463004.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+"انفجار خودرو در جایگاه سوخت‌گیری تهرانپارس"
+
+خبرگزاری فارس و تسنیم با انتشار ویدیوهای بالا نوشتند:
+سخنگوی سازمان آتش‌نشانی:
+در ساعت ۶:۱۴ صبح امروز، وقوع یک مورد انفجار در جایگاه سوخت گاز واقع در بزرگراه یاسینی، مسیر غرب به شرق، بعد از سه‌راه تهرانپارس (نرسیده به پل ۱۲ فروردین) به سامانه ۱۲۵ اعلام شد. بلافاصله نیروهای دو ایستگاه آتش‌نشانی به محل حادثه اعزام شدند.
+
+در بررسی‌های اولیه مشخص شد که یک دستگاه خودروی نیسان یخچال‌دار در حال سوخت‌گیری در این جایگاه بوده که به دلایل نامشخص و در حال بررسی، دچار انفجار شده است.
+
+خوشبختانه این انفجار منجر به آتش‌سوزی نشده بود، اما شدت آن باعث وارد آمدن خسارات قابل‌توجهی به بدنه خودروی نیسان و بخش‌هایی از سقف و دیواره‌های جایگاه سوخت شده است.
+در این حادثه دو نفر شامل راننده خودروی نیسان (حدوداً ۶۰ ساله) و یکی از متصدیان جایگاه (حدوداً ۴۰ ساله) دچار مصدومیت شدند.
+
+📡 @VahidOnline
+</div>
+
+## alonews — post 124661
+
+<div align="center">
+  <a href="telegram/content/alonews_124661_1780463004.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈قیمت جهانی هر بشکه نفت برنت از ۹۷ دلار فراتر رفت
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/13 08:23
 ---
 
@@ -86,8 +139,6 @@ https://iranintl.com/202606031363
 
 @RadioFarda
 </div>
-
-
 <!-- MSG END -->
 
 <!-- NAV START -->

@@ -7,6 +7,94 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/13 11:43
+---
+
+## VahidOOnLine — post 243481
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_243481_1780474434.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد که تعدادی دانش‌آموز با شعار «جاوید شاه» در اعتراض به کشته‌شدن هزاران تن از هموطنان خود به دست حکومت، عکس بنیان‌گذار جمهوری اسلامی را در مدرسه دخترانه پاره کردند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## mwarmonitor — post 10072
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 خبرنگار الجزیره: یک حمله هوایی با پهپاد اسرائیل شهرک النبطیه الفوقا در جنوب لبنان را هدف قرار داد.
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 92206
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسرائیل دستور تخلیه سه شهر در منطقه صیدا در مرکز لبنان را صادر کرد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 340327
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340327_1780474436.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد که تعدادی دانش‌آموز با شعار «جاوید شاه» در اعتراض به کشته‌شدن هزاران تن از هموطنان خود به دست حکومت، عکس بنیان‌گذار جمهوری اسلامی را در مدرسه دخترانه پاره کردند.
+</div>
+
+## alonews — post 124714
+
+<div align="center">
+  <a href="telegram/content/alonews_124714_1780474438.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈دانشگاه آزاد اسلامی: تاریخ امتحانات ۱۸ و ۱۹ تیرماه دانشگاه آزاد اسلامی به روزهای ۲۲ و ۲۳ تیرماه تغییر کرد
+
+
+🔴این تصمیم به منظور جلوگیری از تداخل امتحانات پایان ترم دانشجویان مقطع کارشناسی با آزمون کارشناسی ارشد 1405 اتخاذ شده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124713
+
+<div align="center">
+  <a href="telegram/content/alonews_124713_1780474438.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خوش‌چشم، تحلیلگر صداوسیما: احتمالا نگرفتن انتقام شهدای اخیر، به‌خاطر حفظ جان قالیباف بود!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124712
+
+<div align="center">
+  <a href="telegram/content/alonews_124712_1780474441.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈براساس تازه‌ترین داده‌های هواشناسی، از بعدازظهر امروز تا اواخر روز جمعه پایتخت و شهرهای اطراف آن شاهد وزش بادهای شدید و خیزش گردوخاک خواهند بود.
+
+
+🔴در روز پنجشنبه با افزایش ناپایداری جوی، در بعضی ساعات با تشدید وزش باد و بارش پراکندهٔ باران همراه خواهد شد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/13 11:34
 ---
 

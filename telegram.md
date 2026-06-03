@@ -7,6 +7,123 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/13 21:45
+---
+
+## WithYashar — post 13418
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سخنگوی ۳پا : تخریب ترمینال مسافربری فرودگاه کویت ناشی از خطای سامانه‌های پاتریوت آمریکایی بوده است
+
+بررسی و تحقیقات ما در مورد اصابت ترمینال مسافربری کویت نشان می‌دهد، نیروی هوافضای سپاه هیچ شلیکی به سوی این هدف نداشته است و تخریب ترمینال مسافربری فرودگاه کویت ناشی از خطای سامانه‌های پاتریوت آمریکایی بوده، که پس از شکست در رهگیری موشک‌های ایرانی بر این ترمینال فرود آمده‌اند.
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342569
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342569_1780510516.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Mole people? Treasure hunters? Something else?
+
+Police are investigating a string of bizarre incidents involving mysterious groups of people entering and exiting New York City sewers through manholes in the dead of night.
+
+Videos show different groups equipped with flashlights, waders, and other gear disappear underground for hours before reappearing on city streets.
+
+Police say there’s no known threat to public safety, but the mystery underground excursions have sparked a citywide investigation.
+</div>
+
+## FoxNewsTwitter — post 342568
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342568_1780510517.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"What is this? Is this a dunk tank?"
+
+Marco Rubio doesn’t hold back after Democrat Rep. Sydney Kamlager-Dove cuts him off and refuses to let him answer her questions during a House Foreign Affairs hearing:
+
+"Why am I here if I don’t get to answer your questions or your defamatory statements?"
+
+"You get asked questions for five minutes and you don't get time to answer? It's not a hearing!"
+</div>
+
+## FarsiVOA — post 219500
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علی جوانمردی: دموکراسی آمریکا الگوی مناسب برای مردم ایران
+</div>
+
+## IranianMinds — post 21329
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21329_1780510518.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴دست‌کم ۴ فروند تانکر سوخت‌‌رسان نیروی هوایی آمریکا اکنون از تل‌آویو و پایگاه هوایی شاهزاده سلمان در عربستان سعودی به سمت خلیج‌فارس در حرکت هستند.
+
+@IranianMinds
+</div>
+
+## Hranews — post 113368
+
+<div align="center">
+  <img src="telegram/content/Hranews_113368_1780510518.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تداوم بازداشت و بلاتکلیفی مژده هاشمی بازرگانی در زندان قزوین
+
+
+❗️
+❗️
+❗️
+❗️
+❗️ – مژده هاشمی بازرگانی، شهروند ساکن الوند، علیرغم گذشت ۶۱ روز از زمان #بازداشت، کماکان به‌صورت بلاتکلیف در زندان قزوین به‌سر می‌برد.
+
+به گزارش خبرگزاری هرانا، ارگان خبری مجموعه فعالان حقوق بشر در ایران، مژده هاشمی بازرگانی، کماکان به‌صورت بلاتکلیف در زندان قزوین نگهداری می‌شود.
+
+یک منبع مطلع و نزدیک به خانواده این شهروند ضمن تایید این خبر به هرانا گفت: مژده هاشمی بازرگانی پس از بازداشت و در مراحل بازجویی با اتهامات «توهین به رهبری»، «جاسوسی» و «همکاری با اسرائیل و آمریکا» مواجه شده است. از وی در این مدت اعترافات اجباری به وسیله ضرب‌وشتم اخذ شده که در شبکه استانی قزوین نیز پخش شده است. همچنین، وی هم‌اکنون در شرایط روحی نامناسبی به‌سر می‌برد.
+
+ادامه مطلب
+
+#مژده_هاشمی_بازرگانی
+
+↘️
+@hranews_bot تماس ✉️ -  @Hranews  کانال هرانا 🆑
+</div>
+
+## alonews — post 124891
+
+<div align="center">
+  <a href="telegram/content/alonews_124891_1780510519.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / کانال 12 اسرائیل :ایران پیامی به آمریکا فرستاد که هر حمله‌ای به بیروت منجر به شلیک ده‌ها موشک به اسرائیل خواهد شد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124890
+
+<div align="center">
+  <a href="telegram/content/alonews_124890_1780510519.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سخنگوی سپاه: تخریب ترمینال مسافربری فرودگاه کویت ناشی از خطای سامانه‌های پاتریوت آمریکایی بوده است!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/13 21:35
 ---
 

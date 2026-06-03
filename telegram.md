@@ -7,6 +7,173 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/13 23:48
+---
+
+## VahidOOnLine — post 243571
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_243571_1780517938.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی رسیده به ایران‌اینترنشنال نشان می‌دهد جوانی در استان مازندران شعار «جاوید شاه» را در یکی از شهرهای استان دیوارنویسی کرده و به آن احترام نظامی می‌گذارد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13443
+
+<div align="center">
+  <img src="telegram/content/WithYashar_13443_1780517941.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مذاکرات بین اسرائیل و لبنان به زودی به پایان خواهد رسید. به زودی اعلامیه‌ای از سوی ایالات متحده منتشر میشه.
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342579
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342579_1780517942.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NEW: President Trump gives an exclusive first glimpse of the newly reconstructed Lincoln Reflecting Pool.
+
+Trump shows off its massive scale by comparing it to some of America's most iconic skyscrapers — the Freedom Tower, the Empire State Building, and the Sears Tower.
+</div>
+
+## FoxNewsTwitter — post 342578
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342578_1780517944.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+HAPPENING NOW: President Trump speaks at the White House. https://twitter.com/i/broadcasts/1nJOLLXgXErxR
+</div>
+
+## IranIntlTV — post 340426
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340426_1780517945.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻یواخیم کلمنت، اقتصاددان آلمانی که با ابداع یک فرمول ریاضی قهرمانان جام‌های جهانی ۲۰۱۴، ۲۰۱۸ و ۲۰۲۲ درست پیش‌بینی کرده بود، تازه‌ترین پیش‌بینی خود را برای جام جهانی ۲۰۲۶ منتشر کرده است. مدل آماری او به‌طور شگفت‌انگیزی هلند را به‌عنوان قهرمان بعدی جهان معرفی می‌کند.
+
+🔹به نوشته اس‌بی‌اس پیش از جام جهانی ۲۰۱۴ برزیل، مدل کلمنت، آلمان را به‌عنوان مدعی اصلی معرفی کرد. چهار سال بعد، فرانسه را گزینه نخست دانست و پیش از قطر ۲۰۲۲ نیز با پیش‌بینی قهرمانی آرژانتین بار دیگر شگفتی آفرید.
+
+🔹این بار او پیش‌بینی کرده هلند قهرمان خواهد شد.
+
+🔹پیش‌بینی‌ای که برخلاف اغلب برآوردهای سنتی است که معمولاً فرانسه، آرژانتین، اسپانیا یا انگلیس را مدعیان اصلی می‌دانند.
+
+🔹هلند تاکنون قهرمان جام جهانی نشده، اما با رسیدن به فینال‌های ۱۹۷۴، ۱۹۷۸ و ۲۰۱۰ نایب‌قهرمان جهان شده است.
+
+🔹تیم ملی هلند در حال حاضر در رده هفتم رنکینگ فیفا قرار دارد. شرکت‌های شرط‌بندی نیز به‌طور کلی هلند را هشتمین مدعی قهرمانی می‌دانند؛ اسپانیا بخت نخست محسوب می‌شود و پس از آن فرانسه و انگلیس قرار دارند.
+
+🔹جزییات بیشتر را در سایت بخوانید
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 340425
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340425_1780517947.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی رسیده به ایران‌اینترنشنال نشان می‌دهد جوانی در استان مازندران شعار «جاوید شاه» را در یکی از شهرهای استان دیوارنویسی کرده و به آن احترام نظامی می‌گذارد.
+</div>
+
+## FarsiVOA — post 219513
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219513_1780517949.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️وزیر امور خارجه آمریکا روز چهارشنبه ۱۳ خرداد با حضور در یک کمیته فرعی سنا در پاسخ به نگرانی سناتور لیندسی گراهام درباره توافق احتمالی میان آمریکا با جمهوری اسلامی تایید کرد که رژیم ایران حتی پس از توافق هم «اگر بتواند حتما دست به تقلب می‌زند.»
+سناتور گراهام همچنین خواستار آن شد که در توافق‌ با رژیم ایران علاوه بر جلوگیری از دستیابی به سلاح هسته‌ای، موضوع گروه‌های تروریستی نیابتی و لغو کامل غنی‌سازی در ایران هم گنجانده شود که با واکنش مثبت آقای روبیو مواجه شد.
+
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219512
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️میدان: خصومت ایران و اسرائیل چه پیشینه‌ای دارد و چگونه بر توافق احتمالی میان ایران و آمریکا اثر خواهد گذاشت؟
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219511
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219511_1780517949.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️گزارش نرگس صبا در برنامه تفسیر خبر از اهداف حملات جمهوری اسلامی در طول آتش بس
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 15659
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15659_1780517951.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+FACT CHECK
+(بررسی حقیقت)
+❌ ادعا: ایران اکنون مدعی شده که یک ناوشکن نیروی دریایی آمریکا را در خلیج عمان هدف قرار داده است.
+✅ واقعیت: ایران دروغ می‌گوید. دارایی‌های نظامی ایالات متحده در دریا همچنان به پرواز، حرکت و عملیات ادامه می‌دهند و کاملاً ایمن و بدون هیچ مانعی فعالیت می‌کنند.
+
+
+👺Phantom
+
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## RadioFarda — post 157873
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸عباس عراقجی، وزیر خارجه جمهوری اسلامی، روز چهارشنبه تهدید کرد که حمله احتمالی اسرائیل به بیروت، پایتخت لبنان، باعث «ازسرگیری کامل جنگ» ایران با آمریکا و اسرائیل خواهد شد. 🔸او در گفت‌وگو با شبکه المیادین، نزدیک به حزب‌الله لبنان، همچنین ادعا کرد که بعد از…
+</div>
+
+## RadioFarda — post 157872
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_157872_1780517952.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸عباس عراقجی، وزیر خارجه جمهوری اسلامی، روز چهارشنبه تهدید کرد که حمله احتمالی اسرائیل به بیروت، پایتخت لبنان، باعث «ازسرگیری کامل جنگ» ایران با آمریکا و اسرائیل خواهد شد.
+
+🔸او در گفت‌وگو با شبکه المیادین، نزدیک به حزب‌الله لبنان، همچنین ادعا کرد که بعد از تهدید اسرائیل برای حمله به ضاجیه، حومه جنوبی بیروت و مقر اصلی حزب‌الله، نیروهای نظامی ایران در «وضعیت آماده‌باش کامل» قرار گرفتند.
+
+🔸دونالد ترامپ، رئیس‌جمهور آمریکا، روز دوشنبه خبر داد که بعد از تماس با نخست‌وزیر اسرائیل، نیروهای اسرائیلی به بیروت حمله نخواهند کرد.
+
+🔸پیش‌ از آن قرارگاه مرکزی خاتم‌الانبیا گفته بود اگر اسرائیل به ضاحیه حمله کند، شمال اسرائیل را هدف قرار خواهد داد.
+
+@RadioFarda
+</div>
+
+## alonews — post 124920
+
+<div align="center">
+  <a href="telegram/content/alonews_124920_1780517953.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈اتریوم به زیر 1,800 دلار سقوط کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/13 23:34
 ---
 

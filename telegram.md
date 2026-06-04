@@ -7,6 +7,73 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/14 04:44
+---
+
+## VahidOOnLine — post 243597
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243597_1780535649.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️بنیامین نتانیاهو، نخست‌وزیر اسرائیل، در گفتگو با شبکه سی‌ان‌بی‌سی در پاسخ به پرسش مجری درباره تماس تلفنی اخیرش با دونالد ترامپ و تایید این موضوع که رئیس‌جمهوری آمریکا او را «دیوانه» خطاب کرده است، از ورود به جزئیات این گفتگو خودداری کرد و گفت که آن‌ها تاکنون هزاران مکالمه با یکدیگر داشته‌اند. نتانیاهو با کم‌اهمیت خواندن این حواشی اشاره کرد که اگر کسی این موضوع را یک بحران می‌داند، باید در جریان دیگر گفتگوها قرار بگیرد. او تاکید کرد که آن‌ها همیشه راهی برای همکاری پیدا می‌کنند.
+نخست‌وزیر اسرائیل با اشاره به اینکه آن‌ها در موضوعات اصلی توافق دارند، تصریح کرد هدف مشترک آن‌ها پایان دادن به برنامه هسته‌ای ایران و تضمین این موضوع است که جمهوری اسلامی تهدیدی برای اسرائیل، خاورمیانه و آمریکا ایجاد نکند. او اضافه کرد که ایران نباید به تسلیحات هسته‌ای و ابزارهای پرتاب آن دست یابد که نه تنها اسرائیل و پایتخت‌های اروپایی، بلکه شهرهای ایالات متحده را نیز تهدید کند.او در پایان اختلافات موجود را صرفا «تاکتیکی» و مشابه اختلافات در بهترین خانواده‌ها دانست و افزود که آن‌ها مانند دوستانی صمیمی همیشه راهی برای حل مسائل پیدا می‌کنند، به طوری که ممکن است صبح با هم اختلاف‌نظر داشته باشند اما تا بعدازظهر به یک اقدام مشترک برسند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342590
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342590_1780535649.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+“No sir, I actually said I was going to kick his a--.”
+
+Treasury Secretary Scott Bessent delivered the blunt response when Sen. Thom Tillis asked about reports he once threatened Bill Pulte during a dinner party dispute.
+
+The exchange came just days after President Trump elevated Pulte to one of the government’s most sensitive national security positions, renewing attention on the reported clash between the two men.
+
+Despite the history, Bessent told lawmakers he recently called Pulte to congratulate him on the appointment as director of national intelligence.
+</div>
+
+## FoxNewsTwitter — post 342589
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342589_1780535651.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"This is for everybody."
+
+Vanilla Ice says he has no plans to back out of an upcoming Freedom 250 concert despite pressure from critics demanding performers pull out of the event.
+
+The rapper said he refuses to let anyone tell him he can't be proud of his country, arguing the celebration is about America and honoring those who served, not politics.
+</div>
+
+## pm_afshaa — post 92246
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92246_1780535652.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴امشب مجلس نمایندگان آمریکا قطعنامه‌ای واسه مجبور کردن ترامپ به خارج کردن ارتش آمریکا از جنگ با ایران تصویب کرد؛
+
+215 موافق - مخالف 208
+
++ این مصوبه تصویب سنا رو هم لازم داره و پایان کار نیست و فکر نکنم به جایی برسه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+---
 📅 بروزرسانی: 1405/03/14 04:34
 ---
 

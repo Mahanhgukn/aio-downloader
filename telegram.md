@@ -7,6 +7,203 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/15 02:32
+---
+
+## FoxNewsTwitter — post 342627
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"The water is ON, the Reflecting Pool is reflecting, and D.C. is looking better than ever."
+
+President Trump is celebrating as water begins flowing back into the Lincoln Memorial Reflecting Pool following a major restoration project.
+
+Crews completed repairs, repainted the bottom "American flag blue," and cleaned years of buildup, including bird droppings as part of ongoing efforts to beautify Washington ahead of America’s 250th birthday next month.
+
+"We are so back," Trump added.
+</div>
+
+## FoxNewsTwitter — post 342626
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342626_1780614153.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+“Lying through their teeth.”
+
+Stephen A. Smith unloaded on former First Lady Jill Biden and top Democrats over what he says was a coordinated effort to hide President Biden’s condition from the public.
+
+Smith argued the fallout is doing lasting damage to the Democratic Party’s credibility, saying voters were repeatedly told everything was fine despite growing concerns about Biden’s fitness.
+
+Now, as Democrats look ahead to future elections, Smith says the trust gap created by that controversy isn’t going away anytime soon.
+</div>
+
+## Persian_Trend_Official — post 15719
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15719_1780614153.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبتون بخیر 🌃
+SU-57 Felon
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 21401
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21401_1780614154.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 عقل خرزشی :
+
+
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21400
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21400_1780614155.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🆗
+🔡
+🔡
+5️⃣ تومان هدیه فقط برای ثبت‌نام! 
+🆗
+
+
+💥 بدون واریز
+
+3️⃣ قدم تا دریافت هدیه:
+✅ ثبت‌نام در سایت
+
+✅ دریافت بونوس
+0️⃣
+0️⃣
+5️⃣ هزار تومانی
+
+✅ تبدیل بونوس به موجودی واقعی با شرط‌بندی
+
+فقط تا 
+3️⃣ روز دیگه میتونی هدیه بگیری!
+
+پس از پایان افتتاحیه، امکان دریافت این هدیه وجود نخواهد داشت.
+
+
+🚩
+🚩 خرداد افتتاحیه بزرگ سایت وینرو
+🟥 اگر هنوز ثبت‌نام نکردی، همین حالا اقدام کن و جزو دریافت‌کنندگان بونوس ویژه افتتاحیه باش.
+aa14
+
+🔤 Winro.io         معتبرترین سایت ایران
+
+🔤 Winro.io
+
+📱 کانال اخبار و هدایــا 
+🌟
+
+📱 @winro_io
+</div>
+
+## BBCPersian — post 282895
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻در ادامه مسابقات تدارکاتی تیم‌های جهان برای حضور در جام جهانی، تیم ملی ایران در دیداری که بدون حضور دوربین و خبرنگاران برگزار شد، در آنتالیا ترکیه میزبان تیم ملی مالی بود و توانست این تیم را با دو گل شکست دهد.
+
+تیم ایران به زودی از آنتالیا عازم مکزیک و شهر تیخوآنا در نزدیکی مرز آمریکا خواهد شد.
+
+از نتایج جالب توجه دیگر در مسابقات تدارکاتی امروز تساوی یک بر یک عراق برابر اسپانیا، نایب قهرمان اروپا، آن هم در برابر چشمان هزاران هوادار اسپانیا بود.
+
+شگفتی دیگر در دیدار فرانسه و ساحل عاج روی داد که این تیم موفق شد فرانسه، نایب قهرمان جهان، را با نتیجه دو بر یک در خانه شکست دهد.
+
+📸Getty Images
+</div>
+
+## BBCPersian — post 282894
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻منابع پزشکی: در پی حمله هوایی اسرائیل ۱۱ نفر در غزه کشته شدند
+
+منابع پزشکی و شاهدان عینی می‌گویند که دست‌کم ۱۱ فلسطینی، از جمله زنان و کودکان، در پی حملات هوایی اسرائیل به مناطق مختلف شهر غزه کشته و ده‌ها نفر دیگر زخمی شدند.
+
+به گفته منابع محلی، بامداد پنج‌شنبه دست‌کم سه بالگرد اسرائیلی به‌طور هم‌زمان چهار ساختمان مسکونی در مناطق شیخ رضوان، تل‌الهوا و اردوگاه پناهندگان الشاطی را هدف قرار دادند که در پی آن انفجارهای شدیدی رخ داد.
+
+ارتش اسرائیل اعلام کرد که در این حملات چهار عضو ارشد «دستگاه امنیت عمومی حماس» کشته شده‌اند.
+
+بر اساس بیانیه ارتش، حسن لبد، معاون رئیس این دستگاه، به همراه سه نفر از نیروهای زیرمجموعه‌اش به نام‌های عاصم شبیر، عبدالله ابوکلوب و محمد ابومرق در این حملات جان باخته‌اند.
+
+منابع محلی پیش‌تر گزارش داده بودند که یکی از حملات حسن لبد را هدف قرار داده و او به همراه همسر و سه فرزندش کشته شده است.
+
+سخنگوی سازمان دفاع مدنی تحت اداره حماس نیز اعلام کرد که در میان قربانیان، دو کودک دارای معلولیت از خانواده لبد و سه زن حضور دارند.
+
+اسرائیل با وجود توافق آتش‌بس با میانجی‌گری آمریکا، در ماه‌های اخیر بارها حملاتی به غزه انجام داده و حماس را به تجدید تسلیح و بازسازی توان نظامی‌اش متهم کرده است.
+
+بر اساس آمار وزارت بهداشت غزه که تحت اداره حماس فعالیت می‌کند، از زمان اجرایی شدن آتش‌بس در اکتبر سال گذشته تاکنون بیش از ۹۴۰ نفر در این منطقه کشته شده‌اند.
+
+https://bbc.in/4dS78uI
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 391021
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391021_1780614155.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مشهدالرضا 🤣 علم‌الهدی
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391020
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391020_1780614157.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 موتورسواری فوق العاده این پسر و چالش موتورسواری با دوس دخترش خیلی وایرال شده:
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391018
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391018_1780614157.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رقص با آهنگ تو رستم تهمتنی داره تبدیل به چاش میشه
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391016
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391016_1780614158.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اونایی که نمیدونن قیصر کیه، قیصر همونه که آهنگ آقاسی رو دزدید خونده
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/03/15 02:22
 ---
 

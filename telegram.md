@@ -7,6 +7,146 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/14 12:14
+---
+
+## IranIntlTV — post 340478
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340478_1780562668.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مجلس نمایندگان آمریکا با ۲۱۵ رای موافق در برابر ۲۰۸ رای مخالف، قطعنامه‌ای را تصویب کرد که مشارکت نظامی آمریکا در جنگ با جمهوری اسلامی را بدون مجوز صریح کنگره محدود می‌کند.
+
+مرضیه حسینی، خبرنگار ایران‌اینترنشنال، گزارش می‌دهد
+@iranintltv
+</div>
+
+## IranIntlTV — post 340477
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340477_1780562669.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شایان سمیعی، کارشناس امنیت ملی، درباره رویکرد دوگانه دونالد ترامپ در قبال گزینه‌های توافق و فشار بر جمهوری اسلامی به ایران‌اینترنشنال گفت ترامپ تصور می‌کند با این روش می‌تواند اهرم فشار بر حکومت ایران را در اختیار داشته باشد
+@iranintltv
+</div>
+
+## FarsiVOA — post 219547
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219547_1780562671.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مدیرکل آژانس بین‌المللی انرژی اتمی از «دیدار مهم» خود با وزیر خارجه عربستان سعودی در جریان سفر به این کشور خبر داد.
+
+رافائل گروسی در شبکه ایکس نوشت: «دیدار با فیصل بن فرحان، وزیر خارجه عربستان سعودی در ریاض و تبادل نظر به‌موقع درباره وضعیت ایران و سایر مسائل مهم مربوط به عدم اشاعه، موضوعاتی که در آن‌ها دیپلماسی همچنان ضروری است، مهم بود.»
+
+او خطاب به مقامات سعودی نوشت: «از حمایت شما از نقش آژانس بین‌المللی انرژی اتمی در این حوزه‌ها سپاسگزارم.»
+
+مدیرکل آژانس بین‌المللی انرژی اتمی همچنین تأکید کرد که گفت‌وگویش با وزیر خارجه عربستان سعودی «بر اهمیت چندجانبه‌گرایی مؤثر و یک سازمان ملل قوی در زمانی که بی‌ثباتی رو به افزایش است»، تأکید داشت.
+
+گروسی پیشتر به قطر و امارات متحده عربی سفر کرده است.
+
+او در ابوظبی از «حمایت فنی» آژانس بین‌المللی انرژی اتمی از نیروگاه اتمی براکه که به تازگی هدف حمله پهپادی قرار گرفت، خبر داد.
+@FarsiVOA
+</div>
+
+## alonews — post 125007
+
+<div align="center">
+  <a href="telegram/content/alonews_125007_1780562672.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈منبع مطلع به العربیه: ترامپ به واسطه‌ها اعلام کرده که پیش از امضای توافق، با آزادسازی پول‌ها به ایران مخالف است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125006
+
+<div align="center">
+  <a href="telegram/content/alonews_125006_1780562672.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🤚 اینترنت مخصوص جنگ 
+🚀
+💙 
+🔥 نامحدود فقط 690 تومن 
+🔥 
+⭐️ فقط گیگی 7 هزار تومان
+😍 
+✅ بدون قطعی‌های آزاردهنده 
+✅ سرعت بالا حتی ساعات شلوغ 
+✅ مناسب تلگرام، اینستاگرام و یوتیوب 
+✅ همراه با ساب 
+✅ تعداد محدود با این قیمت 
+🤖 @NetAazaadBot 
+🤖 @NetAazaadBot
+</div>
+
+## alonews — post 125005
+
+<div align="center">
+  <a href="telegram/content/alonews_125005_1780562672.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🤚 اینترنت مخصوص جنگ 
+🚀
+💙
+
+
+🔥 نامحدود فقط 690 تومن 
+🔥
+
+
+⭐️ فقط گیگی 7 هزار تومان
+😍
+
+
+✅ بدون قطعی‌های آزاردهنده
+
+✅ سرعت بالا حتی ساعات شلوغ
+
+✅ مناسب تلگرام، اینستاگرام و یوتیوب
+
+✅ همراه با ساب
+
+
+✅ تعداد محدود با این قیمت
+
+
+🤖 @NetAazaadBot
+
+🤖 @NetAazaadBot
+</div>
+
+## alonews — post 125004
+
+<div align="center">
+  <a href="telegram/content/alonews_125004_1780562672.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تصویر ماهواره ای از ناوچه Boykiy نیروی دریایی روسیه پس از حمله پهپادی روز گذشته اوکراین
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125003
+
+<div align="center">
+  <a href="telegram/content/alonews_125003_1780562673.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈جروزالم پست: سرهنگ دوم آویخای ادرعی می‌گوید ارتش اسرائیل اولین هشدار تخلیه در جنوب لبنان را از زمان اعلام آتش‌بس توسط ترامپ صادر کرده و تأسیسات حزب‌الله را هدف قرار داده است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/14 12:04
 ---
 

@@ -7,6 +7,145 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/14 15:14
+---
+
+## FoxNewsTwitter — post 342594
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌Fox News (Twitter/X)
+
+👉 Full story here:
+</div>
+
+## FoxNewsTwitter — post 342593
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342593_1780573459.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+DELANEY HALL 100: Fox News Digital investigation reveals network of roughly 100 groups with $825 million in combined annual revenue coordinating Newark ICE protests through encrypted Signal chats, strategic comms documents and military-style supply operations.
+
+The groups — including the ACLU, Indivisible and Democratic Socialists of America — direct activists to call the detention center a 'concentration camp' and detainees 'captives' who were 'kidnapped.' About 70 of the organizations enjoy tax-exempt nonprofit status, now under congressional investigation for alleged abuse of those designations.
+</div>
+
+## IranianMinds — post 21361
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21361_1780573460.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پست جدید ترامپ درباره قطعنامه اختیارت جنگ:
+
+دیروز در یک رأی‌گیری بی‌اساس، مجلس با ۴ رأی جمهوری‌خواه بد و همه دموکرات‌ها، اختیار جنگ من را محدود کرد، درست در میانه مذاکرات نهایی من برای پایان دادن به جنگ با جمهوری اسلامی. چه کسی چنین کار غیر میهن‌پرستانه‌ای انجام می‌دهد؟ آنها می‌دانند مذاکرات در چه مرحله‌ای است. دموکرات‌ها با سندرم اختلال ترامپ سوخت‌رسانی می‌شوند، اما ترجیح می‌دهند کشور ما شکست بخورد تا اینکه من یکی دیگر از پیروزی‌های متعددم را کسب کنم. چهار جمهوری‌خواه، داستانی کاملأ متفاوت است. آنها فقط نمایش‌گر هستند! آنها باید از خودشان شرمنده باشند. ماگا!!! رئیس‌جمهور DJT
+
+@IranianMinds
+</div>
+
+## Hranews — post 113381
+
+<div align="center">
+  <img src="telegram/content/Hranews_113381_1780573460.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حبس بدون تصمیم؛ تداوم بلاتکلیفی و محرومیت از درمان سارا سپهری در زندان عادل آباد شیراز
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– سارا سپهری، شهروند بهائی ساکن شیراز ۵۷ روز است که بازداشت شده و همچنان به صورت بلاتکلیف در زندان عادل آباد این شهر نگهداری می‌شود. وی از مشکلات جسمی نیز رنج می‌برد و از دریافت رسیدگی پزشکی مکفی محروم مانده است.
+
+به گزارش خبرگزاری هرانا، ارگان خبری مجموعه فعالان حقوق بشر در ایران، سارا سپهری، شهروند بهائی ساکن شیراز، همچنان در بلاتکلیفی قضایی به‌سر می‌برد.
+
+یک منبع مطلع نزدیک به خانواده این شهروند بهائی، ضمن تایید این خبر به هرانا گفت: “سارا سپهری با گذشت ۵۷ روز از زمان بازداشت، کماکان در زندان عادل‌آباد شیراز نگهداری می‌شود. بر اساس نظر پزشک معالج، وضعیت بیماری چشم او بحرانی بوده و وی را در معرض خطر خونریزی چشمی قرار داده است. اگرچه اخیرا و پس از وخامت حال، اقدامات درمانی اولیه برای او انجام شده، اما این اقدامات کافی نبوده و او نیازمند دسترسی به مراقبت‌های پزشکی تخصصی و مستمر است. وی پیش از بازداشت نیز سابقه خونریزی معده و مشکلات التهابی چشم داشته است.“
+
+ادامه مطلب
+
+#سارا_سپهری
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## alonews — post 125048
+
+<div align="center">
+  <a href="telegram/content/alonews_125048_1780573461.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ در حال توضیح‌دادن این موضوع که طول استخر کاخ سفید (از پروژه‌های محبوب ترامپ) از ارتفاع آسمان‌خراش‌های معروف دنیا بیشتره!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125046
+
+<div align="center">
+  <img src="telegram/content/alonews_125046_1780573462.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+برای اولین بار پارک ویژه آقایان توی قزوین راه اندازی شد!!!
+
+[@AloTweet]
+</div>
+
+## alonews — post 125045
+
+<div align="center">
+  <a href="telegram/content/alonews_125045_1780573463.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈جنگنده‌های اسرائیلی حملات هوایی به ساختمان‌هایی در تبنین و حاروف در جنوب لبنان انجام دادند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125044
+
+<div align="center">
+  <img src="telegram/content/alonews_125044_1780573464.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فروش دکتر باز شد فقط با گیگی 8 فقط برای الو نیوزی ها با کد تخفیف
+🔥
+
+Alonews
+
+همراه با لینک ساب
+🔗 و مدت زمان 30 روزه
+
+❌بدون هیچ ضریبی 
+❌
+
+⚠️ظرفیت به شدت محدوده 
+⚠️
+
+
+📥جهت خرید سرویس کیلیک کنید 
+📥
+
+
+🤖@Xvpn021Bot 
+🤖
+
+🤖@Xvpn021Bot 
+🤖
+
+🤖@Xvpn021Bot 
+🤖
+
+🤖@Xvpn021Bot 
+🤖
+</div>
+
+---
 📅 بروزرسانی: 1405/03/14 15:04
 ---
 

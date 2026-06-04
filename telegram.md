@@ -7,6 +7,205 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/14 19:15
+---
+
+## mwarmonitor — post 10144
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مشاور سابق امنیت ملی رئیس‌جمهور آمریکا، دونالد ترامپ، جان بولتون، که به منتقدی جدی و مداوم از رئیس‌جمهور جمهوری‌خواه تبدیل شده است، قرار است به اتهام سوء‌مدیریت اسناد طبقه‌بندی‌شده اعتراف به گناه کند — به گزارش CNN.
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 92275
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92275_1780587924.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴حزب‌الله به دولت لبنان اعلام کرده که توافق صلح لبنان و اسرائیل که با میانجی‌گری آمریکا انجام شده رو قبول نداره.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92274
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🟠بلومبرگ، به نقل از منابع: بریتانیا و فرانسه برنامه‌هایی را برای یک مأموریت مین‌روبی چندملیتی در تنگه هرمز نهایی کردن
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## Persian_Trend_Official — post 15701
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رخ نمایی جنگنده نسل ششم F-47 امریکا؟
+
+یک کانال یوتیوبی مدعی است که با استفاده از یک دوربین حرارتی موفق شده از یک هواگرد آزمایشی در نزدیکی منطقه 51 امریکا فیلمبرداری کند.
+
+اگر تصاویر منتشر شده توسط این کانال یوتیوبی صحت داشته باشد به احتمال زیاد برای اولین بار در حال مشاهده جنگنده نسل شش F-47 هستیم.
+
+تا پیش از این فقط چندین تصویر انیمیشنی از این جنگنده منتشر شده بود.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## BBCPersian — post 282854
+
+<div align="center">
+  <a href="telegram/content/BBCPersian_282854_1780587925.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تلویزیون کره شمالی تصاویری از دیدار کیم جونگ اون رهبر این کشور، با تیم‌های فوتبال زنان این کشور منتشر کرده‌اند. این دیدار سه‌شنبه ۱۲ خرداد (۲ ژوئن) در پیونگ‌یانگ، پایتخت انجام شد.
+ 
+در این ویدیوها بازیکنان دو تیم فوتبال زنان نا‌گو‌هیانگ و تیم ملی زیر ۱۷ سال دیده می‌شوند که هنگام قدردانی رهبر کره شمالی شادی می‌کنند و اشک می‌ریزند.
+ 
+آقای کیم یک مسابقه دوستانه بین این دو تیم را هم از نزدیک تماشا کرد.
+ 
+تیم ناگوهیانگ، که یک تیم باشگاهی فوتبال زنان کره شمالی است، کمتر از دو هفته پیش با پیروزی یک بر صفر مقابل توکیو وردی بلزا در فینال لیگ قهرمانان زنان آسیا در شهر سوون کره جنوبی، قهرمان این رقابت‌ها شد و در رویدادی نادر پرچم کره شمالی در خاک همسایه جنوبی به اهتزاز درآمد. آنها در نیمه‌نهایی تیم سووان از کشور میزبان را برده بودند.
+ 
+تیم ملی زیر ۱۷ سال کره شمالی هم پیشتر برای پنجمین‌بار قهرمان آسیا شد و رکوردش را بهبود بخشید.
+
+@bbcpersian
+</div>
+
+## Dirty_Kids — post 390989
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 آغاز دور جدید جنگ قطعی شد
+
+خوش چشم کارشناس رژیم : به نظرم جنگ تموم شده و دشمنان دیگه جرأت حمله ندارن
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390988
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390988_1780587927.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بانو شارلیز تورن در ۵۰ سالگی
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390987
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عراقچی:
+
+وقتی به بیت رهبری حمله شد من تو بیت رهبری بودم که به زور خودمو از اونجا کشوندم بیرون و فرار کردم.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 125086
+
+<div align="center">
+  <a href="telegram/content/alonews_125086_1780587928.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🤚 اینترنت مخصوص جنگ 
+🚀
+💙 
+🔥 نامحدود فقط 690 تومن 
+🔥 
+⭐️ فقط گیگی 7 هزار تومان
+😍 
+✅ بدون قطعی‌های آزاردهنده 
+✅ سرعت بالا حتی ساعات شلوغ 
+✅ مناسب تلگرام، اینستاگرام و یوتیوب 
+✅ همراه با ساب 
+✅ تعداد محدود با این قیمت 
+🤖 @NetAazaadBot 
+🤖 @NetAazaadBot
+</div>
+
+## alonews — post 125085
+
+<div align="center">
+  <a href="telegram/content/alonews_125085_1780587928.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🤚 اینترنت مخصوص جنگ 
+🚀
+💙
+
+
+🔥 نامحدود فقط 690 تومن 
+🔥
+
+
+⭐️ فقط گیگی 7 هزار تومان
+😍
+
+
+✅ بدون قطعی‌های آزاردهنده
+
+✅ سرعت بالا حتی ساعات شلوغ
+
+✅ مناسب تلگرام، اینستاگرام و یوتیوب
+
+✅ همراه با ساب
+
+
+✅ تعداد محدود با این قیمت
+
+
+🤖 @NetAazaadBot
+
+🤖 @NetAazaadBot
+</div>
+
+## alonews — post 125084
+
+<div align="center">
+  <a href="telegram/content/alonews_125084_1780587929.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فیلد مارشال ،محسن رضایی: برای ترامپ ویلچر ببرید!
+
+
+🔴از این به بعد آقای ترامپ را باید روی ویلچر ببرند که بتواند آمریکا را اداره کند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125083
+
+<div align="center">
+  <a href="telegram/content/alonews_125083_1780587931.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حزب‌الله به دولت لبنان اعلام کرده که توافق صلح لبنان و اسرائیل که با میانجی‌گری آمریکا انجام شده رو قبول نداره- AFP
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/14 19:04
 ---
 

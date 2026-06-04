@@ -7,6 +7,40 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/15 02:12
+---
+
+## mwarmonitor — post 10161
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+درگیری در تنگه هرمز گزارش شده
+</div>
+
+## FoxNewsTwitter — post 342625
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342625_1780612953.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+RT @WillCainShow: SURVEILLANCE VIDEO FROM TRACK MEET FATAL STABBING DEBUNKS 4-ON-1 ATTACK NARRATIVE: “NOT EVEN CLOSE”
+
+Attorney Todd Shapiro debunks a viral claim suggested that Karmelo Anthony was attacked by four men before the stabbing of Austin Metcalf.
+</div>
+
+## FarsiVOA — post 219621
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219621_1780612954.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️از جنگ تا میز مذاکره؛ وقت خریدن به روش جمهوری اسلامی از زبان کاربران شبکه‌های اجتماعی
+@FarsiVOA
+</div>
+
+---
 📅 بروزرسانی: 1405/03/15 02:02
 ---
 

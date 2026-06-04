@@ -7,6 +7,114 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/14 11:14
+---
+
+## WithYashar — post 13466
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزیر دفاع اسرائیل: به هدف قرار دادن زیرساخت های حزب الله در لبنان ادامه خواهیم داد
+@withyashar
+</div>
+
+## WithYashar — post 13465
+
+<div align="center">
+  <img src="telegram/content/WithYashar_13465_1780559084.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک هواپیمای Falcon 900EX متعلق به دولت ایران در حال پرواز بر فراز دریای خزر به سمت روسیه است. این هواپیمای خاص توسط مقامات ارشد ایرانی استفاده می‌شود.
+@withyashar
+</div>
+
+## IranIntlTV — post 340468
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340468_1780559085.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روح‌الله رحیم‌پور، تحلیلگر سیاسی، درباره بازداشت ۲۰ نفر در بحرین به اتهام همکاری با سپاه پاسداران به ایران‌اینترنشنال گفت که این افراد به عنوان عوامل میدانی سپاه برای جذب نیرو، تاثیرگذاری بر جوانان و جمع‌آوری اطلاعات درباره تاسیسات و مراکز حساس فعالیت می‌کردند
+@iranintltv
+</div>
+
+## Hranews — post 113375
+
+<div align="center">
+  <img src="telegram/content/Hranews_113375_1780559088.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اجرای حکم حبس؛ نهاله شهیدی یزدی به زندان کرمان منتقل شد
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– نهاله شهیدی یزدی، شهروند بهائی ساکن کرج، جهت اجرای حکم بازداشت و به زندان شهرستان کرمان منتقل شد.
+
+به گزارش خبرگزاری هرانا، ارگان خبری مجموعه فعالان حقوق بشر در ایران، نهاله شهیدی یزدی، شهروند بهائی به زندان منتقل شد.
+
+بر اساس اطلاعات دریافتی هرانا، خانم شهیدی یزدی روز سه شنبه ۱۲ خردادماه، پس از حضور در شعبه اجرای احکام دادگاه انقلاب کرمان بازداشت و جهت تحمل دوران محکومیت حبس خود به زندان کرمان منتقل شد.
+
+ادامه مطلب
+
+#نهاله_شهیدی_یزدی
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## alonews — post 124992
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈مجتبی خامنه‌ای: هدف دشمن اینه فشار اقتصادی بیاره تا مردم ناامید بشن، مردم باید مقاومت کنن تا به قله برسیم
+</div>
+
+## alonews — post 124991
+
+<div align="center">
+  <a href="telegram/content/alonews_124991_1780559089.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فیلمی از پرواز پهپاد پنهانکار RA-01 اسرائیل در آسمان تهران
+
+
+🔴پهپاد RA-01 یک پهپاد شناسایی-رزمی پنهانکار اسرائیلی است که برای ماموریت‌های اطلاعاتی، نظارتی و حمله استفاده می‌شود.
+
+
+🔴ویدیو مربوط به زمان جنگ است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124990
+
+<div align="center">
+  <a href="telegram/content/alonews_124990_1780559091.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ارتش اسرائیل می‌گوید درگیری‌ها در جنوب لبنان ادامه دارد و به ساکنان لبنانی هشدار می‌دهد که به سمت جنوب حرکت نکنند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124989
+
+<div align="center">
+  <a href="telegram/content/alonews_124989_1780559091.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈موتور پهپاد شاهدی که به فرودگاه کویت برخورد کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/14 11:04
 ---
 

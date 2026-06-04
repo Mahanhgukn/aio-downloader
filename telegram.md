@@ -7,6 +7,92 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/14 13:04
+---
+
+## VahidOOnLine — post 243641
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_243641_1780565660.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی ارسالی به ایران اینترنشنال نشان‌دهنده برگزاری یک تجمع شبانه حکومتی در کرج است. فرستنده ویدیو در پیام خود گفت که حامیان حکومت در بلوار «امام‌زاده حسن» از ساعت ۶ صبح تا ۱۰:۳۰ شب با بستن خیابان و ایجاد آلودگی صوتی مزاحم ساکنان منطقه شدند و افزود: «ارزشی‌ها مسیر نیم‌ساعته را به سه ساعت رساندند.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## IranIntlTV — post 340483
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340483_1780565662.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی ارسالی به ایران اینترنشنال نشان‌دهنده برگزاری یک تجمع شبانه حکومتی در کرج است. فرستنده ویدیو در پیام خود گفت که حامیان حکومت در بلوار «امام‌زاده حسن» از ساعت ۶ صبح تا ۱۰:۳۰ شب با بستن خیابان و ایجاد آلودگی صوتی مزاحم ساکنان منطقه شدند و افزود: «ارزشی‌ها مسیر نیم‌ساعته را به سه ساعت رساندند.»
+</div>
+
+## IranIntlTV — post 340482
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340482_1780565663.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در آستانه برگزاری مسابقات جام جهانی، کانادا برای میزبانی از تیم‌های ملی آماده شده است. مهسا مرتضوی، خبرنگار ایران‌اینترنشنال، از حال‌وهوای این کشور در آستانه برگزاری این مسابقات گزارش می‌دهد
+@iranintltv
+</div>
+
+## IranIntlTV — post 340481
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340481_1780565665.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مرتضی کاظمیان، عضو تحریریه ایران‌اینترنشنال، می‌گوید دونالد ترامپ از نظر نظامی توان وارد کردن ضربه‌ای تعیین‌کننده به جمهوری اسلامی را دارد، اما با توجه به مخالفتش با مداخله زمینی، به دنبال تحقق اهداف خود از طریق افزایش فشارها و محاصره دریایی است. به گفته او، هدف اصلی این رویکرد، از بین بردن توانایی هسته‌ای جمهوری اسلامی است.
+@iranintltv
+</div>
+
+## IranianMinds — post 21355
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21355_1780565667.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اکانت اسرائیل به فارسی:
+
+شهروندان در گلشهر کرج، اطلاعیه‌ای با عنوان «مفقودی» برای رهبر مفقودالاثر جمهوری اسلامی نصب کرده‌اند😂😂😂😂😂
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 282840
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻بیمه مرکزی ایران: ۱۴۳۰ میلیارد تومان خسارت به صاحبان خودروهای آسیب‌دیده در جنگ پرداخت شد
+
+بیمه مرکزی ایران اعلام کرد که تاکنون خسارت ۱۷ هزار پرونده مربوط به خودروهای آسیب‌دیده در حملات آمریکا و اسرائیل به ایران و جنگ ۱۲ روزه با اعتباری بالغ بر ۱۴۳۰ میلیارد تومان به مالکان پرداخت شده است.
+
+پیش از این اعلام شده بود که در مجموع حدود ۳۰ هزار خودرو در جریان این دو جنگ آسیب دیده‌اند.
+
+موسی رضایی میرقائد، رئیس بیمه مرکزی ایران اوایل این هفته گفته بود «در حوزه هواپیما و کشتی» هم پرداخت‌های علی‌الحساب به زودی آغاز خواهد شد.
+
+https://bbc.in/3Qj3dhm
+@BBCPersian
+</div>
+
+## alonews — post 125020
+
+<div align="center">
+  <a href="telegram/content/alonews_125020_1780565669.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 درگیری‌ها بین نیروهای دولت فدرال و واحدهای امنیتی وفادار به رئیس‌جمهور حسن شیخ محمود و نخست‌وزیر سابق حسن علی خیر در طول شب در موگادیشو، سومالی ادامه داشت.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/14 12:53
 ---
 

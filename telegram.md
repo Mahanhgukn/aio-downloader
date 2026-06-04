@@ -7,6 +7,201 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/14 18:56
+---
+
+## VahidOOnLine — post 243679
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243679_1780586766.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دفتر رسانه‌ای شاهزاده رضا پهلوی با انتشار بیانیه‌ای با اشاره به زادروز مجیدرضا رهنورد در روز ۲۶ خرداد، مسابقات جام جهانی فوتبال و گردهمایی‌ها، مراسم‌ها و فعالیت‌های گوناگونی در سراسر جهان برگزار خواهد شد، نوشت: «بر همه ایرانیان میهن‌دوست و آزادی‌خواه است که با حضوری باشکوه در این برنامه‌ها، پرچم ملی شیر و خورشید را برافرازند و یاد پهلوان خراسان و همه جاویدنامان انقلاب ملی ایران را گرامی بدارند.»
+
+در این بیانیه آمده است: «هم‌زمان، مسابقات جام جهانی فوتبال فرصتی کم‌نظیر برای رساندن صدای ملت ایران به جهانیان فراهم می‌کند. از این فرصت تاریخی بهره بگیریم؛ پرچم شیر و خورشید را در ورزشگاه‌ها، خیابان‌ها و میدان‌های شهرها به اهتزاز درآوریم و تصاویر جان‌فدایان راه آزادی را در برابر چشم جهانیان قرار دهیم.»
+
+دفتر رسانه‌ای شاهزاده رضا پهلوی همچنین نوشت: «هم‌میهنان ساکن آمریکای شمالی، درون و بیرون ورزشگاه‌ها، پرشمار، متحد و پرخروش حضور یابید و صدای رسای ملت ایران باشید و خواست و اراده یک ملت متحد برای بازپس‌گیری میهن خود را بار دیگر به نمایش بگذارید.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243678
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243678_1780586767.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دفتر رسانه‌ای شاهزاده رضا پهلوی با انتشار بیانیه‌ای با اشاره به زادروز مجیدرضا رهنورد در روز ۲۶ خرداد، مسابقات جام جهانی فوتبال و گردهمایی‌ها، مراسم‌ها و فعالیت‌های گوناگونی در سراسر جهان برگزار خواهد شد، نوشت: «بر همه ایرانیان میهن‌دوست و آزادی‌خواه است که با حضوری باشکوه در این برنامه‌ها، پرچم ملی شیر و خورشید را برافرازند و یاد پهلوان خراسان و همه جاویدنامان انقلاب ملی ایران را گرامی بدارند.»
+
+در این بیانیه آمده است: «هم‌زمان، مسابقات جام جهانی فوتبال فرصتی کم‌نظیر برای رساندن صدای ملت ایران به جهانیان فراهم می‌کند. از این فرصت تاریخی بهره بگیریم؛ پرچم شیر و خورشید را در ورزشگاه‌ها، خیابان‌ها و میدان‌های شهرها به اهتزاز درآوریم و تصاویر جان‌فدایان راه آزادی را در برابر چشم جهانیان قرار دهیم.»
+
+دفتر رسانه‌ای شاهزاده رضا پهلوی همچنین نوشت: «هم‌میهنان ساکن آمریکای شمالی، درون و بیرون ورزشگاه‌ها، پرشمار، متحد و پرخروش حضور یابید و صدای رسای ملت ایران باشید و خواست و اراده یک ملت متحد برای بازپس‌گیری میهن خود را بار دیگر به نمایش بگذارید.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243677
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_243677_1780586768.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️تصاویری که کاربران شبکه‌های اجتماعی روز پنجشنبه ۱۴ خرداد و با وصل شدن اینترنت ایرانیان بعد از ۸۸ روز منتشر کرده‌اند، لحظه انفجار انبار نفت فردیس کرج را نشان می‌دهد.
+
+ارتش اسرائیل روز ۱۶ اسفندماه سال گذشته و در جریان جنگ، انبارهای نفت فردیس کرج و شهران و اقدسیه و شهر ری در تهران را مورد هدف قرار داد؛ حمله‌ای که باعث آلودگی شدید هوا شد.
+پس از این حمله، بسیاری از شهروندان با ارسال ویدیوهایی از ایجاد مشکل تنفسی و آلودگی شدید و دود سیاه روی سطح شهر خبر دادند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## IranIntlTV — post 340532
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340532_1780586772.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دفتر رسانه‌ای شاهزاده رضا پهلوی با انتشار بیانیه‌ای با اشاره به زادروز مجیدرضا رهنورد در روز ۲۶ خرداد، مسابقات جام جهانی فوتبال و گردهمایی‌ها، مراسم‌ها و فعالیت‌های گوناگونی در سراسر جهان برگزار خواهد شد، نوشت: «بر همه ایرانیان میهن‌دوست و آزادی‌خواه است که با حضوری باشکوه در این برنامه‌ها، پرچم ملی شیر و خورشید را برافرازند و یاد پهلوان خراسان و همه جاویدنامان انقلاب ملی ایران را گرامی بدارند.»
+
+در این بیانیه آمده است: «هم‌زمان، مسابقات جام جهانی فوتبال فرصتی کم‌نظیر برای رساندن صدای ملت ایران به جهانیان فراهم می‌کند. از این فرصت تاریخی بهره بگیریم؛ پرچم شیر و خورشید را در ورزشگاه‌ها، خیابان‌ها و میدان‌های شهرها به اهتزاز درآوریم و تصاویر جان‌فدایان راه آزادی را در برابر چشم جهانیان قرار دهیم.»
+
+دفتر رسانه‌ای شاهزاده رضا پهلوی همچنین نوشت: «هم‌میهنان ساکن آمریکای شمالی، درون و بیرون ورزشگاه‌ها، پرشمار، متحد و پرخروش حضور یابید و صدای رسای ملت ایران باشید و خواست و اراده یک ملت متحد برای بازپس‌گیری میهن خود را بار دیگر به نمایش بگذارید.»
+https://iranintl.com/202606044885
+</div>
+
+## Shin_Persian — post 6511
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6511_1780586773.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔁 Quoting above tweet:
+Shin ✓ @hey_itsmyturn
+Thu, 04 Jun 2026 15:18:10 UTC
+
+U.S. forces have redirected 127 commercial vessels and disabled 6 non-compliant ships as of June 4 while enforcing a blockade against Iran. USS McFaul continues to support the operation.
+
+Source: @CENTCOM
+https://x.com/CENTCOM/status/2062554458781819250
+
+فارسی
+
+نیروهای ایالات متحده تا ۴ ژوئن و در جریان اجرای محاصره علیه ایران، ۱۲۷ کشتی تجاری را تغییر مسیر داده و ۶ کشتی متخلف را متوقف کرده‌اند. یو‌اس‌اس مک‌فال (USS McFaul) همچنان به پشتیبانی از این عملیات ادامه می‌دهد.
+
+منبع: @CENTCOM
+https://x.com/CENTCOM/status/2062554458781819250
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6510
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6510_1780586774.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet: U.S. Central Command ✓ @CENTCOM Thu, 04 Jun 2026 15:17:58 UTC A U.S. Sailor stands watch aboard USS McFaul (DDG 74) while the ship continues to support the U.S. blockade against Iran. As of June 4, U.S. forces have redirected 127 commercial…
+</div>
+
+## Shin_Persian — post 6509
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+U.S. Central Command ✓ @CENTCOM
+Thu, 04 Jun 2026 15:17:58 UTC
+
+A U.S. Sailor stands watch aboard USS McFaul (DDG 74) while the ship continues to support the U.S. blockade against Iran. As of June 4, U.S. forces have redirected 127 commercial vessels, disabled 6 non-compliant ships, and allowed 36 vessels supporting humanitarian aid to pass.
+
+↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
+
+فارسی
+
+یک ملوان آمریکایی (U.S. Sailor) بر عرشه یو‌اس‌اس مک‌فال (DDG 74) در حالی که این کشتی به حمایت از محاصره ایران توسط ایالات متحده ادامه می‌دهد، مشغول نگهبانی است. تا تاریخ ۴ ژوئن، نیروهای آمریکایی مسیر ۱۲۷ کشتی تجاری را تغییر داده، ۶ کشتی غیرمنطبق را از کار انداخته و به ۳۶ شناور که از کمک‌های بشردوستانه پشتیبانی می‌کردند، اجازه عبور داده‌اند.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6508
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6508_1780586775.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔁 Quoting above tweet:
+Shin ✓ @hey_itsmyturn
+Thu, 04 Jun 2026 15:17:10 UTC
+
+U.S. forces have redirected 127 commercial vessels and disabled 6 non-compliant ships as part of the ongoing blockade against Iran. 36 humanitarian aid vessels have been permitted to pass.
+
+Source: @CENTCOM
+https://x.com/CENTCOM/status/2062554174491857109
+
+فارسی
+
+نیروهای ایالات متحده در چارچوب محاصره جاری علیه ایران، ۱۲۷ کشتی تجاری را تغییر مسیر داده و ۶ کشتی غیرمنطبق را متوقف کرده‌اند. به ۳۶ کشتی حامل کمک‌های بشردوستانه اجازه عبور داده شده است.
+
+منبع: @CENTCOM (فرماندهی مرکزی ایالات متحده)
+https://x.com/CENTCOM/status/2062554174491857109
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6507
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6507_1780586776.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet: U.S. Central Command ✓ @CENTCOM Thu, 04 Jun 2026 15:16:50 UTC A U.S. sailor stands watch aboard USS McFaul (DDG 74) while the ship continues to support the U.S. blockade against Iran. As of June 4, U.S. forces have redirected 127 commercial…
+</div>
+
+## Shin_Persian — post 6506
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+U.S. Central Command ✓ @CENTCOM
+Thu, 04 Jun 2026 15:16:50 UTC
+
+A U.S. sailor stands watch aboard USS McFaul (DDG 74) while the ship continues to support the U.S. blockade against Iran. As of June 4, U.S. forces have redirected 127 commercial vessels, disabled 6 non-compliant ships, and allowed 36 vessels supporting humanitarian aid to pass.
+
+↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
+
+فارسی
+
+یک ملوان آمریکایی بر عرشه یواس‌اس مک‌فال (DDG 74) در حالی که این کشتی به حمایت از محاصره ایران توسط ایالات متحده ادامه می‌دهد، مشغول نگهبانی است. تا تاریخ ۴ ژوئن، نیروهای آمریکایی مسیر ۱۲۷ کشتی تجاری را تغییر داده، ۶ کشتی متخلف را توقیف کرده و به ۳۶ شناور حامل کمک‌های بشردوستانه اجازه عبور داده‌اند.
+
+𝕏 · @shin_persian
+</div>
+
+## alonews — post 125079
+
+<div align="center">
+  <a href="telegram/content/alonews_125079_1780586776.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تورم نقطه به نقطه سالانه برخی اقلام اعلامی مرکز آمار: از ۴۳٠ درصد تا ۱٠٠ درصد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125078
+
+<div align="center">
+  <a href="telegram/content/alonews_125078_1780586777.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خبرنگار وال‌استریت ژورنال: یک منبع نزدیک به آژانس بین‌المللی انرژی اتمی می‌گوید هیچ فعالیت قابل مشاهده‌ای (از طریق تصاویر ماهواره‌ای، یعنی در سطح زمین) در سایت‌های هسته‌ای ایران که سال گذشته بمباران شدند، در ماه‌های اخیر مشاهده نشده است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/14 18:45
 ---
 

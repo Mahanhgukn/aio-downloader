@@ -7,6 +7,222 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/14 21:39
+---
+
+## VahidOOnLine — post 243700
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243700_1780596575.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های کویت گزارش دادند شیخ جراح جابر الاحمد الصباح، وزیر خارجه کویت، و مارکو روبیو، وزیر خارجه آمریکا، در واشینگتن درباره شراکت راهبردی میان دو کشور گفت‌وگو کردند.
+در این دیدار، حملات مکرر جمهوری اسلامی به کویت محکوم و بر حق کامل این کشور برای اتخاذ اقدامات لازم جهت حفظ حاکمیت و امنیت سرزمینش تاکید شد.
+دو طرف همچنین بر اهمیت تداوم هماهنگی مشترک در سطوح مختلف با توجه به شرایط حساس منطقه تاکید کردند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243699
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_243699_1780596576.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️شیخ جراح جابر الاحمد الصباح، وزیر امور خارجه کویت، روز پنج‌شنبه ۱۴ خرداد در جریان سفری رسمی به واشنگتن، با مارکو روبیو، وزیر امور خارجه ایالات متحده دیدار کرد. در این نشست، دو طرف بر مشارکت راهبردی میان دو کشور تاکید کرده و درباره تحولات امنیتی منطقه گفتگو کردند.
+
+بخش مهمی از این مذاکرات به حملات اخیر علیه کویت اختصاص داشت. هر دو وزیر آنچه را که «تجاوزات مکرر ایران علیه دولت کویت» نامیدند، محکوم کردند. همچنین بر حق کویت برای اتخاذ تمامی اقدامات لازم جهت حفاظت از حاکمیت، امنیت و تمامیت ارضی خود تاکید شد.
+
+طرفین ضمن بررسی روابط دیرینه دو کشور، بر تعهد خود جهت تقویت همکاری‌ها در بخش‌های سیاسی، دفاعی، سرمایه‌گذاری و فرهنگی پافشاری کردند. روبیو و شیخ جراح اهمیت تلاش‌های مشترک برای مقابله با چالش‌های امنیتی در حال ظهور، تقویت ثبات منطقه‌ای و ارتقای شکوفایی در سراسر منطقه را مورد توجه قرار دادند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13508
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ادعای رویترز بر اساس داده‌های حمل و نقل: صادرات نفت ایران به پایین‌ترین سطح خود در حداقل ۶ سال گذشته رسیده است
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342612
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342612_1780596579.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH LIVE: Lawmakers hold hearing on alleged CCP links to fentanyl crisis https://twitter.com/i/broadcasts/1kKzDDQkjMLJv
+</div>
+
+## FoxNewsTwitter — post 342611
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342611_1780596580.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NEW: The FBI just put faces to the fraud.
+
+The bureau dropped its most wanted fraudsters list, with alleged schemes ranging from $1.3 million to $1.2 billion dollars taken from American taxpayers.
+</div>
+
+## IranIntlTV — post 340551
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340551_1780596581.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های کویت گزارش دادند شیخ جراح جابر الاحمد الصباح، وزیر خارجه کویت، و مارکو روبیو، وزیر خارجه آمریکا، در واشینگتن درباره شراکت راهبردی میان دو کشور گفت‌وگو کردند.
+در این دیدار، حملات مکرر جمهوری اسلامی به کویت محکوم و بر حق کامل این کشور برای اتخاذ اقدامات لازم جهت حفظ حاکمیت و امنیت سرزمینش تاکید شد.
+دو طرف همچنین بر اهمیت تداوم هماهنگی مشترک در سطوح مختلف با توجه به شرایط حساس منطقه تاکید کردند.
+https://iranintl.com/202606048937
+</div>
+
+## FarsiVOA — post 219595
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺بستری شدن میرحسین موسوی در بیمارستان به‌دلیل مشکل شدید قلبی
+
+▪️دختران میرحسین موسوی روز پنجشنبه ۱۴ خرداد گفتند وضعیت جسمی پدرشان که به‌دلیل مشکل شدید قلبی در بیمارستان بستری است، نامساعد و اوضاع جسمی‌ او ناگوار است.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/iran-musavi-mirhossein-zahra-rahnavard-hospital-heart/8157324.html
+</div>
+
+## RadioFarda — post 157903
+
+<div align="center">
+  <a href="https://t.me/radiofarda/157903" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📻بشنوید: ایستگاه ۱۹ با رادیوفردا، ۱۴ خرداد ۱۴۰۵
+
+@RadioFarda
+</div>
+
+## RadioFarda — post 157902
+
+<div align="center">
+  <a href="https://t.me/radiofarda/157902" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امیر چاهکی: ایران فاقد یک «تحلیل راهبردی» درباره چین است
+
+🔸محمدباقر قالیباف روز ۱۳ خرداد جلسه‌ای را با وزرای اقتصادی دولت به همراه روسای بانک مرکزی و سازمان برنامه و بودجه برگزار کرد تا بنا بر گزارش رسانه‌ها در ایران «سطح تعاملات با چین» ارتقا پیدا کند. آقای قالیباف در هفته‌های اخیر به عنوان نماینده ویژه ایران در امور چین هم منصوب شده است. چالش‌هایی پیش‌روی بهبود و تعمیق روابط میان تهران و پکن کدامند؟ ارزیابی امیر چاهکی، تحلیلگر امور بین‌الملل در برلین پایتخت آلمان، را در این زمینه بشنوید.
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 21384
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21384_1780596583.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این حرومی هم به همراه زنش دستگیر شده.
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 390999
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390999_1780596584.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خاله دنیا از پرستوهای قدیمی و استخون خرد کرده‌ی حکومت
+وقتی دید تیم میلی کیری سپاه رو همه تحریم کردن پا پیش گذاشت تا روحیه بده بهشون، البته خودش هم احتمالا از کیر خواننده خسته شده میخواد یه فوتبالیست بکشه روش
+
+
+@Dirty_Kids 👻
+</div>
+
+## Hranews — post 113391
+
+<div align="center">
+  <img src="telegram/content/Hranews_113391_1780596587.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارشی از تداوم بازداشت و بلاتکلیفی سعید اسدی در زندان تربت جام
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– سعید اسدی، شهروند ساکن تایباد، حدود سه ماه است که بازداشت شده و به صورت بلاتکلیف در زندان تربت جام نگهداری می‌شود.
+
+به گزارش خبرگزاری هرانا، ارگان خبری مجموعه فعالان حقوق بشر در ایران، سعید اسدی در بلاتکلیفی قضایی به‌سر می‌برد.
+
+بر اساس اطلاعات دریافتی هرانا، نزدیک به سه ماه از بازداشت آقای اسدی، می‌گذرد. او هم‌اکنون در زندان تربت جام نگهداری می‌شود. وی همچنان در وضعیت بلاتکلیفی قضایی قرار دارد و امکان آزادی او با وثیقه نیز تاکنون میسر نشده است.
+#سعید_اسدی
+
+ادامه مطلب
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## alonews — post 125124
+
+<div align="center">
+  <a href="telegram/content/alonews_125124_1780596588.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزارت خارجه قطر: وزیر خارجه قطر تماس تلفنی از وزیر خارجه مصر دریافت کرد و آن دو درباره میانجی‌گری بین واشنگتن و تهران گفت‌وگو کردند.
+
+
+🔴وزیر امور خارجه قطر بر ضرورت پاسخگویی همه طرف‌ها به تلاش‌های میانجی‌گری جاری تأکید کرد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125123
+
+<div align="center">
+  <a href="telegram/content/alonews_125123_1780596588.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پوتین : روسیه می‌خواد با اوکراین از راه مسالمت‌آمیز به توافق برسه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125122
+
+<div align="center">
+  <a href="telegram/content/alonews_125122_1780596588.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 ادعای رویترز بر اساس داده‌های حمل و نقل: صادرات نفت ایران به پایین‌ترین سطح خود در حداقل ۶ سال گذشته رسیده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125120
+
+<div align="center">
+  <a href="telegram/content/alonews_125120_1780596589.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈صبح امروز، لبنان
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/14 21:24
 ---
 

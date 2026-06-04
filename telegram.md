@@ -7,6 +7,69 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/15 01:22
+---
+
+## VahidOOnLine — post 243723
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243723_1780609952.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ وزارت خارجه آمریکا پنجشنبه ۱۴ خرداد از شهروندان آمریکایی حاضر در خاورمیانه خواست به دلیل تنش‌های شدید منطقه‌ای احتیاط کنند و تحولات امنیتی را از نزدیک دنبال کنند. این وزارتخانه اعلام کرد وضعیت امنیتی در خاورمیانه همچنان پیچیده است و ممکن است به‌سرعت تغییر کند.
+
+بر اساس این اطلاعیه، هشدار سفر برای بحرین، اسرائیل، کرانه باختری، اردن، کویت، عمان، قطر، عربستان سعودی و امارات متحده عربی همچنان در سطح ۳، «تجدیدنظر در سفر»، باقی مانده است.
+
+وزارت خارجه آمریکا همچنین اعلام کرد ایران، عراق، لبنان، سوریه، غزه و یمن همچنان در سطح ۴، «از سفر خودداری کنید»، قرار دارند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13533
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ می‌گوید دولتش بررسی کرده بود که نیروهایی را برای تصرف اورانیوم ایران بفرستد، اما در نهایت این ایده را رد کرد چون خیلی پرخطر بود و می‌توانست به تلفات آمریکایی‌ها منجر شود، و این موضوع را با مأموریت ناموفق نجات گروگان‌های کارتر مقایسه کرد.
+@withyashar
+</div>
+
+## FarsiVOA — post 219620
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219620_1780609952.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴برنامه امروز تفسیر خبر را با اجرای مهدی آقازمانی از طریق لینک زیر در یوتیوب مشاهده بفرمایید:
+https://youtu.be/GXI9_tsXsR4
+</div>
+
+## Dirty_Kids — post 391014
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391014_1780609952.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هرچه موشک زدی مرا
+نقض نشد، علاقه شد!
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391013
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391013_1780609953.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روایت داریم شب جمعه‌ها روز ورزش و ورزشکاران است
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/03/15 01:12
 ---
 

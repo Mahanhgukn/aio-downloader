@@ -7,6 +7,66 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/14 05:47
+---
+
+## VahidOOnLine — post 243600
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243600_1780539420.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وال‌استریت ژورنال به نقل از مقام‌های آمریکایی گزارش داد ترامپ به طور خصوصی به دستیاران خود گفته است در صورتی که جمهوری اسلامی نیروهای آمریکایی را بکشد، پایان دادن به آتش‌بس با تهران را بررسی خواهد کرد و تاکید کرده است که وقفه چند هفته‌ای در حملات هوایی همچنان برقرار است.
+این گزارش با اشاره به ادامه درگیری‌های پراکنده با جمهوری اسلامی افزود با این حال مقام‌های آمریکایی گفتند ادامه حمله‌ها فشار بر ترامپ را افزایش داده و تردیدهایی درباره دوام بلندمدت آتش‌بس ایجاد کرده است.
+یک مقام کاخ سفید تاکید کرد ترامپ ترجیح می‌دهد از راه دیپلماتیک برنامه هسته‌ای ایران را برچیند، اما درباره خطوط قرمز خود شفاف بوده است.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342592
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342592_1780539421.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"You advocate for a terrorist regime every single day."
+
+A House debate over Hezbollah suddenly exploded into a shouting match.
+
+GOP Rep. Max Miller accused Rep. Rashida Tlaib of "advocating for terrorists on a daily basis" during remarks on the House floor, prompting immediate objections from the Michigan Democrat.
+
+The confrontation forced House leaders to restore order and added another flashpoint to the already tense debate over U.S. policy in the Middle East.
+</div>
+
+## IranIntlTV — post 340455
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340455_1780539424.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وال‌استریت ژورنال به نقل از مقام‌های آمریکایی گزارش داد ترامپ به طور خصوصی به دستیاران خود گفته است در صورتی که جمهوری اسلامی نیروهای آمریکایی را بکشد، پایان دادن به آتش‌بس با تهران را بررسی خواهد کرد و تاکید کرده است که وقفه چند هفته‌ای در حملات هوایی همچنان برقرار است.
+این گزارش با اشاره به ادامه درگیری‌های پراکنده با جمهوری اسلامی افزود با این حال مقام‌های آمریکایی گفتند ادامه حمله‌ها فشار بر ترامپ را افزایش داده و تردیدهایی درباره دوام بلندمدت آتش‌بس ایجاد کرده است.
+یک مقام کاخ سفید تاکید کرد ترامپ ترجیح می‌دهد از راه دیپلماتیک برنامه هسته‌ای ایران را برچیند، اما درباره خطوط قرمز خود شفاف بوده است.
+
+https://iranintl.com/202606049482
+</div>
+
+
+---
+### ⚠️ کانال‌های با خطا در این بروزرسانی
+
+* WithYashar
+* reutersworldchannel
+* Persian_Trend_Official
+
+دلایل احتمالی: مسدود بودن کانال، حذف کانال، یا خطای شبکه.
+---
+
+---
 📅 بروزرسانی: 1405/03/14 05:35
 ---
 

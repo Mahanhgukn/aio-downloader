@@ -7,6 +7,182 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/14 17:37
+---
+
+## WithYashar — post 13493
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اصلا جان بر کف و جان فدا برای ما بود اونا گرفتن 😃 🤣 اون عرزشی ها کپی‌کارن زبان فارسی‌هم میراث ما هست نه اونا ، شاهنشاهی هم میراث ما هست لغت شاه هم کل دنیابگین میگن شاه ایران !
+</div>
+
+## WithYashar — post 13492
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مردم به ایلان ماسکم دیسلاک دادن موشک هوا کرد 😁 شما توجه نکنید پیشنهادم به بعضی ها اینه که یک جعبه شیرنی‌بگیرن و با خودشون آشتی کنند
+</div>
+
+## FoxNewsTwitter — post 342599
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342599_1780582054.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+DHS Secretary Markwayne Mullin torches Shri Thanedar and the Democrats for the party’s hypocrisy in supporting Graham Platner while claiming Homeland Security is promoting ‘racist’ and ‘bigoted’ content online.
+
+REP. THANEDAR: "When will you stop DHS from using its social media accounts to spread bigoted and racist words and imagery?"
+
+SEC. MULLIN: "It's interesting how you make those claims and give no facts, but yet your party is the one that's supporting the guy that's got a Nazi tattoo on his chest."
+
+"You throw out nationalism, Nazism. And that's exactly what causes the hatred and the violence that happens to our officers every single day. And you should be ashamed of using that."
+</div>
+
+## pm_afshaa — post 92270
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تنها سردار سپاهی که امروز توی‌ مراسم سالگرد خمینی حضور داشت فقط محسن رضایی بود
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5333
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5333_1780582056.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺🎤 آتش‌بس حزب الله لبنان و اسرائیل؛ نقطه عطفی در معادلات ایران و آمریکا؛
+
+گفت‌وگو با شهرام خلدی، پژوهشگر مطالعات خاورمیانه
+
+#حزب_الله_لبنان #اسرائیل
+@DEJradio
+</div>
+
+## Shin_Persian — post 6502
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet: Open Source Intel ✓ @Osint613 Thu, 04 Jun 2026 08:12:11 UTC Iran’s Supreme Leader Mojtaba Khamenei: The Iranian nation, with its renewed awakening, has become a source of pride for freedom-loving nations alongside the Axis of Resistance.…
+</div>
+
+## Shin_Persian — post 6501
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+Open Source Intel ✓ @Osint613
+Thu, 04 Jun 2026 08:12:11 UTC
+
+Iran’s Supreme Leader Mojtaba Khamenei:
+
+The Iranian nation, with its renewed awakening, has become a source of pride for freedom-loving nations alongside the Axis of Resistance.
+
+↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
+
+فارسی
+
+مجتبی خامنه‌ای، رهبر معظم ایران:
+
+ملت ایران با بیداریِ نویافته‌ی خود، در کنار محور مقاومت به مایه افتخار ملت‌های آزادی‌خواه تبدیل شده است.
+
+𝕏 · @shin_persian
+</div>
+
+## DW_Farsi — post 125490
+
+<div align="center">
+  <a href="telegram/content/DW_Farsi_125490_1780582057.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎥 لحظه برخورد پرتابه "ایران" به فرودگاه کویت
+
+دوربین‌های مداربسته فرودگاه بین‌المللی کویت لحظه انفجار در ترمینال شماره یک را ثبت کرده‌اند؛ حمله‌ای که به جمهوری اسلامی نسبت داده شده و یک کشته و بیش از ۶۰ زخمی بر جا گذاشته است.
+
+
+@dw_farsi
+</div>
+
+## DW_Farsi — post 125489
+
+<div align="center">
+  <a href="telegram/content/DW_Farsi_125489_1780582059.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎥 آتش‌سوزی در یک مسافرخانه در دهلی نو؛ بیش از ۲۰ نفر جان باختند
+
+آتش‌سوزی در یک مسافرخانه در دهلی نو، پایتخت هند، دست‌کم ۲۰ نفر را به کام مرگ کشاند.
+
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 15697
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کشورهای خلیج فارس در حال مذاکره برای احداث خطوط لوله نفتی به‌منظور دور زدن تنگه هرمز هستند.
+
+کویت از جمله کشورهایی است که با عربستان سعودی و امارات متحده عربی درباره خطوط لوله احتمالی در خاک این کشورها گفت‌وگو می‌کند؛ خطوطی که می‌تواند تولید نفت کشورهای خلیج فارس را بدون عبور از تنگه هرمز به خریداران جهانی متصل کند. این موضوع را شیخ خالد احمد الصباح، مدیر بازاریابی بین‌المللی شرکت نفت کویت، اعلام کرده است.
+
+شیخ خالد روز چهارشنبه در رویدادی در لندن گفت: «کویت با بسیاری از کشورهای همسایه در حال گفت‌وگو و مذاکره است.» به گفته او، جنگ آمریکا و اسرائیل علیه ایران و تهدید ایران علیه کشتیرانی در تنگه هرمز، ضرورت پروژه‌های خط لوله را برجسته کرده است.
+
+او افزود: «قبلاً خیلی‌ها می‌گفتند چرا کشورها خط لوله می‌سازند اما از آن استفاده نمی‌کنند؟ اما حالا مشخص شده که این خطوط لوله چه کاربردی دارند.»
+
+در میان کشورهای متأثر از بحران، تنها عربستان سعودی و امارات خطوط لوله‌ای دارند که می‌تواند نفت را بدون عبور از تنگه هرمز، به بنادر خارج از این تنگه منتقل کند. هر دو کشور از زمان آغاز درگیری، استفاده از این خطوط لوله را به حداکثر رسانده‌اند.
+
+برای استفاده سایر کشورها، باید خطوط لوله جدیدی ساخته شود. بر اساس طرح‌های در حال بررسی، نفت معمولاً در بنادر عربستان و امارات بارگیری می‌شود و سپس به مقصدهایی منتقل خواهد شد که به خطوط لوله‌ای دسترسی دارند که می‌توانند نفت را به بنادر خارج از تنگه هرمز پمپاژ کنند.
+
+فیلیپ خوری، معاون اجرایی شرکت ملی نفت ابوظبی در امور تجارت، روز سه‌شنبه گفت امارات در حال بررسی ساخت یک «خط لوله غرب به شرق» برای انتقال نفت خام است. در گذشته نیز زمانی که چنین پروژه‌ای مطرح شده بود، هدف آن ایجاد مسیری برای تولیدکنندگان نفت خلیج فارس جهت دور زدن تنگه هرمز بود؛ در حالی که کشور میزبان در ازای عبور نفت، حق ترانزیت دریافت می‌کرد.
+
+با این حال، چنین پروژه‌هایی در گذشته بارها مطرح شده‌اند اما به مرحله اجرا نرسیده‌اند. بسیاری از پروژه‌های مشترک و سودمند میان کشورهای خلیج فارس به‌دلیل نگرانی از وابستگی بیش از حد به کشورهای همسایه و آسیب‌پذیری‌های احتمالی ناشی از آن، متوقف مانده‌اند.
+
+شیخ خالد همچنین گفت کویت با عمان نیز درباره ایجاد سایت‌های احتمالی ذخیره نفت در آن سوی تنگه هرمز گفت‌وگو می‌کند.
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15696
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15696_1780582062.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تصاویر ماهواره‌ای جدید شرکت Soar Atlas نشان می‌دهد که پس از حملات دیروز ایران، به یک آشیانه هواپیما در پایگاه هوایی آمریکایی علی السالم در کویت آسیب وارد شده است.
+این تصاویر، واضح‌ترین تصاویر منتشرشده تا این لحظه از خسارات ناشی از اصابت موشک‌های ایرانی هستند.
+از زمان آغاز «سومین جنگ خلیج فارس»، آمریکا شرکت‌های ماهواره‌ای را وادار کرده انتشار تصاویر از پایگاه‌های آمریکایی را با تأخیر انجام دهند یا فقط تصاویر کم‌کیفیت منتشر کنند تا ابعاد واقعی خسارات ناشی از پرتابه‌های ایرانی پنهان بماند. اخیراً نیز در سرویس‌هایی مانند گوگل‌مپ و اپل‌مپ، همه پایگاه‌های آمریکایی در کویت محو یا تار شده‌اند.
+این در حالی است که سنتکام در بیانیه ۲ ژوئن مدعی شده بود همه موشک‌ها و پهپادهایی که کویت را هدف قرار داده بودند، «پیش از رسیدن به هدف سقوط کرده یا در میانه مسیر متلاشی شده‌اند».
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+
+---
+### ⚠️ کانال‌های با خطا در این بروزرسانی
+
+* IranianMinds
+* BBCPersian
+* IranWire
+* idfinfarsi
+* Dirty_Kids
+* Hranews
+* officialrezapahlavi
+* manototv
+* alonews
+
+دلایل احتمالی: مسدود بودن کانال، حذف کانال، یا خطای شبکه.
+---
+
+---
 📅 بروزرسانی: 1405/03/14 17:24
 ---
 

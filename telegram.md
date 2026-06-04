@@ -7,6 +7,105 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/14 16:14
+---
+
+## mwarmonitor — post 10138
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_10138_1780577057.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✈️ ارابه فرود جلوی یک هواپیمای Lufthansa از نوع Boeing 787-9 هنگام پارک در گیت در فرودگاه فرانکفورت دچار فروپاشی شد.
+
+🔸تاکنون بیانیه‌ای درباره علت حادثه یا احتمال وجود مصدوم منتشر نشده است.
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 342596
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342596_1780577058.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+New video released by the Kuwaiti government shows the moment an Iranian drone strike slammed into the country’s major international airport.
+
+The footage captures what looks like a direct impact followed by a massive explosion, sending smoke and debris into the air as part of the airport complex erupts.
+
+Kuwaiti authorities say one person was killed and more than 60 others were injured in the strike.
+
+Wednesday’s attack marks a major escalation as tensions across the region continue to rise.
+</div>
+
+## pm_afshaa — post 92264
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92264_1780577060.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نعیم قاسم، رهبر حزب الله: نتیجه مذاکرات دولت لبنان با اسرائیل شرم آور و پوچ است و اونو بطور کامل مردود اعلام میکنم.
+
+تا زمانی که تجاوز ادامه داره به هر جایی که تصمیم بگیریم و بتونیم حمله می‌کنیم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 340506
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340506_1780577061.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند بازنشسته با ارسال پیامی صوتی به ایران اینترنشنال گفت پس از ۳۰ سال کار، ماهانه ۱۳ میلیون تومان حقوق دریافت می‌کند که این مبلغ در سه روز نخست ماه تمام می‌شود و او برای تامین هزینه‌های باقی‌ روزهای ماه، حتی خرید نان و مخارج خانواده با مشکل روبه‌رو است.
+
+او همچنین گفت امسال بازنشستگان را تحت پوشش بیمه «آتیه‌سازان» برده‌اند؛ شرکتی که ماهانه یک میلیون تومان از حقوق آنان کم می‌کند، اما به‌گفته او هیچ داروخانه و پزشکی آن را نمی‌پذیرد و بازنشستگان باید پس از پرداخت هزینه، فاکتور بگیرند و با پرداخت هزینه‌ای دیگر از طریق پیشخوان دولت اقدام کنند.
+
+صدای او با هوش مصنوعی تغییر یافته است.
+</div>
+
+## Dirty_Kids — post 390973
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390973_1780577064.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به کیرم چقدر کسشر میشناسید @Dirty_Kids 👻
+</div>
+
+## Hranews — post 113383
+
+<div align="center">
+  <img src="telegram/content/Hranews_113383_1780577064.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دادگاه تجدیدنظر؛ محمد حسینی چمنی به بیش از ۳۰ ماه حبس محکوم شد
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– شعبه ۱۸ دادگاه تجدیدنظر استان خوزستان، محمد حسینی چمنی، زندانی سیاسی محبوس در زندان شیبان اهواز را به دو سال و شش ماه و دو روز حبس محکوم کرد. وی در مرحله بدوی دادگاه، به چهار سال زندان و مجازات تکمیلی محکوم شده بود.
+
+به گزارش خبرگزاری هرانا، ارگان خبری مجموعه فعالان حقوق بشر در ایران، شعبه ۱۸ دادگاه تجدیدنظر استان خوزستان مبادرت به کاهش حکم بدوی محمد حسینی چمنی کرده است.
+
+بر اساس رای صادره، آقای حسینی چمنی از بابت اتهام «اخلال در نظم عمومی» به ۱۵ ماه و یک روز حبس و از بابت اتهام «توهین به رهبری» نیز به ۱۵ ماه و یک روز زندان محکوم شده است. همچنین مجازات‌های تکمیلی تعیین‌شده در مرحله بدوی، از محکومیت وی حذف شده است.
+
+ادامه مطلب
+
+#محمد_حسینی_چمنی
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+---
 📅 بروزرسانی: 1405/03/14 16:04
 ---
 

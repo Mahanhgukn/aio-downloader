@@ -7,6 +7,255 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/14 19:34
+---
+
+## VahidOOnLine — post 243683
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🗣روایت شما از زندگی در دوران پس از انقلاب ملی و جنگ - پنجشنبه ۱۴ خرداد ۱۴۰۵
+
+🔹لطفاً تصاویر جاویدنام‌ها رو همه‌جا ببرید و بچسبانید. سفارت‌خانه‌های جمهوری اسلامی، کنسرت‌ها، استادیوم‌ها، ایونت‌ها و هر جای شلوغی.
+🔹شهر ما هر روز برق میره. ما اهل جنوب کشوریم. هوا به‌شدت گرم و شرجیه و تو اوج گرما برق‌ها قطع میشه و بعدش هم با نوسان زیاد وصل می‌کنن. همه وسیله‌های برقی دارن می‌سوزن. این چه وضعیه توی این گرونی؟
+🔹من یه پزشک عمومی جوان هستم. چهار ساله که آزمون تخصص می‌دم ولی نمی‌تونم رشته مورد علاقه‌ام رو قبول بشم. علتش هم سهمیه‌های جانباز و شهدا و پایین نگه داشتن عمدی ظرفیت‌های آزمون تخصص پزشکیه به‌دلیل تعارض منافع در وزارت بهداشت.
+🔹 اگه تو فلسطین کسی بدن بی‌جان بچه‌شو محکم بغل کنه و لای هزاران کیسه مشکی دنبالش بگرده، یا به معترضین تو بیمارستان تیر خلاص بزنن، سلبریتی‌های هالیوود جونشون بالا میاد.
+🔹ما خانواده‌ای از طبقه متوسط هستیم و همگی شاغلیم. با این حال، هفته‌هاست گوشت و مرغ کاملاً از وعده‌هامون حذف شدن.
+🔹خیلی هزینه‌ها بالا رفته ولی همچنان ما بازنشستگان تأمین اجتماعی مثل پارسال حقوق می‌گیریم. هیچ افزایشی اعمال نشده.
+🔹مهم‌ترین ابزار مقاومت ما اطلاع‌رسانیه. آگاهی با مستندات واقعی و بی‌سانسور. جهان داره جنایات جمهوری اسلامی رو فعالانه انکار می‌کنه. اطلاع‌رسانی مهم‌ترین وظیفه الان ماست.
+🔹رامسر: دوباره دارن به حجاب دخترها گیر میدن و جریمه می‌کنن. دخترها رو می‌گیرن و به هر دلیلی بازداشت می‌کنن.
+🔹حق بیمه تأمین اجتماعی که قبل از عید برای سه ماه ۲ میلیون و ۲۵۰ هزار تومن دادم، الان شده ۵ میلیون. اصلاً فکر نمی‌کنن که با این تورم یه شهروند چطور داره دوام میاره.
+🔹خیلی سخته برای خانواده‌ای که عزیزش رو به‌خاطر نبودن دارو از دست می‌ده. کاش بخشی از پول‌های بلوکه‌شده به‌صورت دارو، مخصوصاً داروی بیماری‌های صعب‌العلاج، وارد می‌شد.
+🔹من یک پزشک فارغ‌التحصیل خارج از کشور هستم و مجبور شدم برگردم ایران. ولی وزارت بهداشت مافیایی و فاسد جمهوری اسلامی داره مانع کار کردن ما در ایران می‌شه.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342607
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342607_1780589093.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: The Trump administration is putting every state on notice in a massive crackdown on Medicaid fraud.
+
+FTC Chairman Andrew Ferguson just announced that Hawaii has been officially decertified for failing to enforce the law and address the fraud problem plaguing the state.
+
+"Everyone is on notice. And today, Hawaii is being decertified for its abject failure to enforce state and federal law to prohibit fraud."
+</div>
+
+## FoxNewsTwitter — post 342606
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342606_1780589095.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+JUST IN: FBI Director Kash Patel unveils the FBI’s new “Top 10 Most Wanted Fraudsters” list.
+
+Patel says the initiative was proposed by Vice President JD Vance to crack down on massive financial crimes being carried out across the U.S. by creating a centralized list of the worst of the worst.
+
+"I want all Americans to take a look at these most wanted individuals and look at the amounts, the tens of millions and billions of dollars in fraud, that they have decimated our societies from."
+
+"We rely on you. Our best form of information is the American public."
+</div>
+
+## FoxNewsTwitter — post 342605
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342605_1780589097.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: Acting Attorney General Todd Blanche announces a massive crackdown on fraud, unsealing charges against 14 defendants accused of stealing over $50 million in government funds.
+
+The sweeping indictments target multiple schemes, including a multi-million dollar operation to defraud taxpayer-funded COVID programs meant to help struggling small businesses and individuals.
+
+"Today, we're announcing charges that were either unsealed today or over the past week against 14 defendants allegedly involved in fraud schemes targeting over $50 million here in Ohio."
+</div>
+
+## IranIntlTV — post 340535
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340535_1780589098.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آژانس بین‌المللی انرژی اتمی در گزارشی جدید هشدار داد از زمان جنگ ۱۲ روزه، توان نظارت و دسترسی اطلاعاتی به برنامه هسته‌ای ایران را از دست داده است. این نهاد اعلام کرد به‌جز نیروگاه بوشهر، به هیچ‌یک از تاسیسات هسته‌ای ایران برای بازرسی‌های میدانی دسترسی ندارد.
+
+جزییات بیشتر با علی‌ حسن‌پور، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 340534
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🗣روایت شما از زندگی در دوران پس از انقلاب ملی و جنگ - پنجشنبه ۱۴ خرداد ۱۴۰۵
+
+🔹لطفاً تصاویر جاویدنام‌ها رو همه‌جا ببرید و بچسبانید. سفارت‌خانه‌های جمهوری اسلامی، کنسرت‌ها، استادیوم‌ها، ایونت‌ها و هر جای شلوغی.
+🔹شهر ما هر روز برق میره. ما اهل جنوب کشوریم. هوا به‌شدت گرم و شرجیه و تو اوج گرما برق‌ها قطع میشه و بعدش هم با نوسان زیاد وصل می‌کنن. همه وسیله‌های برقی دارن می‌سوزن. این چه وضعیه توی این گرونی؟
+🔹من یه پزشک عمومی جوان هستم. چهار ساله که آزمون تخصص می‌دم ولی نمی‌تونم رشته مورد علاقه‌ام رو قبول بشم. علتش هم سهمیه‌های جانباز و شهدا و پایین نگه داشتن عمدی ظرفیت‌های آزمون تخصص پزشکیه به‌دلیل تعارض منافع در وزارت بهداشت.
+🔹 اگه تو فلسطین کسی بدن بی‌جان بچه‌شو محکم بغل کنه و لای هزاران کیسه مشکی دنبالش بگرده، یا به معترضین تو بیمارستان تیر خلاص بزنن، سلبریتی‌های هالیوود جونشون بالا میاد.
+🔹ما خانواده‌ای از طبقه متوسط هستیم و همگی شاغلیم. با این حال، هفته‌هاست گوشت و مرغ کاملاً از وعده‌هامون حذف شدن.
+🔹خیلی هزینه‌ها بالا رفته ولی همچنان ما بازنشستگان تأمین اجتماعی مثل پارسال حقوق می‌گیریم. هیچ افزایشی اعمال نشده.
+🔹مهم‌ترین ابزار مقاومت ما اطلاع‌رسانیه. آگاهی با مستندات واقعی و بی‌سانسور. جهان داره جنایات جمهوری اسلامی رو فعالانه انکار می‌کنه. اطلاع‌رسانی مهم‌ترین وظیفه الان ماست.
+🔹رامسر: دوباره دارن به حجاب دخترها گیر میدن و جریمه می‌کنن. دخترها رو می‌گیرن و به هر دلیلی بازداشت می‌کنن.
+🔹حق بیمه تأمین اجتماعی که قبل از عید برای سه ماه ۲ میلیون و ۲۵۰ هزار تومن دادم، الان شده ۵ میلیون. اصلاً فکر نمی‌کنن که با این تورم یه شهروند چطور داره دوام میاره.
+🔹خیلی سخته برای خانواده‌ای که عزیزش رو به‌خاطر نبودن دارو از دست می‌ده. کاش بخشی از پول‌های بلوکه‌شده به‌صورت دارو، مخصوصاً داروی بیماری‌های صعب‌العلاج، وارد می‌شد.
+🔹من یک پزشک فارغ‌التحصیل خارج از کشور هستم و مجبور شدم برگردم ایران. ولی وزارت بهداشت مافیایی و فاسد جمهوری اسلامی داره مانع کار کردن ما در ایران می‌شه.
+</div>
+
+## FarsiVOA — post 219581
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺هشدار امنیتی آمریکا به شهروندانش در پی حمله
+رژیم ایران به فرودگاه کویت
+
+◾️سفارت ایالات متحده در کویت روز پنجشنبه ۱۴ خرداد با انتشار یک هشدار امنیتی، از شهروندان آمریکایی خواست در پی حملات پهپادی و موشکی اخیر به فرودگاه بین‌المللی کویت، هوشیاری بیشتری داشته باشند و توصیه‌های مقامات محلی را به دقت دنبال کنند.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/u-s-embassy-kuwait-security-alert/8157290.html
+</div>
+
+## DW_Farsi — post 125502
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125502_1780589100.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶ترامپ رای مجلس نمایندگان برای محدود کردن اختیارات جنگی علیه ایران را "بی‌معنا" خواند
+
+دونالد ترامپ، رئیس‌ جمهور ایالات متحده آمریکا گفت رای نمادین مجلس نمایندگان آمریکا به قطعنامه محدودسازی اختیارات جنگی او، "بی‌معنا" است.
+
+ترامپ در عین حال نسبت به جمهوری‌خواهانی که همراه با دموکرات‌ها از این طرح حمایت کردند ابراز خشم کرد و تلویحا گفت که این اقدام می‌تواند به مذاکرات جاری با ایران برای پایان دادن به جنگ آسیب بزند.
+
+او در پیامی در شبکه اجتماعی تروث ‌سوشال نوشت: «چه کسی چنین کار غیرمیهن‌پرستانه‌ای انجام می‌دهد؟ آن‌ها می‌دانند مذاکرات در چه مرحله‌ای قرار دارد.»
+
+رئیس جمهور آمریکا در ادامه پیام خود افزود: «دموکرات‌ها گرفتار سندرم جنون ترامپ هستند. آن‌ها ترجیح می‌دهند کشور ما شکست بخورد تا اینکه به من یک پیروزی دیگر، از میان پیروزی‌های فراوانم، بدهند. آن چهار جمهوری‌خواه هم داستان دیگری دارند؛ آن‌ها فقط به دنبال جلب توجه هستند! باید از خودشان خجالت بکشند.»
+
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 15703
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15703_1780589100.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گفتگوی تلفنی وزیر امور خارجه با عضو شورای رهبری حماس
+
+وزیر امور خارجه جمهوری اسلامی و خلیل الحیه عضو شورای رهبری جنبش مقاومت اسلامی فلسطین، حماس در یک گفتگوی تلفنی، در خصوص آخرین تحولات منطقه بحث و تبادل نظر کردند.
+
+صداوسیما: خلیل الحیه در این گفتگو، گزارشی در خصوص آخرین وضعیت فلسطین اشغالی به ویژه نوار غزه در سایه تداوم تجاوزگری و اشغالگری رژیم صهیونیستی و کارشکنی این رژیم در اجرای مفاد توافق اتش‌بس ارایه و بر موضع ثابت گروه‌های مقاومت و ملت فلسطین در استمرار پایداری تا تحقق اهداف ملی فلسطین بویژه توقف تجاوزات و رفع اشغالگری تاکید کرد.
+
+عضو شورای رهبری حماس همچنین ضمن تجلیل از موضع هیات مذاکره کننده کشورمان در تاکید بر توقف همزمان جنگ در همه جبهه‌ها در منطقه، از حمایت و پشتیبانی جمهوری اسلامی ایران از مبارزات مشروع مردم فلسطین تقدیر و تشکر کرد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 21371
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21371_1780589101.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 سوتی مجری صداوسیما روز اول جنگ تو پخش زنده که حواسش نبود میکروفونش بازه :
+
+همه گذاشتن در رفتن هیچکس نمونده ...
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21370
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21370_1780589102.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🆗
+🔡
+🔡
+5️⃣ تومان هدیه فقط برای ثبت‌نام! 
+🆗
+
+
+💥 بدون واریز
+
+3️⃣ قدم تا دریافت هدیه:
+✅ ثبت‌نام در سایت
+
+✅ دریافت بونوس
+0️⃣
+0️⃣
+5️⃣ هزار تومانی
+
+✅ تبدیل بونوس به موجودی واقعی با شرط‌بندی
+
+فقط تا 
+3️⃣ روز دیگه میتونی هدیه بگیری!
+
+پس از پایان افتتاحیه، امکان دریافت این هدیه وجود نخواهد داشت.
+
+
+🚩
+🚩 خرداد افتتاحیه بزرگ سایت وینرو
+🟥 اگر هنوز ثبت‌نام نکردی، همین حالا اقدام کن و جزو دریافت‌کنندگان بونوس ویژه افتتاحیه باش.
+ag14
+
+🔤 Winro.io         معتبرترین سایت ایران
+
+🔤 Winro.io
+
+📱 کانال اخبار و هدایــا 
+🌟
+
+📱 @winro_io
+</div>
+
+## Hranews — post 113386
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کرمان؛ گزارشی از بازداشت و بلاتکلیفی فاطمه روهنده، وکیل دادگستری
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– فاطمه روهنده، وکیل دادگستری، اواخر اردیبهشت‌ماه امسال توسط نیروهای امنیتی در کرمان دستگیر و همچنان به صورت بلاتکلیف در بازداشت به سر می‌برد.
+
+ادامه مطلب
+
+#فاطمه_روهنده
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## alonews — post 125088
+
+<div align="center">
+  <a href="telegram/content/alonews_125088_1780589102.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈آخرین قیمت نفت ۹۵.۰۴ دلار
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/14 19:24
 ---
 

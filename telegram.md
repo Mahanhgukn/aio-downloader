@@ -7,6 +7,24 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/15 00:42
+---
+
+## Dirty_Kids — post 391010
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391010_1780607565.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این که قیصره و خواننده‌ی درجه ۴ هم حساب نمی‌شد و معلوم بود سرش تو کون آخونده
+اگر میا خلیفه هم بیارید اصلا تعجب نمی‌کنیم چون هرچی کونده و جنده‌ دوزاریه طرفدار آخونداس.
+*با احترام به تن‌فروشان شریف*
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/03/15 00:32
 ---
 

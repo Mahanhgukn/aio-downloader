@@ -7,6 +7,82 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/14 09:34
+---
+
+## VahidOOnLine — post 243609
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_243609_1780553045.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️رضا هلالی، مداح حکومتی به همراه یک گروه سرد، ویدیویی از مداحی به شش زبان فارسی، عربی، ترکی، اسپانیایی، آلمانی و چینی منتشر کرده است.
+
+این ویدیو به نام «یک جهان علی» به‌مناسبت عید غدیر در رسانه‌های حکومتی پیام‌رسان‌های داخلی منتشر شده است.
+
+مداحی هلالی به زبان‌های مختلف و به‌خصوص چینی، واکنش کاربران شبکه‌های اجتماعی را برانگیخته است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## IranianMinds — post 21346
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21346_1780553047.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تظاهرات علیه قانون حجاب اجباری در اسفند ۱۳۵۷ ، فردای این روز حجاب در ایران اجباری شد.
+
+@IranianMinds
+</div>
+
+## alonews — post 124963
+
+<div align="center">
+  <a href="telegram/content/alonews_124963_1780553047.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزارت امور خارجه فرانسه با انتشار بیانیه‌ای همبستگی کامل پاریس را با کویت و بحرین اعلام کرد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124961
+
+<div align="center">
+  <a href="telegram/content/alonews_124961_1780553048.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزارت امور خارجه آمریکا به درخواست نماینده تگزاس، واکین کاسترو، برای پاسخ به این سوال که آیا اسرائیل سلاح هسته‌ای دارد یا خیر، پاسخ داد.
+
+
+🔴وزارت امور خارجه پاسخ داد: «ما شما را به دولت اسرائیل برای سوالاتتان درباره توانمندی‌های اسرائیل ارجاع می‌دهیم.»
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124960
+
+<div align="center">
+  <a href="telegram/content/alonews_124960_1780553048.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈محمود قماطی، نایب‌رئیس شورای سیاسی حزب‌الله: تمام تلاش‌های آمریکا و اسرائیل با شکست مواجه خواهد شد.
+
+
+🔴 رویارویی ادامه دارد و مقاومت در برابر تجاوز اسرائیل همچنان پابرجاست.
+
+
+🔴 آمریکا و اسرائیل هیچ حقی در مورد سلاح‌های مقاومت ندارند، زیرا این یک موضوع داخلی لبنان است که ما در مورد آن توافق داریم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/14 09:24
 ---
 

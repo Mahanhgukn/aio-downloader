@@ -7,6 +7,206 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/14 17:44
+---
+
+## WithYashar — post 13494
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سپاه: اسرائیل فورا حملات خود را متوقف و از مرزهای اشغال‌شده لبنان عقب‌نشینی کند
+هیچ آرامشی در منطقه بدون عقب‌نشینی از مناطق اشغالی لبنان برقرار نخواهد شد
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342601
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342601_1780582490.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH LIVE: Secretary Rollins testifies at House Agriculture Committee hearing
+https://twitter.com/i/broadcasts/1dKrPPaQOzAJX
+</div>
+
+## FoxNewsTwitter — post 342600
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342600_1780582490.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH LIVE: Bessent testifies before House Ways and Means Committee https://twitter.com/i/broadcasts/1aKbddyqkkvJX
+</div>
+
+## IranIntlTV — post 340520
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340520_1780582491.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مرجان ساتراپی، نویسنده، تصویرگر و فیلم‌ساز ایرانی-فرانسوی و خالق رمان و فیلم «پرسپولیس»، در ۵۶ سالگی در پاریس درگذشت.
+
+گفت‌وگو با نیکو خاکپور، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 340519
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340519_1780582493.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سپاه پاسداران در واکنش به مذاکرات لبنان و اسرائیل با میانجی‌گری آمریکا اعلام کرد از مداخلات آمریکا با ادعای برقراری صلح، نتیجه‌ای جز «افزایش جنایت و نسل‌کشی» حاصل نشده است.
+سپاه افزود شرط اولیه برای پذیرش آتش‌بس در جنگ منطقه‌ای، برقراری آتش‌بس در تمامی جبهه‌ها از جمله لبنان است.
+در این بیانیه آمده است دشمن باید فورا حملات خود به لبنان را متوقف کند، «سرزمین‌های اشغال‌شده» این کشور را تخلیه کرده و به پشت مرزهای بین‌المللی عقب‌نشینی کند و تمامیت ارضی لبنان را به رسمیت بشناسد.
+https://iranintl.com/202606041571
+</div>
+
+## Shin_Persian — post 6504
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet: Open Source Intel ✓ @Osint613 Thu, 04 Jun 2026 11:45:20 UTC Mansouri, Tyre District targeted by IDF. ↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید. فارسی منصوری، منطقه صور توسط ارتش دفاعی اسرائیل (IDF) هدف قرار گرفت. 𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6503
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6503_1780582494.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+Open Source Intel ✓ @Osint613
+Thu, 04 Jun 2026 11:45:20 UTC
+
+Mansouri, Tyre District targeted by IDF.
+
+↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
+
+فارسی
+
+منصوری، منطقه صور توسط ارتش دفاعی اسرائیل (IDF) هدف قرار گرفت.
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 219572
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺ایال زامیر: هدف اسرائیل تعمیق ضربه به حزب‌الله و دفاع از شهرک‌های شمالی است
+
+◾️ایال زامیر، رئیس ستاد کل ارتش اسرائیل، پنجشنبه ۱۴ خرداد، در جلسه ارزیابی وضعیت با رؤسای شوراهای محلی و مجمع ستاد کل در فرماندهی شمال، گفت: «در آمادگی چندجبهه‌ای قرار داریم و به تصویر کلی خاورمیانه نگاه می‌کنیم، اما تمرکز ما بر مرز شمالی است.»
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/eyal-zamir-defending-northern-settlements-israel/8157261.html
+</div>
+
+## Persian_Trend_Official — post 15699
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سپاه: هیچ آرامشی در منطقه بدون عقب نشینی صهیونیست‌ها از مناطق اشغالی لبنان برقرار نخواهد شد!
+
+سپاه پاسداران انقلاب اسلامی در پی حوادث اخیر لبنان این سرزمین کماکان زیر هجوم وحشیانه رژیم غاصب صهیونیستی است. مخالفت‌ها و ابراز انزجار نهادهای بین‌المللی و کشورها و ملت‌های جهان هیچ تاثیری بر رفتار حاکمان خون آشام تل آویو نداشته و از مداخلات رژیم مستکبر آمریکا با ادعای برقراری صلح، جز افزایش جنایت و نسل کشی نتیجه‌ای دیده نمی‌شود.
+
+ارتش بزدل و ناتوان صهیونی با آن همه ساز و برگ، شکست‌های خود در جبهه‌ها را با کشتار غیرنظامیان و ویران کردن خانه‌ها و بیمارستان‌ها و مدارس جبران می‌کند، رژیم نژادپرستی که با وجود پشتیبانی بی‌پایان آمریکا و دول اروپایی در طول عمر ننگین خود حتی نتوانسته دل مردم یک روستای اشغالی را به دست آورد و هنر او پیوسته حکومت بر سرزمین‌های سوخته است و هر روز شاهد ویران کردن خانه‌های مردم مظلوم فلسطین و لبنان به دست آن رژیم متجاوز هستیم. 
+
+ملت لبنان اجازه نمی‌دهند آنچه را که رژیم غاصب نتوانسته در جنگ به دست آورد را با حمایت رژیم کودک‌کش آمریکا با قرارداد تحمیلی به دست آورد.
+
+شرط اولیه ما برای پذیرش آتش بس در جنگ منطقه‌ای، آتش بس در تمامی جبهه‌ها از جمله لبنان بوده است. دشمن می‌بایست با فوریت حملات خود به مردم لبنان را متوقف کند، و سریعاً با تخلیه سرزمین‌های اشغال شده لبنان به پشت مرزهای بین المللی عقب نشینی نماید و تمامیت ارضی لبنان را به رسمیت بشناسد. 
+
+ملت لبنان افتخار امت اسلام و نماد شرافت ملت‌های منطقه است و همه ما با تمام وجود از آنها حمایت خواهیم کرد و هیچ آرامشی در منطقه بدون عقب نشینی از مناطق اشغالی لبنان برقرار نخواهد گردید.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15698
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15698_1780582495.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دقایقی پیش سه راکت حزب‌الله بر فراز متولا در شمال اسرائیل رهگیری و منهدم شدند.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 21367
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21367_1780582496.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تنها سردار سپاهی که امروز توی‌ مراسم سالگرد خمینی حضور داشت فقط محسن رضایی بود.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 282853
+
+<div align="center">
+  <a href="telegram/content/BBCPersian_282853_1780582497.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در آستانه آغاز جام جهانی فوتبال ۲۰۲۶ در ۲۱ خرداد (۱۱ ژوئن)، تصاویری از ورود تیم‌ ملی فوتبال مردان کشورها به آمریکای شمالی و شهرهای محل کمپ‌های تمرینشان منتشر می‌شود.
+ 
+امروز اعلام شد که ویزای تیم ملی ایران برای ورود به مکزیک صادر شده است. کمپ تیم ملی ایران برای پرهیز از محدودیت‌های احتمالی از آمریکا به شهر مرزی تیخوانا در مکزیک منتقل شده است.
+
+@bbcpersian
+</div>
+
+## alonews — post 125072
+
+<div align="center">
+  <a href="telegram/content/alonews_125072_1780582499.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سپاه: اسرائیل فورا حملات خود را متوقف و از مرزهای اشغال‌شده لبنان عقب‌نشینی کند
+
+
+🔴هیچ آرامشی در منطقه بدون عقب‌نشینی از مناطق اشغالی لبنان برقرار نخواهد شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125071
+
+<div align="center">
+  <a href="telegram/content/alonews_125071_1780582499.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈روز اول جنگ مجری صداوسیما حواسش نبود میکروفونش بازه، میگه همه گذاشتن فرار کردن، هیچکس نمونده
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125070
+
+<div align="center">
+  <a href="telegram/content/alonews_125070_1780582500.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سه تا موشک حزب‌الله که به سمت شمال اسرائیل شلیک شده بود، رهگیری شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/14 17:37
 ---
 

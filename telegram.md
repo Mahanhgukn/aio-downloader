@@ -7,6 +7,211 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/14 21:24
+---
+
+## VahidOOnLine — post 243698
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243698_1780595685.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ولادیمیر پوتین، رئیس‌جمهوری روسیه، روز پنج‌شنبه ۱۴ خرداد اعلام کرد که دونالد ترامپ، رئیس‌جمهوری ایالات متحده، از روسیه خواسته است تا برای دستیابی به توافق صلح در اوکراین امتیازاتی بدهد. پوتین تاکید کرد که روسیه آماده انجام این مصالحه‌ها است، مشروط بر اینکه اوکراین نیز اقدام مشابهی انجام دهد.
+
+پوتین در گفتگو با خبرنگاران در سن‌پترزبورگ اظهار داشت که روسیه تمامی منابع لازم برای دستیابی به اهداف نظامی خود را در اختیار دارد و نیروهایش در حال پیشروی در اوکراین هستند. با این حال، او تصریح کرد که کشورش آماده است تا از طریق مسالمت‌آمیز با اوکراین به توافق برسد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243697
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در پی فراخوان شاهزاده رضا پهلوی برای بردن پرچم‌های شیروخورشید به ورزشگاه‌ها در جام جهانی، مخاطبان ایران اینترنشنال در پیام‌هایی بر بردن این پرچم‌ها و لباس‌های منقش به شیروخورشید و همچنین عکسهای جاویدنامان انقلاب ملی دی‌ماه تاکید کردند. پیام آن‌ها با هوش مصنوعی خوانده شده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13507
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال ۱۲ اسرائیل: واشنگتن به تهران گفته مراسم امضای توافق با آنها در سوئیس برگزار خواهد شد!
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342610
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342610_1780595685.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: Hezbollah is rejecting a proposed Israel-Lebanon ceasefire that could impact broader negotiations involving the United States and Iran, as well as the Middle East as a whole.
+
+The move comes as President Trump calls out House lawmakers who voted to limit his war powers and said he will continue pressuring Iran to surrender enriched uranium.
+
+Trump also argued that ceasefires can look different depending on the region and said Iran has repeatedly changed its position during negotiations, @pdoocy reports. | @BillHemmer @AmericaNewsroom
+</div>
+
+## IranIntlTV — post 340550
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در پی فراخوان شاهزاده رضا پهلوی برای بردن پرچم‌های شیروخورشید به ورزشگاه‌ها در جام جهانی، مخاطبان ایران اینترنشنال در پیام‌هایی بر بردن این پرچم‌ها و لباس‌های منقش به شیروخورشید و همچنین عکسهای جاویدنامان انقلاب ملی دی‌ماه تاکید کردند. پیام آن‌ها با هوش مصنوعی خوانده شده است.
+</div>
+
+## FarsiVOA — post 219594
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺ارتش اسرائیل: ۴ مقام ارشد حماس را کشتیم
+
+ارتش دفاعی اسرائیل پنجشنبه ۱۴ خرداد، در شبکه اجتماعی ایکس از کشته شدن ۴ مقام ارشد حماس در نوار غزه خبر داد.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/hamas-terrorist-killed-in-gaza-operation/8157317.html
+</div>
+
+## DW_Farsi — post 125507
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125507_1780595686.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶آژانس: ایران دسترسی بازرسان هسته‌ای را مسدود کرده است
+
+آژانس بین‌المللی انرژی اتمی با بیان این که ایران دسترسی بازرسان هسته‌ای را مسدود کرده (IAEA) خواستار دسترسی فوری به تاسیسات هسته‌ای در ایران شده است. رافائل گروسی، مدیرکل آژانس بین‌المللی انرژی اتمی، امروز با انتشار گزارشی اعلام کرد که جمهوری اسلامی در ماه‌های گذشته "تنها اجازه بازرسی یک مرکز هسته‌ای را صادر کرده است".
+
+گروسی در ادامه تاکید کرده که انجام بازرسی‌های بیشتر از برنامه هسته‌ای ایران، "ضروری و اجتناب‌ناپذیر" است.
+
+در این سند غیرعلنی آژانس بین‌المللی انرژی اتمی در وین که خبرگزاری آلمان (dpa) به آن دسترسی داشته است، آمده که آژانس در حال حاضر قادر نیست بررسی کند آیا ایران برنامه غنی‌سازی اورانیوم خود را متوقف کرده است یا خیر، و همچنین نمی‌تواند مشخص کند چه میزان اورانیوم غنی‌شده در حال حاضر در ایران وجود دارد.
+
+حکومت ایران پس از جنگ با ایالات متحده آمریکا و اسرائیل، همکاری خود با بازرسان آژانس بین‌المللی انرژی اتمی را تا حد زیادی متوقف کرده است.
+
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 15707
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15707_1780595687.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎥حضور قیصر خواننده در تجمع میدان امام حسین تهران
+
+حضور چهره‌های هنری خارج از کشور در برنامه‌های عمومی داخل ایران، همچنان موضوعی جلب‌توجه‌کننده در فضای رسانه‌ای و اجتماعی کشور است و معمولاً بازتاب گسترده‌ای در شبکه‌های اجتماعی پیدا می‌کند.
+
+
+👺Phantom
+
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15706
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15706_1780595689.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چهار خواننده ایرانی خیلی سرشناس در آستانه بازگشت به ایران ــ بهمن بابازاده، خبرنگار حوزه موسیقی 🫆: Ⓜ 🆔:@persian_trend_official
+</div>
+
+## IranianMinds — post 21383
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فوری کانال ۱۲ اسرائیل: هیچ پیشرفتی در مذاکرات بین ایالات متحده و ایران حاصل نشده است. واشنگتن از تهران خواسته که پاسخ خود را قبل از پایان هفته تحویل بدهد. @IranianMinds
+</div>
+
+## IranianMinds — post 21382
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فوری کانال ۱۲ اسرائیل:
+
+هیچ پیشرفتی در مذاکرات بین ایالات متحده و ایران حاصل نشده است.
+واشنگتن از تهران خواسته که پاسخ خود را قبل از پایان هفته تحویل بدهد.
+
+@IranianMinds
+</div>
+
+## alonews — post 125119
+
+<div align="center">
+  <img src="telegram/content/alonews_125119_1780595691.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ چند وقت دیگه همزمان با محرم:
+
+[@AloTweet]
+</div>
+
+## alonews — post 125118
+
+<div align="center">
+  <a href="telegram/content/alonews_125118_1780595691.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🤚 اینترنت مخصوص جنگ 
+🚀
+💙 
+🔥 نامحدود فقط 690 تومن 
+🔥 
+⭐️ فقط گیگی 7 هزار تومان
+😍 
+✅ بدون قطعی‌های آزاردهنده 
+✅ سرعت بالا حتی ساعات شلوغ 
+✅ مناسب تلگرام، اینستاگرام و یوتیوب 
+✅ همراه با ساب 
+✅ تعداد محدود با این قیمت 
+🤖 @NetAazaadBot 
+🤖 @NetAazaadBot
+</div>
+
+## alonews — post 125117
+
+<div align="center">
+  <a href="telegram/content/alonews_125117_1780595692.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🤚 اینترنت مخصوص جنگ 
+🚀
+💙
+
+
+🔥 نامحدود فقط 690 تومن 
+🔥
+
+
+⭐️ فقط گیگی 7 هزار تومان
+😍
+
+
+✅ بدون قطعی‌های آزاردهنده
+
+✅ سرعت بالا حتی ساعات شلوغ
+
+✅ مناسب تلگرام، اینستاگرام و یوتیوب
+
+✅ همراه با ساب
+
+
+✅ تعداد محدود با این قیمت
+
+
+🤖 @NetAazaadBot
+
+🤖 @NetAazaadBot
+</div>
+
+---
 📅 بروزرسانی: 1405/03/14 21:12
 ---
 

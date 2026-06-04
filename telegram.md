@@ -7,6 +7,120 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/14 23:47
+---
+
+## VahidOOnLine — post 243714
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243714_1780604249.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محسن رضایی، مشاور رهبر جمهوری اسلامی، پنج‌شنبه در مصاحبه‌ای با صداوسیمای جمهوری اسلامی اعلام کرد که پیش‌نویس فعلی تفاهم‌نامه در حال مذاکره برای پایان دادن به جنگ میان ایران و ایالات متحده دارای ابهاماتی است که باید روشن شوند.
+
+رضایی افزود که ترامپ تلاش می‌کند حکومت ایران را تحت فشار قرار دهد تا شرایط او را بپذیرد و شرایط تهران را در وضعیتی مبهم نگه دارد.
+
+مشاور مجتبی خامنه‌ای همچنین پیشتر به صداوسیما گفت که آمریکا منتظر «چراغ سبز» جمهوری اسلامی است و تهران تا به «همه حقوق‌» خود دسترسی پیدا نکند، این چراغ سبز را به هیچ کسی نشان نخواهد داد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13526
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عمو یاشار اتاق جنگ نمیری امشب؟
+</div>
+
+## WithYashar — post 13525
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ:
+من در امور امنیت ملی خیلی تجربه زیادی نداشتم، اما فکر می‌کنم واقعاً کار خیلی خوبی در این زمینه انجام داده‌ام.
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342617
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342617_1780604250.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NEW: President Trump announces a major shift in energy funding, revealing plans to completely dismantle a massive Green New Deal initiative in favor of revitalizing America's coal industry:
+
+"Finally, we're taking nearly $200 million — it was set aside for the 'Green New Scam.'"
+
+"The 'Green New Scam' is history and repurposing that money so that we restart a coal plant in Maryland and help build two brand-new coal plants in Alaska and West Virginia."
+</div>
+
+## IranIntlTV — post 340567
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340567_1780604253.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رضا هلالی، مداح حکومتی در تجمع خیابانی حامیان جمهوری اسلامی به زبان چینی مداحی کرد. این ویدیو با واکنش‌های گسترده کاربران شبکه‌های اجتماعی مواجه شده است.
+@iranintltv
+</div>
+
+## IranianMinds — post 21395
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ درباره ایران:
+
+تمام ۱۵۹ کشتی آن‌ها در کف اقیانوس قرار دارند. ما در واقع از آن‌ها در آنجا عکس گرفتیم.
+
+@IranianMinds
+</div>
+
+## alonews — post 125166
+
+<div align="center">
+  <a href="telegram/content/alonews_125166_1780604254.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ پوتین و زلنسکی را «دو ادم بسیار خوب» نامید.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125165
+
+<div align="center">
+  <a href="telegram/content/alonews_125165_1780604254.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خبرنگار : پوتین گفته اگه اوکراین هم کوتاه بیاد، اونم برای صلح حاضر به مصالحه‌ست. شما دقیقاً چی خواسته بودید؟
+
+
+🔴ترامپ : راستش فعلاً نمی‌خوام بگم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125164
+
+<div align="center">
+  <a href="telegram/content/alonews_125164_1780604257.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ : من تا الان به هشت جنگ پایان دادم و به‌زودی یه جنگ نهم هم تموم میشه
+
+
+🔴شاید حتی بشه دهمین جنگ. فکر نمی‌کنم هیچ رئیس‌جمهوری تا حالا حتی یه جنگ رو هم تموم کرده باشه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/14 23:35
 ---
 

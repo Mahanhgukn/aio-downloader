@@ -7,6 +7,91 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/14 14:04
+---
+
+## VahidOOnLine — post 243646
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243646_1780569261.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسماعیل قاآنی، فرمانده نیروی قدس سپاه پاسداران، در پیامی نوشت کف خواسته‌های مقاومت، عقب‌نشینی اسرائیل به نقطه پیش از آغاز جنگ ۴۰ روزه است.
+او نوشت پشتیبانی از «مقاومت در لبنان» وظیفه همه است و «اسرائیل‌زدایی» از منطقه را آرمانی دست‌یافتنی برای مسلمانان دانست و افزود نیروهای لبنانی به‌زودی نتایج مقاومت خود را خواهند دید.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## IranIntlTV — post 340489
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340489_1780569262.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراسم سالمرگ روح‌الله خمینی برای نخستین بار بدون حضور علی خامنه‌ای برگزار شد. در این مراسم تنها غلامحسین محسنی‌اژه‌ای، رییس قوه قضاییه، حضور داشت و سایر سران قوا در این مراسم شرکت نکردند.
+
+ارزیابی بیشتر با علی شیرازی، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 340488
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340488_1780569264.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسماعیل قاآنی، فرمانده نیروی قدس سپاه پاسداران، در پیامی نوشت کف خواسته‌های مقاومت، عقب‌نشینی اسرائیل به نقطه پیش از آغاز جنگ ۴۰ روزه است.
+او نوشت پشتیبانی از «مقاومت در لبنان» وظیفه همه است و «اسرائیل‌زدایی» از منطقه را آرمانی دست‌یافتنی برای مسلمانان دانست و افزود نیروهای لبنانی به‌زودی نتایج مقاومت خود را خواهند دید.
+https://iranintl.com/202606046348
+</div>
+
+## IranianMinds — post 21358
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21358_1780569264.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+(:
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 282843
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻یک نیروی حافظ صلح سازمان ملل در جنوب لبنان کشته شد
+
+یک نیروی صلح‌بان سازمان ملل متحد با ملیت صرب پس از اصابت خمپاره به یک موضع سازمان ملل در جنوب شرقی لبنان کشته شد.
+
+دو نفر دیگر در حمله روز چهارشنبه زخمی شدند.
+
+هیئت صلح‌بانان نگفته که اسرائیل یا حزب‌الله مسئول این حمله بوده‌اند، اما تحقیقاتی را آغاز کرده است.
+
+https://bbc.in/4vtcO4e
+@BBCPersian
+</div>
+
+## alonews — post 125033
+
+<div align="center">
+  <a href="telegram/content/alonews_125033_1780569264.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈اکسیوس : یک شکاف رو به رشد بین ترامپ و نتانیاهو در مورد آینده منطقه در حال شکل‌گیری است.
+
+
+🔴بر اساس گفته مقامات آمریکایی، ترامپ می‌خواهد تنش‌ها را کاهش دهد، درگیری‌های جاری را پایان دهد و به دنبال یک توافق دیپلماتیک با ایران باشد.
+
+
+🔴در مقابل، نتانیاهو به نظر می‌رسد تمایل بیشتری به حفظ فشار نظامی بر ایران و متحدانش، از جمله حزب‌الله، دارد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/14 13:54
 ---
 

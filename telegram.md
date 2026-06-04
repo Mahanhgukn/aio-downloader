@@ -7,6 +7,151 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/14 22:14
+---
+
+## VahidOOnLine — post 243702
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243702_1780598682.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ولادیمیر پوتین، رییس‌جمهوری روسیه، پنج‌شنبه اعلام کرد مسکو با جمهوری اسلامی روابطی مبتنی بر اعتماد دارد و می‌تواند برای حل بحران ایران کمک کند.
+
+او همچنین گفت پیشنهادهای صلح دونالد ترامپ می‌تواند مبنایی برای توافق صلح با اوکراین باشد، اما ترامپ باید کی‌یف را متقاعد کند و افزود به باور او، ترامپ صادقانه در پی حل این درگیری است.
+
+پوتین درباره انتخابات ۲۰۳۰ گفت هنوز برای تصمیم‌گیری درباره نامزدی دوباره زود است، هرچند قانون اساسی این امکان را می‌دهد، و افزود در حال حاضر به انتخابات فکر نمی‌کند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## IranIntlTV — post 340555
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/340555" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی دومینو: ناکامی سپاه در کنترل روایت قتل‌عام دی‌ماه
+@iranintlTV
+</div>
+
+## IranIntlTV — post 340554
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340554_1780598683.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻تیم ملی فوتبال در آخرین دیدار تدارکاتی خود پیش از سفر به مکزیک برای حضور در جام جهانی،‌ پشت درهای بسته با نتیجه ۲–۰ مالی را شکست داد. سعید عزت‌اللهی و رامین رضاییان گل‌های تیم ملی را در این بازی به ثمر رساندند.
+
+🔹این بازی به درخواست کادر فنی ایران، پشت درهای بسته و بدون حضور رسانه‌ها برگزار شد.
+
+🔹تیم ملی در حالی برابر مالی قرار گرفت که پیش‌تر، تیم‌های ملی اسپانیا، مقدونیه و آنگولا از بازی با شاگردان امیر قلعه‌نویی انصراف داده بودند.
+
+🔹تیم ملی برای حضور در جام جهانی ۱۶ خرداد راهی مکزیک می‌شود. این در حالی است که هنوز دولت آمریکا به بازیکنان ایران برای حضور در خاک این کشور و برگزاری سه دیدار خود در جام جهانی ویزا نداده و مشخص نیست تیم ملی بتواند بازی‌های خود در جام جهانی را برگزار کند.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 340553
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340553_1780598684.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ولادیمیر پوتین، رییس‌جمهوری روسیه، پنج‌شنبه اعلام کرد مسکو با جمهوری اسلامی روابطی مبتنی بر اعتماد دارد و می‌تواند برای حل بحران ایران کمک کند.
+
+او همچنین گفت پیشنهادهای صلح دونالد ترامپ می‌تواند مبنایی برای توافق صلح با اوکراین باشد، اما ترامپ باید کی‌یف را متقاعد کند و افزود به باور او، ترامپ صادقانه در پی حل این درگیری است.
+
+پوتین درباره انتخابات ۲۰۳۰ گفت هنوز برای تصمیم‌گیری درباره نامزدی دوباره زود است، هرچند قانون اساسی این امکان را می‌دهد، و افزود در حال حاضر به انتخابات فکر نمی‌کند.
+https://iranintl.com/202606049038
+</div>
+
+## IranIntlTV — post 340552
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340552_1780598684.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+۲۴ با فرداد فرحزاد
+@iranintltv
+</div>
+
+## IranianMinds — post 21385
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21385_1780598685.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کلیپی که دنیا جهانبخت در حمایت از تیم جمهوری اسلامی داده بیرون.
+
+@IranianMinds
+</div>
+
+## alonews — post 125131
+
+<div align="center">
+  <a href="telegram/content/alonews_125131_1780598687.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈‏هواپیمای تهاجمی عمود پرواز AV-8B Harrier II بعد از نزدیک به 40 سال خدمت از سپاه تفنگداران دریایی آمریکا بازنشسته شد. جایگزین این هواپیما F-35 در مدل B خواهد بود.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125130
+
+<div align="center">
+  <a href="telegram/content/alonews_125130_1780598687.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈آب زاینده‌رود به اصفهان رسید
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125129
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻بیست سال گذشت و حالا رسیدیم به ششمین و آخرین جام جهانیِ مسی و رونالدو. این آخرین تورنمنت مشترک اوناست. 💔🫡🙌
+@AloSport
+</div>
+
+## alonews — post 125128
+
+<div align="center">
+  <a href="telegram/content/alonews_125128_1780598689.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💔جاویدنام علیرضا سلمانی 28ساله
+
+
+🔴شامگاه پنج‌شنبه 18 دی‌ماه حوالی ساعت 21، با شلیک مستقیم چهار گلوله توسط حرام زاده های جمهوری تروریستی اسلامی پرپر شد. چه نازنین جوانانی!
+
+
+🤔عرزشی حرام زاده، به وقتش مردم شما را پاکسازی می‌کنند.
+
+
+✅@AloNews
+</div>
+
+## alonews — post 125127
+
+<div align="center">
+  <a href="telegram/content/alonews_125127_1780598691.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فیلد مارشال حاج محسن رضایی:
+اگر آمریکا غلطی کنه آنچنان تو دهنش میزاریم تا درس عبرت بشه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/14 22:04
 ---
 

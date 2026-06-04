@@ -7,6 +7,107 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/15 02:42
+---
+
+## VahidOOnLine — post 243728
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_243728_1780614749.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️مدیرکل بهزیستی کردستان اعلام کرد دو دختر ۷ و ۱۵ ساله که در یکی از محله‌های سنندج در شرایط نامناسب نگهداری می‌شدند، پس از گزارش‌های مردمی و ورود اورژانس اجتماعی و نیروهای انتظامی نجات یافتند.
+
+به گفته حسین رسولی، کارشناسان اورژانس اجتماعی ۱۲۳ پس از دریافت گزارش‌های مردمی و با حکم قضایی وارد یک خانه در حوالی میدان گاز سنندج شدند و دو دختر را در سرویس بهداشتی ساختمان پیدا کردند. او گفت این دو کودک پس از نجات، دارای آثار آشکار ضرب و جرح و آسیب‌های جسمی بودند و بررسی‌های اولیه از وجود شکستگی و جراحات در بخش‌هایی از بدن آنان، از جمله پا، سر و صورت حکایت داشت.
+
+این دو کودک برای درمان به بیمارستان کوثر سنندج منتقل شدند. یکی از آنان همچنان تحت درمان است و دیگری پس از ترخیص، به یکی از مراکز نگهداری تحت پوشش بهزیستی منتقل شده است.
+
+مدیرکل بهزیستی کردستان افزود پدر این کودکان بازداشت شده و نامادری آنان نیز به دلیل نگهداری از دو کودک خردسال دیگر، تحت نظارت قضایی قرار دارد. به گفته او، پرونده این افراد در دستگاه قضایی در دست بررسی است و گزارش‌های کارشناسی نیز به مراجع قضایی ارسال شده است.
+
+غریب سجادی، فرماندار سنندج، نیز با حضور در بیمارستان از این دو کودک عیادت کرد و بر حمایت درمانی، روان‌شناختی و اجتماعی از آنان و برخورد قانونی با عاملان این پرونده تاکید کرد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342631
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342631_1780614750.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+President Trump is teasing a massive rally in Washington, D.C. — and he's setting expectations sky-high.
+
+Calling the nation's capital "totally beautified," Trump announced plans for what he described as "the Greatest Rally EVER" in celebration of America's 250 years of history.
+
+The event is expected to feature patriotic music, military bands, special guests, and a live appearance from the president.
+
+"It will be special at every level."
+</div>
+
+## Dirty_Kids — post 391025
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بچه ها اسم این بازی عبور مرغ از خیابون  هست ویدئو نگاه کنید خیلی راحت 8 میلیون ازش سود گرفتیم😍 
+😤اگ توم دوس داری خیلی راحت از بازی های انلاین پول در بیاری حتما عضو کازینو شبانه شو
+✅ توی کازینو شبانه بهت اموزش میدیم از بازی های انلاین پول دربیاری👌 کانال کازینو…
+</div>
+
+## Dirty_Kids — post 391024
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391024_1780614751.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بچه ها اسم این بازی عبور مرغ از خیابون  هست ویدئو نگاه کنید خیلی راحت 8 میلیون ازش سود گرفتیم😍
+
+
+😤اگ توم دوس داری خیلی راحت از بازی های انلاین پول در بیاری حتما عضو کازینو شبانه شو
+✅
+
+توی کازینو شبانه بهت اموزش میدیم از بازی های انلاین پول دربیاری👌
+
+کانال کازینو شبانه راهی برای چند برابر کردن سرمایت 🤷‍♂
+
+کسب درامد انلاین با یه ادم حرفه ای یاد بگیر و‌ پول دربیار 
+💵
+A14
+🎯همین حالا عضو شو و شروع کن👇N
+https://t.me/+6ckCmywafrxiYzk0
+https://t.me/+6ckCmywafrxiYzk0
+</div>
+
+## Dirty_Kids — post 391023
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391023_1780614753.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#بخوابیم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391022
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391022_1780614754.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دخترا ۱۰۰ درصد ارزش دانلود و دیدن
+پسرا ۰ درصد ارزش دانلود و دیدن
+
+حرصتون درمیاد ⚠️
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/03/15 02:32
 ---
 

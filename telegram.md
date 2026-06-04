@@ -7,6 +7,194 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/14 23:05
+---
+
+## VahidOOnLine — post 243708
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243708_1780601701.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ سیدعباس عراقچی، وزیر امور خارجه جمهوری اسلامی و خلیل الحیه، عضو شورای رهبری حماس، بعدازظهر پنج‌شنبه ۱۴ خرداد در گفتگویی تلفنی آخرین تحولات منطقه و وضعیت نوار غزه را بررسی کردند. در این گفتگو، خلیل الحیه وضعیت جمهوری اسلامی مقابل آمریکا و اسرائیل را «پیروزی» ارزیابی کرد و آن را تبریک گفت و گزارشی از عملیات‌های اخیر اسرائیل در نوار غزه ارائه کرد. الحیه همچنین از موضع هیئت مذاکره‌کننده جمهوری اسلامی مبنی بر ضرورت «توقف همزمان جنگ در تمامی جبهه‌های منطقه» قدردانی کرد.
+
+عراقچی نیز بر تداوم سیاست اصلی جمهوری اسلامی در حمایت از «مقاومت فلسطین و لبنان» تاکید کرد. او همچنین گزارشی از اقدامات دیپلماتیک ایران برای توقف درگیری‌ها در منطقه ارائه داد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13515
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+منظورشان 3روز دیگست یا 10 روز
+</div>
+
+## DEJradio — post 5342
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5342_1780601702.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺🎥 اعتراض یک شهروند:
+دوشکا منتظر اوناییه که از گرسنگی حرف بزنند...
+
+#دوشکا #سرکوب
+@DEJradio
+</div>
+
+## IranIntlTV — post 340561
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340561_1780601703.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایران‌اینترنشنال در خبری اختصاصی دریافته است سه‌شنبه گذشته از حضور معترضان با پلاکاردهای مخالف مصالحه در پرونده هسته‌ای در تجمع‌های حمایت از جمهوری اسلامی جلوگیری شده است.
+
+بنا بر این گزارش، این دستور به‌دنبال درخواست مسعود پزشکیان و محمدباقر قالیباف صادر شده و هواداران جبهه پایداری از حضور در این تجمع‌ها منع نشده‌اند.
+
+گفت‌وگو با مرتضی کاظمیان، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## FarsiVOA — post 219606
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️در نخستین مراسم سالگرد مرگ روح‌الله خمینی پس از کشته شدن علی خامنه‌ای، پیام منتسب به مجتبی خامنه‌ای از «شکست دشمن» سخن گفت؛ این در حالی است که سه ماه پس از کشته‌شدن رهبر دوم جمهوری اسلامی، حکومت هنوز تکلیف مراسم دفن او را روشن نکرده است.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219605
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺وزیر امور خارجه آمریکا در دیدار با همتای کویتی: حملات وقیحانه جمهوری اسلامی به فرودگاه بین‌المللی کویت محکوم است
+
+◾️تامی پیگوت، سخنگوی وزارت امور خارجه آمریکا پنجشنبه ۱۴ خرداد، اعلام کرد مارکو روبیو، وزیر امور خارجه آمریکا، در این روز با شیخ جراح جابر الاحمد الصباح، وزیر امور خارجه کویت، دیدار و گفت‌وگو کرد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/marco-rubio-kuwaiti-foreign-minister-kuwait-airport-iranian-regime-attacks/8157357.html
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 15715
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال رسمی پرشین ترند pinned «23:30 دقیقه لایو آغاز میشه»
+</div>
+
+## Persian_Trend_Official — post 15714
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15714_1780601705.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت خارجه ایالات متحده هشدار امنیتی برای تمام کشورهای خاورمیانه صادر کرد!
+
+دلیل هشدار صادر شده محتمل بودن درگیری اعلام شده است و از شهروندان خواسته شده که نزدیکترین پناهگاه را پیدا کنند.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Hranews — post 113394
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارشی از معوقات مزدی و اخراج کارگران فولاد پارس سیستان
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– شماری از #کارگران کارخانه فولاد پارس سیستان در حالی توسط کارفرما از کار اخراج شده اند که از دریافت سه ماه حقوق و مطالبات خود محروم مانده اند.
+
+ادامه مطلب
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## alonews — post 125151
+
+<div align="center">
+  <a href="telegram/content/alonews_125151_1780601705.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🤚 اینترنت مخصوص جنگ 
+🚀
+💙 
+🔥 نامحدود فقط 690 تومن 
+🔥 
+⭐️ فقط گیگی 7 هزار تومان
+😍 
+✅ بدون قطعی‌های آزاردهنده 
+✅ سرعت بالا حتی ساعات شلوغ 
+✅ مناسب تلگرام، اینستاگرام و یوتیوب 
+✅ همراه با ساب 
+✅ تعداد محدود با این قیمت 
+🤖 @NetAazaadBot 
+🤖 @NetAazaadBot
+</div>
+
+## alonews — post 125150
+
+<div align="center">
+  <a href="telegram/content/alonews_125150_1780601705.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🤚 اینترنت مخصوص جنگ 
+🚀
+💙
+
+
+🔥 نامحدود فقط 690 تومن 
+🔥
+
+
+⭐️ فقط گیگی 7 هزار تومان
+😍
+
+
+✅ بدون قطعی‌های آزاردهنده
+
+✅ سرعت بالا حتی ساعات شلوغ
+
+✅ مناسب تلگرام، اینستاگرام و یوتیوب
+
+✅ همراه با ساب
+
+
+✅ تعداد محدود با این قیمت
+
+
+🤖 @NetAazaadBot
+
+🤖 @NetAazaadBot
+</div>
+
+## alonews — post 125149
+
+<div align="center">
+  <a href="telegram/content/alonews_125149_1780601706.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈عراقچی: اینکه ۴۰ روز در برابر بزرگ‌ترین قدرت آشکار جهان که مجهز به سلاح هسته‌ای است ایستادگی کنی، شوخی‌بردار نیست
+
+
+🔴جهان به میزان قدرت واقعی ملت ایران، دولت ایران و به طور کلی جمهوری اسلامی ایران پی برد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/14 22:57
 ---
 

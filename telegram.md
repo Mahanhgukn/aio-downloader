@@ -7,6 +7,47 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/14 04:34
+---
+
+## FoxNewsTwitter — post 342588
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342588_1780535051.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Vanilla Ice on why he's not backing down from performing at the Freedom 250 concert: "I don't like anybody telling me I can't be proud of my country where I'm from." https://twitter.com/TheStoryFNC/status/2062261676917899690#m
+</div>
+
+## FoxNewsTwitter — post 342587
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342587_1780535053.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Laura Ingraham breaks down how Texas Democratic Senate candidate James Talarico's views on Christianity and the Bible could cause him to flame out with Texas voters. https://twitter.com/IngrahamAngle/status/2062324014614274432#m
+</div>
+
+## pm_afshaa — post 92245
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92245_1780535055.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴دونالد ترامپ:
+در اون بخش از جهان (خاورمیانه)، آتش‌بس یعنی ملایم‌تر به تیراندازی ادامه بدید.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+---
 📅 بروزرسانی: 1405/03/14 04:25
 ---
 

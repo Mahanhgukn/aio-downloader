@@ -7,6 +7,106 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/15 01:32
+---
+
+## FoxNewsTwitter — post 342622
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342622_1780610575.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NEW: President Trump reacts to Hunter Biden teasing a potential 2028 presidential run, taking the opportunity to roast other Democrats Graham Platner and James Talarico.
+
+"You would think that, you know, past has something to do with winning an election. And I would say his past is not the greatest."
+
+"Hey, if the guy from Maine can do well, I guess Hunter could do well, too, because the guy from Maine is a basket case."
+
+"And I would say worse than him is the one from Texas that looks like Alfred E. Neuman."
+
+"I would say that if he can do well, maybe Hunter can do well."
+
+@pdoocy
+</div>
+
+## BBCPersian — post 282885
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🖊 نازنین کیان، روزنامه‌نگار
+
+🔻 در آستانه بزرگ‌ترین رویداد فوتبالی جهان در قاره آمریکا، اردوی تیم ملی فوتبال ایران بیش از آنکه تحت تاثیر تاکتیک‌های ورزشی باشد، درگیر یک جنجال دیپلماتیک شده است؛ جنجالی که در مرکز آن مرد شماره یک فدراسیون فوتبال، مهدی تاج، ایستاده است.
+
+بیشتر بخوانید:
+https://bbc.in/49G2Pju
+📸GettyImages/ Reuters/ AFP via Getty Images/ EPA/Shutterstock/ Social media/ tasnim
+@BBCPersian
+</div>
+
+## alonews — post 125191
+
+<div align="center">
+  <a href="telegram/content/alonews_125191_1780610577.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🤚 اینترنت مخصوص جنگ 
+🚀
+💙
+
+
+🔥 نامحدود فقط 690 تومن 
+🔥
+
+
+⭐️ فقط گیگی 7 هزار تومان
+😍
+
+
+✅ بدون قطعی‌های آزاردهنده
+
+✅ سرعت بالا حتی ساعات شلوغ
+
+✅ مناسب تلگرام، اینستاگرام و یوتیوب
+
+✅ همراه با ساب
+
+
+✅ تعداد محدود با این قیمت
+
+
+🤖 @NetAazaadBot
+
+🤖 @NetAazaadBot
+</div>
+
+## alonews — post 125190
+
+<div align="center">
+  <a href="telegram/content/alonews_125190_1780610577.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈محسن رضایی : یک سیلی دیگر ممکن است بیاید تا اسرائیل و آمریکا را سر جای خودشان بنشاند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125189
+
+<div align="center">
+  <a href="telegram/content/alonews_125189_1780610578.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کارشناس صدا و سیما:
+پولی در قطر نداریم، پول ایران در آلمان است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/15 01:22
 ---
 

@@ -7,6 +7,21 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/15 03:23
+---
+
+## FoxNewsTwitter — post 342633
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342633_1780617180.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+FOX NEWS REPORT: President Trump is reportedly seeking changes to a proposed ceasefire extension with Iran after the House moved to limit his war powers. @BillMelugin_ has the latest.
+</div>
+
+---
 📅 بروزرسانی: 1405/03/15 03:12
 ---
 

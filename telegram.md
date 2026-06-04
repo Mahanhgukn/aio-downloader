@@ -7,6 +7,177 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/15 00:32
+---
+
+## VahidOOnLine — post 243720
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_243720_1780606950.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ دونالد ترامپ، رئیس‌جمهوری آمریکا، پنجشنبه ۱۴ خرداد در کاخ سفید در پاسخ به سوالی درباره گزارش‌هایی مبنی بر اینکه کشته شدن نیروهای آمریکایی خط قرمز او برای پایان آتش‌بس با ایران است، گفت این موضوع «دلیل خوبی» برای از سرگیری درگیری خواهد بود.
+
+ترامپ افزود: «راستش را بخواهید، اگر نیروهای آمریکایی را بکشند، فکر می‌کنم خیلی سریع این کار را انجام بدهم.»
+
+این اظهارات در پاسخ به سوال خبرنگاری مطرح شد که پرسید آیا کشته شدن نیروهای آمریکایی، خط قرمز دولت او برای پایان دادن به آتش‌بس و از سرگیری جنگ با ایران است.
+
+پیش‌تر وال‌استریت ژورنال به نقل از مقام‌های آمریکایی گزارش داد دونالد ترامپ به‌طور خصوصی به دستیارانش گفته است در صورتی که جمهوری اسلامی نیروهای آمریکایی را بکشد، ازسرگیری جنگ و پایان دادن به آتش‌بس را بررسی خواهد کرد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243719
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243719_1780606951.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ درباره احتمال دیدار با رهبر جمهوری اسلامی گفت تمایلی به این دیدار ندارد، اما اگر هدف دستیابی به توافق باشد، چنین دیداری می‌تواند انجام شود.
+
+او افزود: «من این پیشنهاد را مطرح نکرده‌ام و چیز زیادی هم درباره آن نشنیده‌ام، اما برخی آن را پیشنهاد کرده‌اند. اگر قرار باشد اتفاق بیفتد، رخ خواهد داد و من با احترام برخورد می‌کنم.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## mwarmonitor — post 10159
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مجتبی خامنه‌ای (إِنَّا لِلَّٰهِ وَإِنَّا إِلَيْهِ رَاجِعُونَ) @mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 342620
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342620_1780606952.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+PETER DOOCY: "There's been a lot of talk lately about the Treasury putting your face on a $250 bill... Would you ever be able to tip anyone anything but that?"
+
+TRUMP: "Well, I think I'll probably leave it for everybody."
+"I have actually seen something just about two days ago. I know it's been pushed by a lot of our supporters."
+
+"I'm honored that they're doing it, but we'll see how that all works out."
+
+"They really like the job we're doing, you know? So that's a great honor."
+
+@pdoocy
+</div>
+
+## IranIntlTV — post 340573
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340573_1780606953.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مرجان ساتراپی، نویسنده، تصویرگر و فیلم‌ساز ایرانی-فرانسوی، در ۵۶ سالگی در پاریس درگذشت. به گفته خانواده‌اش، او پس از درگذشت همسرش در سال گذشته، بر اثر اندوه از دست دادن او جان باخت. ساتراپی با رمان مصور «پرسپولیس» و اقتباس سینمایی آن به شهرت جهانی رسید. او کارگردان پنج فیلم بلند دیگر هم بود و نخستین زنی شد که نامزد جایزه اسکار بهترین فیلم انیمیشن شد. کتاب مصور «زن، زندگی، آزادی» از آخرین آثار او با همکاری عباس میلانی بود.
+@iranintltv
+</div>
+
+## FarsiVOA — post 219618
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219618_1780606954.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️شاهین‌ نژاد: جمهوری اسلامی روی طناب راه می‌رود
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219617
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219617_1780606955.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️دونالد ترامپ، رئیس‌جمهوری آمریکا، روز پنج‌شنبه گفت ایالات متحده بر جمهوری اسلامی غلبه می‌کند، یا با توافق یا با عملیات نظامی.
+@FarsiVOA
+</div>
+
+## IranianMinds — post 21397
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21397_1780606955.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ:
+«من نمی‌خواهم با آیت‌الله ملاقات کنم، اما اگر با او ملاقات می‌کردم، برایم افتخار بود که با او دیدار کنم.
+با احترام رفتار می‌کردم.»
+
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21396
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ:
+چند موشک در ایران باقی مانده است، اما بسیار کم.
+
+🔴مذاکرات با ایران خوب پیش می‌رود.
+
+🔴مسئله لبنان تا حدودی متفاوت است، اما به ایران مرتبط است.
+
+🔴آمریکا می‌تواند اورانیوم غنی‌شده ایران را با یا بدون توافق مصادره کند.
+
+@IranianMinds
+</div>
+
+## alonews — post 125186
+
+<div align="center">
+  <a href="telegram/content/alonews_125186_1780606957.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فیلد مارشال ، محسن رضایی: اگر اسرائیل به سمت جنوب بیروت می رفت، موشک باران را شروع می کردیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125185
+
+<div align="center">
+  <a href="telegram/content/alonews_125185_1780606958.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ایالات متحده رئیس‌جمهور کوبا، میگل دیاز-کانل و خانواده‌اش را تحریم کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125184
+
+<div align="center">
+  <a href="telegram/content/alonews_125184_1780606959.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈العربیه منتشر کرد: عکس وزیر کشور پاکستان محسن نقوی در دیدار با وزیر کشور ایران در تهران، در چارچوب تلاش‌های اسلام‌آباد برای پیشبرد مذاکرات
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125183
+
+<div align="center">
+  <a href="telegram/content/alonews_125183_1780606959.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: باعث افتخارمه با آیت الله مجتبی خامنه ای دیدار داشته باشم.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/15 00:22
 ---
 

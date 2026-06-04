@@ -7,6 +7,87 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/14 09:24
+---
+
+## mwarmonitor — post 10122
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 بیانیه مشترک میان ایالات متحده، لبنان و اسرائیل: 📌ایالات متحده در روزهای ۲ و ۳ ژوئن ۲۰۲۶ چهارمین نشست سه‌جانبه سطح‌بالا را میان نمایندگان اسرائیل و لبنان برگزار کرد. 🔸در نتیجه مذاکراتی که به رهبری ایالات متحده انجام شد، اسرائیل و لبنان بر اجرای آتش‌بس…
+</div>
+
+## mwarmonitor — post 10121
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴در پی تیراندازی در جریان یک مراسم فارغ‌التحصیلی مدرسه‌ای در شهر فیرفیلد آمریکا، یک نفر کشته و ۳ نفر دیگر زخمی شدند. CBS
+
+@mwarmonitor
+</div>
+
+## IranianMinds — post 21345
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+از دی ماه تا الان انگار چند قرن گذشته …
+
+@IranianMinds
+</div>
+
+## alonews — post 124959
+
+<div align="center">
+  <a href="telegram/content/alonews_124959_1780552451.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈بن گویر وزیر امنیت ملی اسرائیل:
+آتش بس با لبنان یک اشتباه بزرگ است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124958
+
+<div align="center">
+  <a href="telegram/content/alonews_124958_1780552451.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈اکونومیست در مورد مذاکرات ایران و آمریکا: هر دو طرف به آرامی به سمت توافقی حرکت می‌کنند که ممکن است پایدار نباشد. آنها طوری رفتار می‌کنند که انگار این توافق دائمی خواهد شد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124957
+
+<div align="center">
+  <a href="telegram/content/alonews_124957_1780552452.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فایننشال تایمز: همزمان با جنگ آمریکا علیه ایران و اختلال در عرضه انرژی، ذخایر نفت آمریکا به پایین‌ترین سطح از ۲۰۰۴ رسید و در صورت بسته ماندن تنگه هرمز، احتمال افزایش قیمت نفت تا ۲۰۰ دلار وجود دارد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124956
+
+<div align="center">
+  <a href="telegram/content/alonews_124956_1780552452.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈بیت کوین برای اولین بار از ۲۴ فوریه به زیر ۶۳٬۰۰۰ دلار سقوط کرده است
+
+
+🔴 بیش از ۱.۱ میلیارد دلار موقعیت‌های اهرمی ارز دیجیتال در ۲۴ ساعت گذشته نقد شده‌اند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/14 09:14
 ---
 

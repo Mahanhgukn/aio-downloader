@@ -7,6 +7,192 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/15 16:33
+---
+
+## VahidOOnLine — post 243792
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243792_1780664600.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خانواده فاطمه سپهری، زندانی سیاسی، با ابراز نگرانی از وضعیت سلامتی او، خواستار رسیدگی فوری و فراهم شدن امکان درمان کامل و خارج از زندان برای این زندانی سیاسی شدند.
+
+علی سپهری، برادر این زندانی سیاسی نوشت از مهر ۱۴۰۲ و پس از بازگرداندن سپهری به زندان بعد از عمل قلب باز، روند درمان او از تامین دارو تا انتخاب پزشک تحت نظر مسئولان زندان بوده و اخیراً نیز اعلام شده برخی داروهای قلب او به دلیل گرانی و نایاب شدن قابل تهیه نیست.
+
+او همچنین گفت آزمایش‌ها و نمونه‌برداری‌های مرتبط با بیماری روماتولوژی سپهری به‌صورت ناقص انجام شده و امکان مراجعه دوباره به پزشک فراهم نشده است. سپهری حدود چهار ماه است از مشکلات شدید گوارشی رنج می‌برد و با وجود تجویز سونوگرافی، زمان انجام آن هنوز مشخص نیست.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342645
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342645_1780664601.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+President Trump said he would be willing to meet with Iran’s new supreme leader if it could help secure a deal preventing Iran from obtaining a nuclear weapon, while emphasizing that the U.S. would achieve that goal through diplomacy or military means if necessary.
+
+Meanwhile, Ukrainian President Volodymyr Zelenskyy has proposed a face-to-face meeting with Russian President Vladimir Putin to discuss ending the war, though it remains unclear whether Putin will agree to the talks, @pdoocy reports.
+</div>
+
+## pm_afshaa — post 92307
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92307_1780664603.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴العربیه: ایران بطور رسمی به پاکستان ابلاغ کرده که با انتقال بخشی از ذخایر اورانیوم خودش به یک کشور ثالث مورد توافق طرفین، موافقه 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92306
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92306_1780664604.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴غریب‌آبادی، معاون وزیر خارجه:
+در مورد متن توافق، تقریبا خیلی جلو رفتیم. اصرار ما اینه که 50 درصد از وجوه بلوکه شده بلافاصله با امضای یادداشت تفاهم، در اختیار ایران قرار بگیره؛ مابقی آن هم بعد از طی یک یا دو ماه؛ رفع تحریم‌ها و مباحث مرتبط با هسته‌ای در مرحله دوم مذاکرات قرار دارن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5353
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5353_1780664604.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺📢 تصویب طرح کنگره آمریکا برای مشروط کردن حمله به ایران؛
+
+*روح‌الله رحیم‌پور، تحلیلگر سیاسی
+
+#جنگ
+@DEJradio
+</div>
+
+## IranIntlTV — post 340655
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340655_1780664605.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خانواده فاطمه سپهری، زندانی سیاسی، با ابراز نگرانی از وضعیت سلامتی او، خواستار رسیدگی فوری و فراهم شدن امکان درمان کامل و خارج از زندان برای این زندانی سیاسی شدند.
+
+علی سپهری، برادر این زندانی سیاسی نوشت از مهر ۱۴۰۲ و پس از بازگرداندن سپهری به زندان بعد از عمل قلب باز، روند درمان او از تامین دارو تا انتخاب پزشک تحت نظر مسئولان زندان بوده و اخیراً نیز اعلام شده برخی داروهای قلب او به دلیل گرانی و نایاب شدن قابل تهیه نیست.
+
+او همچنین گفت آزمایش‌ها و نمونه‌برداری‌های مرتبط با بیماری روماتولوژی سپهری به‌صورت ناقص انجام شده و امکان مراجعه دوباره به پزشک فراهم نشده است. سپهری حدود چهار ماه است از مشکلات شدید گوارشی رنج می‌برد و با وجود تجویز سونوگرافی، زمان انجام آن هنوز مشخص نیست.
+https://iranintl.com/202606054788
+</div>
+
+## Dirty_Kids — post 391053
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391053_1780664605.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک روزگاری رژیم اسلامی از این فیلم‌ها میساخت که خواننده‌های لس آنجلسی و ایرانیانی که در لس انجلس زندگی‌ میکردند را مسخره کنه و امروز "قیصر" خواننده در پیتی لس انجلس را میبره تهران روی صحنه و پزش را میده....
+دنیا دار مکافاته
+پ‌ن: فیلم را گذاشتم که فقط یادشون بیاد ولا که ارزش دیگری نداره
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391052
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391052_1780664607.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شجاع خلیل‌زاده ارزانترین و بی‌ارزشترین بازیکن جام جهانی شد😂
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 125309
+
+<div align="center">
+  <a href="telegram/content/alonews_125309_1780664607.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رئیس‌جمهور لبنان : به نعیم قاسم میگم، مردم لبنان، مردم تو نیستن
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125308
+
+<div align="center">
+  <img src="telegram/content/alonews_125308_1780664608.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎙👤 شهریار مغانلو: آماده‌ایم که هر سه تا بازی جام‌جهانی رو ببریم و به عنوان تیم اول صعود کنیم
+@AloSport
+</div>
+
+## alonews — post 125307
+
+<div align="center">
+  <a href="telegram/content/alonews_125307_1780664608.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💔آخرین پیام جاویدنام امیر عباس رضابخش ۱۸ ساله، قبل از کشته شدنش در همان شب:
+
+
+🔴«داداش، اگر برنگشتیم... عقب نکش. عقب‌نشینی نکن. ما برای این کشور خواهیم جنگید.»
+
+
+🔴او همان شب جانش را برای ایران فدا کرد. یک شیر واقعی، قهرمانی که هرگز برنگشت.
+
+
+🤔عرزشی حرام زاده، غیرت یعنی امیر عباس رضابخش نه تویی که اسلحه به سمت مردمت گرفتی و ادعای عدالت علی داری.
+
+
+✅@AloNews
+</div>
+
+## alonews — post 125306
+
+<div align="center">
+  <a href="telegram/content/alonews_125306_1780664609.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / وزارت امور خارجه آلمان هشدار سفر برای بحرین و کویت صادر کرد و از شهروندان آلمان خواست که به این کشورها سفر نکنند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125305
+
+<div align="center">
+  <a href="telegram/content/alonews_125305_1780664610.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کیر استارمر: ارزیابی اطلاعاتی ما و ارزیابی کشورهای دیگر عضو ناتو این است که ممکن است روسیه در سال ۲۰۳۰ به ناتو حمله کند.
+
+
+🔴اغراق نیست اگر بگویم ما در خطرناک‌ترین و بی‌ثبات‌ترین دوران زندگی من و زندگی شما قرار داریم.
+
+
+🔴اولین وظیفه من، وظیفه‌ای که بالاتر از همه چیز است، حفظ امنیت کشورمان و حفظ امنیت مردم ماست.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/15 16:23
 ---
 

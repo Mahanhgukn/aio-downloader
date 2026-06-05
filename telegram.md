@@ -7,6 +7,92 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/15 11:42
+---
+
+## IranIntlTV — post 340618
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340618_1780647159.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻پوشش خبری کامل جام جهانی با ایران اینترنشنال از سه کشور میزبان رقابت‌ها
+
+🔹جزییات بیشتر از رضا محدث خبرنگار اعزامی ایران اینترنشنال به لس‌آنجس، محل برگزاری ٢ بازی نخست تیم ملی ایران در جام جهانی ٢٠٢۶
+
+@iranintltvsport
+</div>
+
+## FarsiVOA — post 219645
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219645_1780647160.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴برنامه تفسیر خبر با اجرای مهدی آقازمانی هر شب ساعت ۱۹ به وقت ایران، مهم‌ترین رویدادهای روز را با کارشناسان، تحلیلگران و روزنامه‌نگاران به بحث می‌گذارد و به دنبال ارائه دقیق‌ترین تحلیل‌ها و تفسیر مهم‌ترین خبرهای روز است
+
+⏰امشب ساعت ۱۹ تفسیر خبر را از طریق لینک زیر دنبال کنید:
+https://youtube.com/live/zsJkSejfsIc
+
+همچنین دیگر برنامه ها را نیز از طریق کانال یوتیوب ما میتوانید دنبال کنید
+</div>
+
+## Persian_Trend_Official — post 15722
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15722_1780647160.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری CNN: اسرائیل در طول جنگ با ایران مخفیانه پرسنل نظامی و اطلاعاتی خود را به آذربایجان اعزام کرد و از مکان‌هایی در نزدیکی مرز شمالی ایران برای جمع‌آوری اطلاعات، عملیات پهپادی و پشتیبانی از مأموریت‌های نجات احتمالی استفاده کرد.
+
+اسرائیل همچنین در طول این درگیری مواضع مخفی خود را در عراق، امارات متحده عربی و سومالی‌لند حفظ کرد و دامنه عملیاتی خود را در اطراف ایران گسترش داد. آذربایجان استفاده از خاک خود برای عملیات علیه کشورهای ثالث را انکار کرده است.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 21409
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21409_1780647161.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+توی هند ۴ تا دختر که سوار ماشین بودن، یه پسر خوشگلو میدزدن و مجبورش میکنن تا الکل بنوشه و با هر ۴ تاشون رابطه برقرار کنه!
+
+پسر بدبخت هر چقدر التماس می‌کرده من تا حالا خودمو باکره نگه داشتم، دخترا توجه نمیکردن
+در نهایت این پسر شکایت میکنه و هر ۴ تاشون دستگیر میشن.
+
+@IranianMinds
+</div>
+
+## alonews — post 125229
+
+<div align="center">
+  <a href="telegram/content/alonews_125229_1780647161.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈بلومبرگ: مذاکرات ایران و آمریکا همچنان بدون پیشرفت مونده و در حالت توقفه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125228
+
+<div align="center">
+  <a href="telegram/content/alonews_125228_1780647161.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پیک‌ها همه بالا
+🍷
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/15 11:33
 ---
 

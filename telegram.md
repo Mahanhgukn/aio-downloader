@@ -7,6 +7,229 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/16 02:03
+---
+
+## VahidOOnLine — post 243870
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243870_1780698809.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ولادیمیر پوتین، رئیس‌جمهوری روسیه، در جریان سخنرانی خود در مجمع اقتصادی سن‌پترزبورگ، درخواست ولودیمیر زلنسکی برای برگزاری یک دیدار دوجانبه و فوری جهت پایان دادن به جنگ چهار ساله را رد کرد و با بی‌فایده خواندن این ملاقات پیش از دستیابی به یک توافق صلح اولیه، تاکید کرد که عملیات نظامی روسیه تا تحقق کامل تمامی اهداف تعیین‌شده از جمله کنترل کامل بر منطقه دونباس و اعمال محدودیت‌های شدید سیاسی و نظامی بر کی‌یف ادامه خواهد یافت. این موضع‌گیری تند با واکنش شدید رئیس‌جمهوری اوکراین روبرو شد، به طوری که زلنسکی پاسخ پوتین را «ضعیف» توصیف کرد و گفت که رهبر روسیه بار دیگر گزینه جنگ را انتخاب کرده است. همزمان با بن‌بست در تلاش‌های دیپلماتیک و در شرایطی که قرار است زلنسکی روز یکشنبه در لندن با رهبران غربی از جمله فریدریش مرز، صدراعظم آلمان و امانوئل مکرون، رئیس‌جمهوری فرانسه دیدار کند، حملات مرگبار میدانی روسیه به شرق اوکراین همچنان ادامه دارد و پوتین با رد گزارش‌ها درباره فروپاشی اقتصاد مسکو تحت فشارهای کمرشکن جنگ، ادعا کرد که شایعات درباره بحران اقتصادی روسیه به شدت مبالغه‌آمیز است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13596
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚠️ @withyashar
+</div>
+
+## WithYashar — post 13595
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فقط در ۴ ماه ! بسوزید عرزشی ها
+</div>
+
+## WithYashar — post 13594
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💥290k عرزشی سوز ترین کانال تلگرام
+</div>
+
+## mwarmonitor — post 10197
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+درگیری‌ های پراکنده در اطراف جزیره خارک و تنگه هرمز گزارش شده
+</div>
+
+## DEJradio — post 5380
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5380_1780698809.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🤡
+🔺 رزمایش حمله به هلیکوپتر پارچه‌ای
+گزارش از خانم محمودی
+
+#پدافند #لانچر
+@DEJradio
+</div>
+
+## DEJradio — post 5379
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5379_1780698811.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🔸 خبر ۲۱
+آدینه ۱۵ خرداد ۱۴۰۵
+
+#خبر۲۱
+@DEJradio
+</div>
+
+## DEJradio — post 5378
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5378_1780698814.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺🎥 #خبرنامه_امیرکبیر گزارش داد جمعی از دانشجویان دانشگاه علوم پزشکی بوشهر روز چهارشنبه ۱۳ خرداد ۱۴۰۵ در اعتراض به کیفیت نامناسب غذای سلف دانشگاه، دست به اعتصاب غذا زدند.
+
+دانشجویان معترض نسبت به کیفیت پایین غذا، تنوع محدود وعده‌های غذایی، مشکلات بهداشتی و بی‌توجهی مسئولان به سلامت دانشجویان اعتراض کرده‌اند. آنان می‌گویند طی ماه‌های گذشته بارها این مشکلات را از مسیرهای رسمی و اداری پیگیری کرده‌اند، اما درخواست‌هایشان بدون پاسخ مؤثر باقی مانده است.
+
+دانشجویان اعلام کرده‌اند در صورت ادامه وضعیت موجود و عدم رسیدگی به مطالبات و حقوق دانشجویان، هر روز این اعتصاب غذای خود را تکرار خواهند کرد.
+
+#بوشهر
+@DEJradio
+</div>
+
+## VahidOnline — post 75955
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_75955_1780698816.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سی‌ان‌ان به نقل از یک مقام آمریکایی گزارش داد جمهوری اسلامی چندین پهپاد انتحاری را به سمت تنگه هرمز پرتاب کرد که هواپیماهای آمریکا دست‌کم چهار پهپاد را سرنگون کردند.
+این مقام گفت مقام‌های آمریکایی گمان می‌کنند این پهپادها کشتی‌های تجاری در حال عبور از آب‌های منطقه یا نیروهای آمریکایی فعال در نزدیکی آن منطقه را هدف قرار داده بودند.
+
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 340734
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340734_1780698816.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت خزانه‌داری آمریکا ۱۲ نهاد فعال در حوزه‌های کشتیرانی، نفت، گاز و پتروشیمی را در فهرست تحریم‌ها قرار داد.
+
+همچنین شش فروند کشتی با پرچم پاناما و سنت کیتس نیز در همین چارچوب تحریم شده‌اند.
+
+گفت‌وگو با میعاد ملکی، رییس پیشین دفتر هدف‌گذاری تحریم‌های وزارت خزانه‌داری آمریکا
+@iranintltv
+</div>
+
+## IranIntlTV — post 340733
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340733_1780698818.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هیات منصفه دادگاه سلطنتی وولویچ دو متهم پرونده حمله به پوریا زراعتی، مجری ایران‌اینترنشنال، را به اتفاق آرا مجرم شناخت.
+بر اساس این گزارش، قاضی اعلام کرد جلسه صدور حکم در ۱۲ تیر ماه برگزار خواهد شد.
+
+علی رشید از مقابل دادگاه گزارش می‌دهد.
+@iranintltv
+</div>
+
+## Shin_Persian — post 6542
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6542_1780698819.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Fri, 05 Jun 2026 22:31:00 UTC
+
+State-owned Mehr regarding the clusterfuck in southern Iran:
+
+فارسی
+
+خبرگزاری دولتی مهر در رابطه با اوضاع آشفته در جنوب ایران:
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6541
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک کسشعری آماده کردم برای دوستانی که MacOS استفاده می کنن برای وی پی ان های رایج MacOS که وقتی شبکه عوض میشه (وای فای یا لن) اتوماتیک اون VPN رو ریکانکت کنه تا یک دقیقه معطل نشید تا اپ وی پی ان تشخیص قطعی و دستور وصل مجدد رو بده.
+https://github.com/therealaleph/fastvpnswitcher-macos
+(برای خودم نوشتم، گفتم شاید به درد بقیه هم بخوره)
+</div>
+
+## FarsiVOA — post 219710
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️دست رد رئيس جمهوری لبنان به سینه جمهوری اسلامی: دخالت در امور ما وظیفه شما نیست
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219709
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️نماینده شورای هماهنگی تشکل‌های صنفی فرهنگیان ایران، شیوا عاملی‌راد، در نشست سازمان بین‌المللی کار در ژنو، با تأکید بر ضرورت حمایت از حقوق معلمان و کارگران، خواستار موضع‌گیری روشن جامعه جهانی در دفاع از صلح و حقوق بنیادین مردم ایران شد.
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 15776
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15776_1780698820.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://open.spotify.com/episode/5BWJTIpQqxOhVM8u1udJix?si=EYt0QiGDS8aPpioujmuJhw
+
+
+https://castbox.fm/vi/953436770
+
+
+نسخه صوتی در کست باکس و اسپاتیفای
+</div>
+
+## IranianMinds — post 21455
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سی‌ان‌ان به نقل از یک مقام آمریکایی:
+
+ایران چندین پهپاد انتحاری را به سمت تنگه هرمز پرتاب کرد که هواپیماهای آمریکا دست‌کم چهار پهپاد را سرنگون کردند.
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 391104
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️ جام جهانی داره شروع میشه و بازار شرطبندی و پیشبینی از همیشه داغ تر هستش 
+🔥 https://t.me/+lCR7HeYTU15iNjM0 https://t.me/+lCR7HeYTU15iNjM0 A15 
+⚡️ اگر میخوای با آنالیز های رضا کینگ کونگ پول دربیاری توی این جام حتما عضو کانال شو ✅
+</div>
+
+## Dirty_Kids — post 391103
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391103_1780698821.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️ جام جهانی داره شروع میشه و بازار شرطبندی و پیشبینی از همیشه داغ تر هستش 
+🔥
+
+https://t.me/+lCR7HeYTU15iNjM0
+https://t.me/+lCR7HeYTU15iNjM0
+A15
+
+⚡️ اگر میخوای با آنالیز های رضا کینگ کونگ پول دربیاری توی این جام حتما عضو کانال شو ✅
+</div>
+
+---
 📅 بروزرسانی: 1405/03/16 01:53
 ---
 

@@ -7,6 +7,70 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/16 03:13
+---
+
+## WithYashar — post 13606
+
+
+
+
+## WithYashar — post 13605
+
+
+
+
+## FoxNewsTwitter — post 342667
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH LIVE: Graham Platner holds a Get Out the Vote rally with Rep. Ro Khanna https://twitter.com/i/broadcasts/1RJjppoygVdKw
+</div>
+
+## pm_afshaa — post 92351
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92351_1780703018.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سنتکام: لحظاتی پیش نیروهای سنتکام چهار پهپاد تهاجمی ایرانی رو که به سمت تنگه هرمز پرتاب شده بودن سرنگون کردن. پهپادهای تهاجمی یک تهدید فوری برای ترافیک دریایی منطقه است ‌و نیروهای آمریکایی متعاقبا به سایت‌های رادار نظارتی ساحلی ایران در گوروک و جزیره قشم…
+</div>
+
+## pm_afshaa — post 92350
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92350_1780703019.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پایگاه دریایی بندر سیریک هم بمباران شده، و گزارش‌ها از کشته شدن دست کم یک عضو نیرو دریایی سپاه در این حملات هوایی.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## Persian_Trend_Official — post 15778
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15778_1780703020.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سنتکام: چند لحظه پیش، نیروهای سنتکام چهار پهپاد انتحاری ایرانی را که به سمت تنگه هرمز پرتاب شده بودند، سرنگون کردند.
+
+این پهپادهای تهاجمی تهدیدی فوری برای تردد دریایی منطقه محسوب می‌شدند. در ادامه، نیروهای آمریکایی برای جلوگیری از حملات بیشتر، سایت‌های رادار مراقبت ساحلی ایران در گورک و جزیره قشم را هدف قرار دادند.
+
+نیروهای آمریکایی همچنان در حالت آماده‌باش و هوشیار قرار دارند و برای پاسخ به هرگونه اقدام تهاجمی غیرموجه ایران در چارچوب دفاع از خود، آماده هستند.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+---
 📅 بروزرسانی: 1405/03/16 03:03
 ---
 

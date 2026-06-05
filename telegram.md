@@ -7,6 +7,165 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/15 14:13
+---
+
+## IranIntlTV — post 340637
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340637_1780656184.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرخط خبرهای جمعه ۱۵ خرداد
+@iranintltv
+</div>
+
+## IranIntlTV — post 340636
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340636_1780656185.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند با ارسال پیامی به ایران اینترنشنال درباره گرانی‌ کالاهای خوراکی روایت می کند. پیام او با هوش مصنوعی خوانده شده است.
+</div>
+
+## Persian_Trend_Official — post 15734
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری CNN: اسرائیل در طول جنگ با ایران مخفیانه پرسنل نظامی و اطلاعاتی خود را به آذربایجان اعزام کرد و از مکان‌هایی در نزدیکی مرز شمالی ایران برای جمع‌آوری اطلاعات، عملیات پهپادی و پشتیبانی از مأموریت‌های نجات احتمالی استفاده کرد. اسرائیل همچنین در طول…
+</div>
+
+## Persian_Trend_Official — post 15731
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15731_1780656188.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تصاویری از رمپ پروازی پایگاه هوایی شیراز و هواپیماهای ترابری C-130 و IL-76 منهدم شده.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 21415
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21415_1780656188.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پیام وزارت خارجه آمریکا به مردم ایران.
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 391039
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 توی ترب دارن لوازم سکس BDSM میفروشن😐😐😐
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391038
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فوری العربیه:
+
+ایران به طور رسمی به پاکستان ابلاغ کرده که با انتقال بخشی از ذخایر اورانیوم خود به یک کشور ثالث مورد توافق طرفین، موافقه
+
+درضمن آمریکا همچنان درخواست ایران برای آزادسازی دارایی‌های مسدود شدش رو رد می‌کنه
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391037
+
+<div align="center">
+  <a href="https://t.me/Dirty_Kids/391037" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ریتزوبت تنها سایت بین المللی میباشد ، که به صورت هفتگی پرومو کد دریافت میکنید ✅
+
+♦️ آموزش شارژ حساب با کریپتو
+♦️ آموزش شارژ حساب ریالی در ریتزوبت
+#پیشبینی
+🔵ریتزوبت برندی با لایسنس معتبر در صنعت شرطبندی و پیشبینی مسابقات ورزشی و کازینویی 👇
+
+https://t.me/+LB508WZyIr8xNmY0
+</div>
+
+## Dirty_Kids — post 391036
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391036_1780656191.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🏆 جام جهانی 2026 نزدیک است …
+
+
+⚽️ پر از هیجان، استرس، بردهای شیرین و لحظه‌های فراموش‌نشدنی برای عاشقان فوتبال 🔥
+
+🎁 ریتزوبت در کنار شما ❤️💙
+
+
+🏦 کد هدیه تا سقف 100 میلیون تومان برای کاربران فعال و سنگین‌زن در دوران جام جهانی ✅
+
+🌟 بالاترین ضرایب و بهترین خدمات در کنار هیجان جام جهانی با ریتزوبت
+
+
+🛸 لینک ورود به سایت 👉
+
+
+🌐 کانال تلگرامی 
+3️⃣
+2️⃣
+1️⃣
+R15
+https://t.me/+LB508WZyIr8xNmY0
+</div>
+
+## alonews — post 125275
+
+<div align="center">
+  <a href="telegram/content/alonews_125275_1780656192.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈جمالیان، عضو کمیسیون بهداشت مجلس: میزان کشت خشخاش در استان‌های ایران بسیار بالا رفته!
+
+
+🔴در استانی که قبلا برنج می‌کاشتند، امروز به کاشت خشخاش روی آوردند.
+
+
+🔴با توجه به اینکه این محصولات خالص‌تر هستند، قطعاً شدت اعتیاد را افزایش می‌دهند.
+
+
+🔴خشخاش‌هایی که [غیر قانونی] کاشته می‌شوند، جزو کشفیات است و به کارخانه‌های داروسازی تحویل داده می‌شود.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125274
+
+<div align="center">
+  <a href="telegram/content/alonews_125274_1780656192.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزارت خارجه جمهوری آذربایجان اعلام کرد: در حمله پهپادی شب گذشته به دو کشتی باری خارجی که ۲۵ شهروند آذربایجانی داشتند، پنج نفر کشته و سه نفر مجروح شدند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/15 14:02
 ---
 

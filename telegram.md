@@ -7,6 +7,51 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/15 09:52
+---
+
+## VahidOOnLine — post 243758
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_243758_1780640547.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️تصاویر جدید از حملات هوایی اسرائیل و آمریکا به مناطقی در تهران؛ ده‌ها ساختمان آسیب جدی دیدند
+
+♦️ویدیویی که روز پنجشنبه ۱۴ خرداد و بعد از وصل شدن اینترنت ایرانیان پس از ۸۸ روز در شبکه‌های اجتماعی منتشر شده، یکی از مناطق تهران را نشان می‌دهد که در پی حملات هوایی ارتش اسرائیل و آمریکا آسیب گسترده دیده است.
+تصاویر نشان می‌دهد، با وجود تخریب برخی واحدها، تعدادی از شهروندان در خانه‌های آسیب‌دیده زندگی می‌کنند.
+
+ایندیپندنت فارسی به‌طور مستقل قادر نیست زمان و مکان دقیق این ویدیو را تایید کند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## alonews — post 125211
+
+<div align="center">
+  <a href="telegram/content/alonews_125211_1780640549.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈بلومبرگ: ازسرگیری عملیات در بندر فحل عمان برای صادرات نفت خام
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125210
+
+<div align="center">
+  <a href="telegram/content/alonews_125210_1780640549.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سخنگوی کمیسیون امنیت ملی: با دیکتاتورهای منطقه به جرم تامین مالی و نظامی آمریکا برخورد کنید
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/15 09:42
 ---
 

@@ -7,6 +7,150 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/15 18:02
+---
+
+## FoxNewsTwitter — post 342648
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342648_1780669968.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+California is still counting millions of ballots, with Los Angeles County reporting another 81,000 votes processed since election night and nearly 688,000 still to go, as recent mail-in ballots have favored Democrats and tightened several key races.
+
+Statewide, about 3.6 million ballots remain to be counted as officials continue verifying signatures and processing ballots postmarked by Election Day, @MattFinnFNC reports.
+</div>
+
+## pm_afshaa — post 92311
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92311_1780669970.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴آژانس بین المللی انرژی اتمی: از وضعیت ذخایر اورانیوم در ایران اگاهی کامل نداریم.
+
+ایران تنها کشور غیرهسته‌ای است که اورانیوم غنی‌شده تا 60 درصد رو انباشته کرده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## Shin_Persian — post 6521
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6521_1780669971.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet: U.S. Central Command ✓ @CENTCOM Fri, 05 Jun 2026 14:25:59 UTC USS Tripoli (LHA 7) transits the Arabian Sea as the amphibious assault ship supports the ongoing U.S. blockade against Iran. U.S. forces have redirected 129 commercial vessels…
+</div>
+
+## Shin_Persian — post 6520
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6520_1780669971.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+U.S. Central Command ✓ @CENTCOM
+Fri, 05 Jun 2026 14:25:59 UTC
+
+USS Tripoli (LHA 7) transits the Arabian Sea as the amphibious assault ship supports the ongoing U.S. blockade against Iran. U.S. forces have redirected 129 commercial vessels and disabled 6 to ensure compliance.
+
+↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
+
+فارسی
+
+ناو یو‌اس‌اس تریپولی (LHA 7) در حال عبور از دریای عرب است، در حالی که این کشتی تهاجمی آبی-خاکی از محاصره جاری ایالات متحده علیه ایران حمایت می‌کند. نیروهای ایالات متحده برای اطمینان از پایبندی، ۱۲۹ کشتی تجاری را تغییر مسیر داده و ۶ فروند را متوقف کرده‌اند.
+
+𝕏 · @shin_persian
+</div>
+
+## RadioFarda — post 157930
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸جوزف عون، رئیس‌جمهور لبنان، در مصاحبه‌ای که روز جمعه منتشر شد، از ایران خواست در امور لبنان دخالت نکند. او همچنین به گروه حزب‌الله، متحد مورد حمایت تهران، گفت که تنها راه‌حل درگیری با اسرائیل، دیپلماسی است. 🔸او در این گفت‌وگو با شبکه خبری سی‌ان‌ان خطاب به…
+</div>
+
+## RadioFarda — post 157929
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_157929_1780669972.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸جوزف عون، رئیس‌جمهور لبنان، در مصاحبه‌ای که روز جمعه منتشر شد، از ایران خواست در امور لبنان دخالت نکند. او همچنین به گروه حزب‌الله، متحد مورد حمایت تهران، گفت که تنها راه‌حل درگیری با اسرائیل، دیپلماسی است.
+
+🔸او در این گفت‌وگو با شبکه خبری سی‌ان‌ان خطاب به ایران گفت: «این کشور شما نیست، کشورِ ماست... دخالت در کشور ما وظیفه شما نیست.»
+
+🔸آقای عون افزود: «آنها از لبنان به‌عنوان یک اهرم چانه‌زنی در مذاکرات خود با ایالات متحده استفاده می‌کنند. این غیرقابل قبول است.»
+
+🔸رئیس‌جمهور لبنان همچنین گفت: «حزب‌الله باید درک کند که هیچ راهی جز نشستن و گفت‌وگو وجود ندارد؛ هیچ راه دیگری برای حل این مشکل و نجات آنچه باقی مانده است، جز از طریق مذاکره و دیپلماسی وجود ندارد.»
+
+🔸حزب‌الله از سوی آمریکا به عنوان سازمان تروریستی شناخته می‌شود اما اتحادیه اروپا تنها شاخه نظامی آن را تروریستی می‌داند.
+
+@RadioFarda
+</div>
+
+## alonews — post 125331
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هر گیگ فقط 2هزار تومن
+😳 
+😳هنوز داری گیگی 10...15 تومن میخری ، وقتی اینترنت کامل درست شده
+😱چون داری از واسطه تهیه میکنی 
+😍تخفیف ویژه فقط گیگی 2t با لینک ساب 
+🌟با ضمانت و بهترین سرعت و کیفیت 
+☑️نامحدود واقعی فقط 290t ⌛️برای 200 نفر اول این تخفیف اعمال میشه…
+</div>
+
+## alonews — post 125330
+
+<div align="center">
+  <img src="telegram/content/alonews_125330_1780669972.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هر گیگ فقط 2هزار تومن
+😳
+
+
+😳هنوز داری گیگی 10...15 تومن میخری ، وقتی اینترنت کامل درست شده
+😱چون داری از واسطه تهیه میکنی
+
+
+😍تخفیف ویژه فقط گیگی 2t
+با لینک ساب
+
+
+🌟با ضمانت و بهترین سرعت و کیفیت
+
+
+☑️نامحدود واقعی فقط 290t
+
+⌛️برای 200 نفر اول این تخفیف اعمال میشه ، سریع اقدام کنید که دیگه قرار نیست هزینه زیاد بابت وی پی ان بدید
+👇
+👇
+@tvpnshop_bot
+@tvpnshop_bot
+</div>
+
+## alonews — post 125329
+
+<div align="center">
+  <a href="telegram/content/alonews_125329_1780669973.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ردیابی دریایی کپلر : چهار نفتکش با پرچم ایران دوشنبه از تنگه هرمز عبور کردن
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/15 17:52
 ---
 

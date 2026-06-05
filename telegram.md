@@ -7,6 +7,257 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/15 19:02
+---
+
+## VahidOOnLine — post 243812
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند با ارسال ویدیوهایی صحنه‌هایی از انتقال اتوبوسی حامیان حکومت به تجمعات خیابانی و توزیع غذا و بستنی و کباب بین آن‌ها را نشان می‌دهد. پیشتر نیز پیام‌های مردم حاکی از توزیع پول و کالا در تجمعات حکومتی بود.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243811
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243811_1780673577.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علیرضا عباسی، نایب رییس کمیسیون کشاورزی مجلس، به سایت خانه ملت گفت: «محاصره دریایی پس از پذیرش آتش‌بس صورت گرفته و از این رو مصداق روشن نقض آتش‌بس است و راهکار صحیح در این زمینه، شکستن محاصره دریایی از طریق قدرت میدانی است، نه امتیاز دادن در میز مذاکره.»
+
+او ادامه داد: «تیم مذاکره‌کننده باید با جدیت این موضوع را دنبال کرده و اجازه ندهد طرف مقابل از شرایط موجود برای تحمیل خواسته‌های جدید سوءاستفاده کند.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243810
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بهنام برآبادی، ۲۶ ساله، آرایشگر و بدنساز سبزواری، شامگاه ۱۸ دی در جریان اعتراضات با شلیک گلوله نیروهای سرکوب‌ مجروح شد و پس از یک هفته بستری در بیمارستان، ۲۵ دی جان خود را از دست داد.
+بر اساس گزارش‌های رسیده به ایران‌اینترنشنال، او پس از نجات چند دختر از دست ماموران حکومت هدف گلوله قرار گرفت.
+بهنام قرار بود ۵ بهمن در مسابقات بدنسازی سبزوار شرکت کند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243809
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️وزارت جنگ آمریکا اعلام کرد که نیروهای نظامی این کشور در جریان یک عملیات شبانه، وارد یک ابرنفت‌کش بدون پرچم و تحریم‌شده به نام «داوینا» (Davina) در آب‌های اقیانوس هند شده و آن را توقیف کرده‌اند. پنتاگون تصاویر این عملیات را نیز منتشر کرد.
+
+بر اساس گزارش خبرگزاری رویترز و داده‌های ماهواره‌ای سامانه ردیابی «مارین ترافیک»، این ابرنفت‌کش که با نام «لنور» نیز شناخته می‌شود، آخرین بار در روز جمعه ۱۵ خرداد، در نزدیکی سواحل جنوبی سریلانکا ردیابی شده است. ارزیابی‌های فنی از میزان فرو رفتگی بدنه کشتی در آب (آبخور) نشان می‌دهد که این شناور به طور کامل بارگیری شده و حامل یک محموله بزرگ نفتی است.
+
+نفت‌کش داوینا با ظرفیت حمل بالا (تا سقف دو میلیون بشکه نفت خام)، در اکتبر سال ۲۰۲۴ میلادی به دلیل مشارکت در زنجیره تجارت و حمل‌ونقل نفت جمهوری اسلامی، در لیست تحریم‌های وزارت خزانه‌داری آمریکا قرار گرفته بود.
+
+این تقابل دریایی در شرایطی رخ می‌دهد که واشنگتن فشارهای خود را برای انسداد مسیرهای تجارت دریایی جمهوری اسلامی افزایش داده و نیروهای آمریکایی در ماه‌های اخیر چندین نفت‌کش را در اقیانوس هند رهگیری کرده‌اند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## DEJradio — post 5356
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5356_1780673578.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺📢 تماشای سکوت؛ روایتی هنری از مقاومت
+
+گزارش: بهنام روغنی
+
+#جنگ #مقاومت
+@DEJradio
+</div>
+
+## IranIntlTV — post 340680
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند با ارسال ویدیوهایی صحنه‌هایی از انتقال اتوبوسی حامیان حکومت به تجمعات خیابانی و توزیع غذا و بستنی و کباب بین آن‌ها را نشان می‌دهد. پیشتر نیز پیام‌های مردم حاکی از توزیع پول و کالا در تجمعات حکومتی بود.
+</div>
+
+## Shin_Persian — post 6522
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Fri, 05 Jun 2026 15:30:34 UTC
+
+𝐄𝐜𝐨𝐧𝐨𝐦𝐢𝐜 𝐅𝐮𝐫𝐲 targets Iranian LPG smuggling network that disguised hundreds of millions of dollars in Iranian petroleum gas as Omani-origin exports to South and East Asia, while also sanctioning shadow banking operations moving foreign currency for Iranian banks.
+
+𝐈𝐍𝐃𝐈𝐕𝐈𝐃𝐔𝐀𝐋𝐒:
+
+𝐒𝐚𝐫𝐛𝐚𝐳 𝐀𝐛𝐝𝐮𝐥 𝐙𝐚𝐝𝐚 (Afghan national) - Network operator managing UAE front companies for Iranian LPG export scheme
+
+𝐌𝐨𝐡𝐚𝐦𝐦𝐚𝐝 𝐒𝐡𝐚𝐤𝐨𝐥 𝐌𝐢𝐡𝐚𝐧𝐝𝐨𝐮𝐬𝐭 (Turkish national, also known as Haji Shakoor) - Network co-operator running UAE and China-based front companies for LPG smuggling
+
+𝐌𝐞𝐡𝐫𝐝𝐚𝐝 𝐆𝐞𝐫𝐚𝐦𝐢𝐚𝐧 𝐍𝐢𝐤 (Iranian national, holds Dominican citizenship) - Exchange house operator facilitating hundreds of millions in foreign currency transactions for sanctioned Iranian banks
+
+𝐑𝐨𝐦𝐢𝐧𝐚 𝐆𝐞𝐫𝐚𝐦𝐢𝐚𝐧 𝐍𝐢𝐤 (Iranian national) - Co-operator of family-run exchange house
+
+𝐄𝐍𝐓𝐈𝐓𝐈𝐄𝐒:
+
+𝐁𝐮𝐭𝐚𝐧𝐢 𝐓𝐫𝐚𝐝𝐢𝐧𝐠 𝐋𝐋𝐂 (UAE) - Front company that shipped tens of thousands of metric tons of Iranian LPG worth tens of millions to South Asia
+
+𝐃𝐮𝐧𝐝𝐥𝐨𝐝 𝐓𝐫𝐚𝐝𝐢𝐧𝐠 𝐅𝐙𝐄 (UAE) - Front company that delivered 22,000 metric tons of LPG to Bangladesh worth $10.5 million in October 2025
+
+𝐀𝐃𝐇 𝐄𝐧𝐞𝐫𝐠𝐲 𝐅𝐙𝐄 (UAE) - Front company used to sell millions of barrels of Iranian LPG to Bangladesh in March 2026
+
+𝐒𝐚𝐡𝐞𝐥 𝐒𝐭𝐚𝐫 𝐎𝐢𝐥 𝐚𝐧𝐝 𝐆𝐚𝐬 𝐂𝐨𝐦𝐩𝐚𝐧𝐲 𝐋𝐋𝐂 (UAE) - Entity used by Abdul Zada for Iranian LPG shipments
+
+𝐒𝐡𝐚𝐧𝐠𝐡𝐚𝐢 𝐐𝐢𝐚𝐧𝐲𝐞 𝐄𝐧𝐞𝐫𝐠𝐲 𝐂𝐨., 𝐋𝐭𝐝. (China) - Company owned and operated by Mihandoust
+
+𝐌𝐞𝐡𝐫𝐝𝐚𝐝 𝐆𝐞𝐫𝐚𝐦𝐢𝐚𝐧 𝐍𝐢𝐤 𝐚𝐧𝐝 𝐏𝐚𝐫𝐭𝐧𝐞𝐫𝐬 𝐂𝐨𝐦𝐩𝐚𝐧𝐲 (Iran) - Exchange house holding tens of millions in foreign currency for Bank Tejarat, Bank Mellat, and Bank Pasargad
+
+𝐋𝐢𝐦𝐫𝐚 𝐆𝐚𝐬 𝐋𝐢𝐦𝐢𝐭𝐞𝐝 (Marshall Islands) - Owner/manager/operator of MD 23
+
+𝐄𝐜𝐨𝐬𝐞𝐚𝐬 𝐌𝐚𝐫𝐢𝐭𝐢𝐦𝐞 𝐋𝐢𝐦𝐢𝐭𝐞𝐝 (Liberia) - Owner of GLENDALE
+
+𝐁𝐥𝐮𝐞 𝐒𝐞𝐚 𝐌𝐚𝐫𝐢𝐧𝐞 𝐈𝐧𝐜𝐨𝐫𝐩𝐨𝐫𝐚𝐭𝐞𝐝 𝐀𝐧𝐝 𝐅𝐚𝐚𝐭𝐞𝐡 𝐌𝐚𝐫𝐢𝐭𝐢𝐦𝐞 𝐈𝐧𝐜𝐨𝐫𝐩𝐨𝐫𝐚𝐭𝐞𝐝 (Marshall Islands) - Owner/manager/operator of AMIR GAS
+
+𝐀𝐝𝐚𝐦𝐚𝐬 𝐒𝐡𝐢𝐩𝐩𝐢𝐧𝐠 𝐈𝐧𝐜 (Marshall Islands) - Owner/manager/operator of GAS LAGOON
+
+𝐁𝐥𝐚𝐜𝐤 𝐆𝐨𝐥𝐝 𝐓𝐫𝐚𝐝𝐞 𝐂𝐨𝐫𝐩𝐨𝐫𝐚𝐭𝐢𝐨𝐧 (Marshall Islands) - Owner of MILE
+
+𝐆𝐚𝐬 𝐆𝐌𝐒 𝐋𝐢𝐦𝐢𝐭𝐞𝐝 (Marshall Islands) - Owner of GAZ GMS
+
+𝐕𝐄𝐒𝐒𝐄𝐋𝐒:
+
+𝐌𝐃 𝟐𝟑 (IMO 9158240, Palau flag) - LPG tanker transported hundreds of thousands of barrels since 2023
+
+𝐆𝐋𝐄𝐍𝐃𝐀𝐋𝐄 (IMO 9139945, Panama flag) - LPG tanker transported millions of barrels since 2020
+
+𝐀𝐌𝐈𝐑 𝐆𝐀𝐒 (IMO 9167409, St. Kitts and Nevis flag) - LPG tanker transported hundreds of thousands of barrels since 2025
+
+𝐆𝐀𝐒 𝐋𝐀𝐆𝐎𝐎𝐍 (IMO 9386304, Panama flag) - LPG tanker transported millions of barrels since 2023
+
+𝐌𝐈𝐋𝐄 (IMO 8910897, Panama flag) - LPG tanker transported millions of barrels since 2024, shipped over 500,000 barrels to Bangladesh in early 2025
+
+𝐆𝐀𝐙 𝐆𝐌𝐒 (IMO 9131539, Panama flag) - LPG tanker transported hundreds of thousands of barrels since 2023
+
+𝐋𝐏𝐆 𝐒𝐄𝐕𝐀𝐍 - Previously blocked vessel that transported 750,000 barrels to Bangladesh (August-November 2025)
+
+𝐆𝐀𝐒 𝐙𝐄𝐈𝐍𝐀 - Vessel used for multiple LPG shipments to Bangladesh since 2024
+
+𝐊𝐄𝐘 𝐓𝐄𝐂𝐇𝐍𝐈𝐂𝐀𝐋 𝐃𝐄𝐓𝐀𝐈𝐋𝐒:
+
+- Action taken under E.O. 13902 targeting Iran's financial and petroleum sectors
+- Network falsely labeled Iranian LPG as Omani-origin to evade sanctions
+- Exchange house maintains contracts with sanctioned banks Bank Tejarat, Bank Mellat, and Bank Pasargad
+- Economic Fury has frozen nearly $500 million in regime-linked cryptocurrency
+- Standard 50% ownership rule applies for entity blocking
+- Whistleblower awards available for enforcement actions exceeding $1 million in penalties
+
+ترجمه فارسی در بخش نظرات
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 219673
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺تکذیب ادعاهای جمهوری اسلامی درباره حمله به ناوهای آمریکایی در دریای عمان
+
+▪️در پی انتشار گزارش‌های رسانه‌های نزدیک به سپاه پاسداران با ادعای حمله به ناوهای آمریکایی در دریای عمان، ستاد فرماندهی مرکزی آمریکا، سنتکام، روز جمعه ۱۵ خرداد با صدور پیامی این ادعای جمهوری اسلامی را تکذیب کرد.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/centcom-strait-of-hormuz-irgc-terrorism-attack/8157676.html/?nocach=1
+</div>
+
+## DW_Farsi — post 125540
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125540_1780673579.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 ادعای ایران: عقب‌نشینی ناوهای آمریکا با شلیک اخطار
+
+رسانه‌های نزدیک به سپاه پاسداران در ایران گزارش دادند که نیروی دریایی ارتش این کشور با شلیک موشک‌های اخطار و استقرار پهپادهای تهاجمی، چندین شناور جنگی ایالات متحده را وادار به ترک آب‌های دریای عمان کرده است.
+
+بر اساس گزارشی که روز جمعه ۱۵ خرداد (۵ ژوئن) از سوی خبرگزاری تسنیم منتشر شد، نیروی دریایی ارتش ایران اعلام کرده است که در واکنش به آنچه "مزاحمت‌های دریایی و توقیف شناورهای تجاری و نفت‌کش‌ها" توسط نیروی دریایی آمریکا خوانده، دست به عملیات زده است.
+
+طبق این گزارش نیروهای ایرانی با استفاده از موشک‌های کروز دریایی "قدیر" و پهپادهای تهاجمی جدیدی با نام "شهید دانا"، اقدام به شلیک‌های هشدارآمیز کرده‌اند.
+
+بە ادعای این رسانە دو ناوشکن آمریکایی با شماره‌های بدنه DDG-103 (یواس‌اس تراکستون) و DDG-87 (یواس‌اس میسون) دریای عمان را به مقصد اقیانوس هند ترک کرده‌اند.
+
+مقام‌های نظامی ایران همچنین مدعی شده‌اند که علاوه بر این دو ناوشکن، ناو تهاجمی آبی-خاکی "تریپولی" نیز مجبور به عقب‌نشینی از منطقه شده است.
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 15759
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در آخر می‌رسیم به موشک هوا به سطح kh-38، موشک kh-38 با نهایت برد 70 کیلومتر بسته به مدل خود از سیستم های هدایت مختلفی از جمله راداری و اپتیکی بهره می‌برد که این قابلیت را به موشک می‌دهد که بسته به نوع هدایت علیه اهداف ثابت و متحرک استفاده شود.
+
+موشک kh-38 یک موشک زیرشاخه به نام kh-36 دارد که در اصل حاصل وصل کردن یک پیشران راکتی به روی موشک kh-38 است که برد آن را به 120 کیلومتر رسانده.
+
+در آخر باید گفت که در این اسناد اشاره ای به تعداد خریداری شده موشک های بالا نشده و به طور دقیق معلوم نیست ایران چه مقدار از این موشک ها و چه مدل از آن‌ها را خریداری کرده.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 21429
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴آمریکا تحریم‌های جدیدی را بر علیه ایران اعمال نمود.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 282923
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_282923_1780673579.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻ارتش آمریکا شلیک تیر هشدار از سوی ایران به سمت ناوهای جنگی‌اش را رد کرد و گفت چنین اقدامی می‌توانست نقض جدی آتش‌بس شکننده میان دو کشور باشد.
+
+فرماندهی مرکزی آمریکا در منطقه (سنتکام) در شبکه اجتماعی «ایکس» نوشت: «نیروهای ایرانی هیچ حمله‌ای به ناوهای نیروی دریایی آمریکا انجام نداده و به سمت آن‌ها شلیک نکرده‌اند. انجام چنین کاری نقض آشکار آتش‌بس خواهد بود.»
+
+روابط عمومی ارتش ایران پیش‌تر اعلام کرد که نیروی دریایی این کشور در دریای عمان به سمت ناوشکن‌های آمریکایی تیرهای اخطار شلیک کرده است.
+
+تلویزیون ایران هم تصاویری منتشر کرد که گفته شد مربوط به لحظه شلیک تیرهای اخطار است؛ در این تصاویر یک لانچر متحرک در حال شلیک موشک و همچنین لحظه شلیک پهپاد دیده می‌شود.
+
+بر اساس بیانیه ارتش شلیک تیرهای اخطار «در ادامه عملیات مقابله با شرارت‌ها و مزاحمت‌های دریایی و ربایش شناورهای تجاری ونفتکش» از سوی نیروی دریایی آمریکا صورت گرفته است.
+
+📷Getty Images
+</div>
+
+## alonews — post 125339
+
+<div align="center">
+  <a href="telegram/content/alonews_125339_1780673580.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈مطهرنیا تحلیلگر سیاسی :
+
+اگر میگویند که ساختار سیاسی ایران دچار ضعف نشده دروغ است
+شما انچیزی که زمان خامنه ای وجود داشت را با الان مقایسه کنید
+اینکه میگویند قالیباف درحال مذاکره است و رئیس است یا میگویند سران سپاه تصمیم گیر های اصلی هستند زمان خامنه ای اول وجود داشت ؟ خیر !
+تمام این روند ها توسط ایالات متحده درحال گذر است
+حتی اگر توافقی هم شود چیزی تغییر نمیکند زیرا شرایط ترامپ همان خلع سلاح است که رژیم میداند این یعنی سقوط سریعتر
+اکنون ترامپ درحال فشار از طریق دیپلماسی هست تا باز هم دست خود را برای حمله تمام عیاری دیگر بازتر کند
+بنیان های رژیم فعلی دچار ترک خوردگی های شدیدی شده
+اینکه نمیخواهند یک شبه همه چیز عوض شود فقط بخاطر این است که تا حدامکان ایران کمتر ضربه بخورد تا بتواند از او به عنوان یک شریک استراتژی بزرگ در هارتلند ریملند جدید استفاده کنند و چین را متوقف کنند
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/15 18:53
 ---
 

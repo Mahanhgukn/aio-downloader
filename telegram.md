@@ -7,6 +7,37 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/15 05:42
+---
+
+## FoxNewsTwitter — post 342639
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342639_1780625570.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Donald Trump or Kamala Harris?
+
+Waka Flocka Flame compared the choice to Kobe Bryant vs. LeBron James — and made it clear he'd pick Trump. But the rapper also revealed he's never actually voted.
+
+"I never vote for nobody. Never in my life voted," Waka told Tomi Lahren, explaining that he grew up believing votes didn't matter for people from "the hood, the trenches, the ghetto."
+
+Waka said his support for Trump isn't about agreeing with everything he says or does, adding: "The only thing I learned from Trump was how to delegate my capital and how to structure my business."
+
+Waka also praised Nicki Minaj as "a huge influence on female rappers" and argued critics have targeted her politically, saying after she endorsed Trump, "they want her canceled."
+</div>
+
+## FarsiVOA — post 219633
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️پوشش ویژه | سخنان دونالد ترامپ در مراسم «زغال سنگ زیبا و تمیز» در کاخ سفید
+@FarsiVOA
+</div>
+
+---
 📅 بروزرسانی: 1405/03/15 05:32
 ---
 

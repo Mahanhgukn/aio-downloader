@@ -7,6 +7,58 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/15 09:12
+---
+
+## IranIntlTV — post 340605
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340605_1780638166.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سازمان آتش‌سوزی‌های جنگلی انتاریو در کانادا اعلام کرد آتش‌سوزی در جنوب تیمینز همچنان خارج از کنترل است و روند تخلیه بومیان ماتاگامی آغاز شده است.
+
+گزارش مهسا مرتضوی، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 340604
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340604_1780638168.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهوری آمریکا، با تاکید بر دستاوردهای نظامی ایالات متحده در حملات به جمهوری اسلامی، هشدار داد که واشینگتن آمادگی دارد در صورت لزوم، بار دیگر وارد درگیری شود. او همچنین با اشاره به اورانیوم مدفون‌شده جمهوری اسلامی گفت آمریکا توان فنی لازم برای انتقال این مواد به خارج از کشور را دارد.
+
+ارزیابی مهدی بیگی، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## alonews — post 125205
+
+<div align="center">
+  <a href="telegram/content/alonews_125205_1780638170.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ دیشب هم در کاخ سفید چرت زد!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125204
+
+<div align="center">
+  <a href="telegram/content/alonews_125204_1780638171.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈با اعلام سفیر ایران در روسیه؛ کار تملک زمین برای احداث راه‌آهن رشت – آستارا به طول ۱۶۲ کیلومتر تمام شده و به زودی برای آغاز پروژه در اختیار روسیه قرار می‌گیرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/15 09:02
 ---
 

@@ -7,6 +7,95 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/16 03:24
+---
+
+## VahidOOnLine — post 243878
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243878_1780703642.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ستاد فرماندهی مرکزی آمریکا، سنتکام، اعلام کرد نیروهایش چهار پهپاد انتحاری ایران را که به سمت تنگه هرمز پرتاب شده بودند، سرنگون کردند و در ادامه، برای دفاع در برابر حملات بیشتر، سایت‌های رادار نظارتی ساحلی جمهوری اسلامی در جزیره قشم و گروک در سیریک را هدف قرار دادند.
+سنتکام بر آمادگی خود برای پاسخ به «تجاوز غیرموجه ایران» در چارچوب دفاع از خود تاکید کرد.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243877
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243877_1780703643.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️شرکت «متا»، روز جمعه، ۱۵ خردادماه، رسما از سرویس اشتراکی جدید خود تحت عنوان «اینستاگرام پلاس» (Instagram Plus) رونمایی کرد که به صورت یک ارتقای اختیاری و پولی در اختیار کاربران علاقه‌مند قرار می‌گیرد؛ نسخه رایگان و معمول اینستاگرام کماکان بدون تغییر باقی خواهد ماند. این اشتراک «پیشرفته» مجموعه مفصلی از قابلیت‌های جدید را در سه محور تعامل، آمار و شخصی‌سازی ارائه می‌دهد که از شاخص‌ترین آن‌ها می‌توان به تمدید مدت‌زمان ماندگاری روایتگر تا ۴۸ ساعت، امکان «پیش‌نمایش روایتگرها» بدون ثبت بازدید، ردیابی تعداد دفعات بازبینی (Rewatch) روایتگر توسط دیگران و ابزار جستجوی مستقیم یک شخص خاص در میان بینندگان روایتگر اشاره کرد. علاوه بر این، کاربران نسخه پلاس می‌توانند تا ۶ محتوا را در صفحه خود سنجاق کنند، فونت بخش «درباره من» و آیکون برنامه خود را تغییر دهند و حتی محتوای جدید را بدون ایجاد مزاحمت و فرستادن به صفحه خبرخوان اصلی دوستان، مستقیما روی صفحه خود بارگزاری نمایند. براساس این گزارش، این سرویس فرآیند عرضه جهانی خود را از امروز آغاز کرده و از بخش تنظیمات و پرداخت ماهیانه ۳.۹۹ دلار قابل فعال‌سازی است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13607
+
+<div align="center">
+  <a href="telegram/content/WithYashar_13607_1780703644.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پشتک نیم وارو پهپاد های شناسایی اسمون بندر عباس همین الان
+@withyashar
+</div>
+
+## pm_afshaa — post 92352
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92352_1780703646.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سنتکام: لحظاتی پیش نیروهای سنتکام چهار پهپاد تهاجمی ایرانی رو که به سمت تنگه هرمز پرتاب شده بودن سرنگون کردن. پهپادهای تهاجمی یک تهدید فوری برای ترافیک دریایی منطقه است ‌و نیروهای آمریکایی متعاقبا به سایت‌های رادار نظارتی ساحلی ایران در گوروک و جزیره قشم…
+</div>
+
+## IranIntlTV — post 340739
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340739_1780703647.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ستاد فرماندهی مرکزی آمریکا، سنتکام، اعلام کرد نیروهایش چهار پهپاد انتحاری ایران را که به سمت تنگه هرمز پرتاب شده بودند، سرنگون کردند و در ادامه، برای دفاع در برابر حملات بیشتر، سایت‌های رادار نظارتی ساحلی جمهوری اسلامی در جزیره قشم و گروک در سیریک را هدف قرار دادند.
+سنتکام بر آمادگی خود برای پاسخ به «تجاوز غیرموجه ایران» در چارچوب دفاع از خود تاکید کرد.
+
+https://iranintl.com/202606054048
+</div>
+
+## Persian_Trend_Official — post 15780
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15780_1780703648.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شنیده شدن صدای جنگنده احتمالا امریکایی در نزدیکی شهر بصره عراق
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15779
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15779_1780703650.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پرواز چهار تانکر سوخت رسان امریکایی برفراز خلیج‌ فارس و دریای عمان
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+---
 📅 بروزرسانی: 1405/03/16 03:13
 ---
 

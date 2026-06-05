@@ -7,6 +7,155 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/15 21:53
+---
+
+## VahidOOnLine — post 243843
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243843_1780683795.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ اسکندر مومنی، وزیر کشور جمهوری اسلامی ایران، روز جمعه ۱۵ خرداد، در حاشیه اجلاس وزیران کشور عضو سازمان همکاری شانگهای در بیشکک قرقیزستان، با ولادیمیر کولوکولتسف، وزیر داخلی فدراسیون روسیه، دیدار و گفتگو کرد.
+
+در این دیدار، مومنی از مواضع پوتین و دولت روسیه در محکومیت جنگ و همچنین سخنان کولوکولتسف در نشست شانگهای قدردانی نمود و از همتای روسی خود برای سفر به تهران دعوت کرد. وزیر داخلی روسیه نیز با انتقاد از استاندارد‌های دوگانه غرب در قبال دو کشور، آمادگی مسکو را برای تبادل تجربیات و همکاری در حوزه‌های مبارزه با تروریسم و مواد مخدر، به‌ویژه مواد مخدر صنعتی، اعلام کرد.
+
+دو طرف همچنین برای بررسی نهایی و امضای پیش‌نویس اسناد همکاری‌های تبادل‌شده در اولین فرصت، اعلام آمادگی کردند. مومنی که بعدازظهر پنج‌شنبه در صدر هیئتی شامل مقامات وزارت کشور و معاون مدیرکل اوراسیای وزارت خارجه وارد قرقیزستان شده است، در این اجلاس به رایزنی‌های دیپلماتیک خود ادامه می‌دهد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243842
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_243842_1780683796.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بر اساس گزارش‌های رسیده به ایران‌اینترنشنال، سعید سالاری، ۳۲ ساله، ۱۹ دی‌ماه در جریان انقلاب ملی ایران در رباط‌کریم، با اصابت سه گلوله نیروهای حکومتی کشته شد.
+بنا بر این گزارش، پیکر او تا صبح سه‌شنبه ۲۳ دی به خانواده تحویل داده نشد و به آنان گفته شد یا اعلام کنند که او عضو بسیج بوده، یا برای تحویل پیکرش ۸۰۰ میلیون تومان پرداخت کنند. همچنین از خانواده خواسته شد برای تحویل پیکر، شیرینی هم تهیه کنند.
+بر اساس این گزارش، خانواده سعید سالاری بارها تهدید شده‌اند و از آنان خواسته شده است درباره کشته شدن او و جزئیات این پرونده اطلاع‌رسانی نکنند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13566
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارشگر: بازی که شما می‌روید ببینید ارزان‌ترین قیمت بلیت ۸۰۰۰ دلار است. مردم عادی آمریکا نمی‌توانند بلیت این رویدادهای ورزشی را بخرند.
+
+ترامپ: می‌توانید آن را از تلویزیون تماشا کنید. تماشای آن از تلویزیون تا حدی رایگان است.
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342654
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342654_1780683798.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH: President Trump boards Air Force One as he makes his way to Wisconsin, where farmers are expected to take center stage as he talks about his economic agenda.
+
+The president departed Joint Base Andrews and is en route to Eau Claire for a roundtable focused on issues impacting the agricultural community.
+</div>
+
+## IranIntlTV — post 340702
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340702_1780683800.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مشاور ارشد اقتصادی دونالد ترامپ، رییس‌جمهوری آمریکا، با آغاز فصل سفرهای تابستانی، درباره قیمت‌های بالای سوخت با لحنی مثبت صحبت کرد و گفت که پس از امضای توافق با ایران و بازگشایی تنگه هرمز، قیمت‌ها کاهش خواهند یافت.
+
+به گزارش سی‌بی‌اس نیوز، کوین هَسِت، مدیر شورای ملی اقتصاد، روز جمعه به خبرنگاران گفت: «موضوع قیمت بنزین یک مسئله جدی است. ما درک می‌کنیم که مردم از این بابت تحت فشار هستند و مجموعه‌ای از اقدامات را برای کاهش اختلالات انجام داده‌ایم و انتظار داریم این وضعیت موقتی باشد.»
+https://iranintl.com/202606051040
+</div>
+
+## IranIntlTV — post 340701
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340701_1780683801.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بر اساس گزارش‌های رسیده به ایران‌اینترنشنال، سعید سالاری، ۳۲ ساله، ۱۹ دی‌ماه در جریان انقلاب ملی ایران در رباط‌کریم، با اصابت سه گلوله نیروهای حکومتی کشته شد.
+بنا بر این گزارش، پیکر او تا صبح سه‌شنبه ۲۳ دی به خانواده تحویل داده نشد و به آنان گفته شد یا اعلام کنند که او عضو بسیج بوده، یا برای تحویل پیکرش ۸۰۰ میلیون تومان پرداخت کنند. همچنین از خانواده خواسته شد برای تحویل پیکر، شیرینی هم تهیه کنند.
+بر اساس این گزارش، خانواده سعید سالاری بارها تهدید شده‌اند و از آنان خواسته شده است درباره کشته شدن او و جزئیات این پرونده اطلاع‌رسانی نکنند.
+</div>
+
+## IranIntlTV — post 340700
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340700_1780683803.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آیا واقعا باید حرف‌های ترامپ رو جدی گرفت؟ یا پشت پرده بین او و بی‌بی و قالیباف داستان دیگری در جریان است؟
+@iranintltv
+</div>
+
+## FarsiVOA — post 219692
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علی جوانمردی: آمریکا چگونە مسالە جمهوری اسلامی را حل می‌کند، توافق یا تقابل؟
+</div>
+
+## RadioFarda — post 157939
+
+<div align="center">
+  <a href="https://t.me/radiofarda/157939" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📻بشنوید: ایستگاه ۱۹ با رادیوفردا، ۱۵ خرداد ۱۴۰۵
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 21442
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21442_1780683806.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وضعیت کسایی که ارز خریدن :
+
+@IranianMinds
+</div>
+
+## idfinfarsi — post 11781
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‼️ بستن چرخه عملیاتی: نیروهای یگان گشتی گیوعاتی دو تروریست را که در درگیری صبح امروز نقش داشتند، به هلاکت رساندند
+
+⭕️امروز (جمعه)، رزمندگان یگان گشتی گیوعاتی در منطقه زوتر الشرکیه در جنوب لبنان با تروریست‌ها درگیر شدند. در جریان این درگیری، یک افسر ارتش اسرائیل به‌شدت زخمی شد و فرمانده یگان گشتی گیوعاتی به‌طور سطحی آسیب دید.
+
+⭕️بلافاصله پس از درگیری، نیروهای یگان گشتی گیوعاتی عملیات جست‌وجو در منطقه را آغاز کرده، دو تروریست مرتبط با این رویداد را شناسایی و به هلاکت رساندند. همزمان، نیروها زیرساخت‌های تروریستی دیگری را در منطقه مورد حمله قرار دادند.
+</div>
+
+## Hranews — post 113410
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارشی از مطالبات معوقه کارکنان اورژانس ایرانشهر❗️❗️❗️❗️❗️– کارکنان اورژانس پیش‌بیمارستانی و فوریت‌های پزشکی دانشگاه علوم پزشکی ایرانشهر از پرداخت نشدن مطالبات خود، از جمله هزینه لباس کار، حق غذا، کمک‌هزینه مسکن، کارانه، اضافه‌کار و حق مأموریت خبر دادند.ادامه مطلب↘️ @hranews_bot تماس ✉️ -  @Hranews  کانال هرانا 🆑
+</div>
+
+## alonews — post 125378
+
+<div align="center">
+  <a href="telegram/content/alonews_125378_1780683807.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ : کلی از نفت با کمک آمریکا از تنگه هرمز خارج شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/15 21:43
 ---
 

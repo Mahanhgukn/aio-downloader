@@ -7,6 +7,104 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/15 15:53
+---
+
+## WithYashar — post 13550
+
+<div align="center">
+  <a href="telegram/content/WithYashar_13550_1780662195.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نیروی دریایی ایران اعلام کرد که به دو ناوشکن آمریکایی (DDG-103 و DDG-87) در دریای عمان شلیک هشدار انجام داده است موشک‌های قادر و پهپادهای شهید دانایی.
+
+هر دو ناوشکن به سمت اقیانوس هند عقب‌نشینی کردند.
+ایران همچنین ادعا می‌کند که ناو حمله آبی-خاکی یو‌اس‌اس تریپولی مجبور به ترک منطقه شده است.
+هشدار نیروی دریایی ایران: اگر کشتی‌های آمریکایی بازگردند، از موشک‌های برد بلندتری استفاده خواهد شد.🚨
+@withyashar
+</div>
+
+## WithYashar — post 13549
+
+<div align="center">
+  <img src="telegram/content/WithYashar_13549_1780662197.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+️حمام خون در بازار کریپتو!
+
+بیش از ۶۳۵ میلیارد دلار تنها در کمتر از ۵ روز از ارزش کل بازار رمزارزها محو شده است.
+@withyashar
+</div>
+
+## mwarmonitor — post 10171
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴شب گذشته، نیروهای ایالات متحده یک عملیات رهگیری دریایی و بازرسی بر اساس حق بازدید را علیه کشتی بدون تابعیت و تحریم‌شده MT DAVINA که در اقیانوس هند و در محدوده مسئولیت فرماندهی هند–آرام آمریکا (INDOPACOM) قرار داشت، انجام دادند. 🔸ما به اجرای نظارت و اعمال…
+</div>
+
+## FoxNewsTwitter — post 342642
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342642_1780662198.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+President Trump scored a major win overnight as the Senate voted to pass his $70 billion ICE and Border Patrol funding package.
+
+The funding covers ICE and Border Patrol’s budgets for the next three and a half years, closing the standoff that began during the longest shutdown in U.S. history.
+
+Senator Lisa Murkowski was the only Republican to vote against the measure, which now heads to the House, where lawmakers will decide whether to send it to President Trump's desk.
+</div>
+
+## IranianMinds — post 21421
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21421_1780662199.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴حملات هوایی ارتش اسرائیل به منطقه جبل الصافی در جنوب لبنان.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21420
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ثابتی نماینده مجلس:
+
+آمریکا بعد از جام‌جهانی، سنگین‌تر به ایران حمله خواهد کرد. باید پیش‌دستی کنیم و پتروشیمی‌ها و زیرساخت‌های منطقه را بزنیم.
+
+@IranianMinds
+</div>
+
+## alonews — post 125297
+
+<div align="center">
+  <a href="telegram/content/alonews_125297_1780662201.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سنتکام : کشتی مرتبط با ایران MT Davina رو تو دریا نگه داشتیم و رفت داخلش برای بازرسی
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125296
+
+<div align="center">
+  <a href="telegram/content/alonews_125296_1780662201.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈بیش از ۶۳۵ میلیارد دلار تنها در کمتر از ۵ روز از ارزش کل بازار رمزارزها محو شده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/15 15:42
 ---
 

@@ -7,6 +7,180 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/15 21:13
+---
+
+## VahidOOnLine — post 243839
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243839_1780681383.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️بر اساس گزارش‌های دریافتی از بازارهای مالی، قیمت جهانی طلا با عقب‌نشینی ۲۰ درصدی از اوج تاریخی خود در ژانویه گذشته (بهمن‌ماه ۱۴۰۴)، روند نزولی خود را حفظ کرده است. داده‌های رسمی نشان می‌دهد قیمت هر اونس طلا در بازار جهانی به ۴ هزار و ۴۶۴ دلار کاهش یافته است. کارشناسان علت اصلی آن را کاهش چشمگیر تقاضای بانک‌های مرکزی و همچنین افت خرید در بازارهای بزرگی چون چین و هند می‌دانند.
+به گزارش رویترز و شورای جهانی طلا، تقاضای کل برای خرید طلا در بازارهای جهانی نسبت به مدت مشابه سال گذشته ۹ درصد کاهش یافته است. در حال حاضر، به دلیل کاهش خرید مصرف‌کنندگان، قیمت طلا بیش از هر زمان دیگری به تحولات ژئوپلیتیک منطقه و به‌ویژه جنگ آمریکا علیه جمهوری اسلامی وابسته شده است. رفت‌وآمد قیمت طلا در حال حاضر با نوسانات نرخ بهره در آمریکا و قیمت نفت تنظیم می‌شود.
+هم‌زمان با تحولات جهانی، قیمت‌ها در بازار داخلی روز جمعه ۱۵ خردادماه ۱۴۰۵ به این شرح اعلام شد: هر گرم طلای ۱۸ عیار ۱۸ میلیون و ۲۲۵ هزار تومان و طلای ۲۴ عیار ۲۴ میلیون و ۳۷۰ هزار تومان دادوستد شد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## mwarmonitor — post 10183
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📌رئیس ستاد کل ارتش اسرائیل در دیدار با رؤسای شهرک‌های شمالی اعلام کرد:
+«ما طرح‌هایی را برای گسترش عملیات‌های نظامی‌مان در لبنان به سطح سیاسی ارائه داده‌ایم.»
+
+@mwarmonitor
+</div>
+
+## VahidOnline — post 75952
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_75952_1780681383.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+«مسعود نبی‌دوست» خبرنگار خراسانی فعال در حوزه میراث فرهنگی با انتشار تصاویری خبر داد که کلیسای تاریخی انجیلی مشهد، از آثار ثبت‌شده در فهرست میراث ملی ایران، بامداد پنج‌شنبه ۱۴خردادماه۱۴۰۵ به‌طور کامل تخریب شده است. 
+
+رسانه‌های ایران از جمله «جماران» نوشته‌اند که تخریب این کلیسا «توسط عوامل ناشناس» و با استفاده از بولدوزر صورت گرفته است. 
+
+فعالان میراث فرهنگی می‌گویند این اقدام در سایه غفلت مسوولان میراث فرهنگی رخ داده، عملیاتی که حدود دو ساعت طول کشیده و صبح روز ۱۴خرداد نیز با بستن اطراف این کلیسا از ورود افراد و خبرنگاران جهت عکاسی ممانعت به عمل آمده است.
+
+انگیزه، هویت افراد یا نهاد تخریب‌ کننده، مشخص نیست اما این نخستین بار نیست که یک بنای ثبت ملی شده تاریخی در ایران بدون اینکه نهادی مسوولیت آن را بپذیرد شبانه تخریب می‌شود.
+
+کلیسای تاریخی انجیلی مربوط به دورهٔ پهلوی اول است و در خیابان جنت، کوچهٔ گلستان شهر مشهد واقع شده است. این اثر در تاریخ ۲۵ مرداد ۱۳۸۴ با شمارهٔ ثبت ۱۳۳۷۵ به‌عنوان یکی از آثار ملی ایران به ثبت رسیده‌ است.
+
+پیش از این بارها بناهایی همچون کلیساها، آرامگاه‌ها و بناهای متعلق به اقلیت‌های مذهبی از جمله بهاییان، مسیحیان و یهودیان تخریب‎ شده‌اند.
+@VahidHeadline
+
+📡 @VahidOnline
+</div>
+
+## Shin_Persian — post 6525
+
+<div align="center">
+  <a href="telegram/content/Shin_Persian_6525_1780681384.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Fri, 05 Jun 2026 17:40:57 UTC
+
+Karaj ,Alborz Province, #Iran
+
+فارسی
+
+کرج، استان البرز، #Iran
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6524
+
+<div align="center">
+  <a href="telegram/content/Shin_Persian_6524_1780681385.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Fri, 05 Jun 2026 17:38:58 UTC
+
+Karaj, Alborz Province, #Iran
+
+فارسی
+
+کرج، استان البرز، #Iran_
+
+𝕏 · @shin_persian
+</div>
+
+## IranianMinds — post 21434
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یه آنلاین شاپ اومده این پست بالارو گذاشته برای ادامه فعالیتش و حالا کامنتای پستشو ببینید 💔
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 282928
+
+<div align="center">
+  <a href="https://t.me/bbcpersian/282928" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پادکست برنامه رادیویی جام جهان‌نما، جمعه ۱۵ خرداد ۱۴۰۵
+
+این برنامه رادیویی را می‌توانید هر شب ساعت ۲۰ به وقت ایران، روی موج متوسط ۷۰۲ کیلوهرتز و موج کوتاه ۹۴۶۵ کیلوهرتز بشنوید.
+تکرار برنامه را هم می‌توانید ساعت ۲۱:۳۰ روی موج متوسط ۷۰۲ کیلوهرتز و موج کوتاه ۵۳۹۵ کیلوهرتز گوش کنید.
+@bbcpersian
+</div>
+
+## Dirty_Kids — post 391076
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391076_1780681387.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تنها عکسم با اون دوستم که ده ساله می‌شناسمش:
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391075
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ژنتیک واقعا جالبه:
+
+فرزند چشم روشن، احتمال ۵۰ درصد چشم مادرش روشنه.
+فرزند موی فر، احتمال ۷۵ درصد موی مامانش فره.
+فرزند تیره پوست، احتمال ۸۰ درصد پوست مادرش تیره‌اس.
+فرزند چپ و عرزشی، احتمال ۱۰۰ درصد مادرش جندس.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391074
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391074_1780681387.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 این کلیپ برای پسرا حکم 10 جلسه تراپی داره و اونارو به اوج آرامش می‌رسونه 🌱
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391073
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391073_1780681388.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد عزیزمون‌ هم از این حجم حماقت شیعه شوکه شده! باور داشته حتما، ولی عمق فاجعه رو نمیدونسته!
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 125368
+
+<div align="center">
+  <a href="telegram/content/alonews_125368_1780681389.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 فرمانده سنتکام، دریاسالار برد کوپر، در سفر اخیر خود به خاورمیانه با رهبران ارشد بحرین، قطر، کویت و اردن دیدار کرد.
+
+
+🔴 او همچنین با پرسنل مستقر آمریکا ملاقات کرد، اعضای برجسته خدمات را تقدیر نمود و نظارت بر انتقال رهبری در ارتش مرکزی آمریکا را بر عهده داشت.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/15 21:03
 ---
 

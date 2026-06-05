@@ -7,6 +7,107 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/15 20:53
+---
+
+## VahidOOnLine — post 243838
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_243838_1780680198.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در پی راه‌اندازی کارزار مردمی رشت از سوی ایران‌اینترنشنال برای کشف ابعاد کشتار ۱۸ و ۱۹ دی ۱۴۰۴ در این شهر و هویت جاویدنامان، گزارش‌ها و تصاویری به دست ما رسیده که حاکی از حمل پیکرهای زیادی از معترضان و مجروحان به باغ‌رضوان رشت در این دو شب است.
+﻿فرنوش فرجی، عضو تحریریه ایران‌اینترنشنال گزارش می‌دهد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243837
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243837_1780680201.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ محسن رضایی، فرمانده سابق سپاه و مشاور نظامی مجتبی خامنه‌ای، روز جمعه ۱۵ خرداد در گفتگویی اختصاصی با شبکه سی‌ان‌ان اعلام کرد که دستیابی به توافق صلح احتمالی میان ایالات متحده و جمهوری اسلامی، به موافقت دولت ترامپ با آزادسازی ۲۴ میلیارد دلار از دارایی‌های مسدودشده ایران بستگی دارد. او هشدار داد که در صورت از سرگیری درگیری‌ها، آمریکا «وارد دالانی تاریک» خواهد شد.
+
+رضایی در این مصاحبه که در تهران انجام شد، گفت: «مذاکرات به بن‌بست رسیده و دونالد ترامپ باید این بن‌بست را بشکند؛ اکنون توپ در زمین ترامپ است.»
+
+گزارش‌ها حاکی از آن است که جمهوری اسلامی خواستار آزادسازی فوری ۱۲ میلیارد دلار از این صندوق‌ها به محض امضای توافقنامه موقت و ۱۲ میلیارد دلار دیگر در مراحل بعدی شده است. در مقابل، مقامات آمریکایی نگرانند که آزادسازی اموال در این مرحله، یکی از اهرم‌های فشار کلیدی واشنگتن بر تهران را از بین ببرد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## IranIntlTV — post 340697
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340697_1780680202.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در پی راه‌اندازی کارزار مردمی رشت از سوی ایران‌اینترنشنال برای کشف ابعاد کشتار ۱۸ و ۱۹ دی ۱۴۰۴ در این شهر و هویت جاویدنامان، گزارش‌ها و تصاویری به دست ما رسیده که حاکی از حمل پیکرهای زیادی از معترضان و مجروحان به باغ‌رضوان رشت در این دو شب است.
+﻿فرنوش فرجی، عضو تحریریه ایران‌اینترنشنال گزارش می‌دهد.
+</div>
+
+## FarsiVOA — post 219685
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+زلنسکی خواستار مذاکره مستقیم شد؛ پوتین بر تداوم جنگ و طرح صلح ترامپ تأکید کرد
+</div>
+
+## Persian_Trend_Official — post 15769
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15769_1780680205.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جروزالم پست: منابع اطلاعاتی اسرائیل معاون ترامپ، جی‌دی ونس را متهم می‌کنند که نقشه موساد برای استفاده از نیروهای کرد علیه ایران را مستقیماً به اردوغان لو داده است، که سپس اردوغان به ترامپ فشار آورد تا آن را لغو کند.
+
+با توجه به خط قرمز اردوغان که هیچ نیروی نظامی کردی در نزدیکی مرزهای ترکیه نباشد، ترامپ این عملیات را وتو کرد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 21433
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21433_1780680206.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در پی راه‌اندازی کارزار مردمی رشت از سوی ایران‌اینترنشنال برای کشف ابعاد کشتار ۱۸ و ۱۹ دی ۱۴۰۴ در این شهر و هویت جاویدنامان، گزارش‌ها و تصاویری به دست ما رسیده که حاکی از حمل پیکرهای زیادی از معترضان و مجروحان به باغ‌رضوان رشت در این دو شب است.
+﻿فرنوش فرجی، عضو تحریریه ایران‌اینترنشنال گزارش می‌دهد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21432
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21432_1780680209.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بی ارزشترین بازیکن جام جهانی هم این خایمال شجاع خلیل زاده است.
+
+@IranianMinds
+</div>
+
+## alonews — post 125365
+
+<div align="center">
+  <a href="telegram/content/alonews_125365_1780680210.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈العربیه: بیت‌کوین برای اولین بار در دو سال گذشته به زیر ۶۰,۰۰۰ دلار سقوط کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/15 20:43
 ---
 

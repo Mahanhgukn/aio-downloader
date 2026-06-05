@@ -7,6 +7,269 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/15 16:53
+---
+
+## VahidOOnLine — post 243796
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243796_1780665823.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمد جمالیان، عضو کمیسیون بهداشت مجلس گفت: «در بسیاری از استان‌ها، مردم به صورت غیرقانونی اقدام به کشت خشخاش کرده‌اند و بر اساس گزارش‌هایی که دریافت شده، میزان این کشت بسیار بالا است. مثلا در یک استانی قبلا برنج می‌کاشتند اما امروز به کاشت خشخاش روی آوردند.»
+
+او افزود: «کشت غیرقانونی می‌تواند هم منجر به ترویج مصرف تریاک شود و هم با توجه به اینکه این محصولات خالص‌تر هستند، قطعا شدت اعتیاد را در میان مردم، به‌ویژه جوانان ما افزایش دهد.»
+
+این نماینده مجلس ادامه داد: «قانون کشور ما حتی برای مصارف درمانی نیز چنین مجوزی صادر نکرده است.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13553
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رئیس‌جمهور لبنان، ژوزف عون، در مصاحبه‌ای با سی‌ان‌ان ایران را متهم کرد که در رویارویی با آمریکا و اسرائیل از کشور او به‌عنوان یک برگ چانه‌زنی استفاده می‌کند و گفت: «این کشور، کشور شما نیست.»
+عون همچنین افزود که مردم لبنان از جنگ میان اسرائیل و حزب‌الله خسته شده‌اند.
+@withyashar
+</div>
+
+## IranIntlTV — post 340658
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340658_1780665824.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمد جمالیان، عضو کمیسیون بهداشت مجلس گفت: «در بسیاری از استان‌ها، مردم به صورت غیرقانونی اقدام به کشت خشخاش کرده‌اند و بر اساس گزارش‌هایی که دریافت شده، میزان این کشت بسیار بالا است. مثلا در یک استانی قبلا برنج می‌کاشتند اما امروز به کاشت خشخاش روی آوردند.»
+
+او افزود: «کشت غیرقانونی می‌تواند هم منجر به ترویج مصرف تریاک شود و هم با توجه به اینکه این محصولات خالص‌تر هستند، قطعا شدت اعتیاد را در میان مردم، به‌ویژه جوانان ما افزایش دهد.»
+
+این نماینده مجلس ادامه داد: «قانون کشور ما حتی برای مصارف درمانی نیز چنین مجوزی صادر نکرده است.»
+https://iranintl.com/202606057983
+</div>
+
+## Shin_Persian — post 6519
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6519_1780665825.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔁 Quoting above tweet:
+Shin ✓ @hey_itsmyturn
+Fri, 05 Jun 2026 13:17:28 UTC
+
+Following Iranian claims that warning shots were fired at U.S. warships in the Gulf of Oman, U.S. Central Command says the reports are false and no such attack occurred.
+
+Source: @CENTCOM
+https://x.com/CENTCOM/status/2062886477105623083
+
+فارسی
+
+در پی ادعاهای ایران مبنی بر شلیک تیرهای هشدار به سمت ناوهای جنگی ایالات متحده در دریای عمان، فرماندهی مرکزی ایالات متحده (سنتکام) اعلام کرد که این گزارش‌ها کذب بوده و چنین حمله‌ای رخ نداده است.
+
+منبع: @CENTCOM
+https://x.com/CENTCOM/status/2062886477105623083
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6518
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6518_1780665825.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet: U.S. Central Command ✓ @CENTCOM Fri, 05 Jun 2026 13:17:17 UTC 🚫 CLAIM: Iran claims it fired warning shots at U.S. warships in the Gulf of Oman, forcing American vessels to “retreat” toward the Indian Ocean. FALSE. ✅TRUTH: Iranian forces…
+</div>
+
+## Shin_Persian — post 6517
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+U.S. Central Command ✓ @CENTCOM
+Fri, 05 Jun 2026 13:17:17 UTC
+
+🚫 CLAIM: Iran claims it fired warning shots at U.S. warships in the Gulf of Oman, forcing American vessels to “retreat” toward the Indian Ocean. FALSE.
+
+✅TRUTH: Iranian forces did NOT attack or fire at U.S. Navy warships. Doing so would be a gross violation of the ceasefire.
+
+↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
+
+فارسی
+
+🚫 ادعا: ایران ادعا می‌کند که به سمت ناوهای جنگی ایالات متحده در دریای عمان تیراندازی هشدار انجام داده و شناورهای آمریکایی را مجبور به «عقب‌نشینی» به سمت اقیانوس هند کرده است. نادرست.
+
+✅ حقیقت: نیروهای ایرانی به سمت ناوهای جنگی نیروی دریایی ایالات متحده حمله یا شلیک نکرده‌اند. انجام چنین کاری نقض فاحش آتش‌بس خواهد بود.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6516
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6516_1780665826.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Fri, 05 Jun 2026 13:16:31 UTC
+
+Following Iranian claims that it fired warning shots at U.S. warships in the Gulf of Oman, U.S. Central Command says the reports are false and no such attack occurred.
+
+Source: @CENTCOM
+https://x.com/CENTCOM/status/2062886236797198718
+
+فارسی
+
+در پی ادعاهای ایران مبنی بر شلیک تیرهای هشدار به سمت ناوهای جنگی ایالات متحده در دریای عمان، فرماندهی مرکزی ایالات متحده (سنتکام/CENTCOM) اعلام کرد که این گزارش‌ها کذب بوده و چنین حمله‌ای رخ نداده است.
+
+منبع: @CENTCOM
+https://x.com/CENTCOM/status/2062886236797198718
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6515
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6515_1780665827.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔁 Quoting above tweet:
+Shin ✓ @hey_itsmyturn
+Fri, 05 Jun 2026 13:16:10 UTC
+
+Following Iranian claims that warning shots were fired at U.S. warships in the Gulf of Oman, U.S. Central Command says the reports are false and no such attack occurred.
+
+Source: @CENTCOM
+https://x.com/CENTCOM/status/2062886142500909326
+
+فارسی
+
+در پی ادعاهای ایران مبنی بر شلیک تیرهای هشدار به سمت ناوهای جنگی ایالات متحده در دریای عمان، ستاد فرماندهی مرکزی ایالات متحده (سنتکام/CENTCOM) اعلام کرد که این گزارش‌ها کذب بوده و چنین حمله‌ای رخ نداده است.
+
+منبع: @CENTCOM
+https://x.com/CENTCOM/status/2062886142500909326
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6514
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6514_1780665827.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet: U.S. Central Command ✓ @CENTCOM Fri, 05 Jun 2026 13:15:57 UTC 🚫 CLAIM: Iran claim it fired warning shots at U.S. warships in the Gulf of Oman, forcing American vessels to “retreat” toward the Indian Ocean. FALSE. ✅ TRUTH: Iranian forces…
+</div>
+
+## Shin_Persian — post 6513
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+U.S. Central Command ✓ @CENTCOM
+Fri, 05 Jun 2026 13:15:57 UTC
+
+🚫 CLAIM: Iran claim it fired warning shots at U.S. warships in the Gulf of Oman, forcing American vessels to “retreat” toward the Indian Ocean. FALSE.
+
+✅ TRUTH: Iranian forces did NOT attack or fire at U.S. Navy warships. Doing so would be a gross violation of the ceasefire.
+
+↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
+
+فارسی
+
+🚫 ادعا: ایران ادعا می‌کند که به سمت ناوهای جنگی ایالات متحده در دریای عمان شلیک‌های هشدار انجام داده و شناورهای آمریکایی را مجبور به «عقب‌نشینی» به سمت اقیانوس هند کرده است. نادرست.
+
+✅ حقیقت: نیروهای ایرانی به سمت ناوهای جنگی نیروی دریایی ایالات متحده حمله یا شلیک نکرده‌اند. انجام چنین کاری نقض فاحش آتش‌بس خواهد بود.
+
+𝕏 · @shin_persian
+</div>
+
+## Hranews — post 113400
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تخریب کلیسای تاریخی انجیلی مشهد توسط عوامل ناشناس
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– کلیسای تاریخی انجیلی مشهد، از آثار ثبت‌شده در فهرست میراث ملی ایران، ساعت ۲ الی ۴ بامداد پنج‌شنبه ۱۴ خردادماه به‌طور کامل تخریب شد. جماران اعلام کرد که این بنا توسط عوامل ناشناس و با استفاده از بولدوزر تخریب شده و همزمان از حضور شهروندان و خبرنگاران در محل جلوگیری به عمل آمده است.
+
+ادامه مطلب
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## alonews — post 125320
+
+<div align="center">
+  <a href="telegram/content/alonews_125320_1780665828.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فرماندهی مرکزی ایالات متحده:
+نیروهای ایرانی به کشتی‌های جنگی نیروی دریایی آمریکا حمله نکردند و به آنها شلیک نکردند.
+
+
+🔴انجام چنین کاری نقض آشکار آتش‌بس خواهد بود. نیروهای آمریکایی همچنان آزادانه در آب‌های منطقه‌ای فعالیت می‌کنند و در عین حال محاصره جاری علیه ایران را به طور کامل اجرا می‌کنند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125319
+
+<div align="center">
+  <a href="telegram/content/alonews_125319_1780665828.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈گروسی به الجزیره: ما بیش از ۸ ماه است که نتوانسته‌ایم ذخایر اورانیوم اعلام شده ایران را تأیید کنیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125318
+
+<div align="center">
+  <a href="telegram/content/alonews_125318_1780665829.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ماجرای پرواز جنگنده‌ها در ارتفاع پایین بر فراز اصفهان چه بود؟
+
+
+
+🔴 دقایقی قبل پرواز چند فروند جنگنده در ارتفاع نسبتاً پایین بر فراز برخی مناطق شهر اصفهان مشاهده شد که صدای آن نیز توسط شهروندان شنیده شد.
+
+
+🔴 پیگیری‌های خبرنگار مهر نشان می دهد، این جنگنده‌ها متعلق به نیروهای مسلح کشورمان بوده و پرواز آنها در چارچوب مأموریت‌های عملیاتی یا تمرینی انجام شده است.
+
+
+🔴 گزارش‌ها حاکی است این پروازها در ادامه فعالیت‌های معمول دفاعی و امنیتی صورت گرفته و جای نگرانی برای شهروندان وجود ندارد.
+
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125315
+
+<div align="center">
+  <a href="telegram/content/alonews_125315_1780665829.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈جنگنده‌های اسرائیلی امروز نیز به حملات هوایی در سراسر جنوب لبنان ادامه داده‌اند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/15 16:43
 ---
 

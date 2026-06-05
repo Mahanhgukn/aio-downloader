@@ -7,6 +7,76 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/16 00:33
+---
+
+## FoxNewsTwitter — post 342662
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342662_1780693397.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH LIVE: President Trump holds agriculture roundtable in Wisconsin https://twitter.com/i/broadcasts/1yxBeeZDodEJN
+</div>
+
+## pm_afshaa — post 92337
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92337_1780693398.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وای‌نت: اسرائیل تهدید کرده در صورت حمله حزب‌الله به شهرهای شمالی این کشور، بیروت رو هدف قرار خواهد داد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92336
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92336_1780693398.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وزارت خارجه آمریکا:
+آمریکا یک شبکه پیچیده که صدها میلیون دلار گاز نفتی ایران رو به بازارهای جنوب و شرق آسیا قاچاق کرده، تحریم کرده.
+
+این شبکه از شرکت‌های پوششی در امارات و چین همراه با ناوگان سایه ایران، برای پنهان کردن منشا ایرانی سوخت و دور زدن تحریم‌های آمریکا استفاده کرده، و همچنین یک صرافی ایرانی و گردانندگان آن تحریم شدن.
+
+
+💧Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## Dirty_Kids — post 391088
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 صدف طاهریان، مدل معروفِ خارج‌نشین، امروز با یه استوری رسما اعلام کرد که به آغوش وطن بازگشته؛
+
+قبلش هم هرچی عکسه لختی داشت، از پیجش پاک کرد ولی خب من هنوز پاک نکردم...
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391087
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391087_1780693399.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پخش امشب برنامه «خیابان انقلاب» به خاطر این حرف‌ها لغو شد
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/03/16 00:23
 ---
 

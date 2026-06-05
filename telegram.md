@@ -7,6 +7,68 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/15 10:22
+---
+
+## VahidOOnLine — post 243761
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_243761_1780642356.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند ویدیویی به ایران اینترنشنال ارسال کرده که شعارنویسی «جاوید شاه پاینده ایران» را در نیشابور در روز ۱۴ خردادماه نشان می‌دهد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243760
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243760_1780642357.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️فعالیت‌های پایانه نفتی «مینا الفحل» عمان پس از وقفه‌ای کوتاه ناشی از وقوع انفجار ماه در نزدیکی تأسیسات بارگیری نفت، صبح روز جمعه ۱۵ خرداد از سر گرفته شد.
+این پایانه که مهم‌ترین مرکز صادرات نفت خام عمان به شمار می‌رود، پس از انجام بررسی‌های فنی و ایمنی بار دیگر به چرخه عملیاتی بازگشته است.
+پیش‌تر منابع آگاه اعلام کرده بودند عملیات بارگیری نفت در پایانه مینا الفحل پس از وقوع انفجاری در نزدیکی اسکله‌های شناور بارگیری متوقف شده است. برخی گزارش‌ها حاکی از آن بود که این انفجار احتمالا در پی حمله پهپادی رخ داده، هرچند مقام‌های عمانی تاکنون علت حادثه را به طور رسمی تایید نکرده‌اند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## mwarmonitor — post 10163
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_10163_1780642358.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✈️نیروی هوایی ایالات متحده (USAF)
+
+✈️بوئینگ RC-135 Rivet Joint (۱ فروند)
+AE1253 — 64-4126 — OLIVE 38
+
+✈️بوئینگ E-4B Nightwatch (۱ فروند)
+ADDEB3 — 73-1676 — TITAN 29
+
+📌یک فروند RC-135 و یک فروند E-4B صبح امروز وارد اروپا می‌شوند.
+
+🔸عملیات OLIVE 38 به‌طور مستقیم از پایگاه نیروی هوایی آفوت به مقصد پایگاه هوایی RAF Mildenhall پرواز کرده و احتمالاً مسیر خود را به سمت خانیا یونان ادامه خواهد داد.
+
+✈️هواپیما TITAN 29 حامل وزیر دفاع آمریکا، پیت هگست، به مقصد پاریس است.
+
+@mwarmonitor
+</div>
+
+## IranIntlTV — post 340609
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340609_1780642358.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند ویدیویی به ایران اینترنشنال ارسال کرده که شعارنویسی «جاوید شاه پاینده ایران» را در نیشابور در روز ۱۴ خردادماه نشان می‌دهد.
+</div>
+
+---
 📅 بروزرسانی: 1405/03/15 10:12
 ---
 

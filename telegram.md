@@ -7,6 +7,127 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/15 12:43
+---
+
+## WithYashar — post 13543
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سی‌ان‌ان: اسرائیل پرسنل نظامی و اطلاعاتی خود را به‌صورت پنهانی در طول درگیری با ایران به جمهوری آذربایجان اعزام کرده
+@withyashar
+</div>
+
+## DEJradio — post 5348
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5348_1780650786.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👑
+🔺 تجمع و حمایت ایرانیان ساکن مادرید اسپانیا از انقلاب شیر و خورشید در سالمرگ خمینی | پنج‌شنبه۱۴ خرداد
+
+#همبستگی #مادرید #اسپانیا
+@DEJradio
+</div>
+
+## IranIntlTV — post 340628
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340628_1780650789.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پس از حمله پهپادی به نیروگاه هسته‌ای براکه در امارات و مهار آتش‌سوزی ناشی از آن، نگرانی‌ها درباره امنیت تاسیسات هسته‌ای افزایش یافته است. در همین راستا، شورای حکام آژانس بین‌المللی انرژی اتمی به درخواست مصر، اردن، مراکش و عربستان سعودی جلسه‌ای اضطراری برگزار خواهد کرد.
+جزییات بیشتر با احمد صمدی، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 340627
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340627_1780650792.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهوری آمریکا، گفت دلیل اینکه ایالات متحده اورانیوم مدفون‌شده را از ایران خارج نکرد، این بود که نیروهای جمهوری اسلامی «می‌توانستند در جریان عملیات، محل استقرار نیروهای آمریکایی را شناسایی کنند». او افزود جمهوری اسلامی «همچنان تعدادی موشک در اختیار دارد و در چنین شرایطی این احتمال وجود داشت که شماری از نیروهای آمریکایی کشته شوند».
+@iranintltv
+</div>
+
+## IranIntlTV — post 340626
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340626_1780650794.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آژانس بین‌المللی انرژی اتمی حمله جمهوری اسلامی به نیروگاه هسته‌ای امارات متحده عربی را در یک نشست فوری بررسی می‌کند.
+@iranintltv
+</div>
+
+## BBCPersian — post 282912
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻اسرائیل به ساکنان سه روستا در جنوب لبنان هشدار تخیله داد
+
+ارتش اسرائیل اعلام کرده است که به سه روستا در شمال رود لیتانی واقع در جنوب لبنان حمله خواهد کرد و به ساکنان این منطقه هشدار تخلیه داده است.
+
+مقام‌های لبنان می‌گویند که در چند حمله شبانه اسرائیل به شهر جنوبی صور حداقل هفت نفر کشته شدند.
+
+اسرائیل تاکید کرده است که باوجود آتش‌بس در لبنان، به حملاتش به مواضع حزب‌الله ادامه خواهد داد.
+
+پیشتر دونالد ترامپ، رئیس‌جمهور آمریکا، گفت که در مورد احتمال پایان دادن به جنگ، مستقیما با حزب‌الله صحبت کرده است.
+
+آقای ترامپ افزود که این گروه مورد حمایت ایران، پیشنهاد‌های آمریکا برای برقراری صلح را رد نکرده است.
+
+هرچند پیش‌ از این اظهارات رئیس‌جمهور آمریکا، حزب‌الله توافق آتش‌بس دولت لبنان با اسرائیل را که مورد حمایت واشنگتن است، به‌مثابه تسلیم شدن دانسته و رد کرده بود.
+
+https://bbc.in/4oavX8B
+@BBCPersian
+</div>
+
+## Hranews — post 113396
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شهرستان هفتکل؛ یک پسر خردسال توسط پدرش به قتل رسید
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– مردی در شهرستان هفتکل، پسر خردسال خود را به قتل رساند. بر اساس بررسی‌های اولیه پلیس، علت این اقدام وضعیت روانی و رفتارهای غیرقابل کنترل ناشی از مصرف مواد مخدر توسط متهم اعلام شده است.
+
+ادامه مطلب
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## alonews — post 125251
+
+<div align="center">
+  <a href="telegram/content/alonews_125251_1780650796.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 مردم خشمگین آلبانی در حال برداشتن فنس‌های حفاظتی در جزیره آلبانی که توسط دختر و داماد ترامپ خریداری شده، هستند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125250
+
+<div align="center">
+  <a href="telegram/content/alonews_125250_1780650799.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حملات هوایی گسترده در جنوب لبنان در حال وقوع است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/15 12:33
 ---
 

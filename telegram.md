@@ -7,6 +7,45 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/15 08:12
+---
+
+## VahidOOnLine — post 243756
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243756_1780634570.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حمید رسایی، نماینده مجلس، در سخنرانی در تجمع حامیان حکومت گفت: «این جنگ حتما با پیروزی ایران تمام خواهد شد اما مشکل بعد از جنگ است. ممکن است لیبرال‌ها، غربزده‌ها، پشیمان‌ها و مسئولینی که سیستم محاسباتی آنها تغییر کرده، روی کار بیایند و وضع همین خواهد شد.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## IranIntlTV — post 340601
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340601_1780634570.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حمید رسایی، نماینده مجلس، در سخنرانی در تجمع حامیان حکومت گفت: «این جنگ حتما با پیروزی ایران تمام خواهد شد اما مشکل بعد از جنگ است. ممکن است لیبرال‌ها، غربزده‌ها، پشیمان‌ها و مسئولینی که سیستم محاسباتی آنها تغییر کرده، روی کار بیایند و وضع همین خواهد شد.»
+https://iranintl.com/202606054095
+</div>
+
+## IranianMinds — post 21402
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21402_1780634571.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ایشون سردار غلامرضا جلالی رئیس سازمان پدافند غیرعامل جمهوری اسلامی هستن
+
+فقط سردارو‌ با جرثقیل جا به جا میکنن؟
+
+@IranianMinds
+</div>
+
+---
 📅 بروزرسانی: 1405/03/15 08:03
 ---
 

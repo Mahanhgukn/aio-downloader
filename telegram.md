@@ -7,6 +7,23 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/15 04:52
+---
+
+## FoxNewsTwitter — post 342637
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342637_1780622560.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"Three of his exes paint the same picture: volatile, reckless, demeaning to women."
+
+Jesse Watters on the latest scandalous allegations against Maine Democratic Senate candidate Graham Platner. https://twitter.com/JesseBWatters/status/2062694583293632738#m
+</div>
+
+---
 📅 بروزرسانی: 1405/03/15 04:42
 ---
 

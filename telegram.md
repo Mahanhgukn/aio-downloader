@@ -7,6 +7,174 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/15 22:13
+---
+
+## VahidOOnLine — post 243848
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243848_1780684987.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نماینده قطر در نشست اضطراری شورای حکام آژانس بین‌المللی انرژی اتمی، حمله به نیروگاه هسته‌ای براکه در امارات متحده عربی را محکوم کرد و آن را نقض قوانین بین‌المللی و اصول ایمنی هسته‌ای دانست.
+
+نماینده قطر افزود گزارش شده این حمله توسط گروه‌های مسلح از عراق با استفاده از پهپاد انجام شده و تهدید جدی برای غیرنظامیان، محیط‌زیست و امنیت منطقه‌ای و بین‌المللی است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243847
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243847_1780684987.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس جمهوری ایالات متحده، در هواپیمای ایر فورس وان در مسیر ویسکانسین، به خبرنگاران گفت: «ما در مورد ایران موفقیت بزرگی داریم. آن‌ها قرار نیست به سلاح هسته‌ای دست پیدا کنند.»
+
+او اضافه کرد: «آنها در موقعیتی نیستند که سلاح هسته‌ای داشته باشند.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## mwarmonitor — post 10186
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_10186_1780684988.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 سیرک بازگشت سلبریتی‌های دوگانه‌سوز هر روز مضحک‌تر می‌شود؛ بعد از کراوات باز کردنِ «قیصر» و چفیه انداختنش در قلب تهران، حالا نوبت به صدف طاهریان رسید که بعد از سال‌ها مجاهدت در جبههٔ پورن برون مرزی و سینمای ترکیه، ناگهان خسته از غربت، تمام گذشته‌اش را با یک کلیک دیلیت کند و با استوریِ «سلام تهران» به آغوش ولایت بپرد. این پدیدهٔ جدید «پرستوی دو قابلیتی» چنان با شتاب پست‌هایش را پاک کرد که انگار این چند سال به جای انتشار عکس های خاک بر سری ، مشغول درس خارج فقه بوده است! در این میان فقط باید به حال امیر تتلو گریست؛ طفلکی بد موقعی را برای بازگشت انتخاب کرد، وگرنه با این دست‌فرمانِ عفوِ ملوکانه، الآن به جای خنکای زندان، داشت وسط میدان انقلاب بغل دست قیصر ، کنسرتِ «طاعت و توبه» اجرا می‌کرد. واقعاً ورود این «ولایت‌مدارِ نوظهور» را به فاز جدید مصلحتی، تبریک و تسلیت می‌گوییم!
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 342655
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342655_1780684988.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Federal prosecutors have expanded their case against the Southern Poverty Law Center, alleging the group hid from donors that millions of dollars were used to fund informants inside extremist organizations, including activities tied to the KKK.
+
+The SPLC denies the claims, saying its informant program helped prevent violence and saved lives, @madeleinerivera reports.
+</div>
+
+## pm_afshaa — post 92322
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92322_1780684990.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: ما در رابطه با جمهوری اسلامی موفقیت‌های بزرگی کسب کردیم. اونا در موقعیتی نیستن که سلاح هسته‌ای داشته باشن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92321
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92321_1780684991.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وزیر خزانه‌داری آمریکا:
+اقتصاد ایران در حال فروپاشیه و توان نظامیش به‌شدت تضعیف شده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92320
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92320_1780684991.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴آمریکا تحریم‌های جدیدی علیه جمهوری اسلامی اعمال کرد که شامل چهار فرد، 12 نهاد فعال در حوزه‌های کشتیرانی، نفت، گاز و پتروشیمی و همچنین شش فروند کشتی میشه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 340708
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340708_1780684992.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نماینده قطر در نشست اضطراری شورای حکام آژانس بین‌المللی انرژی اتمی، حمله به نیروگاه هسته‌ای براکه در امارات متحده عربی را محکوم کرد و آن را نقض قوانین بین‌المللی و اصول ایمنی هسته‌ای دانست.
+
+نماینده قطر افزود گزارش شده این حمله توسط گروه‌های مسلح از عراق با استفاده از پهپاد انجام شده و تهدید جدی برای غیرنظامیان، محیط‌زیست و امنیت منطقه‌ای و بین‌المللی است.
+https://iranintl.com/202606054641
+</div>
+
+## IranIntlTV — post 340707
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340707_1780684993.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانادا به همراه ۱۰ کشور دیگر در بیانیه‌ای مشترک از تلاش‌های دولت لبنان برای خلع سلاح حزب‌الله حمایت و خواستار توقف حملات این گروه به اسرائیل شد.
+
+در این بیانیه همچنین از اسرائیل خواسته شده به حاکمیت و تمامیت ارضی لبنان احترام بگذارد.
+
+گزارش مهسا مرتضوی، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 340706
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340706_1780684994.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+۲۴ با فرداد فرحزاد
+@iranintltv
+</div>
+
+## IranIntlTV — post 340705
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340705_1780684995.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس جمهوری ایالات متحده، در هواپیمای ایر فورس وان در مسیر ویسکانسین، به خبرنگاران گفت: «ما در مورد ایران موفقیت بزرگی داریم. آن‌ها قرار نیست به سلاح هسته‌ای دست پیدا کنند.»
+
+او اضافه کرد: «آنها در موقعیتی نیستند که سلاح هسته‌ای داشته باشند.»
+https://iranintl.com/202606053032
+</div>
+
+## alonews — post 125381
+
+<div align="center">
+  <a href="telegram/content/alonews_125381_1780684995.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خبرنگار : با کمک اسکورت‌های دریایی چقدر نفت از تنگه رد شده؟
+
+
+🔴ترامپ : خیلی زیاد، نمی‌خوام عدد دقیق بگم
+
+
+🔴مقدار زیادی نفت داره وارد بازار جهانی میشه که خیلی‌ها اصلاً خبر ندارن
+
+
+🔴برای همین هم قیمتش ۹۷ دلاره، نه ۳۰۰ دلار
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/15 22:04
 ---
 

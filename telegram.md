@@ -7,6 +7,118 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/15 09:32
+---
+
+## WithYashar — post 13538
+
+<div align="center">
+  <img src="telegram/content/WithYashar_13538_1780639372.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارشهای زیادی برایم فرستادید که از پدافند سنگین ۳-۴ صبح و چندین انفجار در تهران ولی مدرکی نیست… فقط چندین عکس از اینجا برایم آمده.
+آزاد راه پردیس به تهران
+@withyashar
+</div>
+
+## WithYashar — post 13537
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امشب بیداریم ، ردبولم میزنیم 🤣💥
+</div>
+
+## IranIntlTV — post 340606
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340606_1780639373.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بیژن کیان، کارشناس امنیت ملی، گفت جمهوری اسلامی باید هشدارهای دونالد ترامپ، رییس‌جمهوری آمریکا، را جدی بگیرد، زیرا از نظر ترامپ هیچ دلیلی برای عقب‌نشینی وجود ندارد.
+@iranintltv
+</div>
+
+## IranianMinds — post 21405
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21405_1780639375.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرغونم برامون آرزو شد.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 282901
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+پوستر فیلمی که تنها تصویری از کاغذدیواری یکدست زرد را نشان می‌دهد، معمولا ممکن است توجه کسی را جلب نکند.
+
+اما این یکی نه. این تصویر برای میلیون‌ها نفر فورا قابل شناسایی است و حس هراس برمی‌انگیزد.
+
+این تازه‌ترین فیلم ترسناک هالیوود است: بک‌رومز(اتاق‌‌های پشتی) و سازندگانش مخاطبان خود را به‌خوبی می‌شناسند: کسانی که بیش از ستاره‌های مشهور، هیولاها و صحنه‌های خون‌آلود، به وحشت‌های پنهان و نجواگونه گرایش دارند.
+
+«بک‌رومز» در اصل به فضاهای رهاشده و آزاردهنده‌ای اشاره دارد که انگار پایانی برایشان قابل تصور نیست. این فضا می‌تواند یک ساختمان اداری خالی، راهرو یا دالانی طولانی باشد، فضاهایی مبهم و ناآرام.
+
+این مفهوم در سال ۲۰۱۹ شکل گرفت. زمانی که از کاربران ناشناس در سایت ۴چن خواسته شد «تصاویر ناآرام‌کننده‌ای منتشر کنند که صرفا یک حس نامعمول و ناخوشایند را منتقل می‌کنند.»
+
+📸GettyImages/
+YouTube/@ KanePixels/ AFP via Getty Images/ A24/ 4chan
+
+آلبوم را ورق بزنید و از لینک ⬇️ این مطلب را در سایت بی‌بی‌سی فارسی بخوانید.
+https://bbc.in/3RMY7dH
+@BBCPersian
+
+@bbcpersian
+</div>
+
+## BBCPersian — post 282900
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴بهای نفت در بازارهای جهانی افزایش یافت
+
+قیمت نفت در بازارهای جهانی در شروع معاملات امروز بالا رفته است.
+
+این افزایش پس از آن رخ داد که حزب‌الله پیشنهاد جدید آتش‌بس در لبنان را رد کرد و گزارش شد که یک پایانه نفتی عمان نیز در پی وقوع انفجار، بارگیری نفت را متوقف کرده است.
+
+بهای نفت خام برنت به بیش از ۹۵ دلار در هر بشکه رسید. این در حالی است که قیمت نفت برنت پیش از این ۲٫۸۴ درصد کاهش یافته بود.
+
+نفت خام وست تگزاس اینترمدیت آمریکا هم پس از آنکه دیروز ۳٫۱ درصد افت داشت، امروز دوباره بالا رفته است.
+
+افزایش قیمت در هر دو شاخص نفتی در حالی رخ داده که درگیری‌ها در خاورمیانه تشدید شده، مذاکرات صلح میان آمریکا و ایران به درازا کشیده شده و تردد نفتکش‌ها در تنگه هرمز که حدود یک‌پنجم نفت جهان از آن عبور می‌کند، همچنان محدود مانده است.
+
+https://bbc.in/4oavX8B
+@BBCPersian
+</div>
+
+## alonews — post 125209
+
+<div align="center">
+  <a href="telegram/content/alonews_125209_1780639375.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈آژانس اتمی: هیچ اطلاعاتی درمورد ذخایر اورانیوم نداریم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125208
+
+<div align="center">
+  <a href="telegram/content/alonews_125208_1780639376.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خبرنگار الجزیره: دو حمله هوایی اسرائیل به حومه شهرهای نبطیه الفوقا و میفدون در جنوب لبنان
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/15 09:22
 ---
 

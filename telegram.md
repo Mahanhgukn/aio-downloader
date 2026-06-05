@@ -7,6 +7,27 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/15 05:22
+---
+
+## FoxNewsTwitter — post 342638
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342638_1780624369.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Rep. Alexandria Ocasio-Cortez declined to weigh in when asked about the growing controversy surrounding Democratic Senate candidate Graham Platner.
+
+The questions came after multiple women accused Platner of abusive behavior and raised concerns about a Totenkopf tattoo — an emblem historically associated with Nazi death camp guards.
+
+One former girlfriend alleged Platner fantasized about rape and violence, while another described what she said were troubling encounters during their relationship. Platner has denied wrongdoing and pushed back on the allegations.
+
+As scrutiny surrounding the candidate intensifies, Ocasio-Cortez repeatedly avoided directly addressing the claims when pressed by reporters.
+</div>
+
+---
 📅 بروزرسانی: 1405/03/15 05:12
 ---
 

@@ -7,6 +7,98 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/15 15:03
+---
+
+## mwarmonitor — post 10168
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴دیوید آلبرایت ؛ گزارش فصلی تازه‌منتشرشدهٔ پادمان‌های آژانس بین‌المللی انرژی اتمی درباره ایران یادآوری می‌کند که طبق قطعنامه‌های شورای امنیت سازمان ملل، ایران موظف است تمام فعالیت‌های غنی‌سازی خود را تعلیق کند. در این گزارش پادمانی، تعلیق غنی‌سازی و بازفرآوری معیار جدید آژانس برای راستی‌آزمایی است، نه محدودیت‌های برجام. گزارش به‌روشنی نشان می‌دهد که بدون اجازهٔ دسترسی معنادار از سوی ایران، آژانس قادر به راستی‌آزمایی این تعلیق نیست.
+این گزارش همچنین بار دیگر تأکید می‌کند که ایران همچنان از رسیدگی به مواد و فعالیت‌های هسته‌ای اعلام‌نشده خودداری می‌کند؛ اقدامی که نقض توافق جامع پادمان‌ها به‌شمار می‌رود.
+گزارش نشان می‌دهد که ایران هیچ حق قانونی‌ای برای منع دسترسی آژانس یا عدم همکاری با آن ندارد.
+بحث‌ها دربارهٔ «حق غنی‌سازی» از سوی برخی در ایران و جاهای دیگر، صرفاً انحرافی غیرصادقانه از مسئلهٔ اصلیِ نقض قطعنامه‌های الزام‌آور شورای امنیت سازمان ملل و پیمان منع گسترش سلاح‌های هسته‌ای (NPT) از سوی ایران است. این تعهدات الزام‌آور با وقوع جنگ‌ها کاهش نمی‌یابد یا لغو نمی‌شود؛ بلکه حتی می‌توان جنگ را تا حدی گامی دوجانبه برای اجرای این تعهدات دانست.
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 92304
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کلاس‌های دانشگاه شریف حضوری شدن
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranianMinds — post 21417
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21417_1780659196.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اکانت اسرائیل به فارسی:
+
+عه! نمی‌دونستیم😂😂😂😂😂
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 391047
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قیصر رو آوردن تو تجمعات تهران. بیضایی چقدر قشنگ گفته بود: "گویی مردمان دیگری وارد کرده‌اند و ما در وطن خویش بیگانه‌ایم. دنیا به دست اوباش است و نیکان به گناه لیاقت می‌میرند."
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 125284
+
+<div align="center">
+  <a href="telegram/content/alonews_125284_1780659198.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈مدیرکل آژانس بین‌المللی انرژی اتمی:
+در حال حاضر در مذاکرات جاری بین ایران و آمریکا مشارکتی نداریم، اما می‌دانیم که آنها به دستیابی به توافق نزدیک شده‌اند.
+
+
+🔴راه‌حل بحران ایران و آمریکا باید دیپلماتیک باشد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125283
+
+<div align="center">
+  <a href="telegram/content/alonews_125283_1780659198.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سازمان ملل: در صورت ادامه بسته ماندن تنگه هرمز، ۴۵ میلیون نفر ممکن است با ناامنی حاد غذایی روبه‌رو شوند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125282
+
+<div align="center">
+  <a href="telegram/content/alonews_125282_1780659199.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کلاس‌های دانشگاه شریف حضوری شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/15 14:53
 ---
 

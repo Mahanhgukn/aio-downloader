@@ -7,6 +7,165 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/15 14:53
+---
+
+## VahidOOnLine — post 243783
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243783_1780658585.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علی‌ اکبری، امام جمعه موقت تهران، گفت: «از عصر موشک‌های نقطه‌زن به بیانیه‌های نقطه‌زن رسیده‌ایم و وقتی قرارگاه خاتم بیانیه‌ای صادر می‌کند، لرزه به جان دشمنان می‌افتد و و زندگی آنها تباه می‌شود.»
+
+او افرود «در توطئه‌ای که در لبنان در جریان بود»، بیانیه وزیر امورخارجه، رییس مجلس شورای اسلامی و نیروهای مسلح جمهوری اسلامی دشمن را «زمین‌گیر» کرد.
+
+اکبری گفت: «پیش‌تر با اخم دشمن یا حرکت یک ناو، ارزش پول ملی کاهش می‌یافت، اما او اکنون موازنه قدرت در منطقه تغییر کرده و هیمنه روانی دشمن درهم شکسته است و شاهد لرزش دلار هستیم.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342640
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: Graham Platner accuser Lyndsey Fifield hits New York Times for allegedly softening allegations, says coverage handed Dem's campaign a 'gift'
+</div>
+
+## pm_afshaa — post 92303
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ثابتی، نماینده مجلس:آمریکا بعد از جام جهانی سنگین‌تر به ایران حمله خواهد کرد و ایران را تبدیل به غزه دوم خواهند کرد.باید پیش‌دستانه پتروشیمی‌ها و زیرساخت‌های منطقه را بزنیم
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92302
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/proxy?server=195.254.165.20&port=8080&secret=dd79e7010200010007f0030386e24c3add
+
+پروکسی مخصوص دانلود
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 340644
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340644_1780658585.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علی‌ اکبری، امام جمعه موقت تهران، گفت: «از عصر موشک‌های نقطه‌زن به بیانیه‌های نقطه‌زن رسیده‌ایم و وقتی قرارگاه خاتم بیانیه‌ای صادر می‌کند، لرزه به جان دشمنان می‌افتد و و زندگی آنها تباه می‌شود.»
+
+او افرود «در توطئه‌ای که در لبنان در جریان بود»، بیانیه وزیر امورخارجه، رییس مجلس شورای اسلامی و نیروهای مسلح جمهوری اسلامی دشمن را «زمین‌گیر» کرد.
+
+اکبری گفت: «پیش‌تر با اخم دشمن یا حرکت یک ناو، ارزش پول ملی کاهش می‌یافت، اما او اکنون موازنه قدرت در منطقه تغییر کرده و هیمنه روانی دشمن درهم شکسته است و شاهد لرزش دلار هستیم.»
+https://iranintl.com/202606058008
+</div>
+
+## FarsiVOA — post 219656
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حملات یگان سامانه‌های پهپادی اوکراین به ۵ شناور در سواحل ماریوپل و بردیانسک؛
+
+یگان سامانه‌های پهپادی اوکراین با انتشار تصاویری اعلام کرد در جریان عملیات‌های شبانه روز گذشته، پنج فروند شناور نظامی روسیه را در سواحل «ماریوپل» و «بردیانسک» هدف قرار داده است.
+
+در این مجموعه حملات، نیروهای اوکراینی موفق شدند یک کشتی گشت مرزی کلاس «سویتلیاک» را که برای نظارت دریایی استفاده می‌شد، هدف قرار دهند. همچنین یک سامانه ناوبری رادیویی کوتاه‌برد که از هواپیماهای نظامی روسیه پشتیبانی می‌کرد و چندین لوکوموتیو مورد استفاده در پشتیبانی لجستیکی ارتش روسیه در این منطقه آسیب دیدند.
+
+در استان خرسون هم یک سامانه پدافند موشکی و توپخانه‌ای «پانتیسیر-اس۱» که از ارکان اصلی شبکه دفاع هوایی روسیه در این منطقه به شمار می‌رفت، منهدم شد.
+
+همچنین ترانسفورماتورهای پشتیبانی‌کننده از زیرساخت‌های نظامی و مخازن ذخیره‌سازی سوخت ارتش روسیه در استان دونتسک هدف حملات دقیق نیروهای اوکراینی قرار گرفتند.
+
+🔺نسخه اصلی این ویدیو با موسیقی متن منتشر شده است.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219655
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺نگرانی از وضعیت سلامت آزاده یعقوبی در زندان وکیل‌آباد مشهد
+
+▪️وب‌سایت حقوق بشری هرانا از تداوم بازداشت آزاده یعقوبی در زندان وکیل‌آباد مشهد خبر داد و اعلام کرد که او با وجود نیاز به درمان تخصصی، از دسترسی به خدمات پزشکی خارج از زندان محروم مانده است.
+
+▪️ آزاده یعقوبی، که با نام معصومه یعقوبی نیز شناخته می‌شود، بیش از چهار ماه است در بازداشت به سر می‌برد و هنوز وضعیت پرونده او مشخص نشده است.
+
+▪️به گفته منابعی که با خانواده این زندانی در ارتباط هستند، او به بیماری کرونا مبتلا است و در ماه‌های اخیر به دلیل محدودیت در دسترسی به دارو و خدمات درمانی، با مشکلات جسمی روبه‌رو بوده است.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8157645.html
+</div>
+
+## Persian_Trend_Official — post 15742
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15742_1780658586.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری CNN: اسرائیل در طول جنگ با ایران مخفیانه پرسنل نظامی و اطلاعاتی خود را به آذربایجان اعزام کرد و از مکان‌هایی در نزدیکی مرز شمالی ایران برای جمع‌آوری اطلاعات، عملیات پهپادی و پشتیبانی از مأموریت‌های نجات احتمالی استفاده کرد. اسرائیل همچنین در طول…
+</div>
+
+## Dirty_Kids — post 391045
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ژاپنی ها شورتی رو اختراع کردن که فقط با اثر انگشت دوس دختر یا پارتنرتون باز میشه، این کار برای جلوگیری از خیانت ساخته شده.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391044
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391044_1780658587.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به به چه آبی،
+از تهران برای این آب هم شده باید اومد اصفهان و برگشت!
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391042
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 این پرامپت تازگیا خیلی وایرال شده، عکستون رو به همراه پرامپت بفرستین برای هوش مصنوعی تا بسازه براتون. متن پرامپت:
+
+Draw me as if an obsessed fan artist filled an entire sketchbook page - messy, overlapping, full-body poses, tiny chibi doodles, exaggerated expressions, and random close-ups of their hands or eyes. White background. No grid, no order. Pure chaos energy
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 125281
+
+<div align="center">
+  <a href="telegram/content/alonews_125281_1780658589.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نبیه‌بری ، رئیس پارلمان لبنان: آتش‌بس باید کامل و بدون شرط باشد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/15 14:42
 ---
 

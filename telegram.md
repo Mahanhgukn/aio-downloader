@@ -7,6 +7,99 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/16 00:43
+---
+
+## WithYashar — post 13574
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+@withyashar only for pro members
+</div>
+
+## BBCPersian — post 282931
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_282931_1780694037.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻جوزف عون،‌ رئیس‌جمهور لبنان در یکی از شدیدترین انتقادهای خود، ایران و متحدش حزب‌الله را متهم کرد که از لبنان به‌عنوان «ابزار چانه‌زنی» در مذاکرات با آمریکا استفاده می‌کنند.
+
+او در گفتگویی با شبکه سی‌ان‌ان گفت: «مردم لبنان به خاطر منافع ایران بهای این وضعیت را می‌پردازند و از جنگ میان اسرائیل و حزب‌الله خسته شده‌اند.»
+
+او از ایران خواست که در کشورش دخالت نکند و همچنین به حزب‌الله گفت که دیپلماسی تنها راه حل درگیری با اسرائیل است.
+
+رئيس جمهور لبنان در این گفتگو خطاب به سپاه پاسداران گفت: «این کشور شما نیست، کشور ماست... وظیفه شما نیست که در کشور ما دخالت کنید.»
+
+«آنها از لبنان به عنوان یک ابزار چانه‌زنی در مذاکرات خود با ایالات متحده استفاده می‌کنند. این غیرقابل قبول است.»
+
+این اظهارات نشان‌دهنده شکاف‌های عمیق مذهبی و سیاسی در لبنان است.
+
+حزب‌الله بیش از سه ماه پیش و در همبستگی با تهران، همزمان با قرار گرفتن ایران در معرض حملات آمریکا و اسرائیل، دور جدید درگیری‌ها را آغاز کرد.
+متن کامل خبر را در لینک زیر بخوانید:
+https://bbc.in/3PHqxoU
+
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 391092
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 صدف طاهریان، مدل معروفِ خارج‌نشین، امروز با یه استوری رسما اعلام کرد که به آغوش وطن بازگشته؛ قبلش هم هرچی عکسه لختی داشت، از پیجش پاک کرد ولی خب من هنوز پاک نکردم... @Dirty_Kids 👻
+</div>
+
+## alonews — post 125415
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: محاصره دریایی که در حال حاضر علیه ایران اعمال کرده‌ایم، باورنکردنی است و جهان پیش از این هرگز مشابه آن را به چشم ندیده
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125414
+
+<div align="center">
+  <a href="telegram/content/alonews_125414_1780694038.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ : این دیگه خیلی جنگ حساب نمی‌شه
+- یه درگیری نظامیه، بیشتر شبیه تمرین می‌مونه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125413
+
+<div align="center">
+  <a href="telegram/content/alonews_125413_1780694040.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: ما به هر نحوی که شده، تا حد زیادی مسئله ایران را حل کرده‌ایم.
+
+
+🔴ما باید یک سلاح هسته‌ای بسیار توانمند را خنثی می‌کردیم و اجازه ظهور کشوری با حضور گسترده هسته‌ای را نمی‌دادیم.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125412
+
+<div align="center">
+  <a href="telegram/content/alonews_125412_1780694040.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری/صدای انفجار در جزیره خارگ
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/16 00:33
 ---
 

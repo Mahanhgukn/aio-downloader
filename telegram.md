@@ -7,6 +7,35 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/15 03:32
+---
+
+## FoxNewsTwitter — post 342634
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342634_1780617771.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: Four Senate Republicans just joined Democrats to block one of President Trump’s key legislative priorities.
+
+In a setback for the White House, GOP Sens. Susan Collins, Lisa Murkowski, Thom Tillis and Mitch McConnell broke with their party to help stop the SAVE America Act from advancing in the Senate.
+
+The vote exposed a familiar divide inside the Republican conference, with concerns over the bill’s provisions outweighing pressure from Trump and GOP leadership.
+</div>
+
+## FarsiVOA — post 219625
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219625_1780617771.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️مرجان ساتراپی، خالق «پرسپولیس» و از شناخته‌شده‌ترین هنرمندان ایرانی در جهان، در ۵۶ سالگی درگذشت.
+@FarsiVOA
+</div>
+
+---
 📅 بروزرسانی: 1405/03/15 03:23
 ---
 

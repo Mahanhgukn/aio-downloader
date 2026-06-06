@@ -7,6 +7,113 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/16 21:34
+---
+
+## WithYashar — post 13638
+
+<div align="center">
+  <img src="telegram/content/WithYashar_13638_1780769040.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دیدار وزرای کشور ایران و پاکستان
+@withyashar
+</div>
+
+## mwarmonitor — post 10220
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+❗️«نباید هیچ پاسخی ارسال شود»: دانشمندان پس از آنکه دولت اسناد فوق‌محرمانه مربوط به یوفوها را از طبقه‌بندی خارج کرد، پروتکل تماس با موجودات فرازمینی را صادر کردند. « نیویورک پست »
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10219
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ارتش اسرائیل اعلام کرد که در ۴۸ ساعت گذشته بیش از ۱۵۰ هدف حزب‌الله را در جنوب لبنان هدف قرار داده است؛ همزمان با تشدید درگیری‌ها میان اسرائیل و حزب‌الله.
+
+@mwarmonitor
+</div>
+
+## DEJradio — post 5403
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👑🎥 زنجیره انسانی در برلین در پشتیبانی از انقلاب شیر و خورشید
+
+#برلین #انقلاب_شیروخورشید
+@DEJradio
+</div>
+
+## Dirty_Kids — post 391153
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391153_1780769040.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پویان مختاری دقک حکومتی شروع کرده به قرآن خوندن!😐😂
+
++ همین ویدیو برای ریزش دین کافیه
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391152
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391152_1780769041.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+استاد باقری عالیههههه😂🎧🔞
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391151
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391151_1780769043.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 سی ان ان: اسرائیل تعدادی از خفن و نابغه‌ترین نیروهاشو توی آذربایجان و در نزدیکی تبریز مستقر کرده و از طرف دیگه در مناطقی از ایران قراره مردم رو مسلح کنه تا عملیات آزاد سازی و تغییر رژیم رو انجام بده!
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 125614
+
+<div align="center">
+  <a href="telegram/content/alonews_125614_1780769043.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مردم فیروزآباد قرآن هایشان را در آب ریختند!
+
+
+🤔عرزشی حرام زاده وقتی دین رو بازیچه قرار میدید و دروغ تحویل مردم میدید نتیجش میشه همین.
+
+
+✅@AloNews
+</div>
+
+## alonews — post 125613
+
+<div align="center">
+  <a href="telegram/content/alonews_125613_1780769045.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈واشنگتن پست: سریرام کریشنان به مقامات دولت ایالات متحده اطلاع داده که قصد دارد سمت خود را به عنوان مشاور ارشد سیاست‌گذاری هوش مصنوعی کاخ سفید ترک کند تا یک نهاد خارجی که بر سیاست‌های فناوری تاثیر خواهد گذاشت، تأسیس کند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/16 21:24
 ---
 

@@ -7,6 +7,124 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/16 23:54
+---
+
+## WithYashar — post 13650
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://www.instagram.com/reel/DZQKl3sRlmS/?comment_id=17866790943686477 پست جدید اینستاگرام ، کیا منتظر شب‌حمله هستن ؟!
+</div>
+
+## pm_afshaa — post 92410
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92410_1780777453.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴باراک راوید، خبرنگار اکسیوس:
+دو منبع آگاه با جزئیات به من گفتن که معاون برکنار شده‌ی رئیس موساد، یک سال پیش بودجه‌ای به مبلغ یک میلیارد شِکل (حدود 350 میلیون دلار) و تیمی متشکل از صدها نفر برای پروژه‌ سرنگونی حکومت ایران دریافت کرد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92409
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92409_1780777453.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نماینده رهبر جمهوری اسلامی در هند:
+یک میلیارد هندی بعد از مرگ علی خامنه‌ای به میدان اومدن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92408
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92408_1780777454.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴محمدجواد لاریجانی در صداوسیما: رفتن قالیباف به اسلام‌آباد غلط و یک هزینه بزرگ بود. ترور رو با ترور متوقف خواهیم کرد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 340883
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340883_1780777455.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جمعی از ایرانیان مقیم واشینگتن با برگزاری تجمعی، به بازداشت و اعدام معترضان در ایران اعتراض کردند و خواستار افزایش توجه جامعه جهانی به وضعیت حقوق بشر در ایران شدند.
+
+گزارش اردوان روزبه، خبرنگار ایران‌اینترنشنال و گفت‌وگو با سیامک آرام، برگزارکننده تجمع
+@iranintltv
+</div>
+
+## alonews — post 125653
+
+<div align="center">
+  <a href="telegram/content/alonews_125653_1780777456.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈لاریجانی، کارشناس سیاسی صدا سیما: مردم خیالشان جمع باشد که ایران برنامه هسته‌ای خودش را به هیچ وجه از دست نمی‌دهد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125652
+
+<div align="center">
+  <a href="telegram/content/alonews_125652_1780777456.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈آلبانیایی‌ها به یک اقامتگاه مجلل 5 میلیارد دلاری توسط شرکای کوشنر در جزیره سازان و تالاب‌های Vjosa-Narta اعتراض می‌کنند.
+
+
+🔴ششمین روز از تجمعات تحت عنوان "آلبانی فروشی نیست"
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125651
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈باراک راوید خبرنگار اکسیوس: دو منبع آگاه به جزئیات به من گفتند که معاون برکنار شده‌ی رئیس موساد، یک سال پیش بودجه‌ای به مبلغ یک میلیارد شِکل (حدود ۳۵۰ میلیون دلار) و تیمی متشکل از صدها نفر برای پروژه‌ی سرنگونی حکومت ایران دریافت کرد!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125650
+
+<div align="center">
+  <a href="telegram/content/alonews_125650_1780777459.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عجیب اما واقعی
+‼️
+
+اندی هم مجوز کنسرت گرفت
+
+[@AloTweet]
+</div>
+
+---
 📅 بروزرسانی: 1405/03/16 23:44
 ---
 

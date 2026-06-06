@@ -7,6 +7,194 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/16 21:03
+---
+
+## WithYashar — post 13635
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کامنت رو رفتم زیر پست جدید پیج دوم شاهزاده
+
+https://www.instagram.com/reel/DZQKl3sRlmS/?igsh=NzNsemFkNW9lcml0
+</div>
+
+## Shin_Persian — post 6583
+
+<div align="center">
+  <a href="telegram/content/Shin_Persian_6583_1780767228.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش دفاعی اسرائیل | IDF Farsi ✓ @IDFFarsi Sat, 06 Jun 2026 17:00:12 UTC ‼️در طول آخر هفته: ارتش اسرائیل حدود ۱۵۰ زیرساخت تروریستی سازمان تروریستی حزب‌الله را در جنوب لبنان مورد حمله قرار داد ⭕️ارتش اسرائیل در طول آخر هفته، انبارهای تسلیحات، مراکز فرماندهی،…
+</div>
+
+## Shin_Persian — post 6582
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش دفاعی اسرائیل | IDF Farsi ✓ @IDFFarsi
+Sat, 06 Jun 2026 17:00:12 UTC
+
+‼️در طول آخر هفته: ارتش اسرائیل حدود ۱۵۰ زیرساخت تروریستی سازمان تروریستی حزب‌الله را در جنوب لبنان مورد حمله قرار داد
+
+⭕️ارتش اسرائیل در طول آخر هفته، انبارهای تسلیحات، مراکز فرماندهی، سکوهای پرتاب و زیرساخت‌های دیگر سازمان تروریستی حزب‌الله را در منطقه جنوب لبنان هدف قرار داد.
+
+⭕️این زیرساخت‌ها توسط تروریست‌های این سازمان برای پیشبرد و اجرای طرح‌های تروریستی علیه نیروهای ارتش اسرائیل مورد استفاده قرار می‌گرفتند.
+
+English
+
+‼️ Over the weekend: The Israel Defense Forces (IDF) attacked approximately 150 terrorist infrastructures of the Hezbollah terrorist organization in southern Lebanon.
+
+⭕️ Throughout the weekend, the IDF targeted weapons storage facilities, command centers, launch sites, and other infrastructures of the Hezbollah terrorist organization in the southern Lebanon region.
+
+⭕️ these infrastructures were used by the organization's terrorists to advance and execute terrorist plans against IDF forces.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6581
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet: LIMON 🇮🇷 @limondar0 Sat, 06 Jun 2026 16:39:37 UTC اکنون ~ با تایید گزارش صابرین نیوز، یک هواپیمای سوخت‌رسانی آمریکایی بر فراز استان اربیل در شمال عراق در حال پرواز است ↩️ Quoted tweet — see the post below for the reply. English Now, confirming…
+</div>
+
+## Shin_Persian — post 6580
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6580_1780767230.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+LIMON 🇮🇷 @limondar0
+Sat, 06 Jun 2026 16:39:37 UTC
+
+اکنون ~ با تایید گزارش صابرین نیوز، یک هواپیمای سوخت‌رسانی آمریکایی بر فراز استان اربیل در شمال عراق در حال پرواز است
+
+↩️ Quoted tweet — see the post below for the reply.
+
+English
+
+Now, confirming reports from Sabereen News, a U.S. refueling aircraft is flying over Erbil Province in northern Iraq.
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 219790
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیت هگست، وزیر جنگ آمریکا، در حاشیه مراسم گرامی‌داشت هشتاد و دومین سالگرد «نبرد نرماندی» در فرانسه، از نیروهای نظامی آمریکایی در شهر سنت‌مر اگلیز فرانسه تجلیل کرد.
+
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219789
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺هشدار شورای صنفی دانشگاه شیراز به هیئت‌رئیسه درباره «تعطیلی تغذیه»: آموزش را تعطیل خواهیم کرد
+
+▪️شورای صنفی دانشجویان دانشگاه شیراز در نامه‌ای رسمی به رئیس این دانشگاه، نسبت به تداوم حذف و محدودیت وعده‌های غذایی دانشجویان تحصیلات تکمیلی اعتراض کرد و خواستار بازگشت فوری خدمات تغذیه، از جمله وعده‌های صبحانه و شام، شد.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/shiraz-students-warn-university-officials/8158006.html/?nocach=1
+</div>
+
+## FarsiVOA — post 219788
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺صدور احکام زندان علیه دو بازداشت‌شده اعتراضات دی؛ نهاد حقوق بشری: رژیم ده‌ها مخالف را اعدام کرده‌ است
+
+▪️کانون حقوق بشر ایران اعلام کرد قوه قضائیه رژیم ایران دو بازداشت‌شده اعتراضات دی ۱۴۰۴، محبوس در زندان اهواز را به زندان محکوم کرده است.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/iran-prison-execution-protest-repression/8158003.html/?nocach=1
+</div>
+
+## DW_Farsi — post 125583
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125583_1780767230.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 دو خواهر بازداشت‌شده در اعتراضات ۱۴۰۴ هر کدام به پنج سال زندان محکوم شدند
+
+سمیرا و مینا کوچکی، دو خواهر بازداشت‌شده در جریان اعتراضات سراسری سال ۱۴۰۴، دوران محکومیت خود را در زندان اوین سپری می‌کنند.
+
+خبرگزاری هرانا، ارگان خبری مجموعه فعالان حقوق بشر در ایران، گزارش داده که این دو زندانی سیاسی هر یک از سوی دادگاه انقلاب به پنج سال حبس محکوم شده‌اند.
+
+یک منبع نزدیک به خانواده کوچکی به هرانا گفته است که این دو خواهر پس از بازداشت در جریان اعتراضات، مدتی در زندان قرچک ورامین نگهداری می‌شدند و در ۲۷ بهمن سال گذشته به زندان اوین منتقل شدند.
+
+سمیرا و مینا کوچکی پیش از این نیز در جریان اعتراضات سال ۱۴۰۱ بازداشت شده بودند و پس از دریافت عفو آزاد شدند. سمیرا کوچکی مادر یک فرزند و مینا کوچکی مادر دو فرزند است.
+@dw_farsi
+</div>
+
+## Hranews — post 113429
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گیلان؛ رهایی یک زندانی از چوبه‌دار
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– یک زندانی محکوم به #اعدام در استان گیلان با اعلام رضایت اولیای دم از مجازات مرگ رهایی یافت.
+
+ادامه مطلب
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## alonews — post 125610
+
+<div align="center">
+  <a href="telegram/content/alonews_125610_1780767231.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نیویورک‌تایمز: نگرانی آمریکا از جاسوسی اسرائیل از مذاکرات تهران و واشنگتن
+
+
+🔴گزارش‌های اخیر اطلاعاتی آمریکا نگرانی‌هایی را درباره جاسوسی سازمان‌های جاسوسی اسرائیل از مذاکره‌کنندگان آمریکایی که روی توافق صلح با ایران کار می‌کنند، ایجاد کرده است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125609
+
+<div align="center">
+  <a href="telegram/content/alonews_125609_1780767231.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نیکزاد؛ نایب رئیس مجلس: همه آرزو داریم هرچه زودتر دست مجتبی خامنه ای رو ببوسیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125608
+
+<div align="center">
+  <a href="telegram/content/alonews_125608_1780767231.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نیویورک‌تایمز: نگرانی آمریکا از جاسوسی اسرائیل از مذاکرات تهران و واشنگتن
+
+
+🔴گزارش‌های اخیر اطلاعاتی آمریکا نگرانی‌هایی را درباره جاسوسی سازمان‌های جاسوسی اسرائیل از مذاکره‌کنندگان آمریکایی که روی توافق صلح با ایران کار می‌کنند، ایجاد کرده است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/16 20:53
 ---
 

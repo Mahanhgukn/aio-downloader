@@ -7,6 +7,135 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/16 21:43
+---
+
+## VahidOOnLine — post 243990
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_243990_1780769636.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند در پیامی به ایران اینترنشنال گفت که تیم فوتبال جمهوری اسلامی نماینده ملت ایران نیست و نباید برایش در آمریکا ویزا صادر شود. صدای شهروند برای حفظ امنیتش با هوش مصنوعی بازخوانی شده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13641
+
+<div align="center">
+  <a href="telegram/content/WithYashar_13641_1780769638.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+همین الان بابل پهپاد شناسایی دیدن با کلاشینکف دارن میزنند 🥴
+@withyashar
+</div>
+
+## WithYashar — post 13639
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مهر: صدای انفجار در خارگ مربوط به خنثی سازی مهمات است
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342679
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342679_1780769639.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Newly released video by U.S. Indo-Pacific Command shows American forces intercepting the MT DAVINA in the Indian Ocean as part of a "global maritime enforcement to disrupt illicit networks and interdict vessels providing material support to Iran."
+</div>
+
+## IranIntlTV — post 340866
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340866_1780769641.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند در پیامی به ایران اینترنشنال گفت که تیم فوتبال جمهوری اسلامی نماینده ملت ایران نیست و نباید برایش در آمریکا ویزا صادر شود. صدای شهروند برای حفظ امنیتش با هوش مصنوعی بازخوانی شده است.
+</div>
+
+## alonews — post 125619
+
+<div align="center">
+  <a href="telegram/content/alonews_125619_1780769643.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ در تروث‌سوشال: کتابخانه باراک حسین اوباما، در ۱۰ سال، وقتی کاملاً به بلوغ رسید!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125618
+
+<div align="center">
+  <a href="telegram/content/alonews_125618_1780769643.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 حکم بازی کردن دانش آموزان معترض به مصوبه کنکور در محل تجمع
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125617
+
+<div align="center">
+  <a href="telegram/content/alonews_125617_1780769643.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ارزیابی‌های اخیر اطلاعاتی ایالات متحده نگرانی‌هایی را برانگیخته است که سازمان‌های اطلاعاتی اسرائیل تلاش‌های خود را برای نظارت بر مقامات آمریکایی دخیل در مذاکرات با ایران افزایش داده‌اند، که این موضوع باعث شده مقامات آمریکایی درجه تهدید ضدجاسوسی اسرائیل را از «بالا» به «بحرانی» ارتقا دهند، گزارش نیویورک تایمز.
+
+
+🔴اطلاعات اسرائیل به دنبال درک استراتژی مذاکره دولت ترامپ است، از جمله مواضع مقامات ارشد مانند استیو ویتکاف، البریج کولبی و مایکل پی. دی‌مینو چهارم.
+
+
+🔴مقامات سطح اخیر جمع‌آوری اطلاعات اسرائیل را به‌طور غیرمعمولی تهاجمی توصیف کردند.
+
+
+🔴پرسنل نظامی و اطلاعاتی آمریکایی همچنان هنگام فعالیت در یا در کنار اسرائیل از تدابیر امنیتی تقویت‌شده برای کاهش خطرات جاسوسی استفاده می‌کنند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125616
+
+<div align="center">
+  <a href="telegram/content/alonews_125616_1780769643.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈مهر: صدای انفجار در خارگ مربوط به خنثی سازی مهمات است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125615
+
+<div align="center">
+  <a href="telegram/content/alonews_125615_1780769643.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 مقامات ارمنستان امروز شش نامزد از حزب مخالف ارمنستان قوی را یک روز قبل از انتخابات پارلمانی دستگیر کردند.
+
+
+🔴 رسانه‌های دولتی دلیلی برای دستگیری این شش نامزد ارائه نکردند.
+
+
+🔴 این حزب توسط سامول کاراپتیان، میلیاردر ارمنی-روسی رهبری می‌شود که در حال حاضر به اتهام دعوت به سرنگونی دولت تحت بازداشت خانگی قرار دارد. کاراپتیان این اتهامات را رد کرده و آن‌ها را با انگیزه‌های سیاسی توصیف می‌کند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/16 21:34
 ---
 

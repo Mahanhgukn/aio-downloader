@@ -7,6 +7,103 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/17 01:12
+---
+
+## VahidOOnLine — post 244007
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244007_1780782143.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️خبرگزاری رویترز به نقل از یک منبع آگاه، روز شنبه گزارش داد، ایالات متحده در نظر دارد دارایی‌های مسدود شده ایران را در اختیار متحدان خود در حاشیه خلیج فارس قرار دهد تا از آن برای «بازسازی و جبران خسارت‌های احتمالی آینده و همچنین صدمات گذشته ناشی از اقدامات ایران» استفاده شود. در همین راستا، این منبع اعلام کرده است که اسکات بسنت، وزیر خزانه‌داری آمریکا، به تیمی ماموریت داده تا میزان خسارت‌هایی را که تاکنون از سوی ایران به متحدان منطقه‌ای واشنگتن وارد شده است، برآورد و ارزیابی کنند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13656
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش صدای انفجار در حوالی سیریک🚨
+@withyashar
+</div>
+
+## iaghapour — post 2659
+
+<div align="center">
+  <img src="telegram/content/iaghapour_2659_1780782144.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ نصب خودکار داکر روی سرورهای ایران
+
+اگر روی سرورهای داخل ایران داکر نصب می‌کنید، حتماً می‌دانید که به خاطر تحریم‌ها و اختلالات شبکه، باز کردن مخازن داکر و دانلود ایمیج‌ها مکافات است. این اسکریپت متن‌باز و امن، کل فرآیند نصب داکر را خودکار کرده و در انتها به شما اجازه می‌دهد از بین ۶ میرور ایرانی (ابرآروان، داکر آی‌آر، لیارا و...) بهترین را برای رفع تحریم انتخاب کنید.
+
+
+💻 روش اجرا: کد زیر رو کپی کنید و در سرور اجرا کنید:
+
+curl -fsSL https://gist.githubusercontent.com/ShahinDadashpour/35892443c09d582e53b36d09fb5a5df6/raw/install-docker.sh | sudo bash
+
+
+🔗 لینک سورس کد در گیت‌هاب جهت بررسی
+
+
+🆔 @iAghapour
+</div>
+
+## Dirty_Kids — post 391174
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عکسای امروز آنا د آرمس مخصوص فوت فتیشا
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391173
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391173_1780782145.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عمویم قیصر!
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391172
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391172_1780782145.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 محسن عراقی، خواننده حکومتی، خطاب به جمهوری اسلامی:
+
+تو رستم تهمتنی چرا دیگه نمیزنی؟
+تو شیر پیل افکنی چرا دیگه نمیزنی؟
+برنده‌ی صد درصدی، چرا دیگه نمیزنی؟
+خدایی تویی که انقدره خوب میزدی، چرا دیگه نمیزنی؟
+﻿
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 125662
+
+<div align="center">
+  <a href="telegram/content/alonews_125662_1780782146.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کنعانی: حاضریم تو زمین بمیریم اما پرچم جمهوری اسلامی بالا باشه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/17 01:02
 ---
 

@@ -7,6 +7,169 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/17 00:52
+---
+
+## VahidOOnLine — post 244006
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244006_1780780938.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رویترز شنبه به نقل از یک منبع آگاه گزارش داد که آمریکا در حال بررسی تحویل دارایی‌های بلوکه شده ایران به کشورهای خلیج فارس برای بازسازی و جبران خسارات ناشی از حمله‌های جمهوری اسلامی است.
+این منبع افزود آمریکا همچنین استفاده از این دارایی‌ها برای جبران خسارت‌های گذشته را بررسی خواهد کرد. به گفته او، اسکات بسنت، وزیر خزانه‌داری آمریکا، به تیمی دستور داده است هزینه خسارت‌هایی را که پیش‌تر از سوی جمهوری اسلامی به کشورهای خلیج فارس وارد شده، ارزیابی کند.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244005
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_244005_1780780938.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️فارس، خبرگزاری وابسته به سپاه، شنبه‌شب، تصاویری از وزیر کشور پاکستان در بدو ورود به ایران را منتشر کرد. محسن نقوی از تحویل پیام‌های کلیدی کشورش به رهبر جمهوری اسلامی خبر داد و گفت: «من در ایران هستم تا نامه ویژه‌ای را از طرف فرمانده ارتش و نخست‌وزیر پاکستان به مجتبی خامنه‌ای تحویل دهم».
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13655
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+از روی استوری تو اینستا وارد کامنت میشی کامنت دیده میشه ولی از پیج خود شاهزاده وارد میشی دیده نمیشه تقریبا هم ۶ هزارتا لایک خورده. من فکر کنم همه به ادمین پیج باید اعتراض کنن چون من خودم زیر یک پست دیگه اعتراض کردم اونم هیدن شد الان دوباره کامنت گذاشتم که…
+</div>
+
+## WithYashar — post 13654
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+از روی استوری تو اینستا وارد کامنت میشی کامنت دیده میشه ولی از پیج خود شاهزاده وارد میشی دیده نمیشه تقریبا هم ۶ هزارتا لایک خورده.
+من فکر کنم همه به ادمین پیج باید اعتراض کنن چون من خودم زیر یک پست دیگه اعتراض کردم اونم هیدن شد
+الان دوباره کامنت گذاشتم که این جور ادمین بودن خودش دیکتاتوریه
+</div>
+
+## WithYashar — post 13653
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رویترز: ایالات متحده در حال بررسی راه‌هایی است تا دارایی‌های ایرانی را در اختیار متحدان خلیج فارس قرار دهد تا به تأمین مالی بازسازی و تعمیرات ناشی از حملات ایران کمک کند
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342681
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342681_1780780941.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Todd Blanche is reacting to President Trump's decision to nominate him as attorney general after serving in the role on an acting basis since April.
+
+Blanche says he's focused on the Justice Department's work as the DOJ continues to pursue a series of high-profile investigations and arrests.
+
+If confirmed by the Senate, the former Trump defense attorney would officially become the nation's top law enforcement official.
+</div>
+
+## pm_afshaa — post 92416
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92416_1780780941.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سفیر ایران در مکزیک:
+تیم ملی فوتبال ایران اطلاع یافته‌ که باید در همان روز مسابقه وارد خاک آمریکا بشه و پس از پایان بازی، از خاک آمریکا خارج بشه و به مکزیک برگرده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## VahidOnline — post 75976
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👀 رویترز به نقل از منبعی آگاه گزارش داد که آمریکا در حال بررسی تحویل دارایی‌های بلوکه شده ایران به کشورهای خلیج فارس جهت بازسازی و جبران خسارات ناشی از حملات جمهوری اسلامی است
+
+رویترز خبر داد که وزیر خزانه‌داری آمریکا به تیم خود دستور داده خسارات واردشده به کشورهای خلیج‌فارس در حملات جمهوری اسلامی را بررسی کنند
+
+رویترز به نقل از یک منبع آگاه خبر داد که آمریکا دارایی‌های ایران را برای حمایت از بازسازی و جبران خسارات آینده ناشی از حملات جمهوری اسلامی را در اختیار کشورهای خلیج فارس قرار خواهد داد
+
+رویترز به نقل از این منبع نوشت که آمریکا همچنین بررسی خواهد کرد که آیا می‌توان از دارایی‌های ایران برای جبران خسارات گذشته نیز استفاده کرد یا نه
+IranIntlbrk
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 340887
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340887_1780780942.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رویترز شنبه به نقل از یک منبع آگاه گزارش داد که آمریکا در حال بررسی تحویل دارایی‌های بلوکه شده ایران به کشورهای خلیج فارس برای بازسازی و جبران خسارات ناشی از حمله‌های جمهوری اسلامی است.
+این منبع افزود آمریکا همچنین استفاده از این دارایی‌ها برای جبران خسارت‌های گذشته را بررسی خواهد کرد. به گفته او، اسکات بسنت، وزیر خزانه‌داری آمریکا، به تیمی دستور داده است هزینه خسارت‌هایی را که پیش‌تر از سوی جمهوری اسلامی به کشورهای خلیج فارس وارد شده، ارزیابی کند.
+
+https://iranintl.com/202606066591
+</div>
+
+## FarsiVOA — post 219813
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺احتمال استفاده از دارایی‌های ایران برای تامین پول بازسازی خسارات حملات جمهوری اسلامی به کشورهای جنوب خلیج فارس
+
+▪️خبرگزاری رویترز به نقل از یک «منبع آگاه» گزارش داد که ایالات متحده از ابزارهایی استفاده خواهد کرد تا هزینه تعمیر و بازسازی خسارات آینده ناشی از حملات احتمالی جمهوری اسلامی به متحدان آمریکا در خلیج فارس، با دارایی‌های جمهوری اسلامی ایران تامین شود.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8158027.html
+@FarsiVOA
+</div>
+
+## Dirty_Kids — post 391171
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+توو پاکستان اعتراضات شده و دولتِ پاکستان اینترنت رو تقریباً کامل قطع کرده.
+بعد این برای ما فاز شخصیت و حقوق بشر گرفته بود از طرفین می‌خواست خویشتن‌داری کنن.
+برو خدا روزیتو جای دیگه بده.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391170
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391170_1780780943.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سپهر خلسه ؛ من رپر حکومتی نیستم من عاشق شاهزاده ام
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 125661
+
+<div align="center">
+  <a href="telegram/content/alonews_125661_1780780943.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈آخوند، اسماعیل رمضانی : بالاخره یه جایی باید مشخص بشه تا کِی می‌خوایم مذاکره کنیم
+و باید چه اتفاقی بیفتهِ که بعد بگیم دیگه مذاکره فایده‌ای نداره و ادامه نمی‌دیم؟
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/17 00:42
 ---
 

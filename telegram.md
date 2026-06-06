@@ -7,6 +7,50 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/17 01:42
+---
+
+## Persian_Trend_Official — post 15826
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آمریکا در فکر بالاکشیدن اموال ایران برای بازسازی کشورهای عربی
+</div>
+
+## alonews — post 125664
+
+<div align="center">
+  <img src="telegram/content/alonews_125664_1780783962.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🌐نامحدود فقط 90 تومن 😍
+فقط ۵۰ نفر اول 
+❤️
+
+
+✅با سابقه ۵ سال فعالیت مداوم
+
+🛡حتی بدون قطعی تو دوران جنگ
+
+بقیه هنوز VPN حجمی میفروشن
+اونم با قیمتای نجومی 
+🚀
+
+ما چی؟ 
+💯
+💥 VPN نامحدود واقعی فقط 90 تومن
+🏷️
+
+
+💥بدون محدودیت حجم
+⬇️
+⬇️
+⬇️
+@NetAazaadBot
+@NetAazaadBot
+</div>
+
+---
 📅 بروزرسانی: 1405/03/17 01:32
 ---
 

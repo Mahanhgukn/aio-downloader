@@ -7,6 +7,61 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/16 11:23
+---
+
+## VahidOOnLine — post 243919
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_243919_1780732389.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️بر اساس ویدیویی که رسانه‌های حکومتی ایران منتشر کرده‌اند، نیروی هوافضای سپاه پاسداران بامداد شنبه حملاتی موشکی را علیه آنچه «پایگاه‌های آمریکا و دشمن در منطقه» خوانده شده، انجام داده است.
+روابط عمومی سپاه پاسداران در بیانیه‌ای اعلام کرد این عملیات در واکنش به حملات ارتش آمریکا به سیریک و جزیره قشم انجام شده و طی آن «پایگاه‌های دشمن در منطقه مورد اصابت موشک‌های هوافضا قرار گرفته‌اند.»
+در پی این حملات، وزارت امور خارجه بحرین روز شنبه ۱۶ خرداد با صدور بیانیه‌ای اعلام کرد که بحرین و کویت بامداد شنبه هدف حملات جدید ایران قرار گرفته‌اند و سامانه‌های پدافندی دو کشور موفق به رهگیری و انهدام هفت موشک شلیک‌شده از سوی جمهوری اسلامی شده‌اند.
+وزارت خارجه بحرین در این بیانیه ضمن محکوم کردن این حملات، آن را «تجاوزی آشکار» و «نقض فاحش حاکمیت بحرین و کویت» توصیف کرد و افزود: «امنیت را نمی‌توان با موشک بنا کرد.»
+بحرین که میزبان ناوگان پنجم نیروی دریایی آمریکا است، جزئیات بیشتری درباره محل دقیق حملات یا خسارات احتمالی ناشی از آن منتشر نکرده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## pm_afshaa — post 92368
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92368_1780732392.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اعتراضات دانش آموزان در کرمانشاه به تأثیر قطعی معدل
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## Persian_Trend_Official — post 15790
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15790_1780732394.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## alonews — post 125461
+
+<div align="center">
+  <a href="telegram/content/alonews_125461_1780732394.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رویترز به نقل از وزیر انرژی آمریکا: کاهش قیمت بنزین در گروی توافق با ایران است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/16 11:13
 ---
 

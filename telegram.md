@@ -7,6 +7,167 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/16 20:43
+---
+
+## VahidOOnLine — post 243983
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_243983_1780766020.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد در جریان تجمع اعتراضی دانش‌آموزان مقابل آموزش و پرورش ساوه، یک مقام محلی این شهر در پاسخ به اعتراض و فیلم گرفتن دانش‌آموزان می‌گوید این اقدام فایده‌ای ندارد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## pm_afshaa — post 92397
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92397_1780766022.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴تسنیم: وزیر کشور پاکستان وارد تهران شد و قراره با مقامات ایران از جمله عراقچی دیدار و رایزنی کنه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5400
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5400_1780766023.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺📢 بحران نان؛ گندم مرغوب در آخور دام
+
+*عطا حسینیان، روزنامه‌نگار اقتصادی
+
+#تورم #بحران
+@DEJradio
+</div>
+
+## Shin_Persian — post 6577
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6577_1780766023.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sat, 06 Jun 2026 17:06:11 UTC
+
+WH / Pentagon 🇺🇸 official departs TLV #Israel 🇮🇱
+01-0040 | AE0945 | CS SAM781
+(Adm. Cooper?)
+
+فارسی
+
+مقامات کاخ سفید / پنتاگون 🇺🇸 تل‌آویو #Israel 🇮🇱 را ترک کردند
+01-0040 | AE0945 | CS SAM781
+(دریابان کوپر؟)
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 219786
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تشدید جنگ اوکراین پس از رد پیشنهاد مذاکره؛ نگرانی اروپا از ضعف در مقابله با حملات پهپادی در شرق
+</div>
+
+## DW_Farsi — post 125582
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125582_1780766024.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 تهران حمله آمریکا به قشم و سیریک را محکوم کرد
+
+وزارت خارجه ایران حمله آمریکا به تاسیسات راداری و نظارت ساحلی در سیریک و جزیره قشم را "نقض آشکار آتش‌بس" و "تجاوز نظامی علیه حاکمیت ملی ایران" خواند و آن را محکوم کرد.
+
+در بیانیه این وزارتخانه آمده است که نیروهای مسلح ایران در چارچوب "حق دفاع مشروع" به این اقدام پاسخ داده‌اند.
+
+این واکنش پس از آن منتشر شد که فرماندهی مرکزی آمریکا (سنتکام) اعلام کرد در پی رهگیری چهار پهپاد ایرانی در نزدیکی تنگه هرمز، سایت‌های راداری ایران در قشم و گروک را هدف قرار داده است.
+وزارت خارجه ایران همچنین از سازمان ملل و شورای امنیت خواست به آنچه "نقض مکرر آتش‌بس از سوی آمریکا" توصیف کرد، واکنش نشان دهند.
+@dw_farsi
+</div>
+
+## RadioFarda — post 157979
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸رسانه‌های رسمی ایران اعلام کردند که تیم ملی فوتبال عصر روز شنبه برای شرکت در جام جهانی، ترکیه را به مقصد مکزیک ترک کرد. 🔸تلویزیون حکومتی ایران گزارش داد که تیم ملی حدود ساعت ۶:۱۰ عصر به وقت محلی راهی شهر تیخوانا در شمال‌غرب مکزیک شد؛ شهری که قرار است در…
+</div>
+
+## RadioFarda — post 157978
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_157978_1780766024.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸رسانه‌های رسمی ایران اعلام کردند که تیم ملی فوتبال عصر روز شنبه برای شرکت در جام جهانی، ترکیه را به مقصد مکزیک ترک کرد.
+
+🔸تلویزیون حکومتی ایران گزارش داد که تیم ملی حدود ساعت ۶:۱۰ عصر به وقت محلی راهی شهر تیخوانا در شمال‌غرب مکزیک شد؛ شهری که قرار است در طول مسابقات محل استقرار این تیم باشد. این پرواز حدود ۲۰ ساعت به طول خواهد انجامید.
+
+🔸این رسانه اعلام کرد که تیم ملی پس از برگزاری اردو و تمرینات در ترکیه، عصر امروز برای حضور در جام جهانی راهی مکزیک شد.
+
+🔸ملی‌پوشان ایرانی نزدیک به سه هفته را در اردوی آماده‌سازی شهر آنتالیا سپری کردند و در همین مدت برای دریافت ویزای سفر به مکزیک و ایالات متحده اقدام کردند.
+
+@RadioFarda
+</div>
+
+## RadioFarda — post 157977
+
+<div align="center">
+  <a href="https://t.me/radiofarda/157977" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📻بشنوید: ایستگاه ۱۹ با رادیوفردا، ۱۶ خرداد ۱۴۰۵
+
+@RadioFarda
+</div>
+
+## BBCPersian — post 282999
+
+<div align="center">
+  <a href="https://t.me/bbcpersian/282999" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پادکست برنامه رادیویی جام جهان‌نما، شنبه ۱۶ خرداد ۱۴۰۵
+
+این برنامه رادیویی را می‌توانید هر شب ساعت ۲۰ به وقت ایران، روی موج متوسط ۷۰۲ کیلوهرتز و موج کوتاه ۹۴۶۵ کیلوهرتز بشنوید.
+تکرار برنامه را هم می‌توانید ساعت ۲۱:۳۰ روی موج متوسط ۷۰۲ کیلوهرتز و موج کوتاه ۵۳۹۵ کیلوهرتز گوش کنید.
+@bbcpersian
+</div>
+
+## alonews — post 125605
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈هم اکنون ایجاد اختلال شدید GPS در سراسر خلیج فارس‌ و تنگه هرمز
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125604
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈هاآرتص: یک منبع در نیروهای یونیفیل گفت که ارتش اسرائیل پس از اعلام آتش‌بس دو روز پیش، عملیات تخریب روستاها در جنوب لبنان را متوقف کرده است.
+
+
+🔴به گفته این منبع، آخرین باری که نیروهای اسرائیلی در حال تخریب روستاها در جنوب لبنان مشاهده شدند، روز چهارشنبه و پیش از بیانیه مشترک ایالات متحده، اسرائیل و لبنان بود.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/16 20:34
 ---
 

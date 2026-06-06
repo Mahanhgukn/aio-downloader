@@ -7,6 +7,201 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/16 19:34
+---
+
+## VahidOOnLine — post 243976
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_243976_1780761875.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد دانش‌آموزان بیرجند در استان خراسان جنوبی روز شنبه در اعتراض به اعمال تاثیر معدل پایه یازدهم در کنکور و حضوری شدن امتحانات تجمع کردند و شعار دادند: «محصل داد بزن حقتو فریاد بزن.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342677
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342677_1780761877.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: Body of Auburn student James Weston Higginbotham found in mountainous area outside Kyoto, Japan, after he split off from family during trip, mother confirms
+</div>
+
+## IranIntlTV — post 340845
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340845_1780761878.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد دانش‌آموزان بیرجند در استان خراسان جنوبی روز شنبه در اعتراض به اعمال تاثیر معدل پایه یازدهم در کنکور و حضوری شدن امتحانات تجمع کردند و شعار دادند: «محصل داد بزن حقتو فریاد بزن.»
+</div>
+
+## FarsiVOA — post 219780
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺ترامپ: مقام‌های «مغرور» جمهوری اسلامی اکنون ناچارند کارهایی انجام دهند که پیشتر تصورش را نمی‌کردند
+
+▪️پرزیدنت ترامپ در مصاحبه با ان‌بی‌سی نیوز گفت که از تعداد موشک‌های باقی‌مانده در اختیار رژیم ایران اطلاع دارد، اما رقم دقیق آن را اعلام نمی‌کند.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/trump-withholds-iran-missile-count/8157989.html/?nocach=1
+</div>
+
+## FarsiVOA — post 219779
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیت هگست، وزیر جنگ آمریکا، در حاشیه مراسم گرامی‌داشت هشتاد و دومین سالگرد «نبرد نرماندی» در فرانسه، با کهنه‌سربازان جنگ جهانی دوم دیدار کرد.
+
+او از شجاعت و فداکاری این سربازان قدردانی کرد و گفت تلاش آنها به نجات جهان کمک کرده است.
+
+هگست افزود که آمریکا همواره قدردان خدمت و از خودگذشتگی این کهنه‌سربازان خواهد بود.
+
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219778
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219778_1780761880.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تفسیر خبر
+پیامد ماجراجویی سپاه چه خواهد بود؟
+هم اکنون در یوتیوب صدای آمریکا:
+https://www.youtube.com/live/HfXyTFL1jp0?si=lqz_3OrZzIfbFpXb
+</div>
+
+## Dirty_Kids — post 391142
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391142_1780761880.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کیرا نایتلی یجور لب گرفت که مجبور شدم برم فیلم Anna Karenina 2012 رو یبار دیگه ببینم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391141
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391141_1780761883.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 باورم نمیشد یه روز بلاگری پست بذاره و بگم حتما با دقت تا ثانیه آخر نگاه کنین:
+
+ارزش دانلود 10/10
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391140
+
+<div align="center">
+  <a href="https://t.me/Dirty_Kids/391140" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ریتزوبت تنها سایت بین المللی میباشد ، که به صورت هفتگی پرومو کد دریافت میکنید ✅
+
+♦️ آموزش شارژ حساب با کریپتو
+♦️ آموزش شارژ حساب ریالی در ریتزوبت
+#پیشبینی
+🔵ریتزوبت برندی با لایسنس معتبر در صنعت شرطبندی و پیشبینی مسابقات ورزشی و کازینویی 👇
+
+https://t.me/+LB508WZyIr8xNmY0
+</div>
+
+## Dirty_Kids — post 391139
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391139_1780761886.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔵 پیش بینی مهم ترین مسابقات امروز در سایت بین المللی ریتزوبت
+
+
+🇧🇪 بلژیک 
+🆚 تونس 
+🇹🇳 : 16:30
+
+🇵🇹 پرتغال 
+🆚 شیلی 
+🇨🇱 : 21:15
+
+🇷🇴 رومانی 
+🆚 ولز 
+🏴󠁧󠁢󠁷󠁬󠁳󠁿 : 21:15
+
+🇺🇸 آمریکا 
+🆚 آلمان 
+🇩🇪 : 22:00
+
+
+1️⃣
+2️⃣
+3️⃣
+4️⃣ 
+1️⃣
+2️⃣
+3️⃣ 
+1️⃣
+2️⃣
+3️⃣
+4️⃣
+
+
+⚡️ بونوس 100% بونوس اولین واریز
+
+⚡️ بونوس 100% ورزشی یکشنبه‌ ها
+
+⚡️ آپشن های متنوع با ضریب بالا
+
+
+🛸 لینک ورود به سایت 👉
+
+
+🌐 کانال تلگرام ریتزوبت 
+👇
+G16
+https://t.me/+LB508WZyIr8xNmY0
+</div>
+
+## alonews — post 125593
+
+<div align="center">
+  <a href="telegram/content/alonews_125593_1780761887.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈اسرائیل همچنان درحال بمباران مناطق مختلف جنوب لبنان است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125592
+
+<div align="center">
+  <a href="telegram/content/alonews_125592_1780761887.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 از سال ۱۴۰۰ به بعد سکه بازدهی ۱۵۸۷ درصدی داشته و قیمت آن از ۱۰ میلیون ۷۶۰ هزار تومان به ۱۸۱ میلیون ۵۰۰ هزار تومان افزایش پیدا کرده در همین بازه قیمت بین کوین رشدی ۵۷۹ درصدی داشته
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/16 19:23
 ---
 

@@ -7,6 +7,50 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/16 04:02
+---
+
+## WithYashar — post 13609
+
+<div align="center">
+  <a href="telegram/content/WithYashar_13609_1780705972.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پست جدید ترامپ در‌تروث : نیروی دریایی ایران
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342670
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342670_1780705973.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+President Trump wears Olympic gold.
+
+Olympic speed skating champion Jordan Stolz placed his gold medal around the president's neck during an agriculture roundtable at Custer Farms in Chippewa Falls, Wisconsin.
+
+The Wisconsin native later shook hands with Trump at the event, which focused on policies impacting American farmers.
+</div>
+
+## FoxNewsTwitter — post 342669
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342669_1780705974.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NOW: Democratic Senate candidate Graham Platner addresses supporters in Maine.
+
+“When hurtful things I said on the internet a decade ago came out into the public as I shared my personal journey through PTSD and darkness of recovery and accountability and growth, Maine had my back.”
+
+“Now, as every single piece of that past and journey gets dug up, litigated, and weaponized, you have my back.”
+</div>
+
+---
 📅 بروزرسانی: 1405/03/16 03:52
 ---
 

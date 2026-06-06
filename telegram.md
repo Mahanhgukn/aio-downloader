@@ -7,6 +7,159 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/16 13:23
+---
+
+## WithYashar — post 13620
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صدای انفجار قشم 🚨
+@withyashar
+</div>
+
+## mwarmonitor — post 10204
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_10204_1780739611.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ در صحبت چند روز پیش اشاره به آخر هفته کرده بود
+</div>
+
+## pm_afshaa — post 92375
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش ها از درگیری بین دانش آموزان با نیروهای حرومزاده حکومتی در نقاط مختلف کشور
+
+زورشون به 4 تا بچه مدرسه ای رسیده حرومزاده ها
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## Dirty_Kids — post 391117
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391117_1780739612.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فیلم وایرال شده از حال و هوای تهران توی خرداد و بعد از جنگ:
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391116
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391116_1780739613.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فیلمی مربوط به ۱۸ دی ماه که نیروهای سرکوبگر با خنده میرن بالا سر جنازه‌هایی که کشتن فیلم میگیرن و میگن «خوارتون گاییده شد؟». تا مغز استخوان آدم تیر می‌کشه...
+
+دارای تصاویر دلخراش، اگه بیماری قلبی دارین باز نکنین⚠️
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391115
+
+<div align="center">
+  <a href="https://t.me/Dirty_Kids/391115" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ریتزوبت تنها سایت بین المللی میباشد ، که به صورت هفتگی پرومو کد دریافت میکنید ✅
+
+♦️ آموزش شارژ حساب با کریپتو
+♦️ آموزش شارژ حساب ریالی در ریتزوبت
+#پیشبینی
+🔵ریتزوبت برندی با لایسنس معتبر در صنعت شرطبندی و پیشبینی مسابقات ورزشی و کازینویی 👇
+
+https://t.me/+LB508WZyIr8xNmY0
+</div>
+
+## Dirty_Kids — post 391114
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391114_1780739615.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جام جهانی 2026 با 
+3️⃣
+2️⃣
+1️⃣
+
+
+🌎 اعتبار بین‌المللی، خدماتی در سطح جهانی
+
+
+⚡️ ریتزوبت با لایسنس بین‌المللی و بیش از 2️⃣ سال سابقه فعالیت در مارکت ایران، آماده است تا هیجان واقعی جام جهانی را برای کاربران ایرانی رقم بزند ⚽️🔥
+
+🎁 هدیه ویژه کاربران فعال ، هر هفته بر اساس میزان فعالیت، تا سقف ۱۰۰ میلیون تومان پروموکد هدیه دریافت کنید.
+
+🚀 سریع، حرفه‌ای و قابل اعتماد
+تجربه‌ای متفاوت از پیش‌بینی مسابقات جام جهانی را با ریتزوبت تجربه کنید.
+
+
+⚽️ همه در ریتزوبت پیش‌بینی می‌کنند…
+شما چطور 😉
+
+
+🛸 لینک ورود به سایت 👉
+
+
+🌐 کانال تلگرامی 
+3️⃣
+2️⃣
+1️⃣
+R16
+https://t.me/+LB508WZyIr8xNmY0
+</div>
+
+## Dirty_Kids — post 391112
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391112_1780739615.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴امروز هم دانش آموزان تو شهرهای مختلف کشور تجمع کردن و به تاثیر قطعی معدل پایه یازدهم تو کنکور اعتراض کردن و شعار دادن:
+
+«خسرو پناه حیا کن کنکوری رو رها کن »
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 125496
+
+<div align="center">
+  <a href="telegram/content/alonews_125496_1780739618.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈الحدث: ایران خواستار مذاکرات سه‌ماهه درباره جزئیات پرونده هسته‌ای است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125495
+
+<div align="center">
+  <a href="telegram/content/alonews_125495_1780739618.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 وزارت امور خارجه کویت : ما حملات مکرر ایران، که آخرین مورد آن امروز صبح رخ داد و نادیده گرفتن خواسته‌های بین‌المللی برای توقف تجاوز بود را محکوم می‌کنیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/16 13:13
 ---
 

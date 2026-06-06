@@ -7,6 +7,116 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/16 04:33
+---
+
+## VahidOOnLine — post 243893
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243893_1780707804.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ستاد کل فرماندهی ارتش کویت، بامداد شنبه، ۱۶ خردادماه، با انتشار بیانیه‌ای «فوری» اعلام کرد که پدافند هوایی این کشور در حال مقابله و پاسخی جامع به «حملات موشکی و پهپادهای تهاجمی متخاصم» در آسمان کشور است. مقامات نظامی کویت با تایید وضعیت اضطراری اشاره کردند که هرگونه صدای انفجار احتمالی، ناشی از عملکرد سیستم‌های پدافندی در رهگیری و انهدام این اهداف مهاجم در هوا است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13611
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارسالی : من بابامم تعریف میکرد که زمان جنگ عراق و کویت صدا های بمب هارو میشنیدن خرمشهر
+@withyashar
+گزارش های زیاد از شنیده شدن انفجار کویت از خرمشهر !
+</div>
+
+## WithYashar — post 13610
+
+<div align="center">
+  <img src="telegram/content/WithYashar_13610_1780707805.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارسالی : کویت آلارم اومد الان ، ۳پا موشک زده سمتش !
+@withyashar
+</div>
+
+## pm_afshaa — post 92354
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92354_1780707806.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ایران در جواب این حمله موشک زده به کویت و دقایقی پیش هشدار حمله موشکی و پهبادی به ساکنان کویت ارسال شده. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92353
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92353_1780707807.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سنتکام: لحظاتی پیش نیروهای سنتکام چهار پهپاد تهاجمی ایرانی رو که به سمت تنگه هرمز پرتاب شده بودن سرنگون کردن. پهپادهای تهاجمی یک تهدید فوری برای ترافیک دریایی منطقه است ‌و نیروهای آمریکایی متعاقبا به سایت‌های رادار نظارتی ساحلی ایران در گوروک و جزیره قشم…
+</div>
+
+## Shin_Persian — post 6556
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6556_1780707808.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sat, 06 Jun 2026 00:52:21 UTC
+
+Kuwaiti Air Defenses are currently responding to hostile missile and drone attacks.
+
+The General Staff of the Army states that any explosion sounds are the result of interceptions.
+
+Follow all safety instructions from authorities.
+
+#Kuwait 🇰🇼
+
+فارسی
+
+پدافند هوایی کویت در حال حاضر در حال پاسخگویی به حملات موشکی و پهپادی متخاصم است.
+
+ستاد کل ارتش اعلام کرد که هرگونه صدای انفجار ناشی از عملیات رهگیری است.
+
+تمامی دستورالعمل‌های ایمنی مقامات را رعایت کنید.
+
+#Kuwait 🇰🇼
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 219723
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219723_1780707809.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ارتش کویت دقایقی قبل از فعالیت پدافند هوایی کویت برای مقابله با «حملات موشکی و پهپادی خصمانه» خبر داد. این بیانیه در پی حملات دفاعی سنتکام به مواضع جمهوری اسلامی در واکنش به شلیک چند پهپاد از سوی حکومت ایران گزارش می‌شود.
+@FarsiVOA
+</div>
+
+## BBCPersian — post 282937
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻وقتی پل، اختاپوس معروف، همه نتایج آلمان در جام جهانی فوتبال ۲۰۱۰ آفریقای جنوبی را درست پیش‌بینی کرد، در سراسر جهان به‌عنوان یک پیشگو مورد ستایش قرار گرفت.
+
+متن کامل این مطلب را در وبسایت بی‌بی‌سی فارسی بخوانید:
+https://bbc.in/4uSkuNg
+
+
+
+📸GettyImages/ Reuters/ Bloomberg via Getty Images/ EPA-EFE/REX/Shutterstock/ ullstein bild via Getty Images/ Corbis via Getty Images
+@BBCPersian
+</div>
+
+---
 📅 بروزرسانی: 1405/03/16 04:23
 ---
 

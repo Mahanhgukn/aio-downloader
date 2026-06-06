@@ -7,6 +7,53 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/16 04:42
+---
+
+## VahidOOnLine — post 243894
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243894_1780708368.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری دولتی کویت اعلام کرد پدافند هوایی این کشور در حال رهگیری حمله‌های موشکی و پهپادی است.
+جمهوری اسلامی چهارشنبه نیز حملات موشکی و پهپادی مرگباری علیه کویت انجام داد که در نتیجه آن یک نفر کشته و ۶۳ نفر مجروح شدند.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## pm_afshaa — post 92356
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92356_1780708368.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبرگزاری دولتی کویت:
+پدافند هوایی این کشور در حال رهگیری حمله‌های موشکی و پهپادی است.
+
++ ویدیویی از صدای آژیر خطر در کویت :
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 340751
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340751_1780708370.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری دولتی کویت اعلام کرد پدافند هوایی این کشور در حال رهگیری حمله‌های موشکی و پهپادی است.
+جمهوری اسلامی چهارشنبه نیز حملات موشکی و پهپادی مرگباری علیه کویت انجام داد که در نتیجه آن یک نفر کشته و ۶۳ نفر مجروح شدند.
+
+https://iranintl.com/202606066191
+</div>
+
+---
 📅 بروزرسانی: 1405/03/16 04:33
 ---
 

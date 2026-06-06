@@ -7,6 +7,25 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/17 01:02
+---
+
+## FoxNewsTwitter — post 342682
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342682_1780781553.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Todd Blanche is reacting to President Trump's decision to nominate him as attorney general after serving in the role on an acting basis since April.
+
+Blanche says he's focused on the Justice Department's work as the DOJ continues to pursue a series of high-profile investigations and arrests.
+
+If confirmed by the Senate, the former Trump defense attorney would officially become the nation's top law enforcement official.
+</div>
+
+---
 📅 بروزرسانی: 1405/03/17 00:52
 ---
 

@@ -7,6 +7,74 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/16 06:13
+---
+
+## FarsiVOA — post 219736
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219736_1780713803.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ویدیوی سنتکام از حمله جدید به مواضع جمهوری اسلامی در گروک و قشم در پی حملات پهپادی رژیم به کشتیرانی
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219735
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺آمریکا پرواز پهپادها را در اطراف محل‌های جام جهانی ممنوع کرد
+
+▪️اداره هوانوردی فدرال آمریکا اعلام کرد همزمان با برگزاری جام جهانی ۲۰۲۶، پرواز پهپادها در اطراف ورزشگاه‌ها، محل‌های رویدادهای هواداری، اقامتگاه‌های تیم‌ها، و مراکز تمرین در شهرهای میزبان آمریکا ممنوع خواهد بود.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/drones-banned-near-world-cup/8157763.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219734
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺سنتکام: شش موشک شلیک‌شده جمهوری اسلامی به کویت و بحرین رهگیری شد و موشک هفتم به هدفش نرسید
+
+▪️ستاد فرماندهی مرکزی آمریکا، سنتکام جمعه شب به وقت واشنگتن اعلام کرد که نیروهای آمریکایی (۵ ژوئن) چندین موشک بالستیک و پهپاد جمهوری اسلامی را که به سمت تنگه هرمز و کشورهای همسایه در خلیج فارس شلیک شده بودند، رهگیری کردند.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8157949.html
+@FarsiVOA
+</div>
+
+## BBCPersian — post 282946
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_282946_1780713803.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻ارتش آمریکا اعلام کرد که چهار پهپاد ایرانی را که به سمت تنگه هرمز پرتاب شده بودند، سرنگون کرده و سپس سایت‌های راداری ایران در گوروک و جزیره قشم را هدف قرار داده است. سنتکام گفت که این پهپادها تهدیدی فوری برای تردد دریایی در منطقه بودند و حمله به تاسیسات راداری برای جلوگیری از حملات بیشتر انجام شده است. همزمان ارتش کویت از فعال شدن سامانه‌های پدافند هوایی و رهگیری موشک‌ها و پهپادهای مهاجم خبر داد و در بحرین آژیر خطر به‌صدا درآمد.
+
+ادامه این مطلب را در سایت بی‌بی‌سی فارسی بخوانید:
+https://bbc.in/4fv4QCY
+
+
+📸US CENTCOM/Handout/Anadolu via Getty Images
+@BBCPersian
+</div>
+
+## alonews — post 125426
+
+<div align="center">
+  <a href="telegram/content/alonews_125426_1780713804.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نیروهای آمریکایی از هدف قرار دادن سایت‌های رادار نظارتی ساحلی ایران در قشم خبر دادند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/16 06:02
 ---
 

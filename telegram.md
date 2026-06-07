@@ -7,6 +7,115 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/18 02:53
+---
+
+## VahidOOnLine — post 244204
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244204_1780874587.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️مقام‌های ارشد اسرائیلی به شبکه ۱۲ اسرائیل گفته‌اند که اسرائیل به حملات موشکی ایران «با قدرت پاسخ خواهد داد.»
+بر اساس این گزارش، اسرائیل «نمی‌تواند» وضعیتی را بپذیرد که در آن ایران پس از حملات اسرائیل به اهداف حزب‌الله در بیروت، خاک اسرائیل را هدف قرار دهد.
+با این حال، تاکنون هیچ واکنش رسمی از سوی دولت یا ارتش اسرائیل درباره موج حملات موشکی در جریان منتشر نشده است.
+شبکه ۱۳ اسرائیل نیز گزارش داده است که مقام‌های اسرائیلی در گفت‌وگو با نتانیاهو ارزیابی کرده‌اند که تهران قصد دارد با یک پاسخ محدود، حمایت خود از حزب‌الله را به نمایش بگذارد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13860
+
+<div align="center">
+  <img src="telegram/content/WithYashar_13860_1780874588.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وضعیت من هم اکنون 😹
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342703
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342703_1780874588.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH LIVE: Maine Democratic Senate candidate Graham Platner hosts town hall https://twitter.com/i/broadcasts/1NxarrwZvzDKj
+</div>
+
+## pm_afshaa — post 92742
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92742_1780874589.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴اسرائیل هیوم به نقل از یک منبع پاکستانی:
+ما به توافق موقتی سریع بین ایران و آمریکا نزدیک میشیم؛ یا توافق سریع است یا فروپاشی مذاکرات.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5447
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5447_1780874589.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️
+🚨 روزنامه یدیعوت آحارونوت گزارش داد، در گفتگویی که کمی پیش به پایان رسید، نتانیاهو به ترامپ اطلاع داد که قصد حمله‌ای قدرتمند به ایران را دارد. همزمان رئیس‌جمهور آمریکا روشن کرد که اگر چنین حمله‌ای انجام شود، آمریکایی‌ها در آن شرکت نخواهند کرد.
+برخی منابع گزارش داده بودند که «ایالات متحده پیامی به اسرائیل فرستاد که بهتر است چند روز صبر کند تا ببیند آیا می‌توان به توافق رسید و اگر نه، ما طبق برنامه به اقدام مشترک ادامه خواهیم داد، و ارزش ندارد این موضوع را با درگیر شدن در تبادل محدود ضربات هدر داد».
+
+#اسرائیل #جمهوری_اسلامی #ترامپ
+@DEJradio
+</div>
+
+## DEJradio — post 5444
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+“هنوز ویرانه‌های جنگ ۴۰ روزه شهر به شهر قابل مشاهده است، اینبار مردم ایران پاسوز حمایت نظام از حـ.ـزب‌الله میشوند، سفره ما خرج موشک و هسته‌ای و مفت‌خوران مزدور شد
+
+#پیام_دریافتی
+@DEJradio
+</div>
+
+## mamlekate — post 103632
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+❓ الو شیراز ساعت ۲:۳۹ دوشنبه ۱۸ خرداد، ۳ تا صدا اومد. نفهمیدم که زدن یا چیز دیگه ست.
+
+@mamlekate
+</div>
+
+## FarsiVOA — post 219953
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️«هفته اقلیم ونیز ۲۰۲۶» با شعار «سیاره آب، سیاره صلح» آغاز شد؛ رویدادی بین‌المللی که نقش آب را در قلب بحران تغییرات اقلیمی و آینده محیط زیست جهان بررسی می‌کند .
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 16022
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16022_1780874590.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبتون بخیر ❤️🌙
+
+📝 Nick
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+---
 📅 بروزرسانی: 1405/03/18 02:43
 ---
 

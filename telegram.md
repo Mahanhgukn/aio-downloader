@@ -7,6 +7,271 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/17 18:33
+---
+
+## VahidOOnLine — post 244122
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244122_1780844613.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+الحدث به نقل از منابع آگاه نوشت که پس از حمله به ضاحیه، اعضای حزب‌الله دچار شوک شدند، زیرا پیش‌تر جمهوری اسلامی به آن‌ها اطمینان داده بود که این منطقه هدف قرار نخواهد گرفت.
+
+به گزارش الحدث، دولت لبنان به حزب‌الله توصیه کرده بود که نسبت به توافق پیشنهادی واشینگتن رویکردی مثبت داشته باشد، اما حزب‌الله این پیشنهاد را نپذیرفته است.
+
+همچنین الحدث اعلام کرد مذاکرات میان حماس و اسرائیل در قاهره به دلیل شروط مطرح‌شده از سوی اسرائیل با بن‌بست مواجه شده و روند آن پیچیده شده است.
+
+به گفته این رسانه، میانجی‌ها خواستار تحویل تمامی سلاح‌های حماس شده‌اند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13707
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جلسه اضطراری شورای عالی امنیت ملی ایران حدود نیم ساعت پیش به پایان رسید و «تصمیمی گرفته شده است»، اما منتشر نخواهد شد
+@withyashar
+</div>
+
+## pm_afshaa — post 92492
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92492_1780844614.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: با وجود اینکه به این تعداد نیرو در خاورمیانه نیاز نداریم، فعلاً اونارو به‌عنوان اقدامی احتیاطی حفظ می‌کنیم؛ هزینه استقرارشون کمه، در خطر نیستن و خروج آنها میتونه اشتباه باشه، چون ممکنه بعداً به آنها نیاز داشته باشیم.
+
+اگر ایران آمریکایی‌های بیشتری رو بکشه، به‌طور بسیار جدی بازگشت به اقدام نظامی رو بررسی خواهم کرد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92491
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+باز سر این کون بچه های لبنانی قراره نت ما قطع شه💔
+</div>
+
+## pm_afshaa — post 92490
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92490_1780844615.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴بعد از تهدید سخنگوی کمیته امنیت ملی جمهوری اسلامی، اسرائیل حملات رو شدیدتر کرده و دقایقی پیش با جنگنده‌های خود جنوب لبنان رو بمباران کرد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92489
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حملات سنگین اسراییل به لبنان
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92487
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92487_1780844617.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴الحدث: حزب‌الله پس از حمله اسرائیل به ضاحیه، بیروت، با اطمینان‌ به مقام‌های ایرانی مبنی بر اینکه پایتخت هدف قرار نخواهد گرفت، در شوک است. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92486
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92486_1780844617.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴الحدث: حزب‌الله پس از حمله اسرائیل به ضاحیه، بیروت، با اطمینان‌ به مقام‌های ایرانی مبنی بر اینکه پایتخت هدف قرار نخواهد گرفت، در شوک است.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 341002
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341002_1780844618.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+الحدث به نقل از منابع آگاه نوشت که پس از حمله به ضاحیه، اعضای حزب‌الله دچار شوک شدند، زیرا پیش‌تر جمهوری اسلامی به آن‌ها اطمینان داده بود که این منطقه هدف قرار نخواهد گرفت.
+
+به گزارش الحدث، دولت لبنان به حزب‌الله توصیه کرده بود که نسبت به توافق پیشنهادی واشینگتن رویکردی مثبت داشته باشد، اما حزب‌الله این پیشنهاد را نپذیرفته است.
+
+همچنین الحدث اعلام کرد مذاکرات میان حماس و اسرائیل در قاهره به دلیل شروط مطرح‌شده از سوی اسرائیل با بن‌بست مواجه شده و روند آن پیچیده شده است.
+
+به گفته این رسانه، میانجی‌ها خواستار تحویل تمامی سلاح‌های حماس شده‌اند.
+https://iranintl.com/202606074014
+</div>
+
+## IranIntlTV — post 341001
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341001_1780844619.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یکی از شرکت‌کنندگان در تجمع ایرانیان و جامعه یهودیان در کانادا در گفت‌وگو با مهسا مرتضوی، خبرنگار ایران‌اینترنشنال، گفت: «ما در هر تجمعی صدای مردم ایران را فریاد می‌زنیم.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 341000
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341000_1780844621.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یکی از شرکت‌کنندگان در تجمع لندن در گفت‌وگو با تاج‌الدین سروش، خبرنگار ایران‌اینترنشنال، گفت: «ما صدای بی‌صدایان در ایران هستیم، آزادی ایران نزدیک است.»
+@iranintltv
+</div>
+
+## Shin_Persian — post 6596
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sun, 07 Jun 2026 15:02:15 UTC
+
+Targeted assassination on a vehicle in western Gaza, 4 dead.
+
+فارسی
+
+ترور هدفمند یک خودرو در غرب غزه، ۴ کشته.
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 219866
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219866_1780844623.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تیم ملی فوتبال ایران پس از اردوی آماده‌سازی خود در آنتالیای ترکیه وارد تیخوانا در مکزیک شد؛ شهری که قرار است پایگاه تمرینی آن‌ها در رقابت‌های جام جهانی ۲۰۲۶ باشد. این سفر در حالی انجام شد که گزارش‌ها حاکی است شماری از مقام‌ها و اعضای کادر اجرایی فدراسیون فوتبال جمهوری اسلامی هنوز ویزای ورود به آمریکا را دریافت نکرده‌اند.
+</div>
+
+## DW_Farsi — post 125643
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶اصابت پهپاد روسی به انبار پسماند هسته‌ای چرنوبیل
+
+به گفته مقام‌های اوکراینی، در جریان حمله پهپادی روسیه، ساختمانی در مجموعه انبار مرکزی سوخت هسته‌ای مصرف‌شده در منطقه پیرامون نیروگاه اتمی تعطیل‌شده چرنوبیل هدف قرار گرفته است.
+
+انرگواتم، شرکت دولتی انرژی اتمی اوکراین، اعلام کرد که تأسیسات پذیرش محفظه‌های نگهداری سوخت در حمله شامگاه شنبه به یکشنبه ۷ ژوئن (۱۷ خرداد) تا حدی تخریب شده است.
+
+به گفته این شرکت، در این ساختمان هیچ سوخت هسته‌ای مصرف‌شده‌ای نگهداری نمی‌شده و سطح تشعشعات نیز در محدوده مجاز باقی مانده است.
+
+شرکت انرگواتم همچنین اعلام کرد که آتش‌سوزی در محدوده‌ای به وسعت ۴۰ متر مربع گسترش یافته بوده، اما مهار شده است.
+
+
+@dw_farsi
+</div>
+
+## DW_Farsi — post 125642
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125642_1780844626.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶تاج: کارشکنی آمریکایی‌ها در صدور ویزا برای تیم ملی فوتبال ایران خباثت است
+
+مهدی تاج، رییس فدراسیون فوتبال ایران می‌گوید، آمریکا تنها یک روز قبل از مسابقه تیم ایران به اعضای تیم ملی اجازه ورود داده است.
+
+او یکشنبه ۱۷ خرداد به خبرگزاری دانشجویان ایران، ایسنا گفته است: «یک روز قبل از مسابقه به‌ تیم ملی ما اجازه ورود داده‌اند. حاکمان آمریکا آنقدر منفورند که هیچ‌کس دلش نمی‌خواهد به آن کشور برود اما جام‌جهانی در آنجاست و باید برویم. معنی کار آمریکا خباثت و نبود برابری بین‌ تیم‌هاست.»
+
+تاج همچنین گفته، نمی‌داند "کارشکنی آمریکایی‌ها تا کجا ادامه دارد" و حدس زده که حتی هنگام ورود تیم در فرودگاه نیز مشکلات ادامه داشته باشد.
+
+رییس فدراسیون فوتبال ایران از دخالت دولت آمریکا در حوزه فوتبال اظهار تعجب کرده و آن را "نادر" دانسته است. این در حالی است که نیروهای امنیتی و حتی سپاه پاسداران در همه سفرهای تیم ملی ایران حضور دارند و حتی برای آنان خط مشی تعیین می‌کنند، از جمله درباره مصاحبه با رسانه‌ها و یا بازی در مقابل تیم اسرائیل.
+
+@dw_farsi
+</div>
+
+## Hranews — post 113447
+
+<div align="center">
+  <img src="telegram/content/Hranews_113447_1780844627.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارشی از آخرین وضعیت آرزو عبدی در زندان اوین
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– آرزو عبدی، زندانی محبوس در بند زنان زندان اوین، در حال سپری کردن دوران محکومیت خود است. وی پیشتر به دو سال حبس محکوم شده بود.
+
+به گزارش خبرگزاری هرانا، ارگان خبری مجموعه فعالان حقوق بشر در ایران، آرزو عبدی، در زندان اوین محبوس است.
+
+بر اساس اطلاعات دریافتی هرانا، خانم عبدی در تاریخ ۹ آذرماه ۱۴۰۴ برای تحمل دوران محکومیت خود به بند زنان زندان اوین منتقل شد. وی پیشتر توسط مراجع قضایی به دو سال حبس محکوم شده بود.
+
+ادامه مطلب
+
+#آرزو_عبدی
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## alonews — post 125822
+
+<div align="center">
+  <a href="telegram/content/alonews_125822_1780844627.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈جلسه اضطراری شورای عالی امنیت ملی ایران حدود نیم ساعت پیش به پایان رسید و «تصمیمی گرفته شده است»، اما منتشر نخواهد شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125821
+
+<div align="center">
+  <a href="telegram/content/alonews_125821_1780844628.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈اسرائیل به دره بقاع که از مناطق مهم حزب الله هست هم حمله کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125820
+
+<div align="center">
+  <a href="telegram/content/alonews_125820_1780844628.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈صدا و سیما داره آهنگ تو رستم تهمتنی بزن که خوب میزنی رو نشون میده
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/17 18:22
 ---
 

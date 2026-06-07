@@ -7,6 +7,465 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/17 22:13
+---
+
+## WithYashar — post 13740
+
+
+
+
+## mwarmonitor — post 10255
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_10255_1780857807.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸نیروهای ایالات متحده در سراسر خاورمیانه همچنان در حالت هوشیاری و آمادگی قرار دارند.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10254
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴اسرائیل در پی حمله حزب‌الله، بیروت را هدف قرار داد؛ خطر پاسخ ایران وجود دارد 📝باراک راوید AXIOS 🔰مقامات اسرائیلی اعلام کردند که اسرائیل روز یکشنبه در پاسخ به حمله موشکی حزب‌الله به شمال اسرائیل، حومه جنوبی بیروت را هدف قرار داده است. 📌چرا این موضوع اهمیت…
+</div>
+
+## mwarmonitor — post 10253
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 به گفته خبرنگار العربیه، وزیر کشور پاکستان که هم‌اکنون در تهران حضور دارد، هشدارهایی را به ایران درباره تشدید تنش‌ها در مسیرهای کشتیرانی دریایی منتقل کرده است.
+
+🔴 محسن نقوی از ایران خواست هرچه سریع‌تر موضع خود را در قبال مطالبات آمریکا شفاف کند.
+
+🔴 در پیامی که نقوی به رهبری ایران ابلاغ کرد، عاصم منیر، فرمانده ارتش پاکستان، از تهران خواست از فرصت کنونی برای دستیابی به یک توافق استفاده کند.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10252
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 وزارت بهداشت لبنان اعلام کرد در حمله هوایی اسرائیل به حومه‌های جنوبی بیروت، دو نفر کشته و ۲۰ نفر دیگر زخمی شدند.
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 92547
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴تمام پایگاه‌های نظامی آمریکا در سراسر خاورمیانه و خلیج فارس در حالت هشدار بالا قرار گرفتن
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92546
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسمون کشور در حال کلییر شدنه 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92545
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴شبکه 14 اسرائیل : در این حمله مشخص خواهد شد آیا ایران می‌تواند صد موشک را همزمان شلیک کند یا خیر
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92544
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سازمان هواپیمایی کشوری ایران دستور بسته شدن فضای هوایی را صادر کرده
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92543
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نیروهای امارات و کویت به حالت اماده باش در اومدن
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92542
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_92542_1780857810.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسمون کشور در حال کلییر شدنه
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## kianmeli1 — post 87704
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87704_1780857811.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری
+
+طبق اخبار حریم هوایی در حال بسته شدن است....
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 341034
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/341034" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی تیتراول با نیوشا صارمی: حمله اسرائیل به بیروت با دستور نتانیاهو و چراغ سبز ترامپ؛ سپاه: پاسخ می‌دهیم
+@iranintlTV
+</div>
+
+## Iliaen — post 4443
+
+<div align="center">
+  <img src="telegram/content/Iliaen_4443_1780857813.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک پرواز دیگر، اینبار از مبدا استابول به مقصد تهران، با تغییر مسیر پرواز، درحال دور زدن آسمان غرب ایران جهت ادامه‌ی مسیر (یا فرود در نخستین فرودگاه) است.
+
+@iliaen
+</div>
+
+## FarsiVOA — post 219913
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219913_1780857814.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیویی از کیان، فرزند کمیل جمشیدی، کشته‌شده در دی ماه ۱۴۰۴، واکنش کاربران اجتماعی را برانگیخته است. کیان ۱۳ ساله دل‌تنگ پدرش، لباس او را در آغوش گرفته و اشک می‌ریزد.
+
+کمیل جمشیدی، ۳۶ ساله، ۱۸ دی با گلوله ماموران حکومتی در فردیس کرج کشته شد.
+</div>
+
+## FarsiVOA — post 219912
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایمان آقایاری در برنامه تفسیر خبر: جمهوری اسلامی از پاسخ به نیاز نسل امروز ناتوان است
+</div>
+
+## FarsiVOA — post 219911
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Farsi VOA pinned a photo
+</div>
+
+## FarsiVOA — post 219910
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219910_1780857818.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دامون محمدی در برنامه تفسیر خبر: به محض پایان تب جنگی، اعتراضات مردمی تشدید می شود
+</div>
+
+## FarsiVOA — post 219909
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219909_1780857819.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎯این برنامخ جذاب فهیمه خضر حیدری در رابطه با میر حسین موسوی را از لینک زیر مشاهده کنید:
+https://www.youtube.com/live/pEj88TjMsVs
+
+
+🔴یوتیوب صدای آمریکا را هم سابسکرایب کنید
+👇👇👇👇
+https://youtube.com/@voafarsi
+</div>
+
+## FarsiVOA — post 219908
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺ارتش اسرائیل از کشف شبکه تونلی حزب‌الله که با «تامین مالی» جمهوری اسلامی در ارتفاعات بوفور ساخته شده است خبر داد
+
+◾️ارتش اسرائیل می‌گوید نیروهایش یک شبکه گسترده تونل‌های زیرزمینی متعلق به حزب‌الله لبنان را در منطقه ارتفاعات بوفور در جنوب لبنان شناسایی کرده‌اند؛ شبکه‌ای که به گفته ارتش اسرائيل، با طراحی و تأمین مالی جمهوری اسلامی ایران ساخته شده است.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/israel-exposes-hezbollah-tunnel-network/8158237.html
+</div>
+
+## Persian_Trend_Official — post 15922
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15922_1780857820.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 غریب‌آبادی: ایران خسارات جنگ را از متجاوزان دریافت خواهد کرد
+کاظم غریب‌آبادی، معاون وزیر امور خارجه، تأکید کرد ایران عاملان تجاوز را رها نخواهد کرد و جبران کامل خسارات جنگ را پیگیری می‌کند.
+وی با اشاره به نقش برخی کشورهای منطقه در حمایت از عملیات علیه ایران گفت دولت‌هایی که قلمرو یا امکانات خود را در اختیار متجاوزان قرار داده‌اند، در موقعیت مطالبه خسارت نیستند و بر اساس حقوق بین‌الملل باید پاسخگوی اقدامات خود باشند.
+غریب‌آبادی همچنین تصریح کرد دارایی‌های ایران غنیمت جنگی آمریکا یا منبع تأمین هزینه‌های متحدان واشنگتن نیست و هرگونه تصرف یا انتقال این اموال بدون رضایت تهران، نقض جدید حقوق بین‌الملل محسوب می‌شود.
+
+
+👺Phantom
+
+
+📌@persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15921
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15921_1780857821.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جمینگ شدید روی آسمان قطر !
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15920
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک مقام ارشد امنیتی ایالات متحده به اکسیوس گفت که ارتش آمریکا کاملاً آماده است تا در صورت اقدام ایران به تهدیدات خود و حمله، واکنش نشان دهد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15919
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15919_1780857821.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+از بچه های بالا، وزارت اطلاعات، اطلاعات سپاه، حراست ورزشگاه آزادی، بسیج کسبه قلعه حسن خان، عقیدتی پادگان کچویی کرج، اگر کسی اینجا هست جون عزیزتون نرینید تو اینترنت .
+</div>
+
+## Persian_Trend_Official — post 15918
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15918_1780857822.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علی قلهکی:
+تنش مجدد نظامی احتناب‌ناپذیر است!
+ایران باید تصمیم بگیرد که
+اکنون شروع کند (پیش از جام جهانی)
+یا پس از جام جهانی
+و یا پاییزِ ۱۴۰۵، اسرائیل و آمریکا ابتکار عمل را بدست‌ گیرند!
+
+
+👺Phantom
+
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 21585
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21585_1780857823.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حریم هوایی ایران و عراق داره کلیر میشه
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21584
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21584_1780857824.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 گویا ایرانی های ساکن لس انجلس بیشتر بلیط های بازی «ایران» و «نیوزیلند» در جام جهانی رو خریدن و احتمالا قرار جو بدی علیه بازیکنا تیم ملی در ورزشگاه ایجاد کنن.
+
+چندتا از برنامه هاشون اینه که موقع پخش سرود ملی همه پشت کنن به زمین یا در حین بازی علیه بازیکنا شعار بدن.
+البته طبق گزارش ها احتمالا ورود پرچم شیروخورشید به استادیوم ممنوع خواهد بود.
+لس آنجلس بیش از ۱۰۰ هزار نفر ایرانی داره و گنجایش این ورزشگاه فقط ۷۰ هزار نفره.
+این بازی بامداد سه شنبه ۲۶ خرداد ساعت ۴:۳۰ دقیقه به وقت تهران برگزار میشه.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21583
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21583_1780857825.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🕔 انتظارها به پایان رسید
+
+📃 رونمایی از سایت وینرو ساعت 
+🔢 امشب
+
+
+🤩
+🤩
+🤩
+🤩 بونوس اضافه به ازای هر واریز 
+💰
+
+🔴فرصت تکرارنشدنی به مناسبت افتتاحیه
+🔴
+
+⚡️هر چقدر شارژ کنی، بیشتر هدیه می‌گیری
+⚡️
+
+🔴تا سقف ۳ میلیون تومان
+🔴
+
+⌛ فقط برای مدت محدود
+
+
+💣بالاترین بونوس‌ها فقط در سایت وینرو
+
+پیش بینی کن و برنده شو
+🎯
+
+
+📺 تلویزیون لایو برای پوشش بازی ها
+
+🛍بالاترین ضرایب ممکن
+و هزاران امکانات خاص دیگه
+💰
+
+
+🎰 همین الان وارد شو و با هر شارژ تا ۲۰۰ درصد شارژ اضافه از ما هدیه بگیر
+
+🔤 Winro.io         معتبرترین سایت ایران
+
+🔤 Winro.io
+
+📱 کانال اخبار و هدایــا gg17
+🌟
+
+📱 @winro_io
+</div>
+
+## Dirty_Kids — post 391244
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391244_1780857826.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دو عکس از یک راننده قطار با فاصله ۲۶ سال!
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391243
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391243_1780857826.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این روزا دخترا چقدر دعوایی شدن😐😂
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391242
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391242_1780857829.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+يعنى خجالت نميكشن تو عصر ارتباط و سوشيال مديا اينارو ميگن؟
+
+محیا دهقانی: جوان ایرانی که هر شب داره عشق و حال می‌کنه اگه مهاجرت کنه یه کشور اروپایی باید صبح تا شب کار کنه! با همون میزان کار در ایران می‌تونه به خیلی جاها برسه.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Hranews — post 113456
+
+<div align="center">
+  <img src="telegram/content/Hranews_113456_1780857831.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اعتراضات دی‌ماه ۱۴۰۴؛ آرمان سلیمانی توسط دادگاه تجدیدنظر به حبس محکوم شد
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– محکومیت آرمان سلیمانی، از بازداشت‌شدگان اعتراضات سراسری دی‌ماه ۱۴۰۴ که در زندان شیبان اهواز محبوس است، توسط دادگاه تجدیدنظر استان خوزستان عینا تایید شد. وی پیشتر توسط دادگاه انقلاب ایذه به دو سال و یک روز حبس محکوم شده بود.
+
+به گزارش خبرگزاری هرانا، ارگان خبری مجموعه فعالان حقوق بشر در ایران، آرمان سلیمانی به حبس محکوم شد.
+
+بر اساس رای صادره توسط دادگاه تجدیدنظر استان خوزستان، آقای سلیمانی از بابت اتهام “اخلال در نظم عمومی” با استناد به تبصره ماده ۲۶۸ قانون مجازات اسلامی به دو سال و یک روز حبس محکوم شده است.
+
+ادامه مطلب
+
+#آرمان_سلیمانی
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## alonews — post 125879
+
+<div align="center">
+  <a href="telegram/content/alonews_125879_1780857832.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈العربیه: وزیر کشور پاکستان که هم‌اکنون در تهران حضور دارد، هشدارهایی را به ایران درباره تشدید تنش‌ها در مسیرهای کشتیرانی دریایی منتقل کرده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125878
+
+<div align="center">
+  <a href="telegram/content/alonews_125878_1780857832.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری/ وضعیت آسمان منطقه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/17 22:03
 ---
 

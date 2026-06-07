@@ -7,6 +7,343 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/17 16:53
+---
+
+## WithYashar — post 13690
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ به ان بی سی: هیچ پولی از ایران آزاد نخواهم کرد. تحریم ها هم کاهش پیدا نمی کند
+
+اگر برای پایان جنگ به توافق برسیم، با ایران برای بازیابی و نابودی اورانیوم غنی‌شده با غنای بالا همکاری خواهیم کرد
+اگر به توافق نرسیم، ارتش ایران را بیش از پیش تضعیف خواهیم کرد تا زمانی که نیروهای ما بتوانند با خیال راحت اورانیوم را بردارند.
+@withyashar
+</div>
+
+## pm_afshaa — post 92474
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92474_1780838593.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ در مورد مجتبی خامنه‌ای:
+نمیخوام بگم که میدونم او کجاست یا نه، اما احتمال خوبی وجود داره که بدونم کجاست.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92473
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92473_1780838594.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: اگر برای پایان جنگ به توافق برسیم، با ایران برای بازیابی و نابودی اورانیوم غنی‌شده با غنای بالا همکاری خواهیم کرد.
+
+اگر به توافق نرسیم، ارتش ایران رو بیش از پیش تضعیف خواهیم کرد تا زمانی که نیروهای ما بتونن با خیال راحت اورانیوم رو بردارند.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92472
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92472_1780838594.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: هیچ پول مسدود شده ایران در چهارچوب هیچ توافقی پیشاپیش آزاد نخواهد شد و هیچ‌یک از تحریم‌ها رو هم قبل از توافق برنخواهم داشت!
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92471
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92471_1780838595.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ به ان‌بی‌سی نیوز: لازم نیست که لبنان بخشی از آتش‌بس با ایران باشه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92470
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#ارسالی
+
+پدرم سردار نیرو هوایی ارتش همین الان آماده باش دادن رفت از خونه
+</div>
+
+## DEJradio — post 5427
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ تجمعات اعتراضی دانش‌آموزان در چند شهر ایران ادامه یافت
+
+بر پایۀ گزارش‌ها گروه‌هایی از دانش‌آموزان در تهران، مشهد، اصفهان، شیراز و چند شهر دیگر در اعتراض به تغییرات کنکور و تاثیر قطعی معدل، تجمع کردند و شعارهایی علیه مقامات سردادند.
+معترضان می‌گویند جنگ، تعطیلی مدارس و بلاتکلیفی زمان آزمون‌ها، امکان آمادگی مناسب را از آنها گرفته است
+بنا بر گزارش‌ها، شماری از عوامل نیروی انتظامی و اعضای یگان ویژه، پیرامون برخی تجمع‌ها از جمله در شهر مشهد حضور یافته‌اند.
+
+#خبر #دژ #دانش_آموزان
+@DEJradio
+</div>
+
+## IranIntlTV — post 340985
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340985_1780838596.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+همزمان با افزایش توجه‌ها به تحولات لبنان، کاربران شبکه‌های اجتماعی درباره جایگاه این کشور در سیاست‌های منطقه‌ای جمهوری اسلامی و پیامدهای تحولات اخیر برای تهران به بحث و تبادل نظر پرداخته‌اند.
+
+عادله بورنگ، عضو تحریریه ایران‌اینترنشنال، از واکنش کاربران می‌گوید
+
+@iranintltv
+</div>
+
+## Shin_Persian — post 6592
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet: Shin ✓ @hey_itsmyturn Sun, 07 Jun 2026 11:59:05 UTC What people don't understand is that the "Government" of the Islamic Regime in Iran has no power over jack shit, everything is under IRGC's control, and IRGC is the pet hound of the "Supreme…
+</div>
+
+## Shin_Persian — post 6591
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+Shin ✓ @hey_itsmyturn
+Sun, 07 Jun 2026 11:59:05 UTC
+
+What people don't understand is that the "Government" of the Islamic Regime in Iran has no power over jack shit, everything is under IRGC's control, and IRGC is the pet hound of the "Supreme Leader", the government, including the Ministry of Foreign Affairs is just there to take
+
+↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
+
+فارسی
+
+چیزی که مردم درک نمی‌کنند این است که «دولت» رژیم اسلامی در ایران هیچ اختیاری بر هیچ کوفتی ندارد؛ همه‌چیز تحت کنترل سپاه پاسداران انقلاب اسلامی (IRGC) است و سپاه هم سگ دست‌آموز «رهبر معظم» است. دولت، از جمله وزارت امور خارجه، فقط برای این آنجا هستند که مسئولیت بپذیرند.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6590
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sun, 07 Jun 2026 13:15:33 UTC
+
+7 dead in Dahieh as of now.
+Beirut, Lebanon.
+
+فارسی
+
+تا این لحظه ۷ کشته در ضاحیه.
+بیروت، لبنان.
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 219852
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺سنتکام درباره محاصره دریایی جمهوری اسلامی: ۱۳۲ کشتی را وادار به تغییر مسیر کرده‌ایم و ۶ شناور را از کار انداخته‌ایم
+
+◾️سنتکام، در یک به‌روز‌رسانی تازه درباره محاصره دریایی جمهوری اسلامی، از افزایش تعداد شناورهایی که در جریان این عملیات وادار به تغییر مسیر شده‌اند، خبر داد.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/centcom-naval-blockade-commercial-ships-iran/8158185.html
+</div>
+
+## DW_Farsi — post 125634
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎥یک کشته و ۵ زخمی در سوء قصد "تروریستی" در اسرائیل
+
+در روز یکشنبه (۷ ژوئن/ ۱۷ خرداد) در چندین نقطه در شمال شرق تل‌آویو سوء قصد مسلحانه رخ داد. پلیس این تیراندازی را "حمله تروریستی" تلقی می‌کند. یک مظنون و یک شهروند ۳۵ ساله کشته و دست‌کم ۵ نفر هم زخمی شده‌اند.
+
+
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 15870
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15870_1780838599.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: اگر ایران رفتار خوبی داشته باشد و کار خوبی انجام دهد، آن وقت مذاکره را شروع خواهیم کرد.
+
+اگر به توافق نرسیم، ارتش ایران را بیشتر تضعیف خواهیم کرد تا زمانی که نیروهای ما بتوانند با خیال راحت اورانیوم آنها را بردارند.
+
+ضروری نیست که لبنان بخشی از آتش‌بس با ایران باشد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15869
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15869_1780838599.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇮🇱اسرائیل پس از حمله به بیروت: فعلاً انتظار پاسخ مستقیم ایران را نداریم
+
+رسانه‌های عبری به نقل از منابع امنیتی گزارش دادند که حمله اخیر اسرائیل به بیروت ماهیتی محدود داشته و در ارزیابی‌های اولیه، احتمال پاسخ مستقیم ایران به این اقدام پایین ارزیابی شده است.
+
+
+📰همچنین کانال ۱۲ اسرائیل اعلام کرد که تاکنون هیچ تغییری در دستورالعمل‌های امنیتی جبهه داخلی در شمال اسرائیل اعمال نشده است. به گفته منابع اسرائیلی، هدف از این حمله سنجش میزان حساسیت و واکنش ایران نسبت به تحولات لبنان بوده است.
+
+گزارش‌ها حاکی است اسرائیل پیش از اجرای این عملیات، آمریکا را در جریان قرار داده بود. برخی خبرنگاران اسرائیلی نیز مدعی شده‌اند ساختمانی که هدف قرار گرفت در زمان حمله خالی از نیرو بوده و عملیات بیشتر جنبه نمادین داشته است.
+
+با این حال، منابع لبنانی از تلفات و مجروحان متعدد در پی این حمله خبر می‌دهند. رسانه‌های اسرائیلی نیز گزارش داده‌اند که این عملیات با شلیک حدود ۱۰ موشک و با مشارکت دو جنگنده انجام شده است.
+
+به نظر می‌رسد اسرائیل تلاش کرده بدون عبور از خطوط قرمز تهران، پیام بازدارندگی خود را به حزب‌الله و محور مقاومت منتقل کند. با این حال، میزان تلفات و نحوه برداشت طرف مقابل از این حمله می‌تواند در تعیین سطح تنش‌های روزهای آینده نقش مهمی داشته باشد.
+
+👺Phantom
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 21562
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ به ان‌بی‌سی‌نیوز:
+
+لازم نیست که لبنان بخشی از آتش‌بس با ایران باشد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21561
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21561_1780838600.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴شبکه خبر در حال گزارش لحظه‌ای از حملات اسرائیل به ضاحیه بیروت.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 283072
+
+<div align="center">
+  <a href="https://t.me/bbcpersian/283072" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تازه‌ترین خبرهای ایران و جهان یکشنبه ۱۷ خرداد ۱۴۰۵ از رادیو بی‌بی‌سی در لندن
+</div>
+
+## alonews — post 125775
+
+<div align="center">
+  <a href="telegram/content/alonews_125775_1780838601.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ، درباره مکان مجتبی خامنه‌ای : نمی‌خوام بگم که میدونم اون کجاست یا نه، اما احتمال خوبی وجود داره که بدونم کجاست 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125774
+
+<div align="center">
+  <a href="telegram/content/alonews_125774_1780838602.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ به ان‌بی‌سی: ما و ایران به امضای توافق بسیار نزدیک هستیم، اما من تهران را تحت فشار قرار می‌دهم تا از جاه‌طلبی‌های هسته‌ای خود دست بردارد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125773
+
+<div align="center">
+  <a href="telegram/content/alonews_125773_1780838602.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ، درباره مکان مجتبی خامنه‌ای : نمی‌خوام بگم که میدونم اون کجاست یا نه، اما احتمال خوبی وجود داره که بدونم کجاست
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125772
+
+<div align="center">
+  <a href="telegram/content/alonews_125772_1780838603.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ به ان بی سی: هیچ پولی از ایران آزاد نخواهم کرد. تحریم ها هم کاهش پیدا نمی کند 
+🔴اگر برای پایان جنگ به توافق برسیم، با ایران برای بازیابی و نابودی اورانیوم غنی‌شده با غنای بالا همکاری خواهیم کرد 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125771
+
+<div align="center">
+  <a href="telegram/content/alonews_125771_1780838603.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ به ان بی سی: هیچ پولی از ایران آزاد نخواهم کرد. تحریم ها هم کاهش پیدا نمی کند
+
+
+🔴اگر برای پایان جنگ به توافق برسیم، با ایران برای بازیابی و نابودی اورانیوم غنی‌شده با غنای بالا همکاری خواهیم کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125770
+
+<div align="center">
+  <a href="telegram/content/alonews_125770_1780838603.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / ترامپ به ان بی سی: نمی‌خواهم لبنان بخشی از تفاهم با ایران باشد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125769
+
+<div align="center">
+  <a href="telegram/content/alonews_125769_1780838604.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈الحدث: ترامپ از قبل از حمله بیروت مطلع شده بود»
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/17 16:43
 ---
 

@@ -7,6 +7,121 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/17 21:13
+---
+
+## FoxNewsTwitter — post 342700
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342700_1780854185.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Spencer Pratt’s bid to make the Los Angeles mayoral runoff hangs in the balance nearly a week after Election Day.
+
+Pratt’s margin over Democrat Nithya Raman has slimmed to just 1%, with only a few thousand ballots left to count. The winner will advance to a November showdown against incumbent Mayor Karen Bass.
+</div>
+
+## pm_afshaa — post 92529
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92529_1780854186.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کانال 15 اسرائیل:
+براوردها نشون میده ایران ممکنه مکان دیگری رو در منطقه خلیج فارس هدف قرار بده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## Shin_Persian — post 6610
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6610_1780854186.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sun, 07 Jun 2026 17:39:56 UTC
+
+#IAF 🇮🇱 's Nachshon Oron (IAF's most advanced "spy" platform) RTB after mission over the Eastern Mediterranean.
+738A69 | 452 | C/S IRON
+
+فارسی
+
+#IAF 🇮🇱 هوایپیمای «ناخشون اورون» نیروی هوایی اسرائیل (پیشرفته‌ترین پلتفرم «جاسوسی» نیروی هوایی اسرائیل) پس از ماموریتی بر فراز شرق مدیترانه در حال بازگشت به پایگاه است.
+738A69 | 452 | C/S IRON
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 219888
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺ابهام درباره محدودیت ویزای تیم ایران؛ آمریکا صدور ویزا برای بازیکنان را تأیید کرد
+
+◾️هم‌زمان با صدور ویزای آمریکا برای بازیکنان تیم فوتبال ایران، گزارش‌های متناقضی درباره شرایط ورود و مدت اقامت این تیم در خاک ایالات متحده منتشر شده است. یک مقام جمهوری اسلامی می‌گوید اعضای تیم تنها در روز برگزاری مسابقه اجازه ورود دارند و باید همان روز آمریکا را ترک کنند؛ اما مقام‌های آمریکایی تاکنون وجود چنین محدودیتی را تأیید نکرده‌اند.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/iran-team-faces-u-s-visa-uncertainty/8158225.html
+</div>
+
+## FarsiVOA — post 219887
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺جلسه نتانیاهو با تیم امنیتی و نظامی خود در بحبوحه تهدیدات تازه جمهوری اسلامی علیه اسرائيل
+
+◾️رسانه‌های اسرائيلی گزارش دادند که بنیامین نتانیاهو، نخست‌وزیر اسرائیل، در پی تهدیدهای تازه جمهوری اسلامی علیه درگیری‌های اسرائيل در لبنان، جلسه‌ای امنیتی با یسرائیل کاتز، وزیر دفاع اسرائیل، و فرماندهان ارشد نهادهای امنیتی و نظامی برگزار می‌کند.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/8158227.html
+</div>
+
+## FarsiVOA — post 219886
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺حمایت زندانیان سیاسی ایران از یکدیگر؛ رضا محمدحسینی خواهان آزادی «بچه‌های اکباتان» و سهراب حسن‌خانی شد
+
+◾️رضا محمدحسینی طامه، زندانی سیاسی محبوس در زندان قزلحصار، با انتشار متنی در حمایت از «بچه‌های اکباتان» و سهراب حسن‌خانی، ضمن تأکید بر مخالفت با اعدام، زندان سیاسی و مجازات‌های غیرانسانی، خواستار لغو احکام اعدام و آزادی تمامی زندانیان سیاسی و عقیدتی شد.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/reza-mohammad-hosseini-tameh-political-prisoners-support-children-of-ekbatan/8158223.html
+</div>
+
+## alonews — post 125862
+
+<div align="center">
+  <a href="telegram/content/alonews_125862_1780854187.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پزشکیان: گروه مذاکره‌کننده، آدم‌هایی نیستند که جا بزنند در نتیجه ما باید با قدرت وارد صحنه شویم و از حقوق ملت دفاع کنیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125861
+
+<div align="center">
+  <a href="telegram/content/alonews_125861_1780854187.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سی‌جی ۱۲۵ موتور اقتصادی بازار ۳۵۰ میلیون تومان!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/17 21:03
 ---
 

@@ -7,6 +7,102 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/17 10:42
+---
+
+## VahidOOnLine — post 244045
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بر اساس ویدیوهای رسیده به ایران‌اینترنشنال، گروهی از ایرانیان مقیم نورنبرگ در آلمان شنبه ۱۶ خرداد پرفورمنسی را علیه اعدام‌های جمهوری اسلامی اجرا کردند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## mwarmonitor — post 10239
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 حذف شد: سقر ابو کریم، فرمانده یک هسته از یگان «نُخبه» حماس که از جمله رهبران نفوذ به منطقه «کیسوفیم» در جریان کشتار ۷ اکتبر بود.
+
+🔸ابوکریم در طول جنگ، برنامه‌ریزی و اجرای حملات علیه نیروهای ارتش اسرائیل را پیش برد و اخیراً نیز با تلاش برای بازسازی توان نیروهای حماس و نگهداری یک انبار بزرگ سلاح در منزلش، آتش‌بس را نقض کرده بود.
+
+🔹در این حمله همچنین یک تروریست دیگر از حماس که به‌عنوان عامل ارتباطات فعالیت می‌کرد، از پای درآمد.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10238
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_10238_1780816350.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸خواهر Kim Jong-un تلاش آمریکا برای خلع سلاح هسته‌ای کره شمالی را «رویایی کهنه و منسوخ» توصیف کرد. « نیویورک پست »
+
+@mwarmonitor
+</div>
+
+## IranIntlTV — post 340931
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340931_1780816351.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بر اساس ویدیوهای رسیده به ایران‌اینترنشنال، گروهی از ایرانیان مقیم نورنبرگ در آلمان شنبه ۱۶ خرداد پرفورمنسی را علیه اعدام‌های جمهوری اسلامی اجرا کردند.
+</div>
+
+## IranianMinds — post 21539
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21539_1780816352.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 آیت الله جوادی آملی :
+
+ترامپ و نتانیاهو باید فورا کشته بشن و همه باید یه کاری بکنیم تا کشته بشن چون این خواسته و دستور امام زمانه !
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21538
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21538_1780816353.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+@IranianMinds
+</div>
+
+## alonews — post 125690
+
+<div align="center">
+  <a href="telegram/content/alonews_125690_1780816353.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈معاون وزیر نیرو: هیچ برنامه‌ای تا امروز برای اعمال خاموشی‌ها نداریم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125689
+
+<div align="center">
+  <a href="telegram/content/alonews_125689_1780816354.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈واشنگتن دارایی‌های مسدود شده ایران را برای حمایت از بازسازی و تعمیر خسارات در اختیار متحدان خود قرار خواهد داد.
+
+
+🔴رویترز خبر داد که وزیر خزانه‌داری آمریکا به تیم خود دستور داده خسارات واردشده به کشورهای خلیج‌فارس در حملات جمهوری اسلامی را بررسی کنند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/17 10:32
 ---
 

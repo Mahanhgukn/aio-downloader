@@ -7,6 +7,59 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/18 03:03
+---
+
+## VahidOOnLine — post 244205
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️انتشار تصاویری از مصاحبه اختصاصی دونالد ترامپ با برنامه «میت د پرس» شبکه «ان‌بی‌سی»، لحظه خشم شدید او و ترک استودیو را نشان می‌دهد. ترامپ در این گفتگو، پس از متهم کردن نظام انتخاباتی ایالات متحده به تقلب و تشبیه آن به «کشورهای جهان سوم»، به شدت به کریستن ولکر، مجری برنامه، و رسانه‌های خبری آمریکا از جمله ان‌بی‌سی، سی‌ان‌ان، ای‌بی‌سی و سی‌بی‌اس تاخت و آن‌ها را «فاسد، احمق و یک‌جانبه» خواند. او با قطع ناگهانی مصاحبه گفت: «من زیر باران نشستم و به اندازه کافی به تو [مجری] وقت دادم. شما باید رسانه‌های خود را اصلاح کنید، چرا که یک کشور هرگز نمی‌تواند با رسانه‌های متقلب و نامرد، بزرگ و قدرتمند باقی بماند.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13861
+
+
+
+
+## DEJradio — post 5448
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5448_1780875198.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🔸 خبر ۲۱
+یکشنبه ۱۷ خرداد ۱۴۰۵
+
+#خبر۲۱
+@DEJradio
+</div>
+
+## FarsiVOA — post 219955
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219955_1780875199.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️گام تازه آمریکا علیه برنامه هسته‌ای جمهوری اسلامی در شورای حکام آژانس؛ گفت‌وگو با فرزانه روستایی
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219954
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219954_1780875200.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️باراک راوید، خبرنگار آکسیوس می‌گوید که «یک مقام ارشد آمریکایی» به او گفت که کاخ سفید به حمله اسرائیل به بیروت «چراغ سبز» نشان نداده است. یک مقام آمریکایی دیگر نیز گفت: «ما هیچ نقشی در این نداشتیم.»
+@FarsiVOA
+</div>
+
+---
 📅 بروزرسانی: 1405/03/18 02:53
 ---
 

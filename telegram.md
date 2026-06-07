@@ -7,6 +7,212 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/17 16:02
+---
+
+## VahidOOnLine — post 244102
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244102_1780835577.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بنیامین نتانیاهو، نخست‌وزیر و یسرائیل کاتز، وزیر دفاع اسرائیل اعلام کردند که دستور حمله به ضاحیه بیروت را صادر کرده‌اند.
+
+در پی این دستور، سخنگوی ارتش اسرائیل از حمله به ضاحیه بیروت خبر داد.
+
+کاتز اعلام کرد که حمله به ضاحیه بیروت، در پاسخ به شلیک حزب‌الله به سمت خاک اسرائیل انجام شده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13682
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عراقچی 48 ساعت قبل به صورت رسمی اعلام کرد در صورت حمله اسرائیل به بیروت،جنگ آغاز خواهد شد.
+@withyashar
+</div>
+
+## WithYashar — post 13681
+
+<div align="center">
+  <img src="telegram/content/WithYashar_13681_1780835577.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ساختمان هدف قرار گرفته در ضاحیه بیروت توسط نیروهوایی اسرائیل
+@withyashar
+</div>
+
+## WithYashar — post 13680
+
+<div align="center">
+  <img src="telegram/content/WithYashar_13680_1780835578.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نخست وزیر و وزیر دفاع اسرائیل در بیانیه مشترک از انجام حملات هوایی به مراکز فرماندهی و زیرساخت حزب الله در ضاحیه بیروت در پاسخ به حملات راکتی امروز صبح حزب الله خبر دادند.
+@withyashar
+</div>
+
+## WithYashar — post 13679
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نخست وزیر ناتانیاهو حمله به بیروت را تایید کرد.
+🚨🚨🚨🚨🚨🚨🚨
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342689
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342689_1780835579.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Frightening video captures the moment gunshots ring out at a festival in Toledo, Ohio.
+
+At least 12 people were wounded, 2 of them critically, authorities say. An urgent search is underway for the suspects as police believe more than one gunman was involved.
+</div>
+
+## IranIntlTV — post 340980
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340980_1780835581.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بنیامین نتانياهو، نخست‌وزیر و یسرائیل کاتز، وزیر دفاع اسرائیل اعلام کردند که دستور حمله به ضاحیه بیروت را صادر کرده‌اند.
+
+در پی این دستور، سخنگوی ارتش اسرائیل از حمله به ضاحیه بیروت خبر داد.
+
+کاتز اعلام کرد که حمله به ضاحیه بیروت، در پاسخ به شلیک حزب‌الله به سمت خاک اسرائیل انجام شده است.
+https://iranintl.com/202606072355
+</div>
+
+## IranIntlTV — post 340979
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340979_1780835582.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻بر اساس اطلاعات صفحه فلای‌رادار، تیم ملی پس از پایان اردوی آماده‌سازی خود در آنتالیا، با یک فروند هواپیمای ایرباس A۳۴۰-۳۰۰ متعلق به شرکت هواپیمایی آلمانی USC راهی مکزیک شد و پس از توقفی در سانتیاگو د کامپوستلا در اسپانیا، دقایقی پیش در تیخوانای مکزیک فرود آمد.
+
+🔹مهدی تاج، رییس فدراسیون فوتبال، و امیرمهدی علوی، سخنگوی فدراسیون، در ماه‌های گذشته بارها بر استفاده از پروازهای ایران‌ایر برای سفر تیم ملی به جام جهانی تاکید کرده بودند.
+
+🔹مهدی تاج پیش‌تر در گفت‌وگو با وب‌سایت فدراسیون فوتبال گفته بود: «با تغییر کمپ تیم ملی از آمریکا به مکزیک، مساله ویزا تا اندازه زیادی حل می‌شود و می‌توانیم با پرواز ایران‌ایر به مکزیک برویم و برگشت هم از همان‌جا بیاییم.»
+
+🔹با این حال، کاروان تیم ملی در نهایت با هواپیمای شرکت آلمانی USC که در سال ۲۰۲۰ تاسیس شده، راهی مکزیک شد. این تغییر در شرایطی رخ داده که ایران‌ایر همچنان تحت تحریم‌های آمریکا قرار دارد و امکان پرواز مستقیم این شرکت به خاک آمریکا یا استفاده از آن در برخی مسیرهای مرتبط با جام جهانی با محدودیت‌های جدی روبه‌رو است.
+
+🔹جزییات بیشتر را در سایت بخوانید
+
+@iranintltvsport
+</div>
+
+## FarsiVOA — post 219849
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219849_1780835583.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش دفاعی اسرائیل به زبان فارسی ویدیویی از روند آماده‌سازی فرماندهان آینده این ارتش منتشر کرده است.
+
+سخنگوی فارسی زبان ارتش اسرائیل در این ویدیو با اشاره به آموزشگاه (هنگ) نوجوانان ارتش شاهنشاهی قبل از انقلاب ۵۷ که از ارزش‌هایی مشابه در پرورش نسل بعدی رزمندگان پیروی می‌کرد، می‌گوید در مقابل، جمهوری اسلامی همچنان به سرمایه‌گذاری روی نیروهای نیابتی و گسترش تروریسم ادامه می‌دهد.
+</div>
+
+## FarsiVOA — post 219848
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محسن قاصد، کنشگر و همیار محیط‌زیست، ویدیویی از بازگشت فلامینگوها به دریاچه ارومیه را در صفحه اینستاگرام خود منتشر کرد.
+
+همزمان با بهبود وضعیت دریاچه ارومیه، این پرندگان مهاجر به زیستگاه‌شان بازگشته‌اند.
+
+@FarsiVOA
+</div>
+
+## IranianMinds — post 21556
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21556_1780835585.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری:
+حمله اسرائیل به ضاحیه بیروت.
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 391210
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ولی میدونی چی برام جالبه
+اینکه ۱۲ سال مدرسه اسلامی،
+۴ سال دانشگاه دولتی با درس های دینی،
+۲ سال خدمت مقدس سربازی،
+رو هم‌ دیگه حساب کنی ۱۸ سال تلاش بی وقفه جمهوری اسلامی برای نفوذ به مغز ما و تحمیل عقاید خودش به ما ناکام موند :)
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 125756
+
+<div align="center">
+  <a href="telegram/content/alonews_125756_1780835587.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سخنگوی کمیسیون امنیت ملی: ایران بعد از ۹ اسفند هیچ درخواستی برای مذاکره نداشته؛ همه اینها یک طرفه و از طرف آمریکا بوده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125755
+
+<div align="center">
+  <a href="telegram/content/alonews_125755_1780835589.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈محل مورد هدف قرار گرفته در حومه جنوبی شهر است.
+
+
+🔴گویا ترور هدفمندی صورت گرفته
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125754
+
+<div align="center">
+  <a href="telegram/content/alonews_125754_1780835589.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 العربیه: پاکستان به دنبال جداسازی پرونده لبنان از توافق ایران و آمریکا
+
+
+🔴عبدالله خلوف، خبرنگار العربیه: پیام فرمانده ارتش پاکستان به رهبری ایران، تلاشی برای رسیدن به مرکز تصمیم‌گیری ایران است. اسلام‌آباد تلاش می‌کند «پرونده لبنان» را از توافق احتمالی میان واشنگتن و تهران جدا کند و آمادگی خود را برای کمک به ارتش لبنان در اعمال کنترل بر جنوب این کشور، پس از خروج عناصر حزب‌الله، اعلام کرده است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125753
+
+<div align="center">
+  <a href="telegram/content/alonews_125753_1780835589.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 عراقچی گفته بود اگه به ضاحیه حمله بشه، تهران با قدرت پاسخ می‌ده!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/17 15:52
 ---
 

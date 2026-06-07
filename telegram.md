@@ -7,6 +7,340 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/17 17:22
+---
+
+## VahidOOnLine — post 244113
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244113_1780840368.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ رئیس جمهوری ایالات متحده درمصاحبه با شبکه ان‌بی‌سی نیوز(NBC News) اعلام کرد تمایلی ندارد لبنان در توافق کوتاه‌مدت احتمالی میان آمریکا و ایران گنجانده شود.
+
+ترامپ در این مصاحبه که روز یکشنبه ۱۷ خردادماه پخش شد تأکید کرد هیچگونه لغو تحریم یا آزادسازی دارایی‌های مسدودشده ایران پیش از دستیابی به توافق انجام نخواهد شد.
+
+
+
+رئیس جمهوری آمریکا گفت که «در صورت پایبندی ایران به تعهدات و «رفتار مناسب»، امکان آغاز گفتگوها و بررسی اقدامات بعدی وجود خواهد داشت.
+
+مقام‌های جمهوری اسلامی می‌گویند باید دست‌کم نیمی از دارایی‌های مسدود شده ایران پیش از امضای هر توافقی آزاد شود.
+
+ترامپ در همین مصاحبه گفت در صورت دستیابی به توافق، آمریکا با ایران برای جمع‌آوری و نابودی ذخایر اورانیوم با غنای بالا همکاری خواهد کرد.
+
+رئیس‌جمهوری آمریکا در عین حال هشدار داد در صورت شکست مذاکرات، واشینگتن فشار نظامی بر ایران را افزایش خواهد داد تا بتواند به‌طور مستقیم این مواد را تحت کنترل درآورد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244112
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244112_1780840368.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ به ان‌بی‌سی نیوز گفت که خواستار آن نیست لبنان بخشی از توافق کوتاه‌مدت با ایران باشد.
+
+او افزود که خواهان اضافه شدن بندی جدید به توافق است تا ایران نتواند با خرید سلاح هسته‌ای یا تجهیزات مرتبط، محدودیت‌های توافق را دور بزند.
+
+دونالد ترامپ گفت: «پرسیدم اگر آنها خودشان سلاح هسته‌ای تولید نکنند اما آن را خریداری یا به هر شکلی به دست آورند چه؟ من می‌خواهم در متن توافق عبارت خرید، تهیه یا کسب سلاح نیز گنجانده شود. آنها نه حق تولید سلاح هسته‌ای را دارند و نه حق خرید یا دستیابی به آن را.»
+
+او اضافه کرد که تهران در ابتدا با این درخواست مخالفت کرد اما از موضع خود عقب نشست.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13699
+
+<div align="center">
+  <a href="telegram/content/WithYashar_13699_1780840369.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لحظه پیاده‌شدن تیم ناملی از هواپیما؛
+این کاروان با نام میناب ۱۶۸ کمی پیش وارد تیخوانا مکزیک شد
+@withyashar
+</div>
+
+## WithYashar — post 13698
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسماعیل بقایی، سخنگوی وزارت امور خارجه ایران، در گفت‌وگو با CNN گفت:
+مشکل اصلی در مذاکرات با آمریکا اینه که اونا مدام موضع خودشون و خطوط قرمز رو تغییر میدن و حرف هاشون متناقضه.
+@withyashar
+</div>
+
+## WithYashar — post 13697
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ در رابطه با مجتبی:
+ولی اون به شدت زخمیه، دوست ندارم که بگم داخل ایرانه یا نه.
+@withyashar
+</div>
+
+## pm_afshaa — post 92481
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92481_1780840371.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴بقایی، سخنگوی وزارت امور خارجه جمهوری اسلامی، در گفت‌وگو با سی‌ان‌ان:
+
+مشکل اصلی در مذاکرات با آمریکا اینه که اونا مدام موضع خودشون، قوانین و خطوط قرمز رو تغییر میدن و حرف‌هاشون متناقضه.
+
+آمریکایی‌ها باید درک کنن که باید حقوق ایران، از جمله حق غنی‌سازی صلح‌آمیز هسته‌ای تحت معاهده منع گسترش سلاح‌های هسته‌ای رو به رسمیت بشناسن.
+
+در مورد تحریم‌ها و دارایی‌های مسدود شده، آنها فقط باید اجازه بدن دارایی‌های ایران آزاد بشه و در دسترس ایرانیان قرار بگیره.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92480
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92480_1780840371.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: ما یک محاصره داریم و این بسیار مؤثر بوده و دلیل اینکه ما این محاصره رو داریم اینه که آنها تلاش کردن محاصره کنند، و حالا ما آنها رو محاصره کردیم.
+
+آنها محاصره‌ای ایجاد کردن، پس ما آنها رو محاصره کردیم و ما محاصره نهایی رو داریم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92479
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92479_1780840373.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: جنگ با ایران فقط یه تمرین نظامیه و جنگی بزرگی برای ما نیست.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 340991
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340991_1780840373.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ به ان‌بی‌سی نیوز گفت که خواستار آن نیست لبنان بخشی از توافق کوتاه‌مدت با ایران باشد.
+
+او افزود که خواهان اضافه شدن بندی جدید به توافق است تا ایران نتواند با خرید سلاح هسته‌ای یا تجهیزات مرتبط، محدودیت‌های توافق را دور بزند.
+
+دونالد ترامپ گفت: «پرسیدم اگر آنها خودشان سلاح هسته‌ای تولید نکنند اما آن را خریداری یا به هر شکلی به دست آورند چه؟ من می‌خواهم در متن توافق عبارت خرید، تهیه یا کسب سلاح نیز گنجانده شود. آنها نه حق تولید سلاح هسته‌ای را دارند و نه حق خرید یا دستیابی به آن را.»
+
+او اضافه کرد که تهران در ابتدا با این درخواست مخالفت کرد اما از موضع خود عقب نشست.
+https://iranintl.com/202606070250
+</div>
+
+## Shin_Persian — post 6594
+
+<div align="center">
+  <a href="telegram/content/Shin_Persian_6594_1780840374.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sun, 07 Jun 2026 13:44:08 UTC
+
+Islamic Regime's national TV regarding Israel's strikes on Dahieh, Lebanon:
+IRGC Khatam HQ is ready for the "Operation True Promise 5"
+
+فارسی
+
+تلویزیون ملی رژیم اسلامی در رابطه با حملات اسرائیل به ضاحیه لبنان:
+قرارگاه خاتم سپاه پاسداران انقلاب اسلامی برای «عملیات وعده صادق ۵» آماده است.
+
+𝕏 · @shin_persian
+</div>
+
+## DW_Farsi — post 125638
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125638_1780840375.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶اوپک‌پلاس در تکاپوی چهارمین افزایش سهمیه تولید نفت تشکیل جلسه می‌دهد
+
+رویترز در گزارشی با اتکا به اظهارات سه منبع نوشت، اوپک‌پلاس احتمالا در نشست روز یکشنبه ۱۷ خرداد خود با چهارمین افزایش سهمیه تولید نفت در چند ماه اخیر موافقت خواهد کرد.
+
+به نوشته این خبرگزاری، این تصمیم در حالی اتخاذ می‌شود که تنش‌ها میان آمریکا و ایران همچنان مانع از آن می‌شود که چند عضو این گروه بتوانند نفت بیشتری پمپاژ کنند.
+
+این درگیری‌ها جریان نفت از طریق تنگه هرمز را قطع کرده و بزرگ‌ترین بحران عرضه این ماده حیاتی در تاریخ جهان را رقم زده است؛ چرا که اعضای کلیدی اوپک‌پلاس، از جمله عربستان سعودی از اواخر ماه فوریه نتوانسته‌اند نیاز مشتریان خود را به‌طور کامل تامین کنند.
+
+بحران اوپک‌پلاس زمانی عمیق‌تر شد که امارات متحده عربی پس از نزدیک به ۶۰ سال عضویت، این سازمان را ترک کرد.
+
+
+
+@dw_farsi
+</div>
+
+## DW_Farsi — post 125637
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125637_1780840375.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶پنتاگون سطح تهدید جاسوسی از طرف اسرائیل را به مرحله "بحرانی" افزایش داد
+
+بر اساس گزارش شبکه ان‌بی‌سی نیوز که روز شنبه به نقل از دو مقام آمریکایی منتشر شد، پنتاگون برآورد خود از فعالیت‌های جاسوسی اسرائیل علیه ایالات متحده را به بالاترین سطح در تاریخ روابط دو کشور افزایش داده است.
+
+این گزارش مدعی شد که پنتاگون ارزیابی تهدید ضدجاسوسی خود درباره اسرائیل را به بالاترین سطح ممکن رسانده است و دلیل اصلی آن، تنش‌ها میان مقام‌های اسرائیلی و آمریکایی بر سر نحوه ادامه جنگ با جمهوری اسلامی و گروه‌های نیابتی آن عنوان شده است.
+
+در همین راستا نیویورک تایمز نیز گزارش داد که استیو ویتکاف، فرستاده ویژه ایالات متحده، البریج کولبی، عالی‌ترین مقام سیاست‌گذاری پنتاگون، و مایکل دی‌مینو و یکی از مقام‌های ارشد وزارت دفاع ایالات متحده، از جمله افرادی بودند که هدف "جاسوسی اسرائیل" قرار گرفته بودند.
+
+طبق اعلام منابع ان‌بی‌سی، ارزیابی آژانس اطلاعات دفاعی آمریکا شامل یک گزارش هفت صفحه‌ای درباره سطح تهدید بود و حتی نمودارهایی را نیز در بر می‌گرفت.
+
+
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 15873
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15873_1780840376.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تصاویری از انتقال مجروحان به مراکز درمانی در حمله اسرائیل به ضاحیه بیروت
+</div>
+
+## Dirty_Kids — post 391218
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391218_1780840377.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فیلد مارشال محسن رضایی، مشاور نظامی مجتبی خامنه‌ای چند روز پیش تو صداوسيما:
+
+کافی بود اسرائیل به سمت ضاحیه حرکت کنه، کل موشک‌های ما آماده بود، چند برابر جنگ 40 روزه شمالِ اسرائیل رو جهنم می‌کردیم.
+﻿
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391217
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391217_1780840378.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کراش چند نسل، مدونای ۶۷ ساله، در یک پرفورمنس سورپرایز در میدان تایمز نیویورک:
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391216
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وقتی کشورت اشغاله و اشغالگرا برات رجز هم می خونن!
+
+نه در ایران و نه در هیچ جای دنیا سابقه نداشته کشور اشغال بشه و اشغالگرها ساکنان کشور، ایرانی‌ها را بی‌وطن و خیانتکار و مزدور بخونن!
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391215
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏چرا همه یهو شوهر کردن؟
+تو این وضعیت بی پولی، پول عمل دماغاتونو از کجا آوردین؟
+جریان لیلیوم چیه همتون هدیه گرفتین؟
+چرا هی سفر و تفریح و اینور اونورین؟
+چجوری همتون خوشگلتر و موفق تر شدین؟
+چرا فقط من بگا رفتم ؟!
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 125795
+
+<div align="center">
+  <a href="telegram/content/alonews_125795_1780840380.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ به ان بی سی: ایران هنوز با ما توافق نکرده چون برای آن خیلی سخت است‌‌ اما چاره‌ای جز توافق ندارد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125794
+
+<div align="center">
+  <a href="telegram/content/alonews_125794_1780840380.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کانال ۱۴اسرائیل: حمله به بیروت محدود بود و ایران طبق ارزیابی‌ها پاسخ نخواهد داد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125793
+
+<div align="center">
+  <a href="telegram/content/alonews_125793_1780840380.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پرزیدنت ترامپ: ما یک محاصره برقرار کرده‌ایم و بسیار مؤثر بوده است. دلیلش این است که آن‌ها سعی کردند محاصره ایجاد کنند، و حالا ما آن‌ها را محاصره کرده‌ایم.
+
+آن‌ها محاصره ایجاد کردند، بنابراین ما هم آن‌ها را محاصره کردیم. ما محاصره نهایی را داریم.
+من این را جنگ نمی‌دانم، اما اگر کسی بخواهد آن را جنگ تعریف کند، خب شاید بتواند چنین تعریفی داشته باشد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125792
+
+<div align="center">
+  <a href="telegram/content/alonews_125792_1780840382.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ به ان‌بی‌سی: توافق آتش‌بس با ایران به درخواست برخی افراد بسیار خوب حاصل شد
+
+
+🔴ایران ممکن است در طول آتش‌بس، قابلیت‌های نظامی خود را اندکی افزایش داده باشد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125791
+
+<div align="center">
+  <a href="telegram/content/alonews_125791_1780840382.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ به ان‌بی‌سی: بخشی از چالش در اجرای سریع صلح این است که مستلزم تغییر اساسی در نگرش دیرینه تهران نسبت به ماست.
+
+
+🔴ایرانی‌ها قوی هستند و به خودشان افتخار می‌کنند، و کارهایی هست که هرگز انتظار انجامشان را نداشتند، اما مجبور به انجامشان خواهند شد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/17 17:13
 ---
 

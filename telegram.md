@@ -7,6 +7,322 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/18 01:33
+---
+
+## VahidOOnLine — post 244197
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244197_1780869814.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دفتر ارتباطات شرکت شهر فرودگاهی «امام خمینی» اعلام کرد که طبق اطلاعیه صادره از سوی سازمان هواپیمایی کشوری، از بامداد ۱۸ خرداد ماه ۱۴۰۵ و تا اطلاع ثانوی، کلیه پروازهای این فرودگاه متوقف شده است.
+
+سازمان هواپیمایی نیز اعلام کرده بود بخش غربی فضای پروازی کشور تا اطلاع بعدی بسته است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244196
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️براساس تصاویر منتشر شده در شبکه‌های اجتماعی، یکشنبه‌شب، طرفداران حزب‌الله در لبنان از حملات موشکی سپاه به اسرائیل ابراز خوشحالی کردند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13840
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سخنگوی کمیسیون امنیت ملی مجلس: شلیک‌ها از آن جایی انجام شد که ترامپ می‌گفت نابودشان کرده است
+@withyashar
+</div>
+
+## WithYashar — post 13839
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسرائیل هیوم به نقل از یک مقام امنیتی: اسرائیل احتمالا حمله ایران را فوری پاسخ نمی‌دهد
+@withyashar
+</div>
+
+## WithYashar — post 13838
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امشب ایران پس از ۶۱ روز اولین حمله موشکی خود به اسرائیل را انجام داد
+@withyashar
+</div>
+
+## WithYashar — post 13837
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبکه کان اسرائیل:
+نتانیاهو هم‌اکنون پس از تماس تلفنی با ترامپ در حال برگزاری مشورت‌های امنیتیه.
+@withyashar
+</div>
+
+## WithYashar — post 13836
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اتاق جنگ با شما: سمت تهرانپارس صدای خیلی خیلی وحشتناک
+از تمام صداهای تو این مدت بدتر
+@withyashar
+</div>
+
+## WithYashar — post 13835
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+منابع العربیه: عراقچی به پاکستان اطلاع داد که لبنان بخش جدایی‌ناپذیری از پرونده مذاکره است
+@withyashar
+</div>
+
+## mwarmonitor — post 10343
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴«ترامپ به نیویورک پست: اوضاع به‌خوبی پیش می‌رود و هرگونه تشدید تنش بیشتر فقط باعث اختلال در مذاکرات خواهد شد.» @mwarmonitor
+</div>
+
+## mwarmonitor — post 10342
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴«ترامپ به نیویورک پست: اوضاع به‌خوبی پیش می‌رود و هرگونه تشدید تنش بیشتر فقط باعث اختلال در مذاکرات خواهد شد.»
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10341
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨«یدیعوت آحارونوت: ایالات متحده پیامی به اسرائیل منتقل کرده مبنی بر اینکه بهتر است چند روز صبر شود تا مشخص شود آیا امکان دستیابی به توافق وجود دارد یا نه.»
+
+🚨«واشنگتن به اسرائیل اطلاع داده است که نباید فرصت موجود را با کشیده شدن به یک تبادل محدود حملات از دست داد.»
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 92726
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+احتمالا ترامپ چراغ سبز زورکی رو به نتانیاهو داده ولی گفته فعلا ما دخالت نمی‌کنیم خودتیو خودت.
+
+بازم وایسیم ببینیم این کله زرد الان میاد توییت بزنه یا نه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92725
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92725_1780869815.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وزیر کشور پاکستان هم از ایران رفت.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92724
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92724_1780869816.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مراد ویسی:
+اینکه سپاه میگه 3 موج حمله انجام داده ولی فقط 11 تا موشک شلیک شده نشون میده که سپاه دیگه توانایی پارسال رو نداره و تعداد موشک‌هاش در اثر دو جنگ ۱۲ و ۴۰ روزه کم شده و فقط تعداد موج‌های حمله رو بالا میبره.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92723
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92723_1780869816.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴شبکه کان اسرائیل:
+نتانیاهو هم‌اکنون پس از تماس تلفنی با ترامپ در حال برگزاری مشورت‌های امنیتیه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92722
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92722_1780869817.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کان نیوز: جمهوری اسلامی به اسرائیل پیام داده که حملاتش رو به پایان رسونده و اگر اسرائیل واکنش نشان نده، دیگه حمله‌ای انجام نخواهد داد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## kianmeli1 — post 87761
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴حرکت سوخت رسان ها در آسمان اسرائیل رصد شد.
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 341069
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341069_1780869818.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «احتمال پاسخ اسرائیل بالاست، هرچند در حال حاضر حداکثر تلاش‌ها در جریان است که این پاسخ، پاسخی محدود و کنترل‌شده باشد. مشابه اتفاقی که در دوره بایدن رخ داد؛ زمانی که پس از کشته شدن محمدرضا زاهدی در دمشق و حمله موشکی جمهوری اسلامی، فشار زیادی وجود داشت که اسرائیل واکنش نشان دهد، اما دولت بایدن تلاش می‌کرد دامنه این پاسخ محدود بماند.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 341068
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341068_1780869820.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرزین ندیمی، پژوهش‌گر ارشد امور دفاعی و امنیتی در موسسه واشینگتن، گفت اگر تنش‌ها پس از حمله موشکی جمهوری اسلامی افزایش یابد، «اسرائیل در مراحل اولیه ممکن است پایگاه‌های موشکی در غرب ایران، صنایع موشکی و برخی پایگاه‌های فرماندهی سپاه پاسداران در تهران را هدف قرار دهد.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 341067
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341067_1780869822.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دفتر ارتباطات شرکت شهر فرودگاهی «امام خمینی» اعلام کرد که طبق اطلاعیه صادره از سوی سازمان هواپیمایی کشوری، از بامداد ۱۸ خرداد ماه ۱۴۰۵ و تا اطلاع ثانوی، کلیه پروازهای این فرودگاه متوقف شده است.
+
+سازمان هواپیمایی نیز اعلام کرده بود بخش غربی فضای پروازی کشور تا اطلاع بعدی بسته است.
+https://iranintl.com/202606075158
+</div>
+
+## FarsiVOA — post 219944
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219944_1780869823.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️گزارش‌های رسانه‌های اسرائیلی حاکی از آن است که پس از تماس تلفنی دونالد ترامپ رئیس‌جمهوری آمریکا، بنیامین نتانیاهو نخست وزیر اسرائيل با سران نهادهای نظامی از جمله یسرائیل کاتز، وزیر دفاع، شرایط را ارزیابی کرده است.
+@FarsiVOA
+</div>
+
+## DW_Farsi — post 125668
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125668_1780869823.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 رئیس ستاد کل ارتش اسرائیل: به محض چراغ سبز، با قدرت به ایران پاسخ می‌دهیم
+
+ایال زامیر، رئیس ستاد کل ارتش اسرائيل، در جریان یک جلسه ارزیابی با مقامات ارشد نظامی، ضمن اذعان به اینکه کشورش در حال حاضر از پاسخ دادن به حملات موشکی امشب ایران بازداشته شده است، گفت: «ارتش اسرائیل به محض دریافت چراغ سبز، با قدرت به دشمن ضربه خواهد زد.»
+
+ارتش اسرائیل در حال آماده‌سازی برای پاسخ به حمله موشکی ایران در شامگاه امروز است اما برای اجرای این اقدام همچنان در انتظار تایید مقامات سیاسی قرار دارد.
+
+پیش از این، دونالد ترامپ، رئیس‌جمهور آمریکا گفته بود، "از بنیامین نتانیاهو، نخست‌وزیر اسرائیل خواسته است، دست به پاسخ‌دهی نزند".
+@dw_farsi
+</div>
+
+## IranianMinds — post 21697
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 تمام پرواز های داخلی و خارجی کشور تا اطلاع ثانوی کنسل شدن.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 283098
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283098_1780869824.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+افی دفرين، سخنگوی ارتش اسرائيل، عصر یکشنبه گفت از نظر او ايران با حملات موشکی امروز خود «اشتباهی بزرگ» مرتکب شده است.
+
+او در يک نشست خبری به زبان عبری گفت ارتش اسرائيل «اجازه نخواهد داد شليک موشک‌ها از سوی ايران به سمت شهروندان اسرائيل ادامه پيدا کند.»
+
+«ما برای احتمال حملات بيشتر آماده هستيم.»
+
+به گفته او، سامانه‌های پدافند هوايی در سراسر اسرائیل مستقر شده‌اند و رئيس ستاد کل ارتش این کشور پس از حملات اخير در حال برگزاری نشست ارزيابی وضعيت است.
+
+سخنگوی ارتش اسرائيل همچنين تأکيد کرد:
+
+«ارتش اسرائيل به عمليات خود در سراسر لبنان ادامه خواهد داد و ضربات خود به سازمان تروريستی حزب‌الله را تشديد خواهد کرد.»
+
+اين اظهارات در حالی مطرح می‌شود که تنش‌ها پس از حملات موشکی و پهپادی ايران به شمال اسرائيل و حملات اسرائيل به لبنان و حومه جنوبی بيروت - ضاحیه - به شدت افزايش يافته و نگرانی‌ها درباره گسترش بیشتر درگيری‌ها در منطقه را بسیار بالا برده است.
+
+📸 IDF
+
+https://bbc.in/4eafvAI
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 391288
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391288_1780869825.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 عمو مراد ویسی تحلیلگر اینترنشنال، درباره حملات امشب:
+
+اینکه سپاه میگه 3 تا موج حمله کردیم ولی کلا 11 تا موشک میزنن نشون میده که سپاه دیگه توانایی پارسال رو نداره و تعداد موشکاش در اثر دوتا جنگ 12 و 40 روزه کم شده و فقط تعداد موج‌های حمله رو بالا میبرن.
+﻿
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 126068
+
+<div align="center">
+  <a href="telegram/content/alonews_126068_1780869827.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈مراد ویسی: احتمال پاسخ اسرائیل بالاست
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126067
+
+<div align="center">
+  <a href="telegram/content/alonews_126067_1780869827.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈منبع پاکستانی به العربیه: پاکستان برای حفظ آتش‌بس و جلوگیری از تشدید تنش، تماس‌های خود را شدت بخشیده
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/18 01:23
 ---
 

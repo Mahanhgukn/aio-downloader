@@ -7,6 +7,345 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/17 22:23
+---
+
+## WithYashar — post 13743
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبکه 14 اسرائیل : در این حمله مشخص خواهد شد آیا ایران می‌تواند صد موشک را همزمان شلیک کند یا خیر🚨
+@withyashar
+</div>
+
+## WithYashar — post 13742
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+العربیه: وزیر کشور پاکستان که هم‌اکنون در تهران حضور دارد، هشدارهایی را به ایران درباره تشدید تنش‌ها در مسیرهای کشتیرانی دریایی منتقل کرده است
+@withyashar
+</div>
+
+## WithYashar — post 13741
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هواپیماهای مسافربری در حال ترک حریم هوایی عراق می‌باشند.🚨
+@withyashar
+</div>
+
+## pm_afshaa — post 92549
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92549_1780858389.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ایران اینترنشنال: سپاه پاسداران آماده حمله موشکی به اسرائیله.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92548
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92548_1780858390.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴العربیه: فیلد مارشال عاصم منیر از ایران خواست تا از فرصت فعلی برای رسیدن به توافق استفاده کنه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5436
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5436_1780858390.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺🏆 
+👑 آیا فیفا می‌خواهد صدای مردم ایران را سرکوب کند؟
+
+مهدی رستم‌پور خبرنگار ورزشی می‌گوید بعد از حمله روسیه به اوکراین تیم فوتبال روسیه از حضور در مسابقات بین‌اامللی محروم شد، اما فیفا همچنان پشتیبان جمهوری اسلامی است آنهم در شرایطی که حکومت به کشورهای منطقه وشک‌پرانی کرده و مردم را سرکوب می‌کند.
+
+#فیفا #جام_جهانی
+@DEJradio
+</div>
+
+## DEJradio — post 5435
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5435_1780858392.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ 
+🛩️
+🚨 شهروندان از چند شهر از جمله تهران، کرج، ساوه و در غرب همدان و کرمانشاه گزارش دادند که صدای پرواز هواپیمای جنگنده‌ در ارتفاع پایین را شنیده‌اند. در بعضی نقاط از جمله بیدگنه و ملارد صدای انفجار به گوش رسید. #فوری @DEJradio
+</div>
+
+## DEJradio — post 5434
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5434_1780858392.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ 
+🛩️
+🚨 شهروندان از چند شهر از جمله تهران، کرج، ساوه و در غرب همدان و کرمانشاه گزارش دادند که صدای پرواز هواپیمای جنگنده‌ در ارتفاع پایین را شنیده‌اند. در بعضی نقاط از جمله بیدگنه و ملارد صدای انفجار به گوش رسید.
+
+#فوری
+@DEJradio
+</div>
+
+## kianmeli1 — post 87705
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87705_1780858393.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴محمد مخبر
+
+اسراییل میز مذاکره را به آتش کشید
+بهای سنگینی پرداخت خواهد کرد
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 341035
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341035_1780858393.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻کریستین اریکسن، بازیکن تیم ملی دانمارک هافبک باتجربه تیم ملی دانمارک، در میانه نیمه دوم این مسابقه روی زمین افتاد و برای لحظاتی هوشیاری خود را از دست داد. اریکسن پیشتر در یورو ۲۰۲۰ مقابل فنلاند رخ داده بود.
+
+🔹داور مسابقه بلافاصله بازی را متوقف کرد و کادر پزشکی برای رسیدگی به وضعیت اریکسن وارد زمین شد. گزارش‌ها حاکی از آن است که این بازیکن پس از دقایقی به هوش آمد و تحت مراقبت‌های پزشکی قرار گرفت.
+
+🔹اریکسن در نهایت با پای خود زمین مسابقه را ترک کرد و هواداران حاضر در ورزشگاه نیز او را با تشویق ایستاده بدرقه کردند و این دیدار نیمه تمام ماند.
+
+🔹این اتفاق یادآور حادثه تلخ یورو ۲۰۲۰ است؛ جایی که اریکسن در جریان دیدار دانمارک و فنلاند دچار ایست قلبی شد و پس از احیا، به فوتبال بازگشت. او از آن زمان با دستگاه دفیبریلاتور قلبی (ICD) به فعالیت حرفه‌ای خود ادامه می‌دهد.
+
+🔹هنوز جزئیات بیشتری درباره علت این حادثه و وضعیت جسمانی اریکسن منتشر نشده است.
+
+🔹فدراسیون فوتبال دانمارک با انتشار بیانیه‌ای در شبکه اجتماعی ایکس اعلام کرد: «کریستین اریکسن هوشیار است و با توجه به شرایط پیش‌آمده، وضعیت خوبی دارد.»
+
+@iranintltvsport
+</div>
+
+## Shin_Persian — post 6619
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6619_1780858394.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😭😭😭
+</div>
+
+## FarsiVOA — post 219918
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روایت تازه از بحران معیشت در ایران؛ آیا حقوق کارگران فقط برای زنده ماندن کافی است؟
+</div>
+
+## FarsiVOA — post 219914
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرماندهی مرکزی ایالات متحده، سنتکام، تصاویری از عملیات پرواز شبانه روی ناو هواپیمابر «یو‌اس‌اس جورج اچ. دبلیو. بوش» منتشر کرد.
+
+سنتکام اعلام کرد این عملیات در حالی انجام شده که ناو هواپیمابر جورج اچ. دبلیو. بوش در حال عبور از دریای عرب است.
+
+به گفته سنتکام، این ناو یکی از دو ناو هواپیمابری است که هم‌اکنون در خاورمیانه فعالیت می‌کنند.
+
+@FarsiVOA
+</div>
+
+## DW_Farsi — post 125658
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125658_1780858394.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶حکم حبس و ممنوع‌الخروجی جعفر پناهی تایید شد
+
+مصطفی نیلی، وکیل جعفر پناهی، فیلمساز سرشناس ایرانی به خبرگزاری دانشجویان ایران، ایسنا گفته که حکم یک سال حبس تعزیری، دو سال ممنوعیت خروج از کشور و ممنوعیت عضویت در گروه‌های سیاسی موکلش در شعبه ۲۶ دادگاه انقلاب تایید شده است.
+
+به گفته نیلی، این شعبه دادگاه انقلاب تقاضای واخواهی را رد و حکم اولیه را عینا تایید کرده است. این حکم به صورت غیابی و بدون حضور جعفر پناهی صادر شده اما ظرف ۲۰ روز قابل تجدیدنظرخواهی است.
+
+
+به نوشته کانال تلگرامی تحکیم ملت در کیفرخواست جعفر پناهی این اتهامات آمده است: «ساخت فیلم زیرزمینی و مسئله‌دار علیه حاکمیت، حمایت از برخی محکومان امنیتی، از جمله فاطمه سپهری، راحله راحمی‌پور، حسین رونقی، محمد نوری‌زاد، مهدی محمودیان، ابوالفضل قدیانی و …، حمایت از اعتراضات، حمایت از شعار زن، زندگی، آزادی، امضا و انتشار بیانیه‌ای درباره اعتصاب کامیون‌داران، سیاه‌نمایی وضعیت کشور و بازنشر کلیپی با مضمون هم‌خوانی سرود "ای ایران" در اعتراض به صدور و اجرای احکام اعدام.»
+
+
+@dw_farsi
+</div>
+
+## DW_Farsi — post 125657
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125657_1780858395.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶نشست نتانیاهو با مقام‌های دفاعی اسرائيل پس از تهدید سپاه
+
+به گزارش رسانه‌های اسرائيل، پس از تهدید سپاه پاسداران به پاسخ‌گویی به حملات اسرائيل به ضاحیه بیروت، بنیامین نتانیاهو، نخست‌وزیر این کشور جلسه‌ای امنیتی با یسرائیل کاتس، وزیر دفاع و شماری از روسای نهادهای دفاعی اسرائيل به منظور بررسی درگیری‌ها لبنان تشکیل داده است.
+
+یک مقام اسرائیلی در گفت‌وگو با تایمز اسرائیل این خبر را تایید کرده است.
+
+پس از حمله روز یک‌شنبه اسرائیل به ضاحیه بیروت، پایگاه اصلی گروه حزب‌الله لبنان قرارگاه خاتم‌الانبیای سپاه پاسداران اطلاعیه‌ای صادر کرد و گفت: «این حمله بی پاسخ نمی‌ماند.»
+
+محمدباقر قالیباف، رئيس مجلس ایران نیز در شبکه ایکس از "نقض توافقات با لبنان" نوشت و نتیجه گرفت که این موضوع نشان داده که آن‌ها "فقط زبان قدرت را می‌فهمند."
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 15925
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15925_1780858395.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+الان امید دانا تیتر میزنه سوخت رسان آمریکایی وسط آسمان ایران 😄
+</div>
+
+## Persian_Trend_Official — post 15924
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15924_1780858396.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇱🇧🇮🇱🇱🇧 ارتش دفاعی اسرائیل فیلمی منتشر کرد که حمله هوایی خود به حومه جنوبی بیروت را در اوایل امروز نشان می‌دهد.
+
+ارتش دفاعی اسرائیل می‌گوید که مقر حزب‌الله را هدف قرار داده است که از آنجا «عملیات تروریستی» علیه اسرائیل و نیروها در جنوب لبنان انجام شده است.
+
+بر اساس منابع محلی، دو نفر از اعضای حزب‌الله در این حمله کشته شدند.
+
+
+👺Phantom
+
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15923
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15923_1780858398.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علی قلهکی: تنش مجدد نظامی احتناب‌ناپذیر است! ایران باید تصمیم بگیرد که اکنون شروع کند (پیش از جام جهانی) یا پس از جام جهانی و یا پاییزِ ۱۴۰۵، اسرائیل و آمریکا ابتکار عمل را بدست‌ گیرند! 
+👺Phantom 
+📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 21587
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21587_1780858399.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حریم هوایی ایران و عراق داره کلیر میشه @IranianMinds
+</div>
+
+## IranianMinds — post 21586
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حریم هوایی ایران و عراق داره کلیر میشه @IranianMinds
+</div>
+
+## Dirty_Kids — post 391245
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391245_1780858400.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 آسمون ایران به طور کامل کلیر شد!!!!
+
+
+@Dirty_Kids 👻
+</div>
+
+## Hranews — post 113457
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دادستانی تهران علیه زیباکلام اعلام جرم کرد
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– دادستانی تهران علیه صادق زیباکلام، تحلیل‌گر سیاسی، به دلیل انجام یک مصاحبه جدید اعلام جرم کرد و هم‌زمان قرار نظارت قضایی پیشین او مبنی بر ممنوعیت هرگونه فعالیت رسانه‌ای و تولید محتوا در شبکه‌های اجتماعی را تشدید کرد.
+
+ادامه مطلب
+
+#صادق_زیباکلام
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## alonews — post 125884
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فووووووووووووووووووووووووری
+</div>
+
+## alonews — post 125883
+
+<div align="center">
+  <a href="telegram/content/alonews_125883_1780858400.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری/ایران اینترنشنال:
+سپاه آماده حمله موشکی به اسرائیله.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125882
+
+<div align="center">
+  <a href="telegram/content/alonews_125882_1780858400.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢فوووووووووری/پرواز شدید جنگنده‌های آمریکایی در مرز ایران 
+🚨 @AkhbareFouri
+</div>
+
+## alonews — post 125881
+
+<div align="center">
+  <a href="telegram/content/alonews_125881_1780858401.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 ایرباس A300B4-60SR ایران ایر در حال چرخش بر فراز شمال ایران است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125880
+
+<div align="center">
+  <a href="telegram/content/alonews_125880_1780858401.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈العربیه: فیلد مارشال عاصم منیر از ایران خواست تا از فرصت فعلی برای رسیدن به توافق استفاده کند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/17 22:13
 ---
 

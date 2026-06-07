@@ -7,6 +7,464 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/18 01:12
+---
+
+## VahidOOnLine — post 244195
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244195_1780868578.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تسنیم، خبرگزاری وابسته به سپاه، به نقل از یک منبع نظامی نوشت که حجم مناسبی از موشک‌های جمهوری اسلامی هم‌اکنون آماده‌اند تا در صورتی که اسرائیل به حملات پاسخ دهد، بلافاصله به سمت فهرست‌ اهداف گستر‌ده‌تر در اسرائیل شلیک شوند: «نوبت بعدی شلیک‌های جمهوری اسلامی، پرحجم‌تر خواهد بود.»
+
+رسانه سپاه به نقل از این منبع نظامی نوشت که جمهوری اسلامی برای آغاز نبرد گسترده در صورت پاسخ اسرائیل آماده است و این کشور باید این هشدار را به گوش بسپارد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244194
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244194_1780868578.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️حساب عبری‌زبان ارتش دفاعی اسرائیل، بامداد دوشنبه، با انتشار پیامی در اکس نوشت که رئیس ستاد کل ارتش در حال حاضر در جلسه ارزیابی وضعیت با مجمع ستاد مشترک است. در ادامه این پیام به نقل از رئیس ستاد کل ارتش اسرائیل آمده است: «ارتش به محض دریافت چراغ سبز، با قدرت به دشمن ضربه خواهد زد».
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13830
+
+<div align="center">
+  <img src="telegram/content/WithYashar_13830_1780868578.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+۱۷ میلیون ویو چنل تازه تا این لحظه … و زدن رکورد بازدید… مرسی از شما 🙌🏾
+</div>
+
+## WithYashar — post 13829
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایران به سمت گروه های کرد مخالف ایرانی در سلیمانیه عراق پهپاد شلیک کرده است
+@withyashar
+</div>
+
+## WithYashar — post 13828
+
+
+
+
+## WithYashar — post 13827
+
+
+
+
+## WithYashar — post 13826
+
+
+
+
+## WithYashar — post 13825
+
+
+
+
+## WithYashar — post 13824
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یدیعوت آحارونوت: بر اساس گزارش‌های دریافتی، در گفتگویی که کمی پیش به پایان رسید، نتانیاهو به ترامپ اطلاع داد که قصد حمله‌ای قدرتمند به ایران را دارد. رئیس‌جمهور آمریکا روشن کرد که اگر چنین حمله‌ای انجام شود، آمریکایی‌ها در آن شرکت نخواهند کرد.
+@withyashar
+</div>
+
+## WithYashar — post 13823
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اتاق جنگ با شما : همین جوری هواپیما داره میاد بجنورد میشینه
+@withyashar
+</div>
+
+## WithYashar — post 13822
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال ۱۲ اسرائیل: تاکنون آمریکا برای اجرای حمله علیه ایران موافقت نکرده است
+@withyashar
+</div>
+
+## mwarmonitor — post 10334
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨« زمین‌لرزه‌ای به بزرگی ۳٫۶ ریشتر در استان هرمزگان در ساحل خلیج فارس رخ داده است.»
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10333
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبر فوری
+
+📌«نخست‌وزیر نتانیاهو در تماس تلفنی به رئیس‌جمهور ترامپ گفت: اسرائیل به ایران حمله خواهد کرد.»
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10332
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴«ایران به اسرائیل پیام داده است که حملات خود را به پایان رسانده و اگر اسرائیل واکنش نشان ندهد، دیگر حمله‌ای انجام نخواهد داد — کان نیوز»
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10331
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨« شبکه کان اسرائیل: رئیس ستاد کل طی ۲۴ ساعت گذشته دو تماس تلفنی با فرمانده ستاد فرماندهی مرکزی آمریکا (سنتکام) داشته است.»
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 92719
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ادامه اخبار امشب بیاید اینجا :
+
+https://t.me/BeladNews
+https://t.me/BeladNews
+</div>
+
+## pm_afshaa — post 92718
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رعده و برقه دوستان
+</div>
+
+## pm_afshaa — post 92717
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92717_1780868579.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نتانیاهو در تماس تلفنی به رئیس‌جمهور ترامپ گفت: اسرائیل به جمهوری اسلامی حمله خواهد کرد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92716
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92716_1780868579.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴یدیعوت آحارونوت:
+نتانیاهو تو تماسش با ترامپ گفته اسرائیل قصد داره یه حمله سنگین به ایران انجام بده. ترامپ هم بهش گفته اگه چنین حمله‌ای انجام بشه، آمریکا توش شرکت نمیکنه و نتانیاهو هم گفته حله.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92715
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴یدیعوت آحارانوت: طبق گزارش‌های دریافتی، نتانیاهو در مکالمه‌ای که اندکی پیش پایان یافت، ترامپ رو مطلع کرد قطعا به ایران پاسخ قدرتمند خواهد داد. 
+🎲@BeladNews
+</div>
+
+## VahidOnline — post 76009
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76009_1780868580.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+shamidartii
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 341065
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341065_1780868580.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تسنیم، خبرگزاری وابسته به سپاه، به نقل از یک منبع نظامی نوشت که حجم مناسبی از موشک‌های جمهوری اسلامی هم‌اکنون آماده‌اند تا در صورتی که اسرائیل به حملات پاسخ دهد، بلافاصله به سمت فهرست‌ اهداف گستر‌ده‌تر در اسرائیل شلیک شوند: «نوبت بعدی شلیک‌های جمهوری اسلامی، پرحجم‌تر خواهد بود.»
+
+رسانه سپاه به نقل از این منبع نظامی نوشت که جمهوری اسلامی برای آغاز نبرد گسترده در صورت پاسخ اسرائیل آماده است و این کشور باید این هشدار را به گوش بسپارد.
+https://iranintl.com/202606079840
+</div>
+
+## FarsiVOA — post 219942
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219942_1780868581.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️در واکنش به حملات موشکی جمهوری اسلامی، ارتش اسرائیل در بیانیه‌ای به صدای آمریکا گفت که رئیس ستاد کل ارتش اسرائیل، ایال زمیر، در حال ارزیابی وضعیت در مجمع ستاد کل است. ارتش اسرائيل به صدای آمریکا گفت: «نیروی دفاعی اسرائیل به محض صدور دستور، با قاطعیت به دشمن حمله خواهد کرد.»
+@FarsiVOA
+</div>
+
+## DW_Farsi — post 125667
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125667_1780868581.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 وزیر امنیت ملی اسرائيل: تهران امشب باید بسوزد
+
+ایتامار بن‌گویر، وزیر امنیت ملی اسرائیل با انتشار پستی در شبکه ایکس به حملات موشکی ایران به خاک اسرائيل واکنش نشان داد و نوشت: «تهران امشب باید بسوزد.»
+
+نفتالی بنت، نخست‌وزیر پیشین اسرائیل نیز تاکید کرد، "اسرائیل باید پاسخی قدرتمند و موثر به حمله موشکی بالستیک ایران بدهد".
+
+این تبادل آتش چند ساعت پس از آن رخ داد که ارتش اسرائیل منطقه ضاحیه در جنوب بیروت را هدف قرار داد اقدامی که پیش‌تر با هشدار و تهدید به پاسخ متقابل از سوی جمهوری اسلامی روبه‌رو شده بود.
+
+دونالد ترامپ، رئيس‌جمهور آمریکا بالافاصله پس از این حملات اعلام کرد، "هیچ‌کس در حمله موشکی آسیب ندیده و اگر نتانیاهو به آن پاسخ دهد، این وضعیت ادامه پیدا خواهد کرد. ما بسیار به توافقی برای پایان دادن به جنگ نزدیک هستیم و توافق خوبی خواهد بود".
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 16015
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16015_1780868581.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨یدیعوت آحارونوت: بر اساس گزارش‌های دریافتی، در گفتگویی که کمی پیش به پایان رسید، نتانیاهو به ترامپ اطلاع داد که قصد حمله‌ای قدرتمند به ایران را دارد. رئیس‌جمهور آمریکا روشن کرد که اگر چنین حمله‌ای انجام شود، آمریکایی‌ها در آن شرکت نخواهند کرد. 📝 Nick 📌…
+</div>
+
+## Persian_Trend_Official — post 16014
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16014_1780868582.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ پروازهای فرودگاه امام تا اطلاع ثانوی لغو شد. 📝 Nick 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16013
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ سپاه پاسداران انقلاب اسلامی در حال پرتاب پهپاد به سمت گروه‌های مخالف کرد ایرانی در منطقه سلیمانیه، کردستان عراق است.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16012
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16012_1780868582.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+زیرا این یک توافق خوب است.
+</div>
+
+## Persian_Trend_Official — post 16011
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨یدیعوت آحارونوت: بر اساس گزارش‌های دریافتی، در گفتگویی که کمی پیش به پایان رسید، نتانیاهو به ترامپ اطلاع داد که قصد حمله‌ای قدرتمند به ایران را دارد. رئیس‌جمهور آمریکا روشن کرد که اگر چنین حمله‌ای انجام شود، آمریکایی‌ها در آن شرکت نخواهند کرد. 📝 Nick 📌…
+</div>
+
+## Persian_Trend_Official — post 16010
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨یدیعوت آحارونوت:
+بر اساس گزارش‌های دریافتی، در گفتگویی که کمی پیش به پایان رسید، نتانیاهو به ترامپ اطلاع داد که قصد حمله‌ای قدرتمند به ایران را دارد. رئیس‌جمهور آمریکا روشن کرد که اگر چنین حمله‌ای انجام شود، آمریکایی‌ها در آن شرکت نخواهند کرد.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 21693
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 یدیعوت آحارونوت:
+
+بنیامین نتانیاهو به دونالد ترامپ گفته اسرائیل قصد دارد یک حمله بزرگ علیه ایران انجام دهد، و ترامپ به او درباره این اقدام هشدار داده و گفته آمریکا در آن مشارکت نخواهد کرد.
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 391287
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391287_1780868583.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عرزشیا دارن عشق میکنن با ۴ تا آبگرمکن
+بعد که میزنن میگانشون گریه میکنن میگن نامردا جنگ که اینجوری نمیشه چرا ترور میکنید
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391286
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴آمریکا به اسرائیل گفته بهتره چند روز صبر کنید تا مشخص بشه امکان رسیدن به توافق با ایران وجود داره یا نه؛
+
+اگه توافقی به دست نیومد، طبق برنامه و هماهنگ، باهم به ایران حمله می‌کنیم.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391285
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جمهوری اسلامی علنا نشان می‌دهد که ‎#لبنان برایش از جان مردم ‎#ایران و کشور ایران مهم‌تر است.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 126057
+
+<div align="center">
+  <a href="telegram/content/alonews_126057_1780868583.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢فووووووووری/جنگنده‌های اسرائیلی پرواز کردن و فعلا معلوم نیست به مقصد کجا 
+🚨 @AkhbareFouri
+</div>
+
+## alonews — post 126056
+
+<div align="center">
+  <a href="telegram/content/alonews_126056_1780868584.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کانال 11 عبری: ایران از طریق واسطه‌ها پیامی به اسرائیل فرستاده است که تهران حملات خود به اسرائیل را به پایان رسانده و حملات بیشتری انجام نخواهد داد مگر اینکه اسرائیل حمله کند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126055
+
+<div align="center">
+  <a href="telegram/content/alonews_126055_1780868584.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈مهدی مطهرنیا: درگیری ایران و اسرائیل بخشی از بازآرایی نظم جهانی است. ایران برای حفظ بازدارندگی اقدام کرده و اسرائیل نیز احتمالاً پاسخی کنترل‌شده خواهد داد تا هم اعتبار بازدارندگی خود را حفظ کند و هم از گسترش بحران جلوگیری شود. آمریکا نیز به‌دنبال مدیریت تنش و جلوگیری از جنگی فراگیر است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126054
+
+<div align="center">
+  <a href="telegram/content/alonews_126054_1780868584.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ایران به سمت گروه های کرد مخالف ایرانی در سلیمانیه عراق پهپاد شلیک کرده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126053
+
+<div align="center">
+  <a href="telegram/content/alonews_126053_1780868584.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سوتی عجیب در شبکه خبر
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126052
+
+<div align="center">
+  <a href="telegram/content/alonews_126052_1780868585.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خبرنگار شبکه ۱۴ اسرائیل:‌ احتمال پاسخ قدرتمند آمریکا و اسرائیل ضعیف است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126051
+
+<div align="center">
+  <a href="telegram/content/alonews_126051_1780868586.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کانال ۱۲ اسرائیل: آمریکا تا الان برای اجرای حمله علیه ایران موافقت نکرده
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126050
+
+<div align="center">
+  <a href="telegram/content/alonews_126050_1780868586.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پست جدید ترامپ:
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126049
+
+<div align="center">
+  <a href="telegram/content/alonews_126049_1780868586.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴جنگ اینبار بخاطر تروریستهای حزب الله شروع شد و قراره زندگی مردم ایران رو تحت شعاع قرار بده. 
+🤔ایران برای جمهوری اسلامی و عرزشی های حرام زاده وطن نیست، بلکه یک مقر است. 
+✅@AloNews
+</div>
+
+## alonews — post 126048
+
+<div align="center">
+  <a href="telegram/content/alonews_126048_1780868586.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈شبکه کان اسرائیل: رئیس ستاد کل ارتش اسرائیل، ایال زامیر، در ۲۴ ساعت گذشته دو گفت‌وگو با فرمانده سنتکام (فرماندهی مرکزی ایالات متحده)، دریاسالار برد کوپر، انجام داده است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/18 01:03
 ---
 

@@ -7,6 +7,78 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/17 14:22
+---
+
+## DW_Farsi — post 125610
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 انتقاد هگست در فرانسه از "تهاجم" مهاجران به سواحل اروپا
+
+پیت هگست، وزیر دفاع آمریکا، روز شنبه ۶ ژوئن (۱۶ خرداد) همزمان با هشتادودومین سالگرد عملیات پیاده شدن متفقین در نرماندی در جنگ جهانی دوم، از اروپایی‌ها خواست با به گفته او "تهاجم" مهاجران به سواحل این قاره مقابله کنند.
+
+هگست همچنین در سخنرانی خود در گورستان نظامی آمریکا در "کولویل-سور-مر" در منطقه نرماندی فرانسه، از کشورهای اروپایی خواست سهم بیشتری در تأمین امنیت و دفاع خود بر عهده بگیرند.
+
+با این حال، عدم شرکت هگست در مراسم اصلی و بین‌المللی بزرگداشت سالگرد عملیات نویدبخش متفقین برای پایان جنگ جهانی دوم که بعدازظهر همان روز برگزار شد، توجه‌ها را به خود جلب کرد.
+
+هگست در سخنرانی خود گفت: «متأسفانه امروز سواحل مختلف در اروپا هدف یورش ایدئولوژی‌های خطرناک گوناگونی قرار گرفته‌اند.» او افزود: «در سواحل اسپانیا، ایتالیا، یونان و بلغارستان، قایق‌ها و مردان از راه می‌رسند.» هگست ادامه داد: «پایتخت‌های اروپا چه زمانی در برابر این تهاجم اقدامی خواهند کرد؟ یا نکند خیلی دیر شده است؟»
+
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 15849
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15849_1780829553.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+۲ زلزله پیاپی به قدرت ۲.۶ و ۲.۹ ریشتر  با عمق ۹ و ۷ کیلومتر پردیس را دقایقی پیش لرزاند.
+
+
+👺Phantom
+
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 21546
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21546_1780829553.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نامه‌ای که وزیر کشور پاکستان برای رهبری آورده بود، به عراقچی تحویل داده شد.
+
+@IranianMinds
+</div>
+
+## alonews — post 125733
+
+<div align="center">
+  <a href="telegram/content/alonews_125733_1780829554.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈عضو کمیسیون آموزش: اعتراض به مصوبه کنکور فایده‌ای نداره؛ دانش‌آموزا برن درسشونو بخونن
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125732
+
+<div align="center">
+  <a href="telegram/content/alonews_125732_1780829554.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 روند نزولی واردات نفت چین
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/17 14:12
 ---
 

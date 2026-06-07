@@ -7,6 +7,192 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/17 18:53
+---
+
+## WithYashar — post 13710
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تا ۷۲ ساعت دیگه احتمالا لش خامنه ای خاک بکنن از کل دنیا سران کشورها رو مخفیانه دعوت کردن ایران
+@withyashar
+از منابع خودم جویا شدم گفتن اره مراسم چهارشنبه تا دوشنبه هست
+</div>
+
+## pm_afshaa — post 92501
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92501_1780845796.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: من جنگ‌های بی‌پایان رو دوست ندارم و این جنگ بی‌پایان نیست.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92500
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92500_1780845799.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎙️خبرنگار: ایران بعد از پاره کردن توافق هسته‌ای به توسعه اورانیوم با درجه تسلیحات نزدیک‌تر بود چون هیچ حفاظی وجود نداشت.
+
+ترامپ: ببخشید، آنها در زمان توافق هسته‌ای آن را توسعه میدادن. شما این رو نمیدونید؟ آنها تمام اورانیوم رو در زمان اوباما به دست آوردن.
+
+اگر من با بمب افکن‌های B-2 وارد آنجا نمیشدم، آنها در حال حاضر یک سلاح هسته‌ای داشتن و ممکن بود نیمی از جهان نابود بشه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92499
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92499_1780845801.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دارن نتا رو ضعیف میکنن توی چنل اسپانسرمون جوین بدید که قطع نشید
+👇
+👇 @Lex_Server @Lex_Server
+</div>
+
+## pm_afshaa — post 92497
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_92497_1780845801.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حملات سنگین اسراییل به صور لبنان
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## Shin_Persian — post 6600
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sun, 07 Jun 2026 15:13:35 UTC
+
+Regime-affiliated channels report that an emergency meeting of Islamic Regime's Supreme National Security Council has concluded approximately half an hour ago.
+"A decision has been made" [regarding a response to the strikes on Dahieh, Lebanon]
+#Iran
+
+فارسی
+
+کانال‌های وابسته به رژیم گزارش می‌دهند که جلسه اضطراری شورای عالی امنیت ملی رژیم اسلامی تقریباً نیم ساعت پیش به پایان رسیده است.
+«تصمیمی اتخاذ شده است» [در خصوص پاسخ به حملات به ضاحیه، لبنان]
+#Iran
+
+𝕏 · @shin_persian
+</div>
+
+## DW_Farsi — post 125644
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📸درگذشت آنتونی هد، بازیگر سریال محبوب "تد لاسو"
+
+آنتونی هد، بازیگر سرشناس بریتانیایی، که نزد ایرانی‌ها بیشتر با ایفای نقش در سریال‌ تلویزیونی پرطرفدار "تد لاسو" شناخته شده است، در سن ۷۲ سالگی درگذشت. امیلی و دیزی، دختران او در بیانیه‌ای اعلام کردند: «پدرمان در کمال آرامش و بر اثر عوارض ناشی از ذات‌الریه،
+در حالی که خانواده‌اش در کنارش بودند، چشم از جهان فرو بست.»
+
+دختران هد در ادامه اشاره کردند که پدر آنها "عاشق کارش بود" و "همیشه خود را فردی بسیار خوش‌شانس می‌دانست".
+
+آنتونی هد در سریال‌های تلویزیونی محبوب، از جمله "بافی، قاتل خون‌آشام‌ها"، "مرلین" و "بریتانیای کوچک" هنرنمایی کرده بود.
+
+هد از سال ۲۰۲۰ در سریال "تد لاسو" در نقش روپرت مانیون، مالک سابق باشگاه فوتبال ریچموند و همسر سابق شخصیت ربکا ولتون به ایفای نقش پرداخت.
+
+برت گلدشتاین (بازیگر نقش روی کنت)، هم‌بازی و یکی از نویسندگان این سریال، درباره آنتونی هد گفت: «آنتونی هد بازیگر فوق‌العاده‌ای بود که نقش بدترین آدم دنیا را بازی می‌کرد؛ این یک مهارت شگفت‌انگیز بود، چرا که خود او در واقعیت بهترین آدم روی زمین بود.»
+
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 15892
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://youtube.com/live/u4ElDwWihw4?feature=share
+</div>
+
+## IranianMinds — post 21571
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴حملات هوایی اسرائیل همچنان ادامه دارد.
+
+صور، دره بقاع، ارتفاعات سجد در شهرستان جزین در جنوب لبنان.
+
+@IranianMinds
+</div>
+
+## Hranews — post 113448
+
+<div align="center">
+  <img src="telegram/content/Hranews_113448_1780845802.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مشهد؛ احمد رحیمی و سهیلا حسینی به بازداشتگاه اطلاعات سپاه منتقل شدند
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– احمد رحیمی و سهیلا حسینی، زوج بازداشتی، در روزهای اخیر از زندان وکیل‌آباد مشهد به بازداشتگاه اطلاعات سپاه این شهر منتقل شدند.
+
+به گزارش خبرگزاری هرانا، ارگان خبری مجموعه فعالان حقوق بشر در ایران، احمد رحیمی و سهیلا حسینی به بازداشتگاه اطلاعات سپاه منتقل شدند.
+
+براساس اطلاعات دریافتی هرانا، سهیلا حسینی روز چهارشنبه ۱۳ خردادماه از زندان وکیل‌آباد مشهد خارج و به بازداشتگاه اطلاعات سپاه این شهر منتقل شده است. احمد رحیمی، همسر وی نیز که در این زندان نگهداری می‌شد، چندی پیش به بازداشتگاه این نهاد امنیتی منتقل شده است.
+
+ادامه مطلب
+
+#احمد_رحیمی #سهیلا_حسینی
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## alonews — post 125828
+
+<div align="center">
+  <a href="telegram/content/alonews_125828_1780845803.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈هم اکنون جنوب لبنان
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125827
+
+<div align="center">
+  <a href="telegram/content/alonews_125827_1780845803.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پس تهدید رضایی مبنی بر چشم ها امشب به آسمان باشه ،حملات اسراییل به صور لبنان سنگین تر شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125826
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کسی که بخواد بزنه تهدید نمیکنه
+</div>
+
+---
 📅 بروزرسانی: 1405/03/17 18:43
 ---
 

@@ -7,6 +7,209 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/17 19:32
+---
+
+## FoxNewsTwitter — post 342699
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342699_1780848172.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+The Reflecting Pool at the National Mall is nearly full on Sunday morning after weeks of construction as part of President Trump's push to restore Washington, D.C.'s iconic landmarks.
+</div>
+
+## FoxNewsTwitter — post 342698
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342698_1780848173.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"I hope they took away the cost of freedom."
+
+War Secretary Pete Hegseth reflects on what he hopes his children learned during their family's visit to France after honoring D-Day heroes in Normandy.
+</div>
+
+## FoxNewsTwitter — post 342697
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342697_1780848174.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+RT @BenjaminHallFNC: WE DID IT!
+The hardest physical challenge I’ve taken on since my injuries.
+
+But never doubted I’d make it, because I knew who we were climbing for.
+
+Please donate below for all the heroes we were climbing for.
+DONATE HERE! runsignup.com/benhall
+</div>
+
+## pm_afshaa — post 92509
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92509_1780848175.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ تو مصاحبه‌اش با مجری NBC دعواش شد و مصاحبه رو ول کرد و رفت.
+
+مجری: شما هیچ مدرکی برای تقلب در انتخابات ندارید.
+ترامپ: من 94 صفحه در مورد این موضوع ارائه کردم، ولی شما رسانه‌ها همیشه دروغ میگید و خیلی کثیف هستید، خسته شدم دیگه، من میرم.
+مجری: نه تروخدا، کلی راه بخاطر شما اومدم.
+ترامپ هم به تخمم وار رفت.
+
+
+
+💧Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92508
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92508_1780848175.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴یک مقام ارشد اسرائیلی از آمادگی اضطراری در اسرائیل برای حمله ایران به این کشور در ساعات آینده خبر داد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## Persian_Trend_Official — post 15900
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15900_1780848176.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبکه 14 اسرائیل: به دنبال تهدید امروز ایران مبنی بر حمله به تل آویو، اسرائیل در حالت آماده‌باش کامل قرار گرفته است.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15899
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ هم‌اکنون نشست فوری نتانیاهو با فرماندهان نظامی برای بررسی تحولات منطقه در حال برگزاری است.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15898
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15898_1780848176.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ نورنیوز:
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15897
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15897_1780848177.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ قطر اطلاعیه NOTAM صادر کرده است که پروازها را از طریق فضای هوایی خود هدایت مجدد می‌کند و مسیرهای جایگزین برای هواپیماهای پرواز کننده از دوحه و فرودگاه‌های عربستان سعودی ارائه می‌دهد.
+
+این اطلاعیه از ۷ ژوئن تا ۱۴ ژوئن معتبر است.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## RadioFarda — post 158009
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_158009_1780848177.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸آمارهای رسمی از افزایش شدید قیمت‌ها و فشار روزافزون تورم بر زندگی مردم در ایران حکایت دارند.
+
+🔸تورم این روزها در ایران چه تغییری در سبک زندگی شما ایجاد کرده است؟ افزایش قیمت کدام کالا یا خدمات را بیشتر در زندگی‌تان احساس می‌کنید؟
+
+🔸پیام‌های صوتی و تصویری خود را به نشانی‌های زیر می‌توانید برای ما ارسال کنید:
+
+
+🔸Telegram: @Fardagram
+🔸WhatsApp: +420 725 970 000
+
+@RadioFarda
+</div>
+
+## BBCPersian — post 283077
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283077_1780848178.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻دونالد ترامپ در مصاحبه‌ای که روز یکشنبه پخش شد، خواستار حملات «نقطه‌ای و دقیق» بیشتر علیه حزب‌الله لبنان شد.
+
+رئیس‌جمهور آمریکا به شبکه خبری ان‌بی‌سی گفت: «دوست دارم شاهد بهبود وضع زندگی در لبنان باشم. دوست دارم حملات نقطه‌ای و دقیق بیشتری به حزب‌الله صورت بگیرد. فکر می‌کنم باید (حملات) دقیقتر باشد.»
+
+آقای ترامپ در همین مصاحبه گفت اصراری ندارد که لبنان بخشی از یک توافق کوتاه‌مدت با ایران باشد.
+
+اظهارات رئیس‌جمهور آمریکا در حالی منتشر شده است که ساعاتی پیش اسرائیل به هدفی در ضاحیه در جنوب بیروت حمله کرد و قرارگاه مرکزی خاتم‌الانبیا در ایران تهدید کرد که این حمله را بی‌پاسخ نخواهد گذاشت.
+
+اسرائیل هفته پیش هم تهدید کرده بود که ضاحیه را هدف قرار می‌دهد اما پس از تهدید قرارگاه مرکزی خاتم‌الانبیا به حمله تلافی‌جویانه به اسرائیل، دونالد ترامپ با بنیامین نتانیاهو، نخست‌‌وزیر اسرائیل، تماس گرفت و گفت که از او خواسته است که «حمله‌ عمده‌ای» به بیروت انجام ندهد و بنیامین نتانیاهو هم دستور داده است که «سربازانش بازگردند.»
+
+📷Getty Images
+</div>
+
+## alonews — post 125839
+
+<div align="center">
+  <a href="telegram/content/alonews_125839_1780848179.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈هم اکنون نشست فوری نتانیاهو با فرماندهان نظامی برای بررسی تحولات منطقه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125838
+
+<div align="center">
+  <a href="telegram/content/alonews_125838_1780848179.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈قطر آسمان خود را بست!
+
+
+🔴قطر اطلاعیه NOTAM صادر کرده است که پروازها را از طریق فضای هوایی خود هدایت مجدد می‌کند و مسیرهای جایگزین برای هواپیماهای پرواز کننده از دوحه و فرودگاه‌های عربستان سعودی ارائه می‌دهد.
+
+
+🔴این اطلاعیه از ۷ ژوئن تا ۱۴ ژوئن معتبر است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/17 19:22
 ---
 

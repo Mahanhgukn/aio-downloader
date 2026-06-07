@@ -7,6 +7,45 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/17 04:32
+---
+
+## FoxNewsTwitter — post 342684
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342684_1780794161.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Just weeks after winning the Kentucky Derby, Golden Tempo has won big again.
+
+The colt captured the 158th Belmont Stakes on Saturday at Saratoga, after his team chose to skip the Preakness Stakes and give him extra time to rest rather than pursue horse racing's Triple Crown.
+</div>
+
+## Shin_Persian — post 6587
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sun, 07 Jun 2026 00:54:08 UTC
+
+U.S. forces in the Middle East shot down two Iranian one-way attack drones that threatened international maritime traffic in the Strait of Hormuz.
+
+Source: @CENTCOM
+https://x.com/CENTCOM/status/2063424127508037983
+
+فارسی
+
+نیروهای ایالات متحده در خاورمیانه دو پهپاد تهاجمی یک‌طرفه ایرانی را که ترافیک دریایی بین‌المللی در تنگه هرمز را تهدید می‌کردند، سرنگون کردند.
+
+منبع: @CENTCOM
+https://x.com/CENTCOM/status/2063424127508037983
+
+𝕏 · @shin_persian
+</div>
+
+---
 📅 بروزرسانی: 1405/03/17 04:22
 ---
 

@@ -7,6 +7,116 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/17 10:12
+---
+
+## VahidOOnLine — post 244039
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_244039_1780814538.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی ارسال شده به ایران‌اینترنشنال نشان می‌دهد گروهی از ایرانیان شنبه ۱۶ خرداد در سن‌خوزه کالیفرنیا در آمریکا، علیه جمهوری اسلامی در خیابان‌های شهر کاروان خودرویی به راه انداختند و پرچم‌های شیروخورشید به دست گرفتند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## IranIntlTV — post 340927
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340927_1780814540.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی ارسال شده به ایران‌اینترنشنال نشان می‌دهد گروهی از ایرانیان شنبه ۱۶ خرداد در سن‌خوزه کالیفرنیا در آمریکا، علیه جمهوری اسلامی در خیابان‌های شهر کاروان خودرویی به راه انداختند و پرچم‌های شیروخورشید به دست گرفتند.
+</div>
+
+## IranianMinds — post 21535
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تخریب کلیسای تاریخی انجیلی مشهد به‌دست عوامل ناشناس تاریخ ساخت این کلیسا به دوره پهلوی اول می‌رسه و ثبت ملی بود ... @IranianMinds
+</div>
+
+## IranianMinds — post 21533
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تخریب کلیسای تاریخی انجیلی مشهد به‌دست عوامل ناشناس
+
+تاریخ ساخت این کلیسا به دوره پهلوی اول می‌رسه و ثبت ملی بود ...
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21532
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21532_1780814542.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 وقتی بچه رو کنترل نمیکنید و فاز گنگستری و لات بازی میگیره نتیجه اش میشه همین !
+
+چند مدت پیش چن تا بچه 14 15 ساله واسه خودشون قرار دعوا گذاشته بودن و با زنجیر و هرچی داشتن ریخته بودن سر همدیگه و داشتن همو میزدن که یکیشون اون وسط میاد یه حرکتی میزنه که گردن یکی دیگرو میشکونه.
+
+@IranianMinds
+</div>
+
+## idfinfarsi — post 11785
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‼️ پس از تلاش برای پیشبرد طرح‌های تروریستی علیه نیروهای ما: ارتش اسرائیل و شاباک یک تروریست را که از عوامل اصلی حمله به منطقه کیسوفیم در جریان کشتار ۷ اکتبر بود، به هلاکت رساندند
+
+❌ارتش اسرائیل و شاباک هفته گذشته (سه‌شنبه) در جنوب نوار غزه حمله کرده و صقر ابو کریم، فرمانده یک سلول نخبه در سازمان تروریستی حماس را به هلاکت رساندند. کریم از عوامل اصلی حمله به منطقه کیسوفیم در جریان کشتار ۷ اکتبر بود.
+
+⭕️در طول جنگ، کریم به پیشبرد و اجرای طرح‌های تروریستی علیه نیروهای ارتش اسرائیل که در نوار غزه فعالیت می‌کردند ادامه داد. در دوره اخیر، وی با نقض توافق آتش‌بس، مقادیر زیادی سلاح در منزل خود نگهداری کرده و در تلاش برای بازسازی سازمان و برگزاری آموزش‌های تروریستی به منظور پیشبرد عملیات‌های بیشتر بود.
+
+❌همراه با صقر ابو کریم، یک تروریست دیگر که به‌عنوان عامل ارتباطات در سازمان تروریستی حماس فعالیت می‌کرد نیز در این حمله به هلاکت رسید.
+
+⭕️پیش از حمله، اقداماتی برای کاهش آسیب به غیرنظامیان انجام شد، از جمله استفاده از مهمات دقیق و رصد هوایی.
+
+⭕️نیروهای ارتش اسرائیل تحت فرماندهی جنوب مطابق با توافق در منطقه مستقر هستند و به فعالیت برای رفع هرگونه تهدید فوری ادامه خواهند داد.
+</div>
+
+## Dirty_Kids — post 391187
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 پرامپت جدیدی که حسابی تو فضایِ مجازی ترند و محبوب شده؛
+این پرامپت از هوش مصنوعی بهت نشون میده که چه پارتنری بهت میاد.
+
+
+1 - وارد Chat GPT یا Gemini میشی
+2 - این پرامپت رو همراه با عکس خودت واسش میفرستی :
+
+
+Analyze my face,age heignt -outfit, and overall vibe as reference.
+Step 2: Design a partner
+• Create a complementary partner that matches my style and personality
+Output only the partners image. do NOT place them next to me The partner's face.age height clothing, and pose should look natural and realistic
+• Ensure the partner's style includes facial expression,body language, and outfit that harmonizes with mine
+• Use cinematic lighting, realistic textures, and high-quality rendering
+Background is optional but should fit the partner's style and mood.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391186
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391186_1780814544.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اندی اگه بیاد ایران مجوز بگیره
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/03/17 10:02
 ---
 

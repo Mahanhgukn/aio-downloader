@@ -7,6 +7,583 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/18 00:33
+---
+
+## VahidOOnLine — post 244188
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244188_1780866230.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ همزمان با حملات موشکی ایران به اسرائیل، تسنیم، خبرگزاری وابسته به سپاه، یکشنبه‌شب، در پی شنیده شدن صدای انفجار در تبریز، گزارش داد: «براساس پیگیری‌ها، صدای شنیده شده در‌ فرودگاه تبریز تست پدافند بوده و هیچ‌گونه حمله‌ای به این فرودگاه اتفاق نیفتاده است».
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244187
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244187_1780866231.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ به اکسیوس گفت: حملات جمهوری اسلامی به کسی آسیبی نزده است. امیدوارم اسرائیل تلافی نکند. اگر نتانیاهو پاسخ دهد، این درگیری مثل ۴۷ سال گذشته یا حتی ۳۰۰۰ سال گذشته ادامه پیدا می‌کند.
+او افزود: ما خیلی به یک توافق نهایی با تهران نزدیک هستیم و نمی‌خواهم به‌خاطر اتفاقاتی که الان در حال رخ دادن است، همه چیز از بین برود.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244186
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_244186_1780866232.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ افی دفرین، سخنگوی ارتش اسرائیل، یکشنبه‌شب، پس از حملات ایران به این کشور، در یک بیانیه رسمی و زنده تلویزیونی با تایید شلیک موشک‌های بالستیک از سوی ایران اعلام کرد: «حکومت ایران لحظاتی پیش موشک‌هایی را به سمت خاک اسرائیل شلیک کرد؛ ما برای این موضوع کاملا آماده بوده‌ایم و ارتش اسرائیل هم در فاز دفاعی و هم در فاز آفندی بسیار قدرتمند عمل خواهد کرد.» او با متهم کردن تهران به تلاش برای تغییر معادلات نظامی در منطقه افزود: «حکومت ایران با شلیک مستقیم به خاک ما مرتکب اشتباه بسیار بزرگی شده است. سیستم‌های پدافند هوایی ما در سراسر کشور مستقر هستند».
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13804
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+طبق گزارش ها،هم مقامات نظامی و هم مقامات غیرنظامی ایران هم من از اتاق جنگ کاملاً بر این فرض عمل می‌کنند که حمله‌ای به ایران در راه است و بر اساس آن اقدامات لازم را انجام می‌دهند.
+@withyashar
+</div>
+
+## WithYashar — post 13803
+
+<div align="center">
+  <a href="telegram/content/WithYashar_13803_1780866233.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبر تایید نشده: یک هواپیمای مسافربری در صحرای کربلا سقوط کرد @withyashar
+</div>
+
+## WithYashar — post 13802
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+از‌ مهرآباد جنگنده بلند شد @withyashar
+</div>
+
+## mwarmonitor — post 10318
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 «ترامپ و نتانیاهو در حال حاضر در تماس تلفنی هستند - به گزارش رویترز.»
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10317
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_10317_1780866236.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✈️«یک فروند هواپیمای نظامی آنتونوف AN-26 نیروی هوایی اوکراین در حال پرواز بر فراز عربستان سعودی.»
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10316
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_10316_1780866237.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 «نوتام: ایران بخش غربی حریم هوایی را برای تمام پروازهای غیرنظامی بسته است. تنها هواپیماهای نظامی، دولتی، پزشکی و جست‌وجو و نجات اجازه پرواز دارند. بخش شرقی منطقه پروازی ایران همچنان باز است.»
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10315
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 یک منبع پاکستانی به العربیه می‌گوید: «آنچه در حال رخ دادن است مانعی برای تلاش‌هایی است که برای رسیدن به توافق در حال انجام است. برخی طرف‌های سرسخت، منطقه را به سمت تنش و فروپاشی مذاکرات سوق می‌دهند.»
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10314
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸نتانیاهو، وزیر دفاع کاتس و مقامات ارشد امنیتی اسرائیل قرار است طی یک ساعت آینده یک نشست اضطراری درباره ایران برگزار کنند - به نقل از i24News
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 92701
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92701_1780866237.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴یک منبع نظامی به تسنیم:
+موشک‌ها آماده‌ان در صورت پاسخ اسرائیل فورا شلیک بشن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92700
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴منابع عبری: گفت‌و‌گوی تلفنی ترامپ و نتانیاهو آغاز شد. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92699
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کنست چند جلسه‌ای که قرار بود فردا برگزار کنه را لغو کرد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## VahidOnline — post 76006
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76006_1780866238.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+همزمان با حملات موشکی ایران به اسرائیل، تسنیم، خبرگزاری وابسته به سپاه، یکشنبه‌شب، در پی شنیده شدن صدای انفجار در تبریز، گزارش داد: «براساس پیگیری‌ها، صدای شنیده شده در‌ فرودگاه تبریز تست پدافند بوده و هیچ‌گونه حمله‌ای به این فرودگاه اتفاق نیفتاده است».
+@VahidOOnLine
+پیام‌هایی که من دریافت کرده بودم:
+
+سلام وحید جان
+الان ۲۳:۵۵ سه صدای انفجار بزرگ آمد تو تبریز
+پیام بعدی در ۱۹ دقیقه بامداد: همین الان باز زدن تبریز رو
+
+سلام وحید جان
+تبریز ساعت ۱۲:۱۵ نزدیک لشکر عاشورا صدای انفحار اومد.
+البته شدتش مثل انفجار های جنگ ۴۰ روزه نبود.
+
+تبریز نیم ساعته صداهای عجیبی میاد
+مطمعنا صدای پدافند نیست انفجاره
+
+هم اکنون صدای چند انفجار شدید در تبریز
+
+📡 @VahidOnline
+</div>
+
+## kianmeli1 — post 87751
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری-نزدیک سپاه عاشورا تبریز صدای انفجار اومد
+https://t.me/+_a5ind9hr7sxOTE0
+</div>
+
+## kianmeli1 — post 87750
+
+<div align="center">
+  <a href="telegram/content/kianmeli1_87750_1780866239.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری-فاکس نیوز :
+
+با اینکه ترامپ به اسرائیل گفته پاسخ نده اما اسرائیل همین الان جلسه اضطراری تشکیل داده تا تصمیم بگیره آیا به حملات اخیر پاسخ می‌ده یا نه؛ و اگه پاسخ بده، چطور این کار رو انجام خواهد داد.
+https://t.me/+_a5ind9hr7sxOTE0
+</div>
+
+## IranIntlTV — post 341063
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341063_1780866241.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال ۱۲ اسرائیل گزارش داد بنیامین نتانیاهو و دونالد ترامپ در حال حاضر در حال گفت‌وگو هستند.
+
+همزمان نماینده اسرائیل در سازمان ملل در شبکه ایکس خطاب به ترامپ نوشت: آقای رییس‌جمهور، جمهوری اسلامی شما را فریب می‌دهد، اسرائیل به شما احترام می‌گذارد. اسرائیل باید با قدرت پاسخ دهد.
+https://iranintl.com/202606073571
+</div>
+
+## IranIntlTV — post 341062
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341062_1780866242.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ به اکسیوس گفت: حملات جمهوری اسلامی به کسی آسیبی نزده است. امیدوارم اسرائیل تلافی نکند. اگر نتانیاهو پاسخ دهد، این درگیری مثل ۴۷ سال گذشته یا حتی ۳۰۰۰ سال گذشته ادامه پیدا می‌کند.
+او افزود: ما خیلی به یک توافق نهایی با تهران نزدیک هستیم و نمی‌خواهم به‌خاطر اتفاقاتی که الان در حال رخ دادن است، همه چیز از بین برود.
+https://iranintl.com/202606071626
+</div>
+
+## Shin_Persian — post 6664
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6664_1780866243.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet: Shin ✓ @hey_itsmyturn Sun, 07 Jun 2026 19:43:42 UTC Explosions north of Tabriz airport, East Azerbaijan Province, #Iran ↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید. فارسی انفجارهایی در شمال فرودگاه تبریز، استان آذربایجان شرقی،…
+</div>
+
+## Shin_Persian — post 6663
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+Shin ✓ @hey_itsmyturn
+Sun, 07 Jun 2026 19:43:42 UTC
+
+Explosions north of Tabriz airport,
+East Azerbaijan Province, #Iran
+
+↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
+
+فارسی
+
+انفجارهایی در شمال فرودگاه تبریز،
+استان آذربایجان شرقی، #Iran
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 219938
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺تلاش پرزیدنت ترامپ برای جلوگیری از ادامه تقابل نظامی اسرائیل و جمهوری اسلامی
+
+▪️در پی حمله موشکی جمهوری اسلامی به اسرائيل،‌ باراک راوید، خبرنگار آکسیوس اعلام کرد پرزیدنت ترامپ به او گفته است «همین الان» با نخست وزیر اسرائیل تماس می‌گیرد و به او می‌گوید که به حملات رژیم ایران پاسخ ندهد و «حمله متقابل نکند.»
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8158262.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219937
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219937_1780866244.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️در پی حملات موشکی جمهوری اسلامی به اسرائيل، بخش‌هایی از آسمان ایران به روی پروازها بسته شد. همچنین عراق و سوریه نیز به‌طور موقت آسمان خود را بستند. اما به گزارش تایمز اسرائيل، وزیر حمل و نقل اسرائيل گفت حریم هوایی این کشور همچنان باز است و پروازها طبق برنامه ادامه دارد.
+@FarsiVOA
+</div>
+
+## DW_Farsi — post 125664
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125664_1780866244.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 ایران، عراق و سوریه پس از حمله موشکی تهران به اسرائیل، حریم هوایی خود را بستند
+
+ایران پس از شلیک موشک‌ها به سمت اسرائیل، در پاسخ به آخرین حمله این کشور به لبنان، حریم هوایی بخش‌های غربی خود را بست.
+
+مجید اخوان، سخنگوی سازمان هواپیمایی کشوری در بیانیه‌ای که توسط خبرگزاری ایرنا منتشر شد، اعلام کرد: «به دلیل ارزیابی‌های ایمنی و امنیتی، حریم هوایی بخش غربی کشور تا اطلاع ثانوی بسته اعلام شد.»
+
+مقامات هوانوردی غیرنظامی به خبرگزاری رویترز گفتند، عراق نیز پس از این حملات، حریم هوایی خود را به طور موقت بسته و ناوبری هوایی را به دلایل مربوط به ایمنی ترافیک هوایی به حالت تعلیق درآورده است.
+
+سازمان هواپیمایی کشوری عراق اعلام کرد، "حریم هوایی این کشور به مدت ۷۲ ساعت بسته خواهد ماند".
+
+سوریه نیز حریم هوایی مناطق جنوبی خود را به طور موقت برای ۱۲ ساعت بست و فعالیت‌های فرودگاه دمشق را به حالت تعلیق درآورد.
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 15999
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ دوستان عزیز در ایران، ممکن است شرایطی پیش بیاید که دیگر نتوانید آنلاین شوید. کسانی که این پیام را می‌بینید، مراحل زیر را روی اکانت تلگرام خود انجام دهید:
+
+🚨 زبان فارسی:
+تنظیمات > حریم خصوصی و امنیت > حذف اکانت در صورت عدم فعالیت > ۲۴ ماه
+
+🚨 زبان انگلیسی:
+Settings > Privacy and Security > Delete My Account If Away For > 24 months
+
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15998
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📢 دوستان عزیز، الان که وضعیت اینترنت تا حدی بهتر شده، حتماً زمانی را برای به‌روزرسانی دستگاه‌ها و اپلیکیشن‌هایتان اختصاص دهید. 🔒 ✅ قدم اول: سیستم‌عامل گوشی هوشمندتان را از بخش تنظیمات به آخرین نسخه موجود آپدیت کنید. ✅ قدم دوم: تلگرام را از منبع رسمی دانلود…
+</div>
+
+## Persian_Trend_Official — post 15997
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ نفتالی بنت:
+
+«این لحظه آشکار شدن حقیقت است: اینکه آیا اسرائیل کشوری مستقل است که قادر به دفاع از خود است یا خیر.
+
+خویشتنداری یا واکنش نمادین به دشمنان ما نشان می‌دهد که خون شهروندان ما پایمال شده است؛ بنابراین، اسرائیل باید با قدرت و اثربخشی عمل کند.
+
+در این مورد، همه ما، تمام شهروندان اسرائیل، در کنار هم ایستاده‌ایم.»
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15996
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ سخنگوی ارتش اسرائیل: ما حملات خود به سراسر خاک لبنان را ادامه خواهیم داد و اجازه نخواهیم داد ایران معادله‌ای جدید علیه لبنان ایجاد کند.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## RadioFarda — post 158019
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل: ایران با شلیک موشک‌ها «اشتباهی بزرگ» مرتکب شد
+
+🔸ارتش اسرائیل روز یک‌شنبه ۱۸ خرداد اعلام کرد ایران با شلیک موجی از موشک‌ها به سوی اسرائیل «اشتباهی بزرگ» مرتکب شده است.
+
+🔸افی دفرین، سخنگوی ارتش اسرائیل، گفت: «رژیم تروریستی ایران بار دیگر با انتخاب مسیر ترور، اشتباهی بزرگ مرتکب شده است.»
+
+🔸آژیرهای خطر روز یک‌شنبه در اسرائیل به صدا درآمد و ارتش این کشور اعلام کرد سامانه‌های پدافندی آن در حال رهگیری چند موج موشک شلیک‌شده از ایران هستند. این نخستین حمله موشکی ایران به اسرائیل از زمان برقراری آتش‌بس هشتم آوریل در جنگ خاورمیانه است.
+
+🔸سپاه پاسداران این حمله را «هشدار» خواند و گفت این اقدام در واکنش به حمله اسرائیل به ضاحیه جنوبی بیروت انجام شده است. دفتر بنیامین نتانیاهو، نخست‌وزیر اسرائیل، پیشتر اعلام کرده بود ارتش این کشور یک «مرکز فرماندهی شبه‌نظامیان» را در ضاحیه هدف قرار داده است.
+
+🔸وزارت بهداشت لبنان اعلام کرد حمله اسرائیل به ضاحیه دو کشته و ۲۰ زخمی بر جای گذاشت. حزب‌الله نیز تأیید کرد که صبح یک‌شنبه به دو پایگاه ارتش اسرائیل موشک و پهپاد شلیک کرده بود.
+
+🔸در تهران، محمدباقر قالیباف، رئیس مجلس و مذاکره‌کننده ارشد ایران در گفت‌وگوها با واشینگتن، آمریکا را متهم کرد که برای حمله به بیروت «چراغ سبز» داده و گفت دارایی‌ها و منافع آمریکا و اسرائیل اکنون «اهداف مشروع» هستند.
+
+🔸قرارگاه خاتم‌الانبیا نیز اعلام کرد اسرائیل با حمله به بیروت «از همه خطوط قرمز عبور کرده» و خواستار توقف عملیات اسرائیل در لبنان شد.
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 21682
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 حملات هوایی شدید اسرائیل به جنوب لبنان
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21681
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 لیبرمن، وزیر دفاع پیشین اسرائیل:
+
+دیگر زمان سیاست مهار و خویشتنداری گذشته است. باید فوراً پاسخ بدهیم و زیرساخت‌های راهبردی ایران را هدف قرار دهیم !
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21680
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پاکستان بیناموس خبری ازت نیست
+
+نمیخوای بیای ۲ تا گوهم تو بخوری؟
+
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21679
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21679_1780866245.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ:
+
+و من نصر إِلاَّ مِنْ عندالله الْعَزِيزِ الْحَكِيمِ.
+
+@IranianMinds
+</div>
+
+## idfinfarsi — post 11810
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‼️ رژیم تروریستی ایران در تلاش است معادله‌ای جدید ایجاد کرده و با انجام شلیک مستقیم به خاک ما، در واکنش به حملات ارتش اسرائیل به ضاحیه ، قواعد جدیدی را تحمیل کند - ما اجازه چنین کاری را نخواهیم داد!
+
+⭕️ ما در واکنش به شلیک‌های بی‌وقفه حزب‌الله به سوی شهرک‌ها و مناطق مسکونی شمال اسرائیل دست به حمله زدیم. اجازه نخواهیم داد حملات علیه شهروندان کشور اسرائیل ادامه پیدا کند.
+
+⭕️ ارتش اسرائیل در دفاع و هم در حمله قدرتمند عمل می‌کند. سامانه‌های پدافند هوایی در سراسر کشور مستقر می باشند.
+</div>
+
+## Dirty_Kids — post 391280
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391280_1780866246.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خو اومد زد
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 126031
+
+<div align="center">
+  <a href="telegram/content/alonews_126031_1780866246.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈اسرائیل بازم به لبنان حمله کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126030
+
+<div align="center">
+  <a href="telegram/content/alonews_126030_1780866246.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ایران اطلاعیه NOTAM صادر کرده است که بخش غربی فضای هوایی تهران را تا ۸ ژوئن به روی تمام ترافیک هوایی غیرنظامی می‌بندد.
+
+
+🔴 تنها هواپیماهای نظامی، دولتی، تخلیه پزشکی و جست‌وجو و نجات مجاز به فعالیت در این منطقه محدود شده هستند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126029
+
+<div align="center">
+  <a href="telegram/content/alonews_126029_1780866247.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈چپ و راست داره از فرودگاه مهرآباد تهران هواپیما بلند میشه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126028
+
+<div align="center">
+  <a href="telegram/content/alonews_126028_1780866247.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈هم اکنون قیصر در میدان انقلاب: پیک‌ها همه بالا
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126027
+
+<div align="center">
+  <a href="telegram/content/alonews_126027_1780866247.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزارت خارجه پاکستان: ایران نشانه‌هایی از پیشرفت را در راستای تصویب یادداشت تفاهم نشان داده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126026
+
+<div align="center">
+  <a href="telegram/content/alonews_126026_1780866248.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزیر خارجه عربستان سعودی به صورت تلفنی با همتای قطری خود تحولات اوضاع و پیامدهای آن بر منطقه را بررسی کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126025
+
+<div align="center">
+  <a href="telegram/content/alonews_126025_1780866248.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈طبق گزارش i24 نیوز، نخست‌وزیر اسرائیل نتانیاهو، وزیر دفاع کاتز و رهبری امنیتی اسرائیل قرار است در ساعت آینده جلسه اضطراری درباره ایران برگزار کنند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126024
+
+<div align="center">
+  <a href="telegram/content/alonews_126024_1780866248.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 یک پهپاد ناشناس، احتمالاً یک پهپاد نظارتی آمریکایی یا اسرائیلی، در استان کربلا در مرکز عراق سرنگون شد.
+
+
+🔴 این اتفاق تقریباً همزمان با حمله موشکی بالستیک ایران رخ داد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126023
+
+<div align="center">
+  <a href="telegram/content/alonews_126023_1780866251.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تسنیم: منبع نظامی به ما گفت موشک ها آماده اند که در صورت جواب اسرائیل فورا شلیک شوند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126022
+
+<div align="center">
+  <a href="telegram/content/alonews_126022_1780866251.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈صدای شنیده شده در‌فرودگاه تبریز تست پدافند بوده و هیچ‌گونه حمله‌ای به این فرودگاه اتفاق نیفتاده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126021
+
+<div align="center">
+  <a href="telegram/content/alonews_126021_1780866251.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خبرگزاری MSN به نقل از یک منبع در وزارت خارجه پاکستان مدعی شد: سفر وزیر کشور به تهران مثبت بود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/18 00:23
 ---
 

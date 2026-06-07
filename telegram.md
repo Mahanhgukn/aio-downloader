@@ -7,6 +7,132 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/18 02:03
+---
+
+## WithYashar — post 13850
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: محاصره ممکن است قوی تر از هر حمله ای باشد که به ایران آغاز شده است‌‌
+@withyashar
+</div>
+
+## WithYashar — post 13849
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+همه رسانه های عبری دسته جمعی از تصمیم نتانیاهو مبنی بر حمله گسترده به ایران ، خبر میدهند
+@withyashar
+</div>
+
+## WithYashar — post 13848
+
+<div align="center">
+  <a href="telegram/content/WithYashar_13848_1780871597.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+@withyashar
+</div>
+
+## mwarmonitor — post 10350
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_10350_1780871598.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✈️«۳ فروند تانکر سوخت‌رسان نیروی هوایی آمریکا اکنون بر فراز شرق عربستان سعودی فعال هستند و دو فروند دیگر نیز در مسیر از تل‌آویو در حال حرکت‌اند. ✈️همچنین به نظر می‌رسد هواپیماهای نیروی هوایی آمریکا از انجام عملیات بر فراز خلیج فارس و دریای عمان خودداری می‌کنند.»…
+</div>
+
+## pm_afshaa — post 92738
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92738_1780871599.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: اگر توافق به دلیل بندهاش فرو بپاشه، ما گزینه انجام یک حمله کماندویی به ایران رو بررسی خواهیم کرد. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 341071
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341071_1780871599.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شهرام خلدی، پژوهش‌گر تاریخ خاورمیانه، گفت: «درگیری میان اسرائیل و جمهوری اسلامی تشدید خواهد شد.» او افزود: «با توجه به حضور گسترده نیروهای آمریکایی در منطقه و نگرانی متحدان عرب واشینگتن در خلیج فارس، دونالد ترامپ نمی‌تواند در برابر بازیگری غیرعقلانی مانند جمهوری اسلامی، متحدانش را تنها بگذارد.»
+@iranintltv
+</div>
+
+## FarsiVOA — post 219947
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219947_1780871601.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️سایت خبری اسرائيل‌هیوم می‌گوید دونالد ترامپ در تماس تلفنی با بنیامین نتانیاهو به او قول داد که متعهد است هرگونه امکان دستیابی جمهوری اسلامی به سلاح هسته‌ای را از بین ببرد و همچنین مانع از آن شود که این رژیم تهدیدی دائمی برای اسرائیل باشد.
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 16018
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16018_1780871601.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ به فایننشال تایمز: من تصمیم میگیرم. من همه تصمیمات را میگیرم. نتانیاهو تصمیم گیرنده نیست!
+
+حمله ایران به اسرائیل هیچ تأثیری بر مذاکرات نخواهد داشت. این حملات یکی از آن چیزهایی است که 3000 سال یا 47 سال، بسته به اینکه چگونه حساب کنید، ادامه داشته است.
+
+نتانیاهو چاره‌ای جز پذیرش توافق ایران نخواهد داشت.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 21706
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ :
+
+محاصره بنادر ایران احتمالا قوی تر از هر حمله ای است که تا به حال به آن کشور انجام شده است.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21705
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+البته همه میدونیم که اینا همش عادت های ترامپ مودی روانیه
+که با روح و روان ادم بازی میکنه
+و این حرفارو قبل جنگ ۱۲ روزه و همبن جنگ اخیر زده بود
+</div>
+
+## IranianMinds — post 21704
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حالا یکی باید بره بین ترامپ و نتانیاهو میانجیگری کنه
+</div>
+
+## alonews — post 126079
+
+<div align="center">
+  <a href="telegram/content/alonews_126079_1780871601.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: محاصره ممکن است قوی تر از هر حمله ای باشد که به ایران آغاز شده است‌‌
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/18 01:53
 ---
 

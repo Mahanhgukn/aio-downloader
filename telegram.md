@@ -7,6 +7,239 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/17 20:43
+---
+
+## VahidOOnLine — post 244144
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_244144_1780852403.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوهای منتشرشده در شبکه‌های اجتماعی، دود ناشی از حمله اسرائیل به منطقه ضاحیه و انهدام مواضع حزب‌الله لبنان را در این منطقه در روز یک‌شنبه ۱۷ خرداد نشان می‌دهد.
+ارتش اسرائیل اعلام کرد این حملات در پاسخ به شلیک‌های حزب‌الله لبنان به سوی خاک اسرائیل انجام شده است.
+منطقه «ضاحیه» در حومه جنوبی بیروت، از پایگاه‌های اصلی حزب‌الله به شمار می‌رود.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244143
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️امیر قلعه‌نویی، سرمربی تیم ملی فوتبال ایران روز یکشنبه ۱۶ خرداد و در بدو ورد به تیخوانا مکزیک، از عملکرد دولت آمریکا در روند اهدای روادید به‌شدت انتقاد کرد.
+
+قلعه‌نویی در مصاحبه با خبرگزاری فرانسه با تشکر از تلاش‌های جانی اینفانتینو، رئیس فیفا گفت تیم ما باید هفته پیش به اینجا می‌رسید تا می‌توانست «ریکاوری» کند. اما هشت روز دیگر اولین بازی ما برگزار می‌شود. با ما غیراخلاقی و غیرانسانی برخورد کردند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244142
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244142_1780852406.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+غلامحسین محسنی اژه‌ای، رییس قوه قضاییه جمهوری اسلامی، با اشاره به حملات یک‌شنبه اسرائیل به ضاحیه در جنوب بیروت، در شبکه ایکس نوشت: «غباری از غم بر چهره‌ بیروت نشسته است. با این غبار غم، در تهران دل‌ها به لرزه درآمده است. ما کنار مردم و مقاومت لبنان می‌ایستیم.»
+
+او افزود حزب‌الله «جان ایران است».
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13722
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پرواز جنگنده های ارتش و گشت زنی بر فراز تهران 🚨
+@withyashar
+</div>
+
+## WithYashar — post 13721
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شرکت هواپیمای هلندی "KLM" لغو پروازهارو به اسرائیل، تا ۲۷ جولای تمدید کرد
+@withyashar
+</div>
+
+## pm_afshaa — post 92522
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92522_1780852406.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴اژه‌ای، رییس قوه قضاییه:
+غباری از غم بر چهره‌ بیروت نشسته. با این غبار غم، در تهران دل‌ها به لرزه دراومده. ما کنار مردم و مقاومت لبنان می‌ایستیم.
+حزب‌الله جان ایران است!
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92521
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92521_1780852407.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴یدیعوت آحارونوت:
+ارتش اسرائیل در وضعیت حداکثر آمادگی برای از سرگیری جنگ با ایرانه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92520
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92520_1780852408.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کانال 14 اسرائیل:
+اسرائیل در آمادگی کامل به دلیل تهدید حمله موشکی از طرف ایران قرار داره.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5433
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ اعلام آمادگی وزیر جنگ آمریکا برای استفاده از گزینهٔ نظامی علیه جمهوری اسلامی
+
+پیت هگست، وزیر جنگ آمریکا روز یکشنبه گفت واشینگتن امیدوار است به‌زودی به یک توافق «عالی» با جمهوری اسلامی دست یابد.
+او از سویی تأکید کرد اگر مذاکرات به نتیجه نرسد، ارتش آمریکا برای هر اقدامی که لازم باشد آمادگی کامل دارد.
+هگست گفت دولت ترامپ بر حفظ آتش‌بس تاکید دارد اما نیروهای آمریکایی به حملات جمهوری اسلامی علیه کشتی‌های عبورکننده از تنگهٔ هرمز پاسخ می‌دهد.
+وزیر جنگ آمریکا همچنین از ادامهٔ حضور نیروهای آمریکایی در منطقه تا زمان روشن شدن سرنوشت مذاکرات خبر داد.
+
+#خبر #دژ #هگست #جنگ
+@DEJradio
+</div>
+
+## DEJradio — post 5432
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ قالیباف پس از حملهٔ اسرائیل به بیروت، پایگاه‌های آمریکا را تهدید کرد
+
+محمدباقر قالیباف، در واکنش به حملات اسرائیل به مواضع حزب‌الله در ضاحیهٔ بیروت ادعا کرد پایگاه‌ها و دارایی‌های آمریکا و اسرائیل در منطقه به «اهداف مشروع» تبدیل می‌شود.
+رئیس مجلس جمهوری اسلامی مدعی شد محاصرهٔ دریایی جمهوری اسلامی و پشتیبانی واشینگتن از حمله به بیروت نشان می‌دهد آمریکا و اسرائیل به آتش‌بس و گفت‌وگو پایبند نیستند.
+این تهدید پس از آن مطرح شد که اسرائیل اعلام کرد در پاسخ به حملات حزب‌الله، مراکز این گروه در حومهٔ جنوبی بیروت را هدف گرفته است.
+
+#خبر #دژ #قالیباف
+@DEJradio
+</div>
+
+## IranIntlTV — post 341025
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341025_1780852409.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+با وجود هشدارهای تهران، ارتش اسرائیل به دستور بنیامین نتانیاهو به ضاحیه بیروت حمله کرد. در واکنش، سپاه پاسداران تهدید کرد: «حمله به بیروت بی‌پاسخ نمی‌ماند.»
+به گزارش اکسیوس، اسرائیل پیش از این حمله دولت ترامپ را در جریان گذاشته بود و رییس‌جمهوری آمریکا گفت اصراری ندارد لبنان در توافق تهران گنجانده شود.
+
+گفت‌وگو با نجات بهرامی، تحلیل‌گر سیاسی
+@iranintltv
+</div>
+
+## IranIntlTV — post 341024
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341024_1780852411.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+با وجود هشدارهای تهران، ارتش اسرائیل به دستور بنیامین نتانیاهو به ضاحیه بیروت حمله کرد. در واکنش، سپاه پاسداران تهدید کرد: «حمله به بیروت بی‌پاسخ نمی‌ماند.»
+به گزارش اکسیوس، اسرائیل پیش از این حمله دولت ترامپ را در جریان گذاشته بود و رییس‌جمهوری آمریکا گفت اصراری ندارد لبنان در توافق تهران گنجانده شود.
+
+گفت‌وگو با نجات بهرامی، تحلیل‌گر سیاسی
+@iranintltv
+</div>
+
+## IranIntlTV — post 341023
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341023_1780852413.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوهای منتشرشده در شبکه‌های اجتماعی، دود ناشی از حمله اسرائیل به منطقه ضاحیه و انهدام مواضع حزب‌الله لبنان را در این منطقه در روز یک‌شنبه ۱۷ خرداد نشان می‌دهد.
+ارتش اسرائیل اعلام کرد این حملات در پاسخ به شلیک‌های حزب‌الله لبنان به سوی خاک اسرائیل انجام شده است.
+منطقه «ضاحیه» در حومه جنوبی بیروت، از پایگاه‌های اصلی حزب‌الله به شمار می‌رود.
+</div>
+
+## Shin_Persian — post 6609
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sun, 07 Jun 2026 17:05:25 UTC
+
+FYI:
+1. No changes in Israel's HFC instructions
+2. No "SECURITY MEETING"s in Israel as of now.
+
+فارسی
+
+اطلاعات جهت اطلاع شما:
+۱. هیچ تغییری در دستورالعمل‌های فرماندهی جبهه داخلی (HFC) اسرائیل صورت نگرفته است.
+۲. تا این لحظه هیچ «جلسه امنیتی» در اسرائیل برگزار نشده است.
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 219882
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیت هگست، وزیر دفاع آمریکا، در نرماندی با کاترین ووترن، وزیر نیروهای مسلح و کهنه سربازان فرانسه، دیدار کرد.
+
+هگست گفت دو طرف یاد و خاطره هزاران نیروی متفقین را گرامی داشتند که ۸۲ سال پیش در عملیات «روز دی» برای دفاع از آزادی در سواحل نرماندی پیاده شدند.
+
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 15904
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15904_1780852415.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یسرائیل کاتز، وزیر دفاع اسرائیل: به وزیر کشور ترکیه که تهدید می‌کند و رویای حکومت بر اورشلیم را در سر می‌پروراند، می‌گویم: اورشلیم قسطنطنیه نیست و کشور اسرائیل امپراتوری صلیبی رو به زوال نیست، بلکه کشوری قوی و مصمم است که توانایی خود را در دفاع از خود در برابر هر تهدیدی نشان داده است.
+
+اورشلیم 3000 سال پایتخت قوم یهود بوده و تا ابد پایتخت اسرائیل خواهد بود،در حالی که امپراتوری عثمانی که شما و اردوغان رویای آن را در سر دارید، فروپاشیده و هرگز باز نخواهد گشت.
+
+شرم‌آور است که شما از میراث آتاتورک، که برای تبدیل ترکیه به یک کشور مدرن تلاش کرد، چیزی نیاموخته‌اید و اکنون در تلاشید ترکیه را به دوران تاریکی و توسعه نیافتگی بازگردانید.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## alonews — post 125856
+
+<div align="center">
+  <a href="telegram/content/alonews_125856_1780852416.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پزشکیان: صدا و سیما نقدهای غیرمنصفانه کند مجبور هستیم پاسخ درخور بدهیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/17 20:33
 ---
 

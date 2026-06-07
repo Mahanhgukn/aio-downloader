@@ -7,6 +7,201 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/18 02:23
+---
+
+## VahidOOnLine — post 244200
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244200_1780872786.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهوری آمریکا، در مصاحبه‌ای که یکشنبه منتشر شد، به فایننشال تایمز گفت بنیامین نتانیاهو، نخست‌وزیر اسرائیل، «چاره‌ای جز پذیرش» هر توافقی که ایالات متحده با ایران کند، نخواهد داشت، زیرا ترامپ «حرف آخر را می‌زند.»
+
+به گزارش خبرگزاری رویترز، او گفت: «او [نتانیاهو] هیچ چاره‌ای نخواهد داشت.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13855
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تسنیم: ایران از یک‌ پهپاد ناشناخته جدید در حملات اخیر علیه اسرائیل استفاده کرد
+@withyashar
+</div>
+
+## WithYashar — post 13854
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه وابسته به سپاه گزارش داده که در تهران، هواپیماهای مسافربری غیرنظامی به‌دلیل انتظار حملات اسرائیل در حال جابه‌جایی هستند.
+@withyashar
+</div>
+
+## WithYashar — post 13853
+
+
+
+
+## mwarmonitor — post 10353
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 وزارت بهداشت اسرائیل: فراخوان نیروی انسانی به بیمارستان‌ها برای انتقال سریع به وضعیت اضطراری.
+
+@mwarmonitor
+</div>
+
+## IranIntlTV — post 341074
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341074_1780872786.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پس ازاینکه عباس عراقچی، عکس پرچم‌های جمهوری اسلامی و لبنان را کنار هم در شبکه اجتماعی ایکس منتشر کرد، گیدون سعار، وزیر خارجه اسرائیل، پرچم حزب‌الله لبنان را کنار پرچم جمهوری اسلامی گذاشت و عراقچی را «کلاهبردار» خطاب کرد.
+https://iranintl.com/202606072824
+</div>
+
+## IranIntlTV — post 341073
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341073_1780872787.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهوری آمریکا، در مصاحبه‌ای که یکشنبه منتشر شد، به فایننشال تایمز گفت بنیامین نتانیاهو، نخست‌وزیر اسرائیل، «چاره‌ای جز پذیرش» هر توافقی که ایالات متحده با ایران کند، نخواهد داشت، زیرا ترامپ «حرف آخر را می‌زند.»
+
+به گزارش خبرگزاری رویترز، او گفت: «او [نتانیاهو] هیچ چاره‌ای نخواهد داشت.»
+https://iranintl.com/202606078152
+</div>
+
+## IranianMinds — post 21711
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21711_1780872788.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 اسرائیل ‌هیوم :
+
+ترامپ تو تماس تلفنی امشبش به نتانیاهو قول داده که کاری میکنه که ایران هیچ راهی برای ساخت سلاح هسته ای نداشته باشه و با توافق میتونه به جایی برسه که دیگه هرگز تهدیدی برای اسرائیل‌ نباشه.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21710
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21710_1780872788.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این خایمالو
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 283104
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283104_1780872789.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻خبرگزاری تسنیم، نزدیک به سپاه پاسداران به نقل از یک منبع نظامی و در واکنش به گزارش‌ها از احتمال واکنش نظامی اسرائیل به حمله موشکی یکشنبه شب این کشور، نوشته است: «حجم مناسبی از موشک‌های ایران هم‌اکنون آماده‌اند تا در صورتی که رژیم صهیونیستی به ایران پاسخ دهد، بلافاصله به سمت فهرست‌ اهداف گستر‌ده‌تر در سرزمین‌های اشغالی شلیک شوند.»
+
+تسنیم به نقل از این منبع نظامی نوشته است: اگر اسراییل پاسخ دهد، نوبت بعدی شلیک‌های ایران، پرحجم‌تر خواهد بود.»
+
+در همین حال، ارتش اسرائیل اعلام کرده آماده اقدام نظامی قدرتمند در پاسخ به حملات ایران است و تنها منتظر تصمیم‌گیری مقام‌های سیاسی این کشور است.
+
+این در حالی است که دونالد ترامپ از تلاش برای جلوگیری از تشدید درگیری خبر داده و خواستار آن شده که اسرائیل به حمله موشکی ایران - که گزارش شده تلفاتی در پی نداشته - پاسخ نظامی ندهد.
+
+📸 Reuters
+
+https://bbc.in/4eafvAI
+@BBCPersian
+</div>
+
+## BBCPersian — post 283103
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻بریتانیا از ایران و اسرائیل خواست با خویشتن‌داری از تشدید درگیری پرهیز کنند
+
+ایوت کوپر، وزیر امور خارجه بریتانیا، ساعتی بعد از حمله موشکی ایران به شمال اسرائیل گفت که «ازسرگیری درگیری به نفع هیچ‌کس نیست.»
+
+خانم کوپر یکشنبه شب در پیامی در شبکه اجتماعی ایکس افزود: «هر دو طرف باید خویشتن‌داری نشان دهند و فورا تنش‌زدایی کنند.»
+
+وزیر خارجه بریتانیا همچنین گفت: «مذاکرات باید برای دستیابی به یک راه‌حل پایدار که همه ما به آن نیاز داریم ادامه یابد؛ برای صلح و ثبات در منطقه و برای احیای کامل تجارت جهانی.»
+
+ساعتی پیش خبرگزاری‌های رسمی ایران از گفتگوی تلفنی میان عباس عراقچی، وزیرخارجه ایران با همتای بریتانیایی خود، خبر داده بودند.
+
+https://bbc.in/4eafvAI
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 391295
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391295_1780872789.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ :
+تصمیم‌گیرنده اصلی منم، همه تصمیم‌ها رو من می‌گیرم، نتانیاهو کسی نیست که تعیین تکلیف کنه؛
+
+نتانیاهو چاره‌ای جز قبول کردن توافق با ایران رو نداره و در نهایت باید قبولش کنه.
+
+خبرنگار: اگه مذاکرات با ایران به نتیجه نرسه میخوای چیکار کنی؟
+
+ترامپ: در اون صورت حتی گزینه انجام یه عملیات کماندویی داخل ایران رو هم بررسی می‌کنم.
+﻿
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391294
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391294_1780872790.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+- بر آتش‌بس نقض کن لعنت
+بشمرررررر
+- بر اسرائیل و امارات لعنت
+بشمرررررر
+
+- بر قوت زانوش صلوت
+[الله مع صل الا....]
+برای سلامتی آ سید مجتبی خامنه‌ای صلوات بعدی جوری بگو تلاویو بلرزه
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 126085
+
+<div align="center">
+  <a href="telegram/content/alonews_126085_1780872790.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خبرگزاری تسنیم :
+ایران امشب تو حملهِ به اسرائیل از موشک‌های "خیبرشکن" استفاده کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126083
+
+<div align="center">
+  <a href="telegram/content/alonews_126083_1780872790.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈هم اکنون حملات اسرائیل به لبنان
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/18 02:13
 ---
 

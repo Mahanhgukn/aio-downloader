@@ -7,6 +7,290 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/17 21:43
+---
+
+## VahidOOnLine — post 244150
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244150_1780855982.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بر اساس یک اطلاعیه هوانوردی، قطر مسیر برخی پروازها در فضای هوایی تحت کنترل دوحه را به‌طور موقت تغییر داد و اعلام کرد مسیرهای جایگزین برای برخی پروازهای ورودی، خروجی و عبوری در آسمان این شهر تعیین شده است.
+
+این نوتام از ۱۷ خرداد فعال شده و تا ۲۴ خرداد به‌صورت تخمینی، ادامه خواهد داشت و به معنی بسته شدن آسمان قطر نیست.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13732
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هواپیمای بویینگ ۷۳۷-۵۲۴ کاسپین ایرلاینز به جای پرواز به استانبول، ترکیه، به تهران بازگشت.🚨
+@withyashar
+</div>
+
+## WithYashar — post 13731
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش شلیک موشک از گرمدره و بیدگنه مقصد نامشخص !🚨
+@withyashar
+</div>
+
+## WithYashar — post 13730
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش ها از پرواز گسترده جت های جنگی ‌ناشناس بر فراز اقلیم کردستان، عراق.
+@withyashar
+</div>
+
+## WithYashar — post 13729
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش از صدای جنگنده در تهران و کرج
+@withyashar
+</div>
+
+## pm_afshaa — post 92535
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دوتا هواپیما ایرانی پرواز به مقصد رو لغو کردن و به باند فرودگاه برگشتن :
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92533
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش‌ها از صدای جنگنده در تهران و کرج
+احتمالی خودیه
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## VahidOnline — post 75994
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیام‌های دریافتی از شنیده شدن صدای جنگنده در تهران که لابد داخلی است:
+
+سلام وحید جان ۲۱:۳۲ شمال غرب تهران صدای شدید جنگنده
+
+درود وحید جان
+صدای جنگنده (؟) غرب تهران
+۲۱:۳۲
+
+صدای جنگنده غرب تهران ساعت ۹:۳۲
+
+بازهم مرکز تهران صدای جنگنده یا هواپیما رو نمیدونم ولی خیلی پایینه ساعت ۲۱:۳۳
+
+شهرک غرب
+صدا جنگنده
+
+صدای جنگنده ساعت ۲۱:۳۵ دقیقه، شمالغرب تهران
+
+مرکز تهران صدای جنگنده میاد شدییید
+
+صدای نامتعارف جنگنده در مرکز تهران از ساعت ۲۱:۳۳
+
+غرب تهران صدا جنگنده داریم 9.32
+
+۹:۳۱ شهرآرا صدای جنگنده میاد وحشتناک خیلی پایینه
+
+سلام الان نیروهوایی صدای خیلی عجیب میاد صدای جنگنده ست انگار خیلی بلنده
+
+
+سلام وحید . ساعت ۹ و ۳۳ دقیقه شب مرکز تهران صدای جنگنده میومد واضح . ۱۷ خرداد .
+
+سلام ساعت ۲۱ و ۳۳ دقیقه شنیده شدن صدای جنگنده زیاد ، امیرآباد تهران
+
+صدای جنگنده میاد سمت مرکز شهر
+
+آپدیت: کلی پیام مشابه میاد که دیگه نقل نمی‌کنم. درباره صدای هواپیما اهمیتی نداره که در کدوم محله شنیده شده.
+
+دو تا پیام تایید نشده هم بود که صدای دیگری برداشت کردند:
+
+سلام وحید، اینجا شهریار صدای موشک میاد. احتمالا از بیدگنه جمهوری اسلامی داره موشک میزنه
+
+وحید از بیدگنه موشک زدن ۲۱:۲۸
+صداش تا فردیس اومد قشنگ
+
+
+📡 @VahidOnline
+</div>
+
+## kianmeli1 — post 87700
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴دقایقی پیش
+
+گزارش‌هایی از صدای جنگنده از نقاط مختلفی از جمله مرکز تهران، غرب تهران، شمال‌غرب تهران، شهرآرا، شهرک غرب و امیرآباد ‌
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 341031
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341031_1780855982.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻الکساندر زورف، تنیس‌باز ۲۹ ساله آلمانی، پس از سال‌ها ناکامی در گام آخر، بالاخره طعم شیرین قهرمانی در یک گرنداسلم را چشید و قهرمان مسابقات رولان گاروس شد.
+
+🔹در دیدار پایانی و دراماتیک زمین «فیلیپ شاتریه»، زورف پس از ۴ ساعت و ۱۶ دقیقه نبرد نفس‌گیر مقابل فلاویو کوبولی ایتالیایی ۳ بر ۲ به پیروزی رسید. در امتیاز پایانی ست پنجم این مسابقه، کوبولی با یک ضربه کات داخل زمین و متعاقباً یک لوب، زورف را به عقب فرستاد؛ اما مرد آلمانی توپ را برگرداند و در نهایت تنیس‌باز ایتالیایی ضربه خود را به شکلی ناشیانه به تور کوبید. با این خطا، زورف از فرط خوشحالی روی خاک رس پاریس پهن شد و اشک شوق ریخت.
+
+🔹با حذف زودهنگام مدعیان اصلی جام یعنی یانیک سینر،مرد شماره یک جهان و نواک جوکوویچ، تمام نگاه‌ها و فشارها روی شانه‌های زورف قرار گرفته بود. این چهارمین فینال گرنداسلم او در دوران حرفه‌ای‌اش بود.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 341030
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341030_1780855983.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بر اساس یک اطلاعیه هوانوردی، قطر مسیر برخی پروازها در فضای هوایی تحت کنترل دوحه را به‌طور موقت تغییر داد و اعلام کرد مسیرهای جایگزین برای برخی پروازهای ورودی، خروجی و عبوری در آسمان این شهر تعیین شده است.
+
+این نوتام از ۱۷ خرداد فعال شده و تا ۲۴ خرداد به‌صورت تخمینی، ادامه خواهد داشت و به معنی بسته شدن آسمان قطر نیست.
+https://iranintl.com/202606073076
+</div>
+
+## Shin_Persian — post 6616
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sun, 07 Jun 2026 18:03:21 UTC
+
+Jet activity over western Tehran, #Tehran Province, #Iran
+
+فارسی
+
+فعالیت جنگنده‌ها برفراز غرب تهران، استان #تهران، #ایران
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 219898
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نگاهی به تیم ملی جمهوری اسلامی؛ مهمان منزوی جام جهانی و هفته‌ها حاشیه
+</div>
+
+## FarsiVOA — post 219897
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تجسم عینی اتفاقات کتاب ۱۹۸۴ در دنیای امروز؛ گفت‌وگو با امیر گنجوی پژوهشگر
+</div>
+
+## FarsiVOA — post 219896
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هوشنگ امیراحمدی با حضور در عمق میدان از خامنه‌ای به عنوان مانع عادی‌سازی رابطه ایران و آمریکا یاد کرد ولی به این پرسش که با حذف خامنه‌ای، اکنون با چه گروهی در ایران گفت‌وگو می‌کند پاسخی نداد
+</div>
+
+## FarsiVOA — post 219893
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یگان بیست‌وچهارم اعزامی تفنگداران دریایی آمریکا تصاویری از یک تمرین مشترک در دریای کارائیب را منتشر کرد.
+
+در این تمرین، ملوانان نیروی دریایی و سربازان نیروی زمینی آمریکا عملیات فرود بالگرد روی عرشه شناور را تمرین کردند.
+
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219892
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219892_1780855983.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی ارتش اسرائیل از حمله امروز، ۱۷ خرداد، به ضاحیه بیروت؛
+ارتش اسرائیل با انتشار این ویدیو اعلام کرد به روش نقطه‌زنی یک مقر فرماندهی حزب‌الله را در ضاحیه بیروت هدف‌گیری کرد.
+
+بنابر بیانیه ارتش اسرائیل حزب‌الله از این مقر فرماندهی برای آسیب رساندن به شهروندان و نیروهای ارتش اسرائیل استفاده می‌کرد.
+
+این حمله در واکنش به حملات موشکی و پهپادی حزب‌الله به شمال اسرائیل انجام شده است.
+</div>
+
+## Persian_Trend_Official — post 15908
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15908_1780855985.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+البته جنگنده های جمهوری اسلامی هستند
+</div>
+
+## Persian_Trend_Official — post 15907
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صدای جنگنده ها روی آسمان تهران هم بطور گسترده داره گزارش میشه.
+</div>
+
+## Hranews — post 113454
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارشی از تداوم بلاتکلیفی کارگران تعدیل‌شده کارخانه قند ممسنی
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– بیش از ۹۰ #کارگر تعدیل شده کارخانه قند ممسنی، واقع در شهرستان رستم، از بلاتکلیفی شغلی چندین ساله خود گلایه‌مند بوده و خواستار بازگشت به کار هستند.
+
+ادامه مطلب
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## alonews — post 125868
+
+<div align="center">
+  <a href="telegram/content/alonews_125868_1780855986.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈هم‌چنان پرواز ها درحال بازگشت
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125867
+
+<div align="center">
+  <a href="telegram/content/alonews_125867_1780855986.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری/اسرائیل هشدار داد که هر حمله‌ای جنگ تمام‌عیار را به دنبال خواهد داشت.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/17 21:33
 ---
 

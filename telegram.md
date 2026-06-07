@@ -7,6 +7,25 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/17 07:22
+---
+
+## FarsiVOA — post 219822
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219822_1780804341.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎯مصاحبه جذاب فهیمه خضر حیدری با هوشنگ امیر احمدی را در برنامه عمق میدان از لینک زیر مشاهده کنید:
+https://www.youtube.com/watch?v=pvEjPVNpVPE
+
+
+🔴یوتیوب صدای آمریکا را هم سابسکرایب کنید
+👇👇👇👇
+https://youtube.com/@voafarsi
+</div>
+
+---
 📅 بروزرسانی: 1405/03/17 07:12
 ---
 

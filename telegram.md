@@ -7,6 +7,180 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/19 01:52
+---
+
+## VahidOOnLine — post 244442
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️«ورزش سه» روز دوشنبه با انتشار تصاویری گزارش داد، بازیکنان تیم فوتبال ایران پس از ورود به مکزیک، اولین جلسه تمرین خود را با دویدن دور استخر محل اقامت خود در شهر تیخوانا برگزار کردند. تصاویری که انتشار آن واکنش کاربران شبکه‌های اجتماعی را به دنبال داشت. درحالی‌که تنها سه روز تا آغاز جام جهانی ۲۰۲۶ مانده، تیم فوتبال ایران همچنان با بحران ویزا، انتقال اجباری محل اقامتش از آمریکا به مکزیک و انتقادهای گسترده درباره کیفیت آماده‌سازی‌ روبرو است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## mamlekate — post 103648
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 شبکه آمریکایی: نتانیاهو در حال تدارک حمله‌ای بزرگ به جمهوری اسلامی بود که ترامپ او را منصرف کرد
+
+شبکه خبری آمریکایی سی‌ان‌ان به نقل از یک منبع اسرائیلی و یک منبع آگاه رسمی آمریکایی گزارش داد، اسرائیل روز دوشنبه در حال آماده‌سازی برای «یک حمله بزرگ در تهران» بود که دونالد ترامپ، رئیس جمهوری آمریکا، در تماسی تلفنی با بنیامین نتانیاهو، نخست وزیر اسرائیل از او خواست تا از حملات تلافی‌جویانه بیشتر خودداری کند.
+
+@mamlekate
+</div>
+
+## FarsiVOA — post 220076
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️کنگره آمریکا در جستجوی راه حل؛ مذاکره با جمهوری اسلامی یا مهار تنش‌های منطقه‌ای
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 16237
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸🛥 آخرین بروزرسانی از وضعیت ناوگروه‌های نیروی دریایی ایالات متحده آمریکا در سراسر جهان نشان می‌دهد که ناوهای هواپیمابر ابراهام لینکلن و جورج دبلیو بوش به همراه ناوگروه‌های ضربت خود و با همکاری ناو تهاجمی آبی-خاکی یو‌اس‌اس تریپولی، همچنان محاصره دریایی علیه…
+</div>
+
+## Dirty_Kids — post 391432
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️ جام جهانی داره شروع میشه و بازار شرطبندی و پیشبینی از همیشه داغ تر هستش 
+🔥 https://t.me/+lCR7HeYTU15iNjM0 https://t.me/+lCR7HeYTU15iNjM0 A18 
+⚡️ اگر میخوای با آنالیز های رضا کینگ کونگ پول دربیاری توی این جام حتما عضو کانال شو ✅
+</div>
+
+## Dirty_Kids — post 391431
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391431_1780957358.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️ جام جهانی داره شروع میشه و بازار شرطبندی و پیشبینی از همیشه داغ تر هستش 
+🔥
+
+https://t.me/+lCR7HeYTU15iNjM0
+https://t.me/+lCR7HeYTU15iNjM0
+A18
+
+⚡️ اگر میخوای با آنالیز های رضا کینگ کونگ پول دربیاری توی این جام حتما عضو کانال شو ✅
+</div>
+
+## Dirty_Kids — post 391430
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391430_1780957359.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#بخوابیم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391429
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391429_1780957359.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روح‌و و روان ما؛ جایی در تاریخ جا ماند! (با تشکر از واتزاور)
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391428
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391428_1780957359.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دیکتاتور ها و تروریستها قبر ندارن
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391427
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391427_1780957360.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دهنتونو گاییدم کی به شماها میگه تولید محتوا کنید؟ همونم گاییدم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391426
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391426_1780957361.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فیلم وایرال شده از دو تا رفیقِ پیرمرد تو بندر گناوه که همدیگرو تاب میدن و کیف میکنن.
+
++ بفرست برای اونکه توی پیری هم قراره اینطوری باهم کیف کنین.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391425
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ:
+پس از برقراری صلح در خاورمیانه، من با خواهران منصوریان صحبت کردم. اونها منو شگفت زده کردند. خواهران بزرگ و قوی، که روزی ۴۷۰ تا شنا میرن و پیت‌هگست رو با یک دست بلند میکنند. اونها رو وزیر دفاع میکنم. شایدم نکنم. نمیدونم.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391424
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ببین ما کجا زندگی می‌کنیم که قطع نشدن اینترنت عجیب‌تر از جنگ شدنه
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391423
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391423_1780957362.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی؛ همون بلایی که سر صدام اومد سر جمهوری اسلامی میاد
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 126419
+
+<div align="center">
+  <a href="telegram/content/alonews_126419_1780957363.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: آمریکا ظرف دو هفته آینده «پیروزی کامل» بر ایران را اعلام خواهد کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/19 01:42
 ---
 

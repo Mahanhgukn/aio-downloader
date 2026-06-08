@@ -7,6 +7,348 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/18 10:53
+---
+
+## VahidOOnLine — post 244295
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244295_1780903410.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ایلان ماسک: نام تنگه هرمز از اهورمزدا می‌آید
+
+♦️ایلان ماسک، مالک تسلا و اسپیس اکس، روز دوشنبه ۱۸ خرداد با انتشار پیامی در اکس نوشت: «تنگه هرمز به نام اهورا مزدا از آیین زرتشت نامگذاری شده است.»
+
+با اینکه این پیام، مطلب تازه‌ای برای ایرانیان ندارد، یکی از معدود واکنش‌های ایلان ماسک به جنگ میان آمریکا و اسرائیل با جمهوری اسلامی ایران و بحران تنگه هرمز به شمار می‌رود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244294
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_244294_1780903410.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوهای رسیده به ایران‌اینترنشنال در دوشنبه ۱۸ خرداد، دود ناشی از انفجار را در حوالی سیریک استان هرمزگان نشان می‌دهد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13920
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+برخی منابع از شنیده شدن انفجارهای قوی در پایگاه هوایی ریاض پایتخت عربستان خبر دادند.
+@withyashar
+پیشتر ایران حمله به عربستان رو رد کرده بود ممکنه از طرف انصار یمن باشه
+</div>
+
+## WithYashar — post 13919
+
+<div align="center">
+  <a href="telegram/content/WithYashar_13919_1780903413.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رهگیری در شمال اسرائیل
+@withyashar
+</div>
+
+## WithYashar — post 13918
+
+<div align="center">
+  <a href="telegram/content/WithYashar_13918_1780903415.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پتروشیمی ماهشهر
+@withyashar
+</div>
+
+## WithYashar — post 13917
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صداوسیما: موشک‌هایی از ایران و لبنان به سمت حیفا و شمال اسرائیل شلیک شد
+@withyashar
+</div>
+
+## mwarmonitor — post 10405
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 حوثی‌های یمن امروز اعلام کردند که در دریای سرخ و تنگه باب‌المندب علیه اسرائیل «محاصره دریایی» اعمال خواهند کرد.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10404
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‼️ ایلان ماسک : «تنگه هرمز به نام اهورا مزدا از زرتشتیان نام گذاری شده»
+
+@mwarmonitor
+</div>
+
+## DEJradio — post 5452
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5452_1780903417.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨📢 جمهوری اسلامی ایران بامداد دوشنبه ۱۸ خرداد ۱۴۰۵ پایگاه هوایی شاهزاده سلطان در عربستان سعودی محل استقرار نیروهای آمریکایی را هدف قرار داد.
+
+این منطقه در جنوب شرقی ریاض و در منطقه‌ای بین ریاض و استان شرقی در نزدیکی شهر الخرج قرار دارد.
+
+#جنگ #عربستان
+@DEJradio
+</div>
+
+## DEJradio — post 5451
+
+<div align="center">
+  <img src="telegram/content/DEJradio_5451_1780903418.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🛩️
+🔥 بر اساس گزارش منابع محلی اهدافی در شیراز و جزیره خارک هدف حمله هوایی قرار گرفت.
+
+پیش‌تر باوجود آتش‎بس میان آمریکا و جمهوری اسلامی تأسیسات راداری و موشکی سـ.ـپاه پاسداران توسط ارتش آمریکا در جنوب ایران هدف قرار گرفته بود. پیدا نیست حملات به جنوب ایران توسط آمریکا انجام شده یا اسرائیل.
+
+#جنگ #خارک
+@DEJradio
+</div>
+
+## IranIntlTV — post 341127
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341127_1780903419.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوهای رسیده به ایران‌اینترنشنال در دوشنبه ۱۸ خرداد، دود ناشی از انفجار را در حوالی سیریک استان هرمزگان نشان می‌دهد.
+</div>
+
+## FarsiVOA — post 219990
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219990_1780903421.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به دنبال حملات موشکی سپاه به اسرائیل و پاسخ این کشور، رسانه‌های داخلی به نقل از مقامات جمهوری اسلامی، از لغو پروازها در برخی از فرودگاه‌های کشور خبر دادند.
+
+در همین ارتباط، تمامی پروازهای فرودگاه بین‌المللی تهران و همچنین فرودگاه مهرآباد تا اطلاع ثانوی لغو شده است.
+
+همچنین روابط‌عمومی سازمان هواپیمایی کشوری جمهوری اسلامی اعلام کرد که تمام فرودگاه‌های غرب کشور از جمله فرودگاه کرمانشاه تا اطلاع ثانوی فعالیت ندارند.
+
+از سوی دیگر فرودگاه بین‌المللی مشهد نیز هم اکنون تعطیل بوده و مقامات شهری اعلام کردند که سرویس‌دهی خط یک قطار شهری مشهد از ایستگاه غدیر تا فرودگاه نیز تعلیق شده است.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219989
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219989_1780903422.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل دوشنبه از موج دیگری از شلیک موشک‌های بالستیک از جمهوری اسلامی خبر داد.
+
+تایمز اسرائیل نوشت که انتظار می‌رود آژیرها در مناطق مرکزی و شمالی اسرائیل به صدا درآیند.
+
+کمی قبل از آن، سپاه پاسداران اعلام کرد که در پاسخ به حمله به چندین سایت راداری در سه مکان مختلف در ایران، به دو پایگاه هوایی در نواتیم و تل‌نوف حمله کرده است.
+
+ارتش اسرائیل پیشتر اعلام کرد که همه موشک‌هایی را که جمهوری اسلامی صبح امروز به سمت اسرائیل شلیک کرده بود، سرنگون کرده است.
+@FarsiVOA
+</div>
+
+## DW_Farsi — post 125674
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 بحران تکرار در اپوزیسیون؛ چرا افق راه نپیموده تاریک است؟
+
+جنگ‌ها همواره قابله دگرگونی‌های بزرگ در ساختارهای داخلی جوامع بوده‌اند. تقابل نظامی اخیر میان ایران، ایالات متحده و اسرائیل، بار دیگر نشان داد که چگونه فاکتور خارجی می‌تواند فراتر از میدان‌های نبرد، آرایش نیروهای سیاسی را در درون مرزها بازطراحی کند. در بستر این رویارویی ژئوپلیتیکی، آرایش موقت نوینی شکل گرفته که به نظر می‌رسد دست‌کم در کوتاه‌مدت، توازن قوا را به سود حاکمیت دگرگون کرده است.
+
+اما این تحول به باور ناظران، گسلی عمیق را در بدنه مخالفان فعال کرد؛ گسلی میان وفاداران به ایده دفاع از تمامیت ارضی در لوای حاکمیت مستقر و آنان که تغییر سیاسی را حتی به بهای مداخله خارجی پی می‌گیرند. از نگاه تحلیلگران، این تشتت بی‌سابقه، اپوزیسیون را در یک استیصال ساختاری و فقر تئوریک قرار داده است؛ جریانی که به نظر می‌رسد در پی بازتولید الگوهای منقضی‌شده گذشته است. برای بررسی ابعاد این آرایش جدید، با پروفسور تورج اتابکی، پژوهشگر پژوهشکده بین‌المللی تاریخ اجتماعی و استاد دانشگاه لیدن هلند، به گفتگو نشسته‌ایم.
+
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 16110
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16110_1780903423.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آخرین وضعیت فرودگاه‌های کشور
+
+روابط‌عمومی سازمان هواپیمایی ایران: تمام فرودگاه‌های غرب کشور تا اطلاع ثانوی بسته شده است.
+
+درپی حملهٔ رژیم صهیونیستی در شب گذشته به فرودگاه‌های تهران، فرودگاه‌های مهرآباد و امام خمینی(ره) نیز بسته شده است.
+</div>
+
+## Persian_Trend_Official — post 16108
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16108_1780903423.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+احتمالا یگان کاشت سیب زمینی نواتیم نابود شد ...
+</div>
+
+## Persian_Trend_Official — post 16107
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16107_1780903424.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بقایی: رژیم صهیونیستی بدون هماهنگی با آمریکا کاری نمی‌کند.
+
+سخنگوی وزارت خارجه: وزارت خارجه آمریکا صراحتا دلیل اصلی تحمیل این جنگ علیه ایران را حمایت از رژیم صهیونیستی ذکر کرده است. این موضع رسمی آمریکا بوده است. همچنین، علی‌رغم ادعای مقامات آمریکایی، ما اطلاع داریم که سنتکام در زمینه پدافند و آفند کاملا با رژیم صهیونیستی هماهنگ و همکاری دارد.
+
+اینکه این طور تفسیر شود که رژیم صهیونیستی حتی از آمریکا هم حرف شنوی ندارد و مستقل از خواسته‌های آن یا با هدف تحقیر مقام‌های آمریکایی دست به جنایاتی می‌زند، بحثی است که همیشه می‌توان در موردش صحبت کرد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16106
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16106_1780903426.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انصاراالله یمن در بیانیه رسمی اعلام کرد: کشتی‌های اسرائیلی نمی‌توانند از دریای سرخ عبور کنند. باب المندب برای اسرائیل بسته شد.
+</div>
+
+## Persian_Trend_Official — post 16105
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/persian_trend_official?direct
+</div>
+
+## Persian_Trend_Official — post 16104
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/persian_trend_official?direct
+</div>
+
+## RadioFarda — post 158037
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_158037_1780903427.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸کاظم جلالی، سفیر ایران در روسیه، می‌گوید تنگه هرمز باز خواهد ماند، اما «تحت شرایط جدیدی که از سوی ایران و عمان تعیین خواهد شد»؛ شرایطی که شامل «دریافت هزینه عبور» نیز می‌شود.
+
+🔸او در گفت‌وگویی با روزنامه روسی «ایزوستیا» که روز دوشنبه منتشر شد، گفت: «ایران و عمان خدمات مشخصی را در ارتباط با این تنگه ارائه می‌کنند و برای این خدمات هزینه دریافت خواهد شد.»
+
+🔸جلالی جزئیات بیشتری درباره این هزینه‌ها ارائه نکرد.
+
+🔸حملات آمریکا و اسرائیل علیه ایران تا حد زیادی جریان انتقال نفت از طریق این تنگه را مختل کرده است. پیش از آغاز درگیری‌ها، حدود یک‌پنجم نفت جهان از تنگه هرمز عبور می‌کرد. اگرچه در روزهای اخیر چند نفتکش موفق به خروج از خلیج فارس شده‌اند، اما انتقال نفت و گاز طبیعی مایع همچنان با محدودیت‌های شدید مواجه است.
+
+🔸ایران تأکید کرده است که هر توافق صلح دائمی باید این «حق» را برای تهران محفوظ بدارد که از کشتی‌های عبوری از تنگه هرمز عوارض دریافت کند؛ «میزان این عوارض می‌تواند بر اساس نوع کشتی، نوع محموله و شرایط موجود متفاوت باشد».
+
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 21754
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 وزارت خارجه جمهوری اسلامی :
+
+این اسرائیل دیگه حتی حرفای آمریکا و ترامپ هم براش بی اهمیته و بدون فکر کردن داره زیرساخت های مارو میزنه
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21753
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+واقعا مارمولک ها و مار های بیابونای اسرائیل در خطرن
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21752
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21752_1780903427.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یکی دیگشم خورد کنار خونه های مردم @IranianMinds
+</div>
+
+## alonews — post 126153
+
+<div align="center">
+  <a href="telegram/content/alonews_126153_1780903428.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سخنگوی کمیسیون امنیت ملی مجلس: نباید دچار خطای محاسباتی شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126152
+
+<div align="center">
+  <a href="telegram/content/alonews_126152_1780903429.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈بقائی سخنگوی وزارت امور خارجه: مسئولیت هر اتفاقی که در منطقه ما میفتد چه آمریکا عامل باشد چه نه، با خود آمریکاست
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126151
+
+<div align="center">
+  <a href="telegram/content/alonews_126151_1780903429.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈برخی منابع از شنیده شدن انفجارهای قوی در پایگاه هوایی ریاض پایتخت عربستان خبر دادند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126150
+
+<div align="center">
+  <a href="telegram/content/alonews_126150_1780903429.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈الجزیره: شنیده شدن صدای انفجار در منطقه مرکزی و تل آویو بزرگ
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126149
+
+<div align="center">
+  <a href="telegram/content/alonews_126149_1780903430.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈صداوسیما: موشک‌هایی از ایران و لبنان به سمت حیفا و شمال اسرائیل شلیک شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/18 10:43
 ---
 

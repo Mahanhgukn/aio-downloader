@@ -7,6 +7,220 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/18 16:53
+---
+
+## VahidOOnLine — post 244365
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244365_1780925020.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شرکت فرودگاه‌ها و ناوبری هوایی ایران اعلام کرد تمامی پروازهای فرودگاه‌های سراسر کشور تا اطلاع ثانوی لغو شده است.
+
+پیش‌تر رسانه‌های ایران از شنیده شدن صدای انفجار در فرودگاه شیراز خبر دادند همزمان خبرگزاری مهر گزارش داد هیچ اصابت یا برخوردی در این فرودگاه رخ نداده است.
+
+بامداد دوشنبه کانال ۱۲ اسرائیل از حمله نیروی هوایی این کشور به فرودگاه مهرآباد تهران خبر داد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14028
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لغو تمام پروازهای کشور تا اطلاع ثانوی
+
+شرکت فرودگاه‌ها و ناوبری هوایی ایران:‌
+در پی صدور اطلاعیه رسمی هوانوردی (NOTAM) توسط سازمان هواپیمایی کشوری مبنی بر بسته‌شدن فضای پروازی غرب کشور، تمامی پروازهای فرودگاه‌های سراسر کشور تا اطلاع ثانوی لغو شده و انجام نخواهد شد.
+@withyashar
+</div>
+
+## WithYashar — post 14027
+
+<div align="center">
+  <a href="telegram/content/WithYashar_14027_1780925021.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خطر ⚠️اگه ناراحتی قلبی دارید نبینید 🤣 بی اختیاری ادرار میاره
+
+این ویدئو رو صدا و سیما خودشون پخش کرد!
+اخطار سرفرماندهی نیروی دریایی جمهوری اسلامی برای تنگه هرکز
+@withyashar
+</div>
+
+## WithYashar — post 14026
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بریتانیا هشدار تخلیه به شهروندانش از اسراییل رو صادر کرد🚨
+@withyashar
+</div>
+
+## WithYashar — post 14025
+
+<div align="center">
+  <img src="telegram/content/WithYashar_14025_1780925023.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسرائیل هم داره جنوب لبنان رو خیلی شیک و مجلسی هوایی میزنه.
+@withyashar
+</div>
+
+## pm_afshaa — post 92920
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جالبه خامنه ای نیومده بیانیه بده
+قالیباف و عراقچی هم که خوابن
+</div>
+
+## pm_afshaa — post 92919
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴بریتانیا هشدار تخلیه به شهروندانش از اسراییل رو صادر کرد 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 341187
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341187_1780925024.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نخستین تمرین تیم ملی فوتبال ایران در مکزیک، ساعاتی پس از ورود ملی‌پوشان به شهر تیخوانا، در فضایی با تدابیر شدید امنیتی برگزار شد.
+
+گفت‌وگو با محمد تقوی، ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## FarsiVOA — post 220029
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺اسرائیل می‌گوید به درخواست پرزیدنت ترامپ حملات به جمهوری اسلامی را متوقف کرده است
+
+◾️یک مقام ارشد اسرائیلی اعلام کرد کشورش بنا به درخواست دونالد ترامپ، رئیس جمهوری ایالات متحده، حملات خود علیه جمهوری اسلامی را متوقف کرده است.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/israel-says-it-halted-strikes-on-iran-at-president-trumps-request/8158517.html
+</div>
+
+## DW_Farsi — post 125689
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125689_1780925025.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 اتحادیه اروپا ایران را به دلیل تهدید آزادی کشتیرانی تحریم کرد
+
+اتحادیه اروپا با استفاده از رژیم جدید تحریمی خود برای حفاظت از آزادی کشتیرانی، ایران را به دلیل تهدید تردد دریایی در تنگه هرمز، از جمله به دلیل بازرسی کشتی‌ها و دریافت عوارض از شناورهایی که اجازه عبور از این آبراه را دریافت می‌کنند، هدف تحریم قرار داده است.
+
+این تحریم‌ها عمدتاَ فرماندهان محلی نیروی دریایی سپاه پاسداران انقلاب اسلامی را هدف قرار داده است.
+
+بر اساس تصمیم اتحادیه اروپا علت درج نام این افراد در فهرست تحریم‌ها این است که "نیروی دریایی سپاه کنترل تنگه هرمز را در دست گرفته و یک نظام اخذ عوارض برای عبور کشتی‌ها ایجاد کرده است."
+
+محدودیت‌های اعمال‌شده از سوی ایران بر عبور کشتی‌ها از تنگه هرمز، پس از درگیری با آمریکا، اسرائیل و دیگر بازیگران منطقه‌ای، موجب شوک انرژی در اقتصادهای اتحادیه اروپا شده است.
+
+به همین دلیل، این اتحادیه در ماه مه دامنه تحریم‌های خود را گسترش داد تا افرادی را که در جلوگیری از عبور قانونی کشتی‌ها و محدود کردن آزادی کشتیرانی در این گذرگاه راهبردی نقش دارند، هدف قرار دهد.
+
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 16191
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16191_1780925026.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دیلی میل| فوتبالیست بین‌المللی حاضر در عکس متهم شده که در یک هتل پنج‌ستاره در ترکیه تلاش کرده یک دختر ۱۴ ساله بریتانیایی را برای «بغل کردن» به پشت یک پرچین ببرد.
+پدر این دختر در گفت‌وگو با دیلی‌میل گفت که دخترش پس از این اتفاق دچار وحشت شده و در حالی که اشک می‌ریخته با خانواده تماس گرفته است. این حادثه زمانی رخ داد که او همراه خواهر ۱۰ ساله‌اش کنار استخر بود و والدینش حضور نداشتند.
+دختر ۱۴ ساله که از دیدن یک چهره مشهور هیجان‌زده شده بود، از بازیکن درخواست عکس کرد. پس از گرفتن عکس، بازیکن تلفن او را گرفت، اطلاعات اینستاگرام خود را وارد کرد و از طریق حساب دختر برای خودش پیام فرستاد تا ارتباط برقرار شود. به گفته دختر، پس از آنکه او سن خود را اعلام کرد، فوتبالیست او را هات خطاب کرد و درخواست بغل کردن داد. وقتی دختر مخالفت کرد، بازیکن اصرار کرد و از او خواست به پشت یک پرچین برود؛ جایی که به گفته او هیچ‌کس نمی‌توانست آن‌ها را ببیند. دختر که ترسیده بود، به او گفت پدرش در راه است. به گفته خانواده، بازیکن پس از شنیدن این موضوع به سمت دیگر استخر رفت و خود را پنهان کرد.
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 21853
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21853_1780925026.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پلیس راه راهور و فراجا از وضعیت سنگین ترافیکی در محورهای چالوس و هراز و آزادراه قزوین کرج خبر داد.
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 391381
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏هر وقت روز بدی داشتی به این فکر کن که تو فرودگاه بجنورد یه باجه هست مخصوص مسافرای بیرجند که به اشتباه اومدن بجنورد.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391379
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391379_1780925027.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اینجوری تو ایران داره برای آزادی مبارزه میکنه..!!!
+
+جمهوری اسلامی با دیدنش، میشینه به کارای بدش فکر میکنه
+
+
+@Dirty_Kids 👻
+</div>
+
+## Hranews — post 113467
+
+<div align="center">
+  <img src="telegram/content/Hranews_113467_1780925027.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حامد تیزرویان با تودیع وثیقه آزاد شد
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– حامد تیزرویان، عکاس حیات وحش و دانشجوی دکترای محیط زیست دانشگاه شهید بهشتی، با تودیع وثیقه آزاد شد. وی در اردیبهشت ماه سال جاری در شهر ساری بازداشت و به زندان این شهر منتقل شده بود.
+
+به گزارش خبرگزاری هرانا، ارگان خبری مجموعه فعالان حقوق بشر در ایران، حامد تیزرویان آزاد شد.
+
+آزادی آقای تیزرویان با تودیع وثیقه صورت گرفته است.
+
+ادامه مطلب
+
+#حامد_تیزرویان
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## alonews — post 126283
+
+<div align="center">
+  <a href="telegram/content/alonews_126283_1780925027.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈بریتانیا به شهروندان خود توصیه می‌کند از هرگونه سفر به اسرائیل خودداری کنند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/18 16:43
 ---
 

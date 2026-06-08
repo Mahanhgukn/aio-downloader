@@ -7,6 +7,250 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/18 18:53
+---
+
+## VahidOOnLine — post 244387
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244387_1780932195.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️یک مقام کاخ سفید اعلام کرد دونالد ترامپ، رئیس‌جمهوری آمریکا، روز دوشنبه ۱۸ خرداد با بنیامین نتانیاهو، نخست‌وزیر اسرائیل، تلفنی گفتگو کرده است.
+ایران بامداد دوشنبه موشک‌هایی به سوی اسرائیل شلیک کرد و اسرائیل نیز در پاسخ، اهداف نظامی در ایران را هدف قرار داد؛ رخدادی که نگرانی‌ها درباره آغاز دور تازه‌ای از درگیری‌های گسترده در منطقه را افزایش داده است.
+کانال ۱۲ تلویزیون اسرائیل عصر به نقل از یک مقام رسمی دولت نتانیاهو اعلام کرد که اسرائیل حملات خود را به ایران به درخواست دونالد ترامپ متوقف کرده است.
+ترامپ ساعاتی پیش از تماس با نتانیاهو، در شبکه اجتماعی تروث سوشال نوشته بود: «اسرائیل و ایران باید فورا شلیک کردن به یکدیگر را متوقف کنند.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244386
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244386_1780932195.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️محمدباقر قالیباف، رئیس مجلس شورای اسلامی و رئیس هیئت مذاکره کننده در گفتگوهای پایان جنگ، بعدازظهر دوشنبه ۱۸ خرداد با انتشار پیامی در شبکه اجتماعی ایکس نوشت جمهوری اسلامی «معادله آتش‌بس روی کاغذ و نقض مکرر آن در میدان» را برهم زده است.
+
+او همچنین افزود: «تا زمانی که اراده واقعی برای اعتمادسازی نداشته باشید، پاسخ ایران همین خواهد بود.»
+
+روز یکشنبه و ساعاتی پس از حمله ارتش اسرائیل به منطقه ضاحیه در جنوب بیروت، نیروهای مسلح جمهوری اسلامی ایران، در پاسخ به «نقض آتش‌بس» موشک‌هایی به سمت اسرائیل شلیک کردند.
+درگیری‌های نظامی پس از ۱۶ ساعت و با اعلام دوطرف پایان یافت.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14033
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رئیس جدید موساد، رومن گوفمن : مردم ایران را مسلح کنید , بازی را تغییر دهید
+@withyashar
+</div>
+
+## WithYashar — post 14032
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسرائیل هیوم: درگیری 24 ساعت اخیر نشان داد قدرت نظامی ایران حتی نزدیک به شرایط قبل از جنگ هم نیست.
+@withyashar
+</div>
+
+## WithYashar — post 14031
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قالیباف: معادله آتش‌‌بس روی کاغذ و نقض مکرر آن در میدان رو به هم زدیم. تا زمانی که ارادهٔ واقعی برای اعتمادسازی نداشته باشید، پاسخ ایران همین خواهد بود.
+@withyashar
+</div>
+
+## WithYashar — post 14030
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه I24News: اسرائیل به پمپی که مواد را در کارخانه بزرگ پتروشیمی در ایران حمل می‌کند حمله کرد. حمله‌ای به یک قطعه حیاتی (و گران‌قیمت) با هدف از کار انداختن کارخانه‌ها.
+﻿@withyashar
+</div>
+
+## WithYashar — post 14029
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نتانیاهو دقایقی دیگه صحبت میکنه
+</div>
+
+## pm_afshaa — post 92938
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نتانیاهو: در حال حاضر آتش در جبهه ایران محصور است، زیرا پس از اینکه رژیم تروریستی در تهران آماده شد، دیگر به ما حمله نکرد. اگر دوباره به ما حمله کند - با قدرت پاسخ خواهیم داد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92937
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نتانیاهو: ایران و حزب‌الله ضعیف‌تر از همیشه هستند - اما مبارزه تمام نشده
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## VahidOnline — post 76070
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76070_1780932196.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Atlansick
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 76069
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76069_1780932196.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمدباقر ذوالقدر، دبیر شورای عالی امنیت ملی جمهوری اسلامی ایران، در پیامی که روز دوشنبه ۱۸ خرداد منتشر شد، هشدار داد در صورت تکرار اقدامات آمریکا و اسرائیل، منطقه با پیامدهای گسترده‌ای روبه‌رو خواهد شد.
+
+ذوالقدر در این پیام نوشت: «تهدید معتبر را از جایی غیر از واشنگتن و تل‌آویو جست‌وجو کنید.» او افزود: «اگر ائتلاف شیطانی صهیونی-آمریکایی دیگر بار دست از پا خطا کند، منطقه برایش جهنم خواهد شد.»
+
+دبیر شورای عالی امنیت ملی در بخش دیگری از این پیام مدعی شد که جمهوری اسلامی طی «چهل و هفت سال و صد روز مقاومت»، از میدان جنگ تا عرصه سیاست و دیپلماسی، معادلات امنیتی جهان را تغییر داده است.
+
+این پیام پس از آن منتشر شد که قرارگاه مرکزی خاتم‌الانبیا اعلام کرد عملیات نیروهای مسلح جمهوری اسلامی علیه اسرائیل پایان یافته است. رسانه‌های رسمی اسرائیل نیز از توقف حملات این کشور به ایران به درخواست دونالد ترامپ خبر داده‌اند.
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 76068
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76068_1780932197.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یسرائیل کاتز، وزیر دفاع اسرائیل، اعلام کرد هرگونه حمله به شهرهای شمالی این کشور با حمله به ضاحیه در جنوب بیروت پاسخ داده خواهد شد و ارتش اسرائیل به عملیات خود در لبنان علیه سازمان «تروریستی» حزب‌الله ادامه خواهد داد.
+او افزود: ما تهدیدات جمهوری اسلامی را کاملا رد می‌کنیم. هرگونه تلاش تهران برای پیوند دادن لبنان و ایران و حمله به اسرائیل، همان‌طور که یک‌شنبه اتفاق افتاد، با شدت زیادی پاسخ داده خواهد شد.
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## Shin_Persian — post 6755
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Mon, 08 Jun 2026 15:19:34 UTC
+
+PM @netanyahu:
+-Iran and Hezbollah are weaker than ever - but the struggle is not over. They tried to impose a new equation on us it didn't happen, and it won't happen. Currently, the fire on the Iranian front is halted, if they fire again, we will respond powerfully
+#Israel 🇮🇱
+
+فارسی
+
+نخست‌وزیر نتانیاهو (@netanyahu):
+- ایران و حزب‌الله ضعیف‌تر از همیشه هستند - اما مبارزه تمام نشده است. آن‌ها سعی کردند معادله جدیدی را بر ما تحمیل کنند، این اتفاق نیفتاد و نخواهد افتاد. در حال حاضر، آتش در جبهه ایران متوقف شده است، اگر آن‌ها دوباره شلیک کنند، ما با قدرت پاسخ خواهیم داد.
+#Israel 🇮🇱
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 220034
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220034_1780932197.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایلان ماسک، کارآفرین و میلیاردر آمریکایی با انتشار پستی در رسانه اجتماعی تحت مالکیت خودش ایکس نوشت: تنگه هرمز به نام اهورامزدا، از آیین زرتشت نامگذاری شده است.
+
+این پست کوتاه ماسک در میانه اختلاف جمهوری اسلامی و آمریکا بر سر تنگه هرمز با استقبال کاربران روبرو شده است.
+
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220033
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220033_1780932198.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به شخصیتی مانند میرحسین موسوی، رهبر جنبش سبز ایران که از متن قدرت در جمهوری اسلامی به حاشیه حصر حکومتی رسید چه‌گونه باید نگریست؟ رضا علیجانی، فاطمه حقیقت‌جو و امیر مقدم در میدان پاسخ می‌دهند.
+</div>
+
+## Dirty_Kids — post 391388
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391388_1780932199.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سِد مجید نقطه زن
+بیابونو شخم نزن!:))))
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 126315
+
+<div align="center">
+  <a href="telegram/content/alonews_126315_1780932199.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈صحنه‌هایی از عد‌دویر، جنوب لبنان، پس از حمله هوایی اسرائیل.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126314
+
+<div align="center">
+  <a href="telegram/content/alonews_126314_1780932200.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حملات شدید جبهه پایداری به قالیباف
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126313
+
+<div align="center">
+  <a href="telegram/content/alonews_126313_1780932201.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈گروسی: هفته گذشته بازرسی معمول از نیروگاه بوشهر انجام شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126312
+
+<div align="center">
+  <a href="telegram/content/alonews_126312_1780932201.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ادامه حملات اسرائیل به جنوب لبنان
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/18 18:43
 ---
 

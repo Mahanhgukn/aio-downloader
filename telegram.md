@@ -7,6 +7,126 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/19 03:12
+---
+
+## VahidOOnLine — post 244448
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_244448_1780962163.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️شهر پنهان در الیگودرز؛ سکونتگاه اعجاب‌انگیز ساسانی در دل خاک
+
+
+📌باستان‌شناسان احتمال می‌دهند این مجموعه زیرزمینی با هدف تامین امنیت و در امان ماندن از سرمای شدید زاگرس طراحی شده باشد
+
+
+♦️باستان‌شناسان به‌تازگی در یک مجموعه زیرزمینی دست‌کند و رازآلود در منطقه قدبرا، واقع در حاشیه غربی شهرستان الیگودرز در استان لرستان، که شواهد اولیه قدمت آن را به اواخر دوره ساسانی منسوب می‌کند، کاوش‌هایی را آغاز کرده‌اند. این محوطه تاریخی سال‌ها میان زمین‌های کشاورزی و زیر لایه‌های خاک و رسوبات پنهان مانده بود، اما اکنون با ورود تیم‌های تخصصی، رازهای نهفته آن به‌تدریج در حال کشف شدن است.
+
+بررسی‌های اولیه نشان می‌دهد قدبرا نمونه‌ای شاخص از معماری دست‌کند است. یعنی سازه‌هایی که بدون استفاده از مصالح ساختمانی متعارف و تنها با تراشیدن، تخلیه و بهره‌گیری از بستر طبیعی زمین شکل داده شده‌اند.
+
+این نوع معماری که پاسخی هوشمندانه به شرایط اقلیمی، به‌ویژه سرمای سخت شرق لرستان به شمار می‌رود، از نظر ساختار و کارکرد با برخی شهرهای زیرزمینی معروف ایران قابل‌مقایسه است.
+
+به گزارش خبرگزاری ایسنا، در جریان کاوش‌های فاز نخست مجموعه قدبرا، مجموعه‌ای از دالان‌ها و دهانه دو اتاق شناسایی شد و نشانه‌هایی از گستردگی بیشتر این محوطه به دست آمد که ادامه پژوهش‌ها را در فازهای بعدی ضروری کرد.
+
+از مهم‌ترین یافته‌های این کاوش می‌توان به سفالینه‌هایی اشاره کرد که شناسنامه زمانی این مجموعه شناخته می‌شوند و کاربری مستمر این فضا را از اواخر دوره ساسانی تا قرون میانی اسلامی تایید می‌کنند.
+
+کارشناسان با توجه به ساختار این محوطه که از شبکه‌ای از دالان‌ها، تونل‌ها، دهلیزها و اتاق‌های زیرزمینی تشکیل شده است، معتقدند قدبرا برای تبدیل شدن به یک سایت‌موزه ظرفیت بالایی دارد و می‌تواند به‌عنوان یکی از جاذبه‌های تاریخی و گردشگری مهم منطقه معرفی شود.
+
+نکته واجداهمیت این است که کاوش‌های باستان‌شناسی در این مجموعه امسال برای نخستین بار آغاز شد، حال‌ آنکه این محوطه بیش از سه دهه قبل و در سال ۱۳۷۲ به ثبت ملی رسیده بود. چنانچه کاوش‌های باستان‌شناسی همان سال‌های کشف و ثبت ملی آغاز شده بود، احتمال داشت بخش زیادی از این مجموعه از خطر تخریب در امان بماند.
+
+
+
+بیشتر بخوانید...
+
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244447
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_244447_1780962164.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری رویترز ویدیویی منتشر کرده است که نشان می‌دهد تیم ملی فوتبال ایران روز دوشنبه ۱۸ خرداد، هنگام ترک هتل محل اقامت خود در تیخوانا به مقصد ورزشگاه «استادیو کالینته» برای نخستین جلسه تمرینی، با اسکورت گارد ملی مکزیک همراه بوده است.
+آمریکا تنها ۱۰ روز پیش از نخستین بازی ایران، برای همه بازیکنان ویزا صادر کرد؛ اما از میان کاروان ۷۰ نفره تیم، برای ۱۵ نفر اجازه ورود صادر نشد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342734
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342734_1780962165.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Marine One lands in New York City as President Trump arrives for Game 3 of the NBA Finals at Madison Square Garden.
+
+Trump is attending the highly anticipated Knicks-Spurs matchup as New York hosts its first NBA Finals game in decades.
+
+With the Knicks carrying a 2-0 series lead into tonight's game, the atmosphere around MSG is already reaching a fever pitch.
+</div>
+
+## FoxNewsTwitter — post 342733
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342733_1780962167.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+President Trump departs Bedminster, NJ en route to Madison Square Garden.
+
+The president is heading to Manhattan to attend Game 3 of the NBA Finals tonight as the Knicks host the Spurs with New York holding a 2-0 lead in the series.
+
+All eyes are on MSG as the city gears up for a championship atmosphere — and a high-profile guest in the arena. @MargoMartin47
+</div>
+
+## IranIntlTV — post 341268
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341268_1780962169.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری رویترز ویدیویی منتشر کرده است که نشان می‌دهد تیم ملی فوتبال ایران روز دوشنبه ۱۸ خرداد، هنگام ترک هتل محل اقامت خود در تیخوانا به مقصد ورزشگاه «استادیو کالینته» برای نخستین جلسه تمرینی، با اسکورت گارد ملی مکزیک همراه بوده است.
+آمریکا تنها ۱۰ روز پیش از نخستین بازی ایران، برای همه بازیکنان ویزا صادر کرد؛ اما از میان کاروان ۷۰ نفره تیم، برای ۱۵ نفر اجازه ورود صادر نشد.
+</div>
+
+## FarsiVOA — post 220079
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️زنان افغان در کانون نگرانی‌های شورای امنيت سازمان ملل متحد
+@FarsiVOA
+</div>
+
+## BBCPersian — post 283218
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+اسرائیل با وجود درخواست‌های دونالد ترامپ برای خویشتنداری، به ایران حمله کرد؛ موضوعی که انتقاد برخی رسانه‌های این کشور را در پی داشت.
+
+پس از حمله به اهدافی در ضاحیه بیروت و واکنش ایران، ترامپ از نتانیاهو خواسته بود به تنش‌ها پاسخ نظامی ندهد و به روند دیپلماسی فرصت بدهد.
+
+با این حال، این درخواست نادیده گرفته شد و حمله انجام شد؛ اتفاقی که بحث‌ها درباره وجود شکاف میان آمریکا و اسرائیل را افزایش داده است.
+
+در مقابل، برخی تحلیلگران معتقدند این پیام‌های متناقض ممکن است بخشی از یک بازی پیچیده برای مدیریت تنش‌ها و تحت فشار قرار دادن ایران باشد.
+
+📷GettyImages/ Reuters/ YEDIOT AHRONOT
+
+از لینک ⬇️ این مطلب را در سایت بی‌بی‌سی فارسی بخوانید.
+https://bbc.in/4dYmDBj
+@BBCPersian
+</div>
+
+---
 📅 بروزرسانی: 1405/03/19 03:02
 ---
 

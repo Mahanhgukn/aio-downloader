@@ -7,6 +7,332 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/18 08:02
+---
+
+## VahidOOnLine — post 244265
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244265_1780893176.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ارتش اسرائیل بامداد دوشنبه از رصد موشک‌های پرتاب شده از سوی ایران به سمت اسرائیل خبر داد و اعلام کرد: سامانه‌های پدافندی در حال رهگیری این تهدید هستند.
+
+این نخستین دور حمله‌های موشکی حکومت ایران به اسرائیل پس از حمله‌های ساعات اولیه بامداد دوشنبه ارتش اسرائیل به غرب و مرکز ایران است که پس از حمله‌های یکشنبه شب سپاه پاسداران به شمال اسرائیل انجام شد. حمله سپاه در شرایطی انجام شد که آتش‌بس از ۱۹ فروردین‌ماه کماکان برقرار بود و حمله‌ای از سوی اسرائیل علیه ایران انجام نشده بود. شبکه خبر نیز گزارش داده است که موشک‌ها به سمت جنوب و مرکز اسرائیل شلیک شده ا‌ند.
+
+به گزارش تایمز اسرائیل، در دقایق اخیر، فرماندهی پشت جبهه هشدار اولیه را مستقیما به تلفن‌های همراه در مناطق مربوطه ارسال کرده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## pm_afshaa — post 92824
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_92824_1780893177.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انفجاری دیگر در مزرعه های شومرون
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92823
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92823_1780893177.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رهگیری در اسمون اشدود
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92822
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کابینه اسراییل ساعت 11 تشکیل جلسه میده
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92821
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_92821_1780893179.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حیف خر که اسمشو رو اینا بزاری برا قاب عکس میکروفون گذاشتن😂😂
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92820
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پرتاب های جدید به سمت اسراییل
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## VahidOnline — post 76041
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76041_1780893180.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل بامداد دوشنبه از رصد موشک‌های پرتاب شده از سوی ایران به سمت اسرائیل خبر داد و اعلام کرد: سامانه‌های پدافندی در حال رهگیری این تهدید هستند.
+
+این نخستین دور حمله‌های موشکی حکومت ایران به اسرائیل پس از حمله‌های ساعات اولیه بامداد دوشنبه ارتش اسرائیل به غرب و مرکز ایران است که پس از حمله‌های یکشنبه شب سپاه پاسداران به شمال اسرائیل انجام شد. حمله سپاه در شرایطی انجام شد که آتش‌بس از ۱۹ فروردین‌ماه کماکان برقرار بود و حمله‌ای از سوی اسرائیل علیه ایران انجام نشده بود. شبکه خبر نیز گزارش داده است که موشک‌ها به سمت جنوب و مرکز اسرائیل شلیک شده ا‌ند.
+
+به گزارش تایمز اسرائیل، در دقایق اخیر، فرماندهی پشت جبهه هشدار اولیه را مستقیما به تلفن‌های همراه در مناطق مربوطه ارسال کرده است.
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 76040
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیام‌های دریافتی تایید نشده در پی گزارش‌ها از شنیده شدن صدای انفجار در ماهشهر
+ممکنه درست نباشند:
+
+وحید پتروشیمی کارون تو ماهشهر زدن
+
+آقا وحید سلام پتروشیمی کارون منطقه ویژه ماهشهر زدن دستور دادن کارگران و پرسنل برگردن خونه هاشون
+
+سلام ماهشهر پتروشیمی کارون ساعت ۷:۳۰ یک انفجار رخ داد
+
+وحید جان منطقه ویژه ماهشهر صدای وحشتناکی اومد. میگن شرکت کارون رو زده
+
+آپدیت:
+پیام دریافتی: کانال ماهشهر هم اعلام کرد
+پتروشیمی کارون رو زده
+اما صدای انفجار مثل انفجارهای قبل نبود
+همه نشنیدن
+معلوم نیست با چی زده این بار
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 341107
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341107_1780893180.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرخط خبرهای دوشنبه ۱۸ خرداد
+@iranintltv
+</div>
+
+## Shin_Persian — post 6710
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Mon, 08 Jun 2026 04:25:28 UTC
+
+Initial: Explosion in Karun Petrochemical Complex, Khuzestan Province, #Iran
+
+فارسی
+
+انفجار در مجتمع پتروشیمی کارون، استان خوزستان، #Iran_
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6709
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Mon, 08 Jun 2026 04:24:43 UTC
+
+Huge blast in Mahshahr, Khuzestan Province, #Iran
+
+فارسی
+
+انفجار مهیب در ماهشهر، استان خوزستان، #Iran
+
+𝕏 · @shin_persian
+</div>
+
+## Iliaen — post 4457
+
+<div align="center">
+  <a href="telegram/content/Iliaen_4457_1780893181.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ساعت ۰۷:۵۰ صبح دوشنبه؛ عبور موشک از آسمان ملارد.
+@iliaen
+</div>
+
+## Iliaen — post 4456
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش‌ها از یک انفجار مهیب در پتروشیمی کارون (ماهشهر - خوزستان) حکایت دارد.
+
+@iliaen
+</div>
+
+## FarsiVOA — post 219975
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Farsi VOA pinned a photo
+</div>
+
+## FarsiVOA — post 219974
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219974_1780893182.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎙️جهت مشاهده برنامه امروز تفسیر خبر به لینک زیر مراجعه بفرمایید:
+https://www.youtube.com/live/kVVTjngrjWc
+
+🔴همچنین سابسکرایب یوتیوب صدای آمریکا را فراموش نکنید:
+https://youtube.com/@voafarsi
+
+
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219973
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219973_1780893182.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📸اینستاگرام صدای آمریکا را هم اکنون فالو کنید تا از آخرین خبرها مطلع بمانید:
+https://www.instagram.com/voafarsi/
+
+📡همچنین جهت اطلاع از بروزترین فرکانسهای ماهواره‌ای صدای آمریکا به لینک زیر مراجعت فرمایید:
+https://ir.voanews.com/satellite
+
+این پست را با دوستانتان به اشتراک بگذارید
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 16063
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16063_1780893183.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش شده است که تکه‌های موشک و راکت در مناطق بیت شمش، غرب اورشلیم و بیر السبعه در نقب سقوط کرده‌اند.
+</div>
+
+## Persian_Trend_Official — post 16058
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16058_1780893183.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تصاویر از مناطق مختلف ایران که پرتاب موج جدید موشک‌های بالستیک را که دقایقی قبل آغاز شده را نشان می‌دهند.
+</div>
+
+## Persian_Trend_Official — post 16057
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16057_1780893184.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آسمان ملارد.
+</div>
+
+## Persian_Trend_Official — post 16056
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+غیر رسمی/ منابع محلی از انفجار شدید خوزستان پتروشیمی کارون ماهشهر خبر میدهند.
+</div>
+
+## Persian_Trend_Official — post 16055
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16055_1780893185.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شلیک موج جدید موشک ها از ایران
+</div>
+
+## Persian_Trend_Official — post 16054
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16054_1780893185.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اصفهان
+امروز
+</div>
+
+## RadioFarda — post 158022
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_158022_1780893186.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸ارتش اسرائیل روز یک‌شنبه ۱۸ خرداد اعلام کرد ایران با شلیک موجی از موشک‌ها به سوی اسرائیل «اشتباهی بزرگ» مرتکب شده است.
+
+🔸افی دفرین، سخنگوی ارتش اسرائیل، گفت: «رژیم تروریستی ایران بار دیگر با انتخاب مسیر ترور، اشتباهی بزرگ مرتکب شده است.»
+
+🔸آژیرهای خطر روز یک‌شنبه در اسرائیل به صدا درآمد و ارتش این کشور اعلام کرد سامانه‌های پدافندی آن در حال رهگیری چند موج موشک شلیک‌شده از ایران هستند.
+
+🔸به نوشته رسانه‌های اسرائیلی، ایران ۱۰ موشک به اسرائیل پرتاب کرده که تلفاتی درپی نداشته است.
+
+🔸این منابع همچنین نوشتند که بنیامین نتانیاهو، نخست‌وزیر ااسرائیل، پس از گفت‌وگو با دونلاد ترامپ، «اکنون در حال برگزاری یک جلسه مشورتی امنیتی است.»
+
+🔸این نخستین حمله موشکی ایران به اسرائیل از زمان برقراری آتش‌بس هشتم آوریل در جنگ خاورمیانه است.
+
+🔸سپاه پاسداران این حمله را «هشدار» خواند و گفت این اقدام در واکنش به حمله اسرائیل به ضاحیه جنوبی بیروت انجام شده است. دفتر بنیامین نتانیاهو، نخست‌وزیر اسرائیل، پیشتر اعلام کرده بود ارتش این کشور یک «مرکز فرماندهی شبه‌نظامیان» را در ضاحیه هدف قرار داده است.
+
+
+@RadioFarda
+</div>
+
+## RadioFarda — post 158021
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_158021_1780893187.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸ارتش اسرائیل در پیامی نوشت: «نیروی هوایی اسرائیل دقایقی پیش اهداف نظامی متعلق به «رژیم تروریستی ایران» را در غرب و مرکز ایران هدف قرار داد.»
+
+🔸کانال ۱۴ اسرائیل هم خبر داد که هواپیماهای این کشور هم‌اکنون در حال حمله به اهدافی در داخل خاک ایران هستند.
+
+🔸همزمان، خبرگزاری فارس از قول منابع محلی از انفجارهایی در استان‌های تهران، تبریز و اصفهان خبر داد.
+
+🔸فارس همچنین نوشت که صدای انفجار از حوالی غرب استان تهران شنیده شده است و مردم فردیس کرج نیز صدای این انفجارها را شنیده‌اند.
+
+🔸در همین ارتباط، خبرگزاری ایرنا از شنیده شدن «دست‌کم صدای ۲ انفجار مهیب در تهران» و «دست‌کم صدای ۳ انفجار در اصفهان» خبر می‌دهد. اکبر صالحی، معاون امنیتی استاندار اصفهان، بامداد دوشنبه به ایرنا گفت که «بامداد امروز نقطه‌ای در شهر نجف‌آباد» هدف قرار گرفت اما «این حمله تلفات جانی نداشته است.»
+
+🔸برخی کانال‌های مرتبط با سپاه پاسداران در شبکه‌های اجتماعی نیز از هدف قرار گرفته شدن شیراز و کرمانشاه خبر می‌دهند.
+
+
+@RadioFarda
+</div>
+
+---
 📅 بروزرسانی: 1405/03/18 07:52
 ---
 

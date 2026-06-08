@@ -7,6 +7,301 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/18 10:23
+---
+
+## VahidOOnLine — post 244288
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244288_1780901585.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل از موج جدید پرتاب موشک از ایران، در صبح دوشنبه خبر داد.
+
+ارتش اسرائیل اعلام کرد که موشک‌هایی از ایران به سمت این کشور پرتاب شده و سامانه‌های دفاعی در حال رهگیری آن هستند.
+همزمان رسانه‌های ایران از «موج جدید حملات موشکی» به اسرائیل، خبر داده‌اند.
+iranintl
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13909
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جروزالم پست: سپهبد ایال زامیر، رئیس ستاد کل ارتش اسرائیل، در پی حمله موشکی روز مهرشید جمهوری اسلامی به اسرائیل، چندین بار با دریاسالار برد کوپر، فرمانده،فرماندهی مرکزی ایالات متحده (سنتکام)، گفتگو کرد.
+@withyashar
+</div>
+
+## pm_afshaa — post 92860
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حداقل موشک میزنین هدف دار بزنین اخه جنگل!؟ 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92859
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_92859_1780901585.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حداقل موشک میزنین هدف دار بزنین
+
+اخه جنگل!؟
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92858
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سقوط در کریات شمالی 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92857
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امروز روز جهانیه بهترین دوسته
+این روزو به دوست خوب مردم ایران بی بی تبریک میگم
+</div>
+
+## IranIntlTV — post 341125
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341125_1780901586.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محسن نقوی، وزیر کشور پاکستان، در دیدار با عباس عراقچی، وزیر امور خارجه جمهوری اسلامی، پیام مکتوب شهباز شریف، نخست‌وزیر پاکستان، خطاب به مجتبی خامنه‌ای را تحویل داد.
+
+گفت‌وگو با جواد همدانی، خبرنگار ایران‌اینترنشنال
+
+@iranintltv
+</div>
+
+## IranIntlTV — post 341124
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341124_1780901587.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیویی که دوشنبه ۱۸ خرداد به دست ایران‌اینترنشنال رسیده، رد موشک شلیک‌شده جمهوری اسلامی را به سمت اسرائیل در آسمان اصفهان نشان می‌دهد.
+</div>
+
+## IranIntlTV — post 341123
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341123_1780901588.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی رسیده به ایران‌اینترنشنال در دوشنبه ۱۸ خرداد، رد موشک شلیک‌شده جمهوری اسلامی را به سمت اسرائیل در آسمان نجف‌آباد نشان می‌دهد.
+</div>
+
+## IranIntlTV — post 341122
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/341122" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی اخبار بامدادی | دوشنبه ۱۸ خرداد
+@iranintlTV
+</div>
+
+## FarsiVOA — post 219988
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺«رایزنی‌های فشرده» عراقچی در آستانه حملات موشکی جمهوری اسلامی به اسرائیل
+
+◾️وزیر خارجه جمهوری اسلامی با رئیس ارتش پاکستان و وزرای خارجه شماری از کشورها تلفنی گفت‌وگو کرد.
+
+◾️کانال تلگرامی عباس عراقچی گزارش داد که «در پی رایزنی‌های فشرده» از شامگاه یکشنبه تا بامداد دوشنبه، او با عاصم منیر فرمانده ارتش پاکستان، ایوِت کوپر وزیر خارجه بریتانیا، هاکان فیدان وزیر خارجه ترکیه، ژان نوئل بارو، وزیر خارجه فرانسه، محمد بن عبدالرحمن آل ثانی وزیر خارجه قطر، بدر عبدالعاطی وزیر خارجه مصر، فواد حسین وزیر خارجه عراق و فیصل بن فرحان وزیر خارجه عربستان سعودی گفت‌وگو کرد.
+
+◾️ادعا شده موضوع این گفت‌وگوها که ساعاتی پیش از حملات موشکی به اسرائیل انجام شده، از جمله «نقض آتش‌بس در لبنان» بوده است.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8158488.html
+</div>
+
+## Persian_Trend_Official — post 16099
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16099_1780901590.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+الحدث: اصابت مستقیم موشک ایرانی در منطقه خلیج حیفا
+</div>
+
+## Persian_Trend_Official — post 16098
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+غیر رسمی/گزارش ها از انفجار در کویت
+</div>
+
+## Persian_Trend_Official — post 16097
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16097_1780901590.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسرائیل‌هیوم:
+صدای انفجار در تل‌آویو شنیده شد.
+</div>
+
+## Persian_Trend_Official — post 16096
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16096_1780901591.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آژیر های هشدار توی اردن فعال شدن.
+</div>
+
+## Persian_Trend_Official — post 16095
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16095_1780901591.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔹تسنیم:
+
+در تلافی ماهشهر، مرکز انرژی حیفا رو زدیم
+</div>
+
+## Persian_Trend_Official — post 16094
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16094_1780901591.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+غیررسمی/منبع اسرائیلی:
+اصابت چند موشک به کریات آتا
+و مناطق شمال اسرائیل!
+</div>
+
+## RadioFarda — post 158035
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+زمین‌لرزه ۷.۸ ریشتری در فیلیپین؛ «تعیین دقیق خسارات جانی و مالی فعلاً ممکن نیست»
+
+
+🔸روز دوشنبه وقوع زلزله‌ای به بزرگی ۷.۸ جنوب فیلیپین را لرزاند و باعث کشته‌شدن دست‌کم پنج نفر، فرو ریختن ساختمان‌ها و هشدار سونامی در مناطق شرقی آسیا و سواحل اقیانوس آرام شد.
+
+🔸کانون این زمین لرزه در آب‌های جنوب شهر جنرال سانتوس گزارش شد و مقام‌های فیلیپین از ساکنان مناطق ساحلی این شهر ۷۲۰ هزار نفری خواستند تا به بخش‌های مرتفع‌تر بروند.
+
+🔸یکی از مسئولان بخش فجایع طبیعی فیلیپین در گفت‌وگو با خبرگزاری رویترز مرگ دست‌کم هشت نفر بر اثر زلزله را تأیید کرد. شمار زخمی‌ها نیز در گزارش‌های اولیه چهار نفر گزارش شده است. با این حال انتظار می‌رود شمار قربانیان بسیار فراتر از این آمار اولیه باشد.
+
+🔸تصاویری در شبکه‌های اجتماعی منتشر شده که تخریب یک مرکز خرید و مدرسه‌ای در این شهر را نشان می‌دهد. خبرگزاری فرانسه با تأیید درستی این تصاویر گفته است که مدرسۀ تخریب شده، به گفته مقامات «خالی» بوده است. پلیس تخریب ساختمان‌های دیگری را هم تأیید کرده و گفته است تعیین دقیق خسارت‌ها در حال حاضر ممکن نیست.
+
+🔸فردیناند مارکوس، رئیس جمهور فیلیپین، کلاس‌های درس را در مناطق آسیب دیده به حالت تعلیق درآورد و از ساکنان مناطق ساحلی خواست که فوراً تخلیه کنند. او گفت: «همین حالا به مناطق مرتفع‌تر بروید. منتظر نمانید. زندگی شما از هر چیزی که پشت سر گذاشته‌اید مهم‌تر است.»
+
+🔸مقامات اعلام کردند که فرودگاه جنرال سانتوس نیز تا اطلاع ثانوی بسته است.
+
+🔸مقام‌های فیلیپین از ثبت امواجی تا ارتفاع حدود یک و نیم متر در برخی مناطق این کشور خبر دادند.
+
+🔸طبق گزارش سازمان زمین‌شناسی ایالات متحده، حدود دو ساعت پس از وقوع اولین زلزله، مجموعه‌ای از پس‌لرزه‌های قدرتمند نیز مناطق متأثر را لرزاند که بزرگترین آنها قدرتی به اندازه ۶.۵ داشت.
+
+🔸زلزله روز دوشنبه همچنین باعث هشدار وقوع سونامی در مناطق ساحلی چند کشور دیگر از جمله مالزی، اندونزی و ژاپن شد.
+
+🔸نسخه کامل این گزارش را در وب‌سایت رادیوفردا بخوانید.
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 21745
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21745_1780901592.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امروز ی زمین لرزه پشم ریزون 8.2 ریشتری تو فیلیپین رخ داده که اینطوری یه ساختمون رو اورد پایین ! @IranainMinds
+</div>
+
+## alonews — post 126143
+
+<div align="center">
+  <a href="telegram/content/alonews_126143_1780901592.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈انصار الله از حمله به یافا خبر داد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126142
+
+<div align="center">
+  <a href="telegram/content/alonews_126142_1780901592.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈انفجار در کریات حیفا
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126141
+
+<div align="center">
+  <a href="telegram/content/alonews_126141_1780901593.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈منابع اسرائیلی:در مجموع 2 موشک به شمال اسرائیل و 4 موشک به تل‌آویو شلیک شده
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126140
+
+<div align="center">
+  <a href="telegram/content/alonews_126140_1780901593.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈مرکز اسرائیل هم اکنون
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126139
+
+<div align="center">
+  <a href="telegram/content/alonews_126139_1780901593.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈الحدث: اخبار از اصابت مستقیم موشک ایرانی در منطقه خلیج حیفا
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126138
+
+<div align="center">
+  <a href="telegram/content/alonews_126138_1780901593.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈آژیر خطر در اردن
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/18 10:13
 ---
 

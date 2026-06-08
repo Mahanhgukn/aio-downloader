@@ -7,6 +7,21 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/19 02:33
+---
+
+## FoxNewsTwitter — post 342732
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342732_1780959784.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Heightened security across New York City after six people were injured in a stabbing attack near Penn Station and ahead of President Trump's arrival in Manhattan for Game 3 of the NBA Finals, FOX News' @BillMelugin_ reports.
+</div>
+
+---
 📅 بروزرسانی: 1405/03/19 02:22
 ---
 

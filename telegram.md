@@ -7,6 +7,186 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/18 05:52
+---
+
+## FoxNewsTwitter — post 342707
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342707_1780885378.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+A race that looked like a potential political upset just got even more dramatic.
+
+After leading earlier in the day, reality TV personality Spencer Pratt has fallen behind Los Angeles City Council member Nithya Raman in the latest vote count, according to the Associated Press.
+
+Raman now holds a narrow lead of roughly 3,000 votes, but the race remains uncalled as election officials continue tallying ballots.
+
+The winner will advance to face incumbent Mayor Karen Bass in the runoff.
+</div>
+
+## pm_afshaa — post 92772
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92772_1780885379.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کاخ سفید: آمریکا در حملات صبح امروز اسرائیل به ایران دخالتی نداشته.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92771
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92771_1780885380.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴اکسیوس به نقل از یک مقام آمریکایی:
+حملات اسرائیل به ایران از نظر دامنه نسبتاً محدود بود.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92770
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92770_1780885381.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴والا نیوز: نیروی هوایی اسرائیل بیش از 10 سایت از جمله سامانه‌‌های دفاع هوایی و موشک‌های بالستیک رو در ایران هدف قرار داد!
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92769
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92769_1780885381.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴آتش‌نشانی تهران:
+نقاط شهری هدف قرار نگرفته.
+
+صبح امروز دست کم صدای 2 انفجار در نقاطی از غرب تهران شنیده شد و ادعاهایی درباره هدف قرار گرفتن فرودگاه مهرآباد منتشر شده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## VahidOnline — post 76022
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76022_1780885382.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️یک خبرنگار اسرائیلی حوزه دفاعی به نام امیر بوخبوط می‌گوید که نیروی هوایی اسرائیل صبح دوشنبه به ده مکان در ایران حمله کرده است که از جمله سامانه‌های پدافند هوایی و موشک‌های بالستیک در آن‌ها قرار داشتند.
+@VahidHeadline
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 76021
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76021_1780885383.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️سپاه پاسداران انقلاب اسلامی در بیانیه‌ای ادعا کرد، ارتش اسرائیل در حمله‌های بامداد دوشنبه که پس از حمله‌های یکشنبه شب سپاه به شمال اسرائیل انجام شد، از «موشک‌های بالستیک پرتاب‌شونده از هوا» استفاده کرده است. ارتش اسرائیل هنوز نوع سلاح‌های به کار رفته را اعلام نکرده و تنها گفته است که به مواضع رژیم ایران در غرب و مرکز ایران حمله کرده است.
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 76019
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال ۱۲ اسرائیل از حمله نیروی هوایی این کشور به فرودگاه مهرآباد تهران خبر داد.
+@VahidOOnLine
+درحالی که هنوز ارتش اسرائیل اعلام نکرده حمله‌های بامداد دوشنبه در پاسخ به حمله‌های یکشنبه شب سپاه پاسداران به شمال اسرائیل را با چه تجهیزات و تسلیحاتی انجام داده است، کانال ۱۴ تلویزیون اسرائیل گفت که جنگنده های اسرائیلی اهدافی را در ایران هدف قرار داده است.
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## kianmeli1 — post 87775
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏🔴فوری-شبکه «آی ۲۴نیوز» اسرائیل گزارش داد بر اساس گزارش‌های اولیه، اسرائیل تاکنون دست‌کم ۱۵ هدف را در نقاط مختلف ایران هدف قرار داده است. به گفته این شبکه، از جمله اهداف مورد حمله یک مرکز تولید پهپاد، فرودگاه بین‌المللی تهران و تاسیسات راهبردی نفتی بوده‌اند
+https://t.me/+_a5ind9hr7sxOTE0
+</div>
+
+## kianmeli1 — post 87774
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴آتش‌نشانی تهران اعلام کرد که صبح امروز دست کم صدای ۲ انفجار حوالی ساعت ۴:۴۳ و ۴:۴۵ در نقاط مختلفی از غرب تهران شنیده شد اما نقاط شهری در تهران هدف قرار نگرفته‌اند
+https://t.me/+_a5ind9hr7sxOTE0
+</div>
+
+## FarsiVOA — post 219968
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219968_1780885383.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️یک خبرنگار اسرائيلی حوزه دفاعی به نام امیر بوخبوط می‌گوید که نیروی هوایی اسرائيل صبح دوشنبه به ده مکان در ایران حمله کرده است که از جمله سامانه‌های پدافند هوایی و موشک‌های بالستیک در آن‌ها قرار داشتند.
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 16030
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال ۱۲ اسرائیل:
+موج اول حملات به ایران به پایان رسید
+اسرائیل در انتظار حمله ایرانی‌ها است
+</div>
+
+## Persian_Trend_Official — post 16029
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کاخ سفید: ایالات متحده در حمله اسرائیل به ایران دخالتی نداشت.
+</div>
+
+## Persian_Trend_Official — post 16028
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16028_1780885384.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تصویری از نقاطی که در آنها حمله گزارش شده است، شامل تبریز،ارومیه،کردستان،کرمانشاه،کرج،تهران،اصفهان،شیراز و جزیره خارک
+</div>
+
+## Persian_Trend_Official — post 16027
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آتش‌نشانی تهران:
+نقاط شهری هدف قرار نگرفته است
+
+صبح امروز دست‌کم صدای دو انفجار حوالی ساعت ۴:۴۳ و ۴:۴۵ در نقاط مختلفی از غرب تهران شنیده شد و ادعاهایی درباره هدف قرار گرفتن فرودگاه مهرآباد منتشر شده است.
+
+سخنگوی آتش‌نشانی تهران در گفت‌وگو با ایرنا از آماده‌باش آتش‌نشانی خبر داد، اما اعلام کرد که نقاط شهری در تهران هدف قرار نگرفته‌اند.
+</div>
+
+---
 📅 بروزرسانی: 1405/03/18 05:43
 ---
 

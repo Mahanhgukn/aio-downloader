@@ -7,6 +7,530 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/18 11:43
+---
+
+## WithYashar — post 13934
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انفجار در اصفهان شنیده شد
+@withyashar
+</div>
+
+## WithYashar — post 13933
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آغاز موج جدیدی از حملات هوایی به تهران
+حمله به دانشگاه هوا فضای عاشورا
+@withyashar
+</div>
+
+## WithYashar — post 13932
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انفجار در کرمانشاه
+@withyashar
+</div>
+
+## WithYashar — post 13931
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شنیده شدن صدای انفجار در اسلامشهر و ملارد و کهریزک و باقرشهر🚨🚨🚨🚨
+@withyashar
+</div>
+
+## WithYashar — post 13930
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پدافند تهران فعال شد 🚨
+@withyashar
+</div>
+
+## WithYashar — post 13929
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صدای انفجار در تهران و کرج شنیده شد🚨🚨🚨
+@withyashar
+</div>
+
+## mwarmonitor — post 10411
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💥انفجار در اصفهان
+</div>
+
+## mwarmonitor — post 10410
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💥انفجار در تهران
+</div>
+
+## mwarmonitor — post 10409
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+«فعال‌سازی پدافند هوایی در تهران»
+</div>
+
+## mwarmonitor — post 10408
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴«دفتر نتانیاهو: تلاش برای تحمیل یک معادله جدید از سوی نظام ایران را نخواهیم پذیرفت.»
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 92872
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انفجار در کرمانشاه
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92871
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پدافند تهران فعال شد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92870
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انفجار در غرب تهران
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5459
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5459_1780906410.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🛩️
+🔥 انهدام پایگاه موشکی اصفهان
+
+#جنگ #اصفهان
+@DEJradio
+</div>
+
+## VahidOnline — post 76054
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیام‌های دریافتی:
+وحید تهران صدای مهیب وحشتناک
+
+
+ساعات 11:33 دقیقه جنوب تهرانسر صدای انفجار اومد
+
+سلام ساعت ۱۱:۳۰ رباط کریم صدای انفجار
+
+تهران صدا و موج شدید انفجار ۱۱:۳۲
+
+همین الان صدای تک انفجار غرب تهران
+
+زدن تهران صدا واضح انفجار
+
+ساعت ۱۱:۳۳: صدای یک انفجار شنیده شد - تهران آزادی
+
+صداش خیلی زیاد نبود حوالی غرب باید باشه احتمالا
+
+اسلامشهر صدای انفجار ساعت ۱۱:۳۲
+
+تهران الان صدای انفجار اومد
+
+تهران غرب ۱۱:۳۳ تک انفجار بزرگ
+
+سلام وحید جان.۱۱:۳۳ تهران صدا انفجار اومد.من غربم صدا دور بود ازم
+
+۱۱:۳۳ دقیقه صدای انفجار ملارد فکر کنم زدن
+
+ما سمت مهرآبادیم ساعت ۱۱:۳۲ صدای انفجار اومد
+
+صدای انفجار در اسلامشهر ساعت ۱۱:۳۴
+
+وحید ما غربیم 11.33 صدا انفجار امد
+
+یه صدای تک انفجاری اومد الان انگار سمت یافت اباد
+
+بهشت‌زهرام. از نزدیک اینجا صدای انفجار اومد. ساعت یازده‌و‌سی‌و‌دو.
+
+
+همین الان اسلامشهر تهران ۲ تا صدای انفجار
+
+سلام وحید جان، صدای انفجار در فردیس
+
+غزب تهران سمت پونک همین الان صدای انفجار
+
+تهران اطراف اتوبان نواب صدای انفجار
+
+شهرک غرب
+صدای مهیب انفجار از دور اومد
+
+وحید قلعه حسن خان دو تا صدا انفجار قوی
+
+سلام باقرشهر کهریزیک صدای انفجار 11:33
+
+وحید داداش سمت دریاچه ۳ تا انفجار ولی دور بود
+11:32
+
+گرمدره صدای بمی داشت تک صدا بود ولی دلم یجوری شد
+
+سلام وحید جان من سمت مهرشهر هستم ساعت 11:31
+صدای انفجار خیلی وحشتناکی اومد
+از شرق کرج یا غرب تهران
+
+
+ساعت ۱۱:۳۳ سمت ملارد صدای انفجار وحشتناک اومد
+
+سلام ۱۱:۳۳ صدای انفجار اومد از جنوب تهران از دور بود
+
+تهران سمت شریعتی ساعت۱۱:۳۲ صدای خیلی دور انفجار اومد
+
+از ملارد ساعت ۱۱:۳۳ یدونه صدا اومد
+
+وحید اسلامشهر دوتا صدای خیلی وحشتناک اومد
+
+ساعت ۱۱:۳۴ اسلامشهر ۲ انفجار با فاصله یک دقیقه
+
+ما سمت چهارراه ولیعصریم دقیقا ۱۱:۳۳ دای انفجار از دور اومد
+
+سلام ما عظیمیه کرج ساعت 11:33 صدا شنیدیم، دور بود
+
+سلام من نزدیک مهرآبادم یدونه صدا اومد بنظرم بلند بود اما خیلی نزدیک نبود
+
+بازم هم مهرشهر کرج صدای یک انفجار
+ساعت ۱۱:۳۵
+
+درود گلشهر صدای انفجار اومد همین حالا
+
+ما تو یافت ابادیم صدایی که اومد نسبتا دور بود ولی خیلی مهیب بود
+
+سلام وحید جان من سمت شمال تهرانم ۱۱:۳۳ دقیقه صدای انفجار دور ولی سنگین اومد
+
+آپدیت:
+پیام‌های زیادی درباره فعالیت پدافند در مناطق مختلف تهران دریافت می‌کنم.
+📡 @VahidOnline
+</div>
+
+## kianmeli1 — post 87777
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری-شنیده شدن صدای انفجار در اسلامشهر و ملارد و کهریزک و باقرشهر
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87776
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری-شنیده شدن صدای انفجار در غرب و جنوب تهران
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 341140
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341140_1780906412.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ابراز شادمانی شماری از شهروندان از دور تازه حملات اسرائیل به مواضع جمهوری اسلامی و قطع شدن اینترنت در برخی شهرها، از جمله پیام‌های رسیده به ایران‌اینترنشنال است.
+
+لیلا سعادتی، عضو تحریریه ایران‌اینترنشنال، از پیام‌های شهروندان می‌گوید
+
+@iranintltv
+</div>
+
+## Shin_Persian — post 6726
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Mon, 08 Jun 2026 08:12:15 UTC
+
+State-owned Mehr News confirms the explosion sound in western Tehran, #Tehran Province, #Iran
+
+فارسی
+
+خبرگزاری دولتی مهر صدای انفجار در غرب تهران، استان #تهران، #ایران را تایید کرد.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6725
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Mon, 08 Jun 2026 08:11:47 UTC
+
+NOW @ 0811Z -
+AA activity over eastern Tehran, Tehran Province, #Iran
+
+فارسی
+
+هم‌اکنون در ۰۸۱۱ زولو (۱۱:۴۱ به وقت تهران) -
+فعالیت پدافند هوایی (AA) در آسمان شرق تهران، استان تهران، #Iran #ایران
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6724
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Mon, 08 Jun 2026 08:09:33 UTC
+
+NOW @ 0809Z -
+AA activity over central Tehran, Tehran Province, #Iran
+
+فارسی
+
+هم‌اکنون در ۰۸۰۹ زولو (۱۱:۳۹ به وقت تهران) -
+فعالیت پدافند هوایی در مرکز تهران، استان تهران، #Iran #ایران
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6723
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Mon, 08 Jun 2026 08:09:10 UTC
+
+NOW @ 0809Z -
+AA activity over southern Tehran, Tehran Province, #Iran
+
+فارسی
+
+هم‌اکنون در ۰۸۰۹ زولو (۱۱:۳۹ به وقت تهران) -
+فعالیت پدافند هوایی در فراز جنوب تهران، استان تهران، #Iran
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6722
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Mon, 08 Jun 2026 08:07:15 UTC
+
+Also heard in Ret, southern Tehran
+
+فارسی
+
+همچنین در ری، جنوب تهران شنیده شد.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6721
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Mon, 08 Jun 2026 08:04:42 UTC
+
+Huge blast in western Tehran
+#Tehran Province, #Iran
+
+فارسی
+
+انفجار مهیب در غرب تهران
+#Tehran Province, #Iran
+
+𝕏 · @shin_persian
+</div>
+
+## Iliaen — post 4459
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ساعت حدود ۱۱:۳۵ صبح دوشنبه؛ چندین انفجار در تهران شنیده شد.
+
+@iliaen
+</div>
+
+## FarsiVOA — post 219992
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺هشدار رئیس صندوق بین‌المللی پول: جهان برای شوک‌های تلنبارشده آماده نیست
+
+◾️رئیس صندوق بین‌المللی پول، هشدار داده که اقتصاد جهان وارد مرحله‌ای شده که در آن بحران‌ها دیگر جدا از هم عمل نمی‌کنند؛ جنگ، انرژی، تورم، بدهی، فناوری و بی‌اعتمادی اجتماعی روی هم انباشته شده‌اند و توان دولت‌ها برای واکنش به شوک‌های تازه، کمتر از گذشته است.
+
+◾️کریستالینا جورجیوا در گفت‌وگو با بلومبرگ گفت جهان برای مجموعه شوک‌هایی که همزمان در حال شکل‌گیری است، آمادگی کافی ندارد.
+
+◾️صندوق بین‌المللی پول قرار است در ژوئیه چشم‌انداز تازه خود از اقتصاد جهانی را منتشر کند. این به‌روزرسانی پس از آن انجام می‌شود که صندوق در آوریل، به دلیل پیامدهای جنگ در خاورمیانه، پیش‌بینی رشد اقتصادی جهان را کاهش داده بود.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8158489.html
+</div>
+
+## Persian_Trend_Official — post 16130
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16130_1780906413.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گفته می‌شود دانشگاه عاشورا نیروی هوافضا سپاه پاسداران مورد حمله اسرائیل واقع شده است.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16129
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16129_1780906414.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صدای انفجار در اصفهان
+</div>
+
+## Persian_Trend_Official — post 16128
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16128_1780906414.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صدای انفجار در شهر ری - کهریزک شنیده شد.
+</div>
+
+## Persian_Trend_Official — post 16127
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+غیررسمی/آماد کل سپاه موقعیت شهید دستواره ، سوله ها و انبارهای همجوار پشتیبانی مورد اصابت قرار گرفتند.
+</div>
+
+## Persian_Trend_Official — post 16126
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16126_1780906415.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پدافند تهران فعال شده است
+</div>
+
+## Persian_Trend_Official — post 16125
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16125_1780906415.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دانشگاه عاشورا هوافضای سپاه مورد حمله هوایی قرار گرفت.
+</div>
+
+## Persian_Trend_Official — post 16124
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16124_1780906416.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سخنگوی وزارت خارجه : حمله‌ای به عربستان انجام ندادیم، اگه بزنیم میگیم
+</div>
+
+## Persian_Trend_Official — post 16123
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صدای انفجار در تهران و کرج شنیده میشود
+</div>
+
+## Persian_Trend_Official — post 16122
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16122_1780906416.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش ها از انفجار شدید غرب تهران و تهرانسر
+</div>
+
+## RadioFarda — post 158039
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_158039_1780906416.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸رسانه‌های اسرائیل اعلام کردند فرودگاه اصلی بین‌المللی این کشور، «بن‌گوریون» در مرکز اسرائیل، با وجود فضای جنگی، کماکان به روی پروازهای ورودی و خروجی گشوده و فعال است.
+
+🔸مسئولان این فرودگاه گفتند مسافرانی که دارای بلیط سفر تا روز ۲۳ خرداد هستند، فعلاً از امکان پرواز برخوردار خواهند بود.
+
+🔸با این حال، ال‌عال، مهم‌ترین شرکت هوایی اسرائیلی، به مسافران توصیه کرده که داوطلبانه سفر خود را به تعویق بیندازند.
+
+🔸مسئولان فرودگاه در آغاز هفته گفته بودند از ارتش ایالات متحده خواسته‌اند ده‌ها فروند هواپیمای نظامی را که در این فرودگاه مستقر کرده، منتقل کند. آنها می‌گویند حضور این جنگنده‌ها «زیان مالی سنگینی» به شرکت‌های هوایی اسرائیل به‌دلیل اجبار آن‌ها به انتقال هواپیماهایشان به فرودگاه‌های کشورهای نزدیک تحمیل کرده است.
+
+🔸همزمان با فضای جنگی در اسرائیل، وزارت بهداشت این کشور به بیمارستان‌ها دستور داده فعالیت و بیماران خود را به مجتمع‌های زیرزمینی حفاظت‌شده در هر یک از این مراکز درمانی منتقل کنند تا از حملات احتمالی موشکی در امان باشند.
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 21757
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 حمله به دانشگاه هوا فضای عاشورا
+قسمت غربی تهران
+
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21756
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴تهران صدای پدافند و انفجار در تهران
+
+
+@IranianMinds
+</div>
+
+## alonews — post 126174
+
+<div align="center">
+  <a href="telegram/content/alonews_126174_1780906417.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈یک منبع آگاه نظامی به فارس اعلام کرد، در صورت ادامهٔ حملات به زیرساخت‌های انرژی، کلیه تاسیسات نفت و گاز مرتبط اسرائیل، آمریکا و هم‌پیمانانشان از جمله تاسیسات انرژی منطقه‌ای هدف نیروهای مسلح ایران است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/18 11:33
 ---
 

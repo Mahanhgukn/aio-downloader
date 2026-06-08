@@ -7,6 +7,167 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/18 21:03
+---
+
+## mwarmonitor — post 10486
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸رئیس پارلمان لبنان، نبیه بری، انتظار می‌رود به‌صورت علنی از توافقی که در واشنگتن میان لبنان و اسرائیل حاصل شده حمایت کند، یک منبع آمریکایی به شبکه MTV لبنان گفته است.
+
+🔸بری، یکی از چهره‌های اصلی شیعه و از متحدان قدیمی حزب‌الله، تا پیش از این نسبت به مذاکرات واشنگتن ابراز تردید و مخالفت کرده بود.
+
+@mwarmonitor
+</div>
+
+## FarsiVOA — post 220043
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺نتانیاهو: کارزار علیه جمهوری اسلامی و حزب‌الله پایان نیافته است؛ هر حمله‌ای با پاسخ قاطع اسرائیل روبه‌رو خواهد شد
+
+◾️بنیامین نتانیاهو، نخست‌ وزیر اسرائیل، روز دوشنبه ۱۸ خرداد در سخنانی خطاب به مردم اسرائیل اعلام کرد که گرچه در حال حاضر حملات متقابل میان اسرائیل و جمهوری اسلامی متوقف شده است، اما کارزار اسرائیل علیه رژیم ایران و حزب‌الله همچنان ادامه دارد، و هرگونه حمله جدیدی با واکنش شدید اسرائیل مواجه خواهد شد.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/netanyahu-says-israels-campaign-against-iran-hezbollah-not-over/8158561.html
+</div>
+
+## Dirty_Kids — post 391400
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391400_1780940027.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فکر نمیکنم قرار بعدی توی کافه باشه ها !!!
+
+شما چطور؟
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391399
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391399_1780940027.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تنفر مردم ایران از فوتبالیست‌های تیم ملا فقط به خاطر حمایتشان از حکومت نیست.
+آنها ویترین جمهوری اسلامی‌اند؛ ویترینی که پشت آن چیزی جز ریاکاری، رذالت، وقاحت و شرارت دیده نمی‌شود. هرکدامشان به شکلی بازتاب همان چرکی هستند که ۴۷ سال است بر ایران حکومت می‌کند.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391398
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391398_1780940027.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+احتمالا امسال هم این روند ادامه داشته باشه😉
+
+
+@Dirty_Kids 👻
+</div>
+
+## Hranews — post 113472
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مشهد؛ مرگ ۲ کارگر در سایه فقدان ایمنی کار
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– در سایه فقدان ایمنی محیط و شرایط نامناسب کار، دو #کارگر در مشهد حین انجام کار طی حادثه ای جان باختند.
+
+ادامه مطلب
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## alonews — post 126354
+
+<div align="center">
+  <a href="telegram/content/alonews_126354_1780940028.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈قالیباف: صحبت های رئیس جمهور آمریکا درباره یادداشت تفاهم، مخالف بخش های توافق شده بود که نشان داد آنها نه دنبال آتش بس هستند و نه دنبال گفت وگو و باید برای دفاع از حقوق ملت ایران پاسخ قاطع می دادیم که به لطف الهی نیروهای مسلح ما با اقتدار به وظیفه خود عمل کردند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126353
+
+<div align="center">
+  <a href="telegram/content/alonews_126353_1780940028.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈قالیباف: آنچه باعث تنش های اخیر شد این بود که آمریکایی ها هم با محاصره دریایی علیه ملت ایران و هم با نقض توافقی که درباره آتش بس لبنان شده بود، آتش بس را نقض فاحش کردند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126352
+
+<div align="center">
+  <a href="telegram/content/alonews_126352_1780940029.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈دونالد ترامپ مدعی شد که پنج کشور منطقه که در میانجی‌گری میان آمریکا و ایران نقش دارند، از او خواسته‌اند تا بر بنیامین نتانیاهو، نخست‌وزیر اسرائیل فشار آورد تا حملات را متوقف کرده و به سمت توافق حرکت کند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126351
+
+<div align="center">
+  <a href="telegram/content/alonews_126351_1780940029.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈یک مقام ارشد اسرائیلی به کانال ۱۴ گفت که: بازگشت به درگیری شدید با رژیم ایران «فقط مسئله‌ای در کوتاه‌مدت است، احتمالاً در روزهای آینده».
+
+
+🔴 وضعیت هشدار بالا تا اطلاع ثانوی، هم از نظر دفاعی و هم تهاجمی، حفظ می‌شود.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126350
+
+<div align="center">
+  <a href="telegram/content/alonews_126350_1780940029.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: فکر میکنم ایران مایل به امضای توافق است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126349
+
+<div align="center">
+  <a href="telegram/content/alonews_126349_1780940029.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حداقل ۳۲ نفر کشته شدند و بیش از ۱۰۰ نفر زخمی شدند در نتیجه زلزله قدرتمند با بزرگای ۷.۸ ریشتری که در سواحل مینداناو در جنوب فیلیپین رخ داد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/18 20:53
 ---
 

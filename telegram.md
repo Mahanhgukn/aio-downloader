@@ -7,6 +7,238 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/18 14:33
+---
+
+## VahidOOnLine — post 244329
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244329_1780916628.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ترامپ: ممکن است جهالت یا حماقتی مانع مذاکرات نهایی صلح با ایران شود
+
+♦️دونالد ترامپ، رئیس جمهوری آمریکا روز دوشنبه ۱۸ خردادماه اعلام کرد مذاکرات نهایی «صلح» با ایران در حال انجام است اما هشدار داد که «ممکن است جهالت یا حماقتی» مانع از به نتیجه رسیدن این روند شود.
+
+ترامپ با انتشار پیامی در تروث نوشت: «هر دو طرف، اسرائیل و ایران، به دنبال آتش‌بس فوری هستند! مذاکرات نهایی در مورد «صلح» در حال انجام است، هرچند ممکن است جهالت یا حماقتی مانع آن شود.»
+
+رئیس جمهوری آمریکا در همین پیام نوشت: «محاصره [دریایی ایران] تا زمان دستیابی به «توافق نهایی» با تمام قوا و قدرت ادامه خواهد یافت. این روند باید به سرعت پیش رود.»
+
+ترامپ دقایقی پیش از این پیام از ایران و اسرائیل خواسته بود حملات به یکدیگر را متوقف کنند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244328
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244328_1780916629.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رافائل گروسی، مدیر کل آژانس بین المللی انرژی اتمی، در یک نشست خبری گفت: «در یک مرحله پیچیده گیر افتاده‌ایم اما این وضعیت در گذشته نیز وجود داشته است.»
+
+گروسی افزود که آژانس به تلاش خود برای تعامل و پیگیری بازرسی از تاسیسات ایران همچنان ادامه می‌دهد.
+
+او گفت: «آژانس باید در توافق جمهوری اسلامی و آمریکا در بخش هسته‌ای نقش ایفا کند.»
+iranintl
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14005
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه های رژیم با ذکر الله اکبر ، نوشتند تنگه هرمز کامل بسته شد @withyashar
+</div>
+
+## WithYashar — post 14004
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزیر آموزش و پرورش اسرائیل: تعطیلی مدارس فردا سه‌شنبه نیز ادامه خواهد داشت.
+@withyashar
+</div>
+
+## mwarmonitor — post 10450
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سفیر آمریکا در لبنان: اگر حزب‌الله حملات خود علیه اسرائیل را متوقف کند، اسرائیل نیز ضاحیه (حومه جنوبی بیروت) را هدف قرار نخواهد داد.
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 342709
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342709_1780916629.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NEW: President Trump demands Israel and Iran stop firing missiles at each other as the region edges back toward a wider war.
+
+The warning comes after Iran fired off a wave of missiles at Israel and Israel launched retaliatory strikes, despite U.S. efforts to hold together a ceasefire and move toward a peace deal.
+</div>
+
+## pm_afshaa — post 92894
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کابینه اسراییل امشب ساعت 21 تشکیل جلسه خواهد داد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92893
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: اسرائیل و ایران باید فوراً "شلیک" را متوقف کنن
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92892
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92892_1780916630.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اهواز هم اکنون
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## FarsiVOA — post 220010
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺اسرائیل: آغاز مرحله دوم غرش شیران؛ هرگونه تهدید جدید جمهوری اسلامی با واکنش قاطع مواجه می‌شود
+
+◾️به دنبال تبادل آتش بین جمهوری اسلامی و اسرائیل طی روز یکشنبه و با افزایش تنش‌ها در منطقه، کمال پنحاسی سخنگوی ارتش اسرائیل، در گفت‌وگوی اختصاصی با صدای آمریکا گفت شاهد آغاز مرحله دوم عملیات «غرش شیران» علیه جمهوری اسلامی هستیم.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8158497.html
+</div>
+
+## Persian_Trend_Official — post 16174
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16174_1780916631.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این آرایشگاه کجا میره همیشه همین ظاهر رو داره !!!
+</div>
+
+## RadioFarda — post 158050
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_158050_1780916631.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸دونالد ترامپ می‌گوید اسرائیل و ایران، خواهان برقراری فوری «آتش‌بس» هستند.
+
+🔸او روز دوشنبه ۱۸ خرداد اندکی پس از آنکه در شبکه اجتماعی خود از دو کشور خواست فوراً حملات متقابل به یکدیگر را متوقف کنند، باردیگر نوشت: «مذاکرات نهایی برای دستیابی به صلح در جریان است؛ مگر آنکه ناآگاهی یا حماقت مانع آن شود.»
+
+🔸او اشاره‌ای به جزئیات آنچه «تمایل» ایران و اسرائیل دربارۀ برقراری آتش‌بس کرده، نکرد؛ این پُست در شرایطی در تروث‌سوشال منتشر شده که دو کشور از آمادگی برای ادامۀ طولانی‌مدت درگیری خبر می‌دهند.
+
+🔸ترامپ در عین حال نوشته: «محاصره [دریایی ایران] همچنان برقرار خواهد ماند و با تمام قدرت اجرا می‌شود تا زمانی که یک توافق نهایی حاصل شود.»
+
+🔸رئیس‌جمهور آمریکا در عین حال تأکید کرده که «انتظار می‌رود روند امور به‌سرعت پیش برود.»
+
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 21823
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جنگم جنگای قدیم
+</div>
+
+## IranianMinds — post 21822
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21822_1780916632.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 روزنامه دیلی میل:
+
+در اردوی تیم ملی ایران توی ترکیه؛ یکی از بازیکنا به یه دختر 14 ساله دست درازی کرده.
+بخشی از صحبت‌های پدر بریتانیایی این دختر که داره از مراجع قانونی شکایتش رو پیگیری میکنه:
+ما تو یه هتل 5 ستاره تو ترکیه بودیم که فهميديم تیم ملی ایرانم اونجاست. اولش خوشحال شدیم ولی 24 May همه چیز بهم ریخت.
+من و همسرم رفتیم بیرون و دو دختر 14 و 10 سالم کنار استخر تو هتل موندن تا اینکه دختر 14 سالم با گریه زنگ زد گفت بابا سریع بیا.
+
+دخترم میره با یکی از بازیکن‌ها بخاطر معروف بودنش عکس بگیره ولی اون بازیکن گوشی رو ازش می‌گیره و از اینستاگرام به خودش پیام میده.
+
+دخترم بهش میگه من فقط 14 سالمه ولی اون بازیکن گفته اتفاقا این خیلی جذابه؛ بعد هم به دخترم میگه بیا بریم پشت اون بوته‌ها همدیگرو بغل کنیم که دخترم پنیک میشه و گریه میکنه.
+
+تازه ما پیگیری کردیم و فهميديم این فوتبالیست یه دختر 15 ساله بریتانیایی دیگه رو هم اذیت کرده.
+به مسئول هتل گفتیم فیلم دوربین‌ها رو بده ولی همکاری نکردن و کلا طرف بازیکن رو گرفتن؛ اونجا هم کادر و بقیه بازیکن‌ها ازم عذرخواهی کردن ولی من پیگیری میکنم.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 283173
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻ارتش اسرائیل: پتروشیمی که در ماهشهر هدف قرار گرفت برای ساخت موشک مواد تولید می‌کرد
+
+ارتش اسرائیل در شبکه ایکس نوشت که چند زیرساخت را در مجتمع پتروشیمی بندر ماهشهر، در جنوب‌ غربی ایران، هدف قرار داده است.
+
+به گفته ارتش اسرائیل این تاسیسات «برای تولید و صادرات مواد اولیه مورد استفاده در ساخت تسلیحات» استفاده می‌شد و «زیرساخت‌های هدف قرار گرفته، مواد منحصر به‌ فردی تولید می‌کردند که از اجزای ضروری ساخت موشک‌ بالستیک به شمار می‌روند.»
+
+ایران گفت این حمله پتروشیمی کارون در ماهشهر بوده و به تلافی به پتروشیمی حیفا حمله موشکی کرده است.
+
+ساعاتی پیش ارتش اسرائیل گفت حمله گسترده به سامانه‌های پدافندی راهبردی را به پایان رسانده است.
+
+بنابر این بیانیه، «سامانه‌های پدافندی در نقاط مختلف ایران مستقر شده بودند» تا توانمندی‌هایی را که در عملیات «غرش شیران» [در تابستان پارسال] تضعیف شده بود، بازسازی کنند.
+
+به گفته ارتش اسرائیل، حمله به انهدام این سامانه‌ها منجر شد.
+
+@BBCPersian
+</div>
+
+## alonews — post 126242
+
+<div align="center">
+  <a href="telegram/content/alonews_126242_1780916633.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فرماندهی سپاه تو خلیج فارس : هر شناور رزمی متعلق به کشورهای دشمن حق ورود به خلیج فارس رو نداره و در صورت ورود، هدف قرار می‌گیره
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126241
+
+<div align="center">
+  <a href="telegram/content/alonews_126241_1780916633.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کیر استارمر ، نخست وزیر بریتانیا: مذاکرات جدی برای صلح پایدار در جریان است و مهم است که به آنها هر فرصتی برای موفقیت داده شود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/18 14:23
 ---
 

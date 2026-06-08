@@ -7,6 +7,124 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/18 04:52
+---
+
+## VahidOOnLine — post 244227
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244227_1780881773.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+باراک راوید، خبرنگار آکسیوس، در شبکه اجتماعی ایکس نوشت: «یک مقام ارشد آمریکایی به من گفت که کاخ سفید به حمله اسرائیل به بیروت چراغ سبز نشان نداده بود.»
+
+او به نقل از «یک مقام آمریکایی دیگر » نوشت: «ما هیچ نقشی در این ماجرا نداشتیم.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## IranIntlTV — post 341090
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341090_1780881774.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+باراک راوید، خبرنگار آکسیوس، در شبکه اجتماعی ایکس نوشت: «یک مقام ارشد آمریکایی به من گفت که کاخ سفید به حمله اسرائیل به بیروت چراغ سبز نشان نداده بود.»
+
+او به نقل از «یک مقام آمریکایی دیگر » نوشت: «ما هیچ نقشی در این ماجرا نداشتیم.»
+https://iranintl.com/202606083071
+</div>
+
+## Shin_Persian — post 6676
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Mon, 08 Jun 2026 01:21:58 UTC
+
+0114
+Blast in western Tehran
+#Tehran Province, #Iran
+
+فارسی
+
+۰۱۱۴ (۰۴:۴۴ به وقت تهران)
+انفجار در غرب تهران
+#Tehran Province, #Iran
+
+𝕏 · @shin_persian
+</div>
+
+## Iliaen — post 4452
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ساعت ۰۴:۴۷ صبح دوشنبه؛ صدای انفجار در اطراف نجف‌آباد شنیده شد.
+
+@iliaen
+</div>
+
+## Iliaen — post 4451
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ساعت ۰۴:۴۵ صبح دوشنبه؛ دو انفجار در غرب تهران (خارج از محدوده شهری) شنیده شد.
+
+@iliaen
+</div>
+
+## BBCPersian — post 283116
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🖌سوتیک بیسواس و نیتو سینگ, دهلی نو و بانده:
+
+🔻ساعت ۶ صبح آفتاب چنان بر شهر بانده می‌تابد که انگار نه‌ انگار صبح زود است.
+
+نور آفتاب تابش تند یک بعد‌ از‌ ظهر تابستانی داشت. سایه‌ها پیش از صبحانه رو به کوتاه شدن بودند.
+
+در ماه مه این ناحیه غبار‌آلود هند در استان اوتار پرادش چندین روز در صدر رتبه ناخوشایند گرم‌ترین نقطه در سراسر هند بود. دمای هوا به مدت یک هفته حدود ۴۷ تا ۴۸ درجه سانتی‌گراد بود، گرمایی که حتی با معیار‌های محلی هم غیر‌عادی است.
+
+آنچه مورد توجه قرار گرفت شیوه سازگاری مردم با چنین شرایطی بود. شهر بانده بیش از دو میلیون نفر جمعیت دارد که بسیاری از آنها از طریق کشاورزی، ساخت‌و‌ساز، حمل‌و‌نقل و کارهای دیگری که همه در فضای باز انجام می‌شود زندگی می‌کنند و در نتیجه کمابیش چاره‌ای جز تحمل گرما ندارند. آنها زندگی خود را متناسب با این وضعیت سامان داده‌اند.
+
+📸GettyImages/ Ankit Srinivas/Hindustan/ Times via Getty Images
+
+https://bbc.in/4oeDZgt
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 391308
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 هم‌اکنون نجف آبادِ اصفهان:
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391307
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ساعت ۰۴:۴۵ صبح دوشنبه؛ دو انفجار در غرب تهران (خارج از محدوده شهری) شنیده شد.
+
+اصفهان هم صدای انفجار گزارش شده
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391305
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پاشید جنگ شد
+</div>
+
+---
 📅 بروزرسانی: 1405/03/18 04:42
 ---
 

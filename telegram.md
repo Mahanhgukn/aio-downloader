@@ -7,6 +7,106 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/18 23:45
+---
+
+## VahidOOnLine — post 244425
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_244425_1780949703.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حوثی‌های یمن، تحت حمایت جمهوری اسلامی، در تلگرام ویدیویی منتشر کرده‌اند که لحظه شلیک موشک به منطقه یافا در اسرائیل را در روز دوشنبه ۱۸ خرداد نشان می‌دهد.
+به گزارش تایمز اسرائیل، موشک پرتاب‌شده از سوی حوثی‌های یمن با موفقیت رهگیری شده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244424
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244424_1780949705.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مقام‌های لهستان روز دوشنبه اعلام کردند بیش از یک تن هروئین با منشا ایران را در بندر گدینیا در ساحل دریای بالتیک توقیف کرده‌اند؛ این محموله در میان آجرهای تزئینی پنهان شده بود.
+وزیر کشور لهستان در نشست خبری گفت: «این بزرگ‌ترین عملیات از این نوع در بیش از یک دهه گذشته است.»
+به گفته مقام‌ها، ارزش این مواد مخدر حدود ۵۹.۸ میلیون دلار برآورد شده است. این محموله از امارات متحده عربی ارسال شده بود و نخستین بار از سوی ماموران گمرک بریتانیا شناسایی شد.
+رییس پلیس لهستان گفت منشا این مواد مخدر ایران بوده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14071
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک مقام آمریکایی به Axios گفت:
+بی بی برای زنده ماندن سیاسی در اسرائیل نیاز دارد که جنگ ادامه یابد، و ترامپ برای زنده ماندن سیاسی در آمریکا نیاز دارد که جنگ پایان یابد.
+@withyashar
+</div>
+
+## IranIntlTV — post 341240
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341240_1780949706.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حوثی‌های یمن، تحت حمایت جمهوری اسلامی، در تلگرام ویدیویی منتشر کرده‌اند که لحظه شلیک موشک به منطقه یافا در اسرائیل را در روز دوشنبه ۱۸ خرداد نشان می‌دهد.
+به گزارش تایمز اسرائیل، موشک پرتاب‌شده از سوی حوثی‌های یمن با موفقیت رهگیری شده است.
+</div>
+
+## IranIntlTV — post 341239
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341239_1780949708.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مقام‌های لهستان روز دوشنبه اعلام کردند بیش از یک تن هروئین با منشا ایران را در بندر گدینیا در ساحل دریای بالتیک توقیف کرده‌اند؛ این محموله در میان آجرهای تزئینی پنهان شده بود.
+وزیر کشور لهستان در نشست خبری گفت: «این بزرگ‌ترین عملیات از این نوع در بیش از یک دهه گذشته است.»
+به گفته مقام‌ها، ارزش این مواد مخدر حدود ۵۹.۸ میلیون دلار برآورد شده است. این محموله از امارات متحده عربی ارسال شده بود و نخستین بار از سوی ماموران گمرک بریتانیا شناسایی شد.
+رییس پلیس لهستان گفت منشا این مواد مخدر ایران بوده است.
+https://iranintl.com/202606088440
+</div>
+
+## IranIntlTV — post 341238
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/341238" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی ۲۴ با فرداد فرحزاد: نتانیاهو: کار با جمهوری اسلامی به پایان نرسیده
+@iranintlTV
+</div>
+
+## Persian_Trend_Official — post 16225
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16225_1780949710.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک مقام آمریکایی به اکسیوس گفت: بی‌بی برای ادامه حیات سیاسی در اسرائیل به جنگ نیاز دارد و ترامپ برای حفظ حیات سیاسی در ایالات متحده به پایان جنگ نیاز دارد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## alonews — post 126397
+
+<div align="center">
+  <a href="telegram/content/alonews_126397_1780949710.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈منابع خبری از شنیده شدن صدای انفجارهایی در سلیمانیه واقع در شمال عراق خبر می دهند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/18 23:34
 ---
 

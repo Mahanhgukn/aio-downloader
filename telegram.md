@@ -7,6 +7,258 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/18 11:23
+---
+
+## VahidOOnLine — post 244300
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244300_1780905211.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسماعیل بقائی، سخنگوی وزارت خارجه جمهوری اسلامی، در نشست خبری دوشنبه ۱۸ خرداد گفت: «تاکنون در فضای بدگمانی بسیار شدید با طرف آمریکایی تبادل پیام می‌کردیم و اتفاقات ۲۴ ساعت اخیر به وضعیت نابسامان در فرایند دیپلماتیک دامن خواهد زد.»
+
+بقائی گفت: «نمی‌توان اقدامات اسرائیل را از سیاست‌های آمریکا جدا دانست.»
+iranintl
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244299
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_244299_1780905212.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی رسیده به ایران‌اینترنشنال در دوشنبه ۱۸ خرداد، رد موشک شلیک‌شده جمهوری اسلامی را به سمت اسرائیل در آسمان طارم سفلی در استان قزوین نشان می‌دهد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244298
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️اسماعیل بقایی، سخنگوی وزارت امور خارجه جمهوری اسلامی، روز دوشنبه ۱۸ خرداد و پس از آغاز دور تازه درگیری‌ها با اسرائیل گفت آمریکا به‌طور کامل از اقدامات اسرائیل حمایت می‌کند و میان دو طرف در حوزه‌های پدافندی و تهاجمی هماهنگی وجود دارد.
+
+بقایی در پاسخ به پرسش‌های خبرنگاران درباره گفته‌های ترامپ مبنی بر هماهنگ نبودن واشنگتن و دولت نیتانیاهو افزود این تصور که اسرائیل مستقل آمریکا به عنوان طرف تفاهم آتش‌بس، مسئول هرگونه نقض آن از سوی خود یا متحدانش در منطقه خواهد بود.
+
+سپاه پاسداران شامگاه یکشنبه ۱۷ خرداد و ساعاتی پس از حمله اسرائیل به ضاحیه لبنان، شلیک موشک به اسرائیل را پس از نزدیک به دو ماه «آتش‌بس» از سر گرفت.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13926
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سپاه: حمله دشمن به صنایع پتروشیمی پاسخ داده شد.
+@withyashar
+</div>
+
+## DEJradio — post 5454
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5454_1780905213.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨📢 بعد از حمله موشکی سـ.ـپاه پاسداران به اسرائیل، دونالد ترامپ رندانه برای اینکه روند مذاکرات مختل نشود، خطاب به مقامات جمهوری اسلامی گفت: «موشک هایتان را زدید، برگردید به میز مذاکره» و «از اسرائیل می خواهم پاسخ ندهد» او تلاش کرد تلفنی نتانیاهو را راضی کند دست از حمله بردارد.
+
+ترامپ همچنین مدعی شده بود«ما بسیار به یک توافق نهایی با ایران نزدیک هستیم. این توافق، توافق خوبی خواهد بود. نمی‌خواهم اتفاقاتی که اکنون در حال رخ دادن است آن را از بین ببرد.»
+
+یک مقام آمریکایی به «کانال ۱۲» اسرائیل گفته بود نتانیاهو به‌نوعی با عقب افتادن پاسخ نظامی به حملات موشکی اخیر ایران موافقت کرده است اما با روشن شدن هوا، نتایاهو دستور حمله را صادر کرد.
+یک منبع امنیتی به دژ می‌گوید، «دفاع از امنیت اسرائیل در برابر تهاجم سـ.ـپاه پاسداران خواست مردم و مقامات اسرائیلی است و بی‌بی حوصله لاس زدن ندارد.»
+
+#ترامپ #IRGCterrorists
+@DEJradio
+</div>
+
+## DEJradio — post 5453
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5453_1780905213.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⭕️ به گفته منابع اطلاعاتی با وجود اینکه مردم ایران در شرایط جنگی با بحران‌های اقتصادی و مشکلات معیشتی رو‌به‌رو هستند، حکومت میلیون‌ها دلار بودجه به ده‌ها هزار خانواده پناهنده در لبنان منتقل می‌کند. این مبلغ تحت عنوان حمایت مداوم از تامین غذا، درمان پزشکی و تجهیزات به آنها اختصاص می‌یابد.
+
+یکی از همین منابع می‌گوید، روشن است که رژیم ترجیح می‌دهد تروریسم حزب‌الله را به جای مردم ایران تأمین مالی کند، زیرا شهروندان داخلی اصلا اولویت ملاها نیستند.
+
+#حزب_الله_لبنان #IRGCterrorists
+@DEJradio
+</div>
+
+## VahidOnline — post 76052
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76052_1780905214.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+«اسماعیل بقایی»، سخنگوی وزارت امور خارجه جمهوری اسلامی، در نخستین کنفرانس خبری خود پس از آغاز حملات ایران به اسراییل گفت که اتفاقات ساعات‌ گذشته، به بی‌اعتمادی موجود میان تهران و واشنگتن دامن خواهد زد.
+
+بقایی در نشست خبری خود گفت تبادل پیام میان ایران و آمریکا تاکنون در فضایی لبریز از بی‌اعتمادی انجام شده و به گفته او، آتش‌بس نیز «به طور مستمر و مکرر» از سوی طرف مقابل نقض شده است. او تاکید کرد جمهوری اسلامی هر زمان که لازم بداند برای دفاع از «امنیت کشور» اقدام خواهد کرد.
+
+سخنگوی وزارت امور خارجه همچنین آمریکا را مسوول تحولات اخیر منطقه دانست و گفت اسراییل بدون هماهنگی با واشنگتن اقدامی انجام نمی‌دهد.
+به گفته او، وزارت خارجه آمریکا حمایت از اسراییل را دلیل اصلی جنگ علیه ایران دانسته و جمهوری اسلامی از همکاری و هماهنگی کامل فرماندهی مرکزی ارتش آمریکا، سنتکام، با اسراییل در حوزه‌های دفاعی و تهاجمی اطلاع دارد.
+
+بقایی با اشاره به تفاهم آتش‌بس ۱۹ فروردین، آمریکا را مسوول هرگونه نقض آن دانست و گفت پیامدهای تشدید تنش در منطقه متوجه واشنگتن خواهد بود.
+
+او همچنین از «رافائل گروسی»، مدیرکل آژانس بین‌المللی انرژی اتمی، انتقاد کرد و گفت در صورت تصویب قطعنامه‌ای علیه ایران در شورای حکام آژانس، تهران «پاسخ مناسب» خواهد داد.
+@VahidHeadline
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 76051
+
+<div align="center">
+  <a href="telegram/content/VahidOnline_76051_1780905214.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اکانت ارتش اسرائیل با انتشار ویدیوی بالا نوشت: "در دوره اخیر، سامانه‌های پدافندی در چندین منطقه مختلف در ایران مستقر شده بودند، ... این حمله منجر به انهدام این سامانه‌ها شد."
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 341134
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341134_1780905215.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسماعیل بقائی، سخنگوی وزارت خارجه جمهوری اسلامی، در نشست خبری دوشنبه ۱۸ خرداد گفت: «تاکنون در فضای بدگمانی بسیار شدید با طرف آمریکایی تبادل پیام می‌کردیم و اتفاقات ۲۴ ساعت اخیر به وضعیت نابسامان در فرایند دیپلماتیک دامن خواهد زد.»
+
+بقائی گفت: «نمی‌توان اقدامات اسرائیل را از سیاست‌های آمریکا جدا دانست.»
+iranintl.com/202606083207
+</div>
+
+## IranIntlTV — post 341133
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341133_1780905215.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گروهی از ایرانیان مقیم استکهلم در حمایت از مردم ایران تجمع کردند و خواستار تعطیلی سفارت جمهوری اسلامی در سوئد شدند.
+
+گزارش مهران عباسیان، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 341132
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341132_1780905217.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی رسیده به ایران‌اینترنشنال در دوشنبه ۱۸ خرداد، رد موشک شلیک‌شده جمهوری اسلامی را به سمت اسرائیل در آسمان طارم سفلی در استان قزوین نشان می‌دهد.
+</div>
+
+## FarsiVOA — post 219991
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219991_1780905218.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حوثی‌های یمن که تحت حمایت جمهوری اسلامی هستند، اعلام کردند که مانع عبور و مرور کشتی‌های مربوط به اسرائیل در دریای سرخ خواهند شد.
+
+این شبه‌نظامیان روز دوشنبه همچنین در بیانیه‌ای اعلام کردند که به اسرائیل حمله کرده‌اند.
+
+آنها تأکید کردند که «به تشدید تنش، به شدت پاسخ خواهیم داد.»
+
+ساعاتی پیش ارتش اسرائیل از شناسایی حمله موشکی از سمت یمن به سمت خاک اسرائیل خبر داد و گفت سامانه‌های دفاعی برای رهگیری این تهدید در حال فعالیت هستند.
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 16120
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16120_1780905219.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل ویدیویی گرافیکی از نقاط مورد حمله قرار گرفته شده در ایران منتشر کرد.
+
+طبق ادعای ارتش اسرائیل دو سامانه سوم خرداد در خوزستان و اهواز منهدم شده اند.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## alonews — post 126169
+
+<div align="center">
+  <a href="telegram/content/alonews_126169_1780905220.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سخنگوی وزارت امور خارجه: تردید نکنید هماهنگی در همه سطوح به بهترین وجه وجود دارد 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126168
+
+<div align="center">
+  <a href="telegram/content/alonews_126168_1780905220.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حریم هوایی عراق برای ۷۲ ساعت بسته شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126167
+
+<div align="center">
+  <a href="telegram/content/alonews_126167_1780905220.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈بقایی: ادعای مصادره دارایی‌های مسدود شده ایران به نفع کشورهای منطقه مضحک است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126166
+
+<div align="center">
+  <a href="telegram/content/alonews_126166_1780905222.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سخنگوی وزارت امور خارجه: تردید نکنید هماهنگی در همه سطوح به بهترین وجه وجود دارد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126165
+
+<div align="center">
+  <a href="telegram/content/alonews_126165_1780905222.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تقریباً ۳۱ موشک از دیشب به سمت اسرائیل شلیک شده است، ۳۰ موشک از ایران و یک موشک از یمن.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126164
+
+<div align="center">
+  <a href="telegram/content/alonews_126164_1780905222.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈اصابت دقیق موشک در حیفا
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/18 11:13
 ---
 

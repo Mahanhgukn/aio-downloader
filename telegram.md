@@ -7,6 +7,262 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/18 11:33
+---
+
+## VahidOOnLine — post 244303
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244303_1780905824.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسماعیل بقائی، سخنگوی وزارت خارجه جمهوری اسلامی در نشست خبری خود با رسانه‌ها با اشاره به حملات اسرائیل به لبنان گفت: «روند دیپلماتیکی که برای خاتمه دادن به جنگ آغاز شده است، تحت تاثیر قرار می‌گیرد.»
+
+او افزود: «همان ابتدا صریحا گفته شده بود و بارها میانجی‌گر پاکستانی هم تاکید کرده بود که خاتمه جنگ در لبنان، بخشی از آتش‌بس است.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244302
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_244302_1780905825.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ارتش اسرائیل: حمله گسترده به سامانه‌های پدافندی ایران را تکمیل کردیم
+
+♦️ارتش اسرائیل روز دوشنبه ۱۸ خرداد اعلام کرد، حملات گسترده علیه سامانه‌های پدافندی راهبردی ایران را به پایان رسانده است.
+
+به گفته ارتش اسرائیل، این سامانه‌ها در نقاط مختلف ایران مستقر شده بودند و بخشی از تلاش تهران برای بازسازی توانایی‌های شناسایی و دفاع هوایی پس از آسیب‌های واردشده در عملیات «غرش شیران» به شمار می‌رفتند.
+
+در بیانیه ارتش اسرائیل آمده است که «این حملات به انهدام سامانه‌های هدف منجر شده و آزادی عمل نیروی هوایی اسرائیل در آسمان ایران را بیش از پیش افزایش داده است».
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244301
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_244301_1780905827.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی رسیده به ایران‌اینترنشنال در دوشنبه ۱۸ خرداد، موشک‌های شلیک‌شده جمهوری اسلامی را به سمت اسرائیل در آسمان کنگاور نشان می‌دهد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13928
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گویا دیتاسنتر آسیاتک قطع شد
+@withyashar
+</div>
+
+## WithYashar — post 13927
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سخنگوی وزارت خارجه: حمله‌ای به عربستان انجام نداده‌ایم.
+نیروهای مسلح ما به هر هدفی حمله کنند، آن را صراحتاً اعلام می‌کنند.
+@withyashar
+</div>
+
+## DEJradio — post 5458
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5458_1780905828.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨🎥 آلمان؛ پلیس اوباش حامی فلسطین را فرغونی برد!
+
+#propalestine #فلسطین #اوباش
+@DEJradio
+</div>
+
+## DEJradio — post 5457
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5457_1780905830.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨📢 سـ.ـپاه پاسداران انقلاب اسلامی ده‌ها فروند موشک به سمت اسرائیل پرتاب کرد که اغلب آنها در آسمان رهگیری شدند.
+
+دستگاه تبلیغاتی نظام تلاش کرد با استفاده از هوش مصنوعی و تصاویر آرشیوی دستاوردسازی کند اما اغلب موشک‌ها یا در ببایان سقوط کرد یا در مناطق مسکونی و با این آمار افتضاح از اینکه به اسرائیل موشک شلیک کردند ابراز رضایت می‌کنند.
+
+بر اساس گزارش‌های دریافتی بامداد یکشنبه دستکم دو موشک لحظاتی پس از پرتاب در کرمانشاه سقوط کرد.
+
+#IRGCterrorists #جنگ
+</div>
+
+## DEJradio — post 5456
+
+<div align="center">
+  <img src="telegram/content/DEJradio_5456_1780905830.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🛩️
+🔥 یکی از اهدافی که در حمله هوایی روز دوشنبه ۱۸ خردادماه اسرائیل مورد اصابت قرار گرفت «پتروشیمی کارون» در ماهشهر بود. این حمله مصدومی در پی نداشته است. میزان خسارت و صدمات احتمالی در دست بررسی است به گفته وزارت نفت این حمله مصدومی در پی نداشت و کلیه کارکنان این منطقه تخلیه شده‌اند.
+
+#جنگ #ماهشهر
+@DEJradio
+</div>
+
+## DEJradio — post 5455
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5455_1780905831.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🤡
+🔺 شادی جنگ‌طلبان حامی نظام از موشک‌پرانی سپاه، بدون آنکه در نظر بگیرند پیامدهای این جنگ برای مردم و کشور چیست.
+
+#موشکپرانی #جنگ
+@DEJradio
+</div>
+
+## VahidOnline — post 76053
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76053_1780905832.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پست ایلان ماسک: "تنگه هرمز به نام اهورا مزدا از آیین زرتشت نامگذاری شده است."
+elonmusk
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 341139
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341139_1780905832.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایرانیان مقیم ونکوور در تجمعی مقابل ساختمان شبکه سی‌بی‌سی کانادا بار دیگر تلاش کردند صدای مردم ایران را به گوش جهانیان برسانند.
+
+@iranintltv
+</div>
+
+## IranIntlTV — post 341138
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341138_1780905834.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سفیر اسرائیل در آمریکا در پیامی در شبکه اجتماعی ایکس اعلام کرد حکومت ایران ۱۱ موشک بالستیک به سمت اسرائیل شلیک کرده است که هرکدام توان نابودی یک محله کامل و کشتن صدها نفر را دارد.
+
+گفت‌وگو با علی معموری، استاد دانشگاه دیکن و مشاور روابط استراتژیک نخست‌وزیر پیشین عراق
+
+@iranintltv
+</div>
+
+## IranIntlTV — post 341137
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341137_1780905835.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسماعیل بقائی، سخنگوی وزارت خارجه جمهوری اسلامی در نشست خبری خود با رسانه‌ها با اشاره به حملات اسرائیل به لبنان گفت: «روند دیپلماتیکی که برای خاتمه دادن به جنگ آغاز شده است، تحت تاثیر قرار می‌گیرد.»
+
+او افزود: «همان ابتدا صریحا گفته شده بود و بارها میانجی‌گر پاکستانی هم تاکید کرده بود که خاتمه جنگ در لبنان، بخشی از آتش‌بس است.»
+https://iranintl.com/202606086065
+</div>
+
+## IranIntlTV — post 341136
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341136_1780905836.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی رسیده به ایران‌اینترنشنال در دوشنبه ۱۸ خرداد، موشک‌های شلیک‌شده جمهوری اسلامی را به سمت اسرائیل در آسمان کنگاور نشان می‌دهد.
+</div>
+
+## IranIntlTV — post 341135
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341135_1780905837.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مرتضی کاظمیان، عضو تحریریه ایران‌اینترنشنال، درباره دلایل و اهداف راهبردی سپاه پاسداران از حمله موشکی به اسرائیل توضیح می‌دهد و جمهوری اسلامی را «حکومتی جنگ‌طلب، بسترساز جنگ برای ایران، ضدملی و بی‌توجه به منافع ملی ایران» توصیف می‌کند.
+
+@iranintltv
+</div>
+
+## Persian_Trend_Official — post 16121
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسموطریچ، وزیر دارایی اسرائیل در جلسه کابینه امنیتی، به جای پاسخ به ایران، خواستار تغییر معادله و تخریب 200 تا 300 ساختمان در ضاحیه بیروت به ازای هر حمله موشکی ایران شد!
+
+اسموطریچ همچنین گفت که مصرف سلاح برای حملات تلافی‌جویانه علیه ایران، سود بسیار کمی دارد و این سلاح‌ها باید برای زمانی نگه داشته شوند که به اسرائیل چراغ سبز داده شود تا زیرساخت‌های انرژی ایران هدف قرار داده شوند و حملاتی که می‌توانند آسیب‌های بلندمدت اقتصادی داشته باشند.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 21755
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خاکم‌ کنید جاکشا
+
+
+@IranianMinds
+</div>
+
+## alonews — post 126173
+
+<div align="center">
+  <a href="telegram/content/alonews_126173_1780905838.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈چین: دعوت از ایران و اسرائیل به پایبندی به آتش بس
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126172
+
+<div align="center">
+  <a href="telegram/content/alonews_126172_1780905839.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سخنگوی وزارت خارجه : حمله‌ِای به عربستان انجام ندادیم، اگه بزنیم میگیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126171
+
+<div align="center">
+  <a href="telegram/content/alonews_126171_1780905840.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 ویدئوی گرافیکی از نقاط مورد حمله قرار گرفته توسط نیروی هوایی اسرائیل از جمله ادعای هدف قرار دادن سامانه های پدافندی سوم خرداد (یا نمونه های مشابه) در اصفهان و خوزستان
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126170
+
+<div align="center">
+  <a href="telegram/content/alonews_126170_1780905842.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈عوستاد خوش چشم: اسرائیل و آمریکا جرات حمله رو ندارن 
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/18 11:23
 ---
 

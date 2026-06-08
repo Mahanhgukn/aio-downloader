@@ -7,6 +7,233 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/18 21:33
+---
+
+## VahidOOnLine — post 244410
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244410_1780941828.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس‌جمهوری آمریکا، روز دوشنبه در گفتگو با کانال ۱۲ تلویزیون اسرائیل اعلام کرد در مورد حمله به ایران به نخست‌وزیر اسرائیل هشدار داده است: «به بی‌بی‌ گفتم مراقب باش، خودت را در برابر ایران تنها خواهی یافت.»
+ترامپ همچنین افزود شماری از کشورهای منطقه از او خواسته‌اند بر نتانیاهو فشار وارد کند تا از تشدید درگیری‌ها جلوگیری شود.
+ترامپ همچنین اعلام کرد نتانیاهو با تاخیر او را از تصمیم برای حمله به ایران مطلع کرده و افزود: «او با تاخیر مرا در جریان حمله به ایران قرار داد، اما من موفق شدم این حمله را کاهش دهم.»
+رئیس‌جمهوری آمریکا در این گفتگو اعلام کرد  توانسته دامنه حمله اسرائیل به ایران را محدود کند و بنیامین نتانیاهو را برای کاهش تنش‌ها تحت فشار قرار داده است.
+این اظهارات در حالی مطرح می‌شود که کانال ۱۲ تلویزیون اسرائیل عصر دوشنبه ۱۸ خردادماه به نقل از یک مقام رسمی دولت اسرائیل گزارش داد که اسرائیل به درخواست دونالد ترامپ حملات خود علیه ایران را متوقف کرده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14055
+
+
+
+
+## WithYashar — post 14054
+
+
+
+
+## WithYashar — post 14053
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+درود سرباز شاه پیام که برای رضا پهلوی (شاهزاده ) فرستادی پاک کنین ، دشمن دنبال همین پیام ها هستن ، همه میدونیم ادمین کسی دیگس
+</div>
+
+## pm_afshaa — post 92965
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نفتالی بنت نخست وزیر پیشین اسراییل:
+نتانیاهو شده مضحکه آمریکا و هیچ اختیاری در هیچ جبهه ای نداره نه غزه نه لبنان نه ایران او باید جوابگو باشد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92964
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نتانیاهو به وزرا: ممکن است چند روز دیگر به ایران برگردیم
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92963
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴اسرائیل هیوم: امریکا در حمله اسرائیل به ایران نقش داشته
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92962
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92962_1780941828.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴غریب‌آبادی، معاون عراقچی: هیچ ارزشی برای تحریم‌های اتحادیه اروپا قائل نیستیم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5479
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5479_1780941828.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺📢 اعتراض یک سرباز:
+پدافند بدترین جاست!
+
+#جنگ #پدافند #سربازی
+@DEJradio
+</div>
+
+## DEJradio — post 5478
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5478_1780941830.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺📢 فرماندهان به ما گفتند پایگاه رو تخلیه کنید
+
+یک بسیجی ریزشی در ویدیویی که به دژ ارسال کرده با شکایت از ترس و بزدلی فرماندهان گفت: "والله دیگه از زندگی بریدیم، واسه دفعه سوم امروز فرماندهان ما در پایگاه مقاومت بسیج به ما گفتن که پایگاه رو تخلیه کنیم."
+
+#جنگ #ریزشی #بسیجی
+@DEJradio
+</div>
+
+## DEJradio — post 5477
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5477_1780941832.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🔸 از پادشاهان باستان تا سیاستمدارهای امروز، هرجا ردی از قدرت هست، معمولاً یک صفحه شطرنج هم گوشه‌ی تصویر پیدا می‌شه ♟👑
+
+اما چرا یک بازی ظاهراً محدود روی صفحه‌ی ۸ در ۸، این‌قدر برای صاحبان قدرت جذابه؟⚔️😉
+
+#تمام_رخ
+</div>
+
+## IranIntlTV — post 341223
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در واکنش به حمله‌های جمهوری اسلامی به اسرائیل، شبکه نیروهای نیابتی تهران هم وارد میدان شدند. حوثی‌های یمن بلافاصله حملات به اسرائیل را از سر گرفته و اعلام کردند کشتی‌های اسرائیل حق عبور از دریای سرخ را ندارند. کتائب حزب‌الله عراق هم ضمن تهدید اسرائیل، هشدار داد در صورت استفاده امریکا از خاک عراق یا ارائه‌ پشتیبانی لجستیک برای حمله به ایران، پایگاه‌های نظامی آمریکا در عراق را هدف قرار خواهند داد. همزمان حملات حزب‌الله به شمال اسرائیل هم ادامه دارد.
+
+گفت‌وگو با علی صدرزاده، تحلیل‌گر مسایل خاورمیانه
+@iranintltv
+</div>
+
+## FarsiVOA — post 220051
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Farsi VOA pinned a photo
+</div>
+
+## FarsiVOA — post 220050
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220050_1780941834.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📸اینستاگرام صدای آمریکا را هم اکنون فالو کنید تا از آخرین خبرها مطلع بمانید:
+https://www.instagram.com/voafarsi/
+
+📡همچنین جهت اطلاع از بروزترین فرکانسهای ماهواره‌ای صدای آمریکا به لینک زیر مراجعت فرمایید:
+https://ir.voanews.com/satellite
+
+این پست را با دوستانتان به اشتراک بگذارید
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 16215
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16215_1780941834.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ دقایقی پیش سفارت ایران در بیروت اعلام کرد:
+لبنان قلب ایران است.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## RadioFarda — post 158070
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸محیط‌بانان پارک ملی گلستان در اردیبهشت‌ماه ۱۴۰۵ موفق شدند دو توله خرس قهوه‌ای را در کنار مادرشان ثبت و مشاهده کنند.
+
+🔸جعفر پناه‌پور، محیط‌بان با انتشار این ویدئو نوشته است که همراه با همکارانش موفق به ثبت «صحنه‌ای کم‌نظیر» شده‌اند.
+
+🔸خرس قهوه‌ای یکی از بزرگ‌ترین پستانداران ایران است و پارک ملی گلستان از مهم‌ترین زیستگاه‌های این گونه به شمار می‌رود. توله‌های خرس معمولاً تا حدود دو سال به مادر وابسته هستند و در این مدت از حمایت و آموزش او برای بقا در طبیعت بهره می‌برند.
+
+@RadioFarda
+</div>
+
+## BBCPersian — post 283207
+
+<div align="center">
+  <a href="https://t.me/bbcpersian/283207" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📻📡 این برنامه رادیویی را می‌توانید هر شب ساعت ۲۰ به وقت ایران، روی موج متوسط ۷۰۲ کیلوهرتز و موج کوتاه ۹۴۶۵ کیلوهرتز بشنوید.
+تکرار برنامه را هم می‌توانید ساعت ۲۱:۳۰ روی موج متوسط ۷۰۲ کیلوهرتز و موج کوتاه ۵۳۹۵ کیلوهرتز گوش کنید.
+</div>
+
+## alonews — post 126363
+
+<div align="center">
+  <a href="telegram/content/alonews_126363_1780941835.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سفارت ایران در بیروت اعلام کرده است که «لبنان قلب ایران است»
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126362
+
+<div align="center">
+  <a href="telegram/content/alonews_126362_1780941835.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈در پی تداوم تنش‌ها، شرکت هواپیمایی «ایر فرانس» نیز به جمع شرکت‌هایی پیوست که پروازهای خود به مقصد اسرائیل را به حالت تعلیق درآورده‌اند.
+
+
+🔴شرکت «ایر فرانس» تمامی پروازهای خود به مقصد اسرائیل را تا ۲۱ ژوئن ۲۰۲۶ لغو کرد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/18 21:23
 ---
 

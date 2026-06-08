@@ -7,6 +7,397 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/18 07:52
+---
+
+## VahidOOnLine — post 244264
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244264_1780892569.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل اعلام کرد صبح دوشنبه موشک‌هایی از ایران به سمت خاک این کشور شلیک شده است و سامانه‌های دفاعی در حال رهگیری این تهدید هستند. ارتش اسرائیل از مردم خواسته وارد پناهگاه‌ها شوند و تا اطلاع بعدی در آنجا بمانند.
+
+خبرگزاری فارس، رسانه وابسته به سپاه پاسداران، نیز به نقل از منابع محلی از آغاز موج «شدید» حملات موشکی به اسرائیل خبر داد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13883
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨🚨🚨🚨🚨
+انفجار شدید خوزستان پتروشیمی کارون ماهشهر
+@withyashar
+</div>
+
+## WithYashar — post 13882
+
+<div align="center">
+  <a href="telegram/content/WithYashar_13882_1780892570.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کرمانشاه همین الان💥💥💥
+@withyashar
+</div>
+
+## WithYashar — post 13881
+
+<div align="center">
+  <a href="telegram/content/WithYashar_13881_1780892571.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شلیک از اصفهان نجف آباد
+@withyashar
+</div>
+
+## pm_afshaa — post 92819
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یعنی با 10 لانچر ما رو وارد جنگ کردین!؟ انقدر خرین!؟ «ما؟» چرا تو انقدر خری؟ ریدم تو رسانه‌ت.
+</div>
+
+## pm_afshaa — post 92818
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یعنی با 10 لانچر ما رو وارد جنگ کردین!؟
+انقدر خرین!؟
+
+«ما؟»
+
+چرا تو انقدر خری؟
+ریدم تو رسانه‌ت.
+</div>
+
+## pm_afshaa — post 92817
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_92817_1780892572.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مزرعه زدن😂😂
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92816
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92816_1780892573.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+برخورد در شومرون
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92815
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92815_1780892574.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بیت الشمس پدافند در حال رهگیری موشک های شلیک شدست
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92814
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_92814_1780892576.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+از اصفهان باز موشک بلند شد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92813
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خدایی کم لطفی میکنین که اندازه من از دیشب اخبارو پوشش داده 😒 الان همه کانالا خوابن
+</div>
+
+## pm_afshaa — post 92812
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خدایی کم لطفی میکنین که اندازه من از دیشب اخبارو پوشش داده 😒
+الان همه کانالا خوابن
+</div>
+
+## pm_afshaa — post 92811
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+از بیدگنه موشک شلیک شد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92810
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_92810_1780892576.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کرج موشک شلیک شد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92809
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_92809_1780892577.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رهگیری شده در اورشلیم
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92808
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یعنی با 10 لانچر ما رو وارد جنگ کردین!؟
+انقدر خرین!؟
+</div>
+
+## VahidOnline — post 76030
+
+<div align="center">
+  <a href="telegram/content/VahidOnline_76030_1780892577.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیام‌های دریافتی:
+
+۷:۴۰ پرتاب موشک از بیدگنه
+
+بیدگنه شلیک موشک بالستیک همین الان
+
+همین الان ۷:۴۰ موشک از بیدگنه رفت
+
+دوباره از ویلاشهر نجف‌آباد موشک زدن
+
+
+وحید جان همین الان از کرج موشک پرتاپ کردن
+
+7:39 دقیقه از ملارد صدای پرتاب موشک
+
+یکی دیگه همین الان اصفهان
+
+شمال اصفهان یدونه موشک دو دقیقه پیش پرتاب شد
+
+الان دوباره موشک زدن ٧/٤٢
+
+اینجا،اصفهان یک بار ساعت ۷:۳۰ دقیقه یک بار هم الان،۷:۴۰ موشک پرتاب کردند.
+
+
+۷:۴۰ از سمت ملارد انگار یک موشک زدن.
+
+وحید همین الان از جهانشهر کرج صدای پرتاب موشک میاد خیلی صداش شدیده.
+
+سلام وحید 7:40 صدایی شبیه به برخواستن موشک از نزدیکی مهرشهر کرج
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 341106
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341106_1780892578.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل اعلام کرد صبح دوشنبه موشک‌هایی از ایران به سمت خاک این کشور شلیک شده است و سامانه‌های دفاعی در حال رهگیری این تهدید هستند. ارتش اسرائیل از مردم خواسته وارد پناهگاه‌ها شوند و تا اطلاع بعدی در آنجا بمانند.
+
+خبرگزاری فارس، رسانه وابسته به سپاه پاسداران، نیز به نقل از منابع محلی از آغاز موج «شدید» حملات موشکی به اسرائیل خبر داد.
+https://iranintl.com/202606083591
+</div>
+
+## Shin_Persian — post 6708
+
+<div align="center">
+  <a href="telegram/content/Shin_Persian_6708_1780892578.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Mon, 08 Jun 2026 04:15:01 UTC
+
+BM launch from Bidganeh, Tehran Province, #Iran
+
+فارسی
+
+پرتاب موشک بالستیک (BM) از بیدگنه، استان تهران، #Iran_
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6707
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6707_1780892578.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Mon, 08 Jun 2026 04:13:23 UTC
+
+NOW -
+Another launch from Isfahan
+#Isfahan Province, #Iran
+
+فارسی
+
+فوری -
+پرتابی دیگر از اصفهان
+#Isfahan Province, #Iran
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 219972
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📡جهت اطلاع از بروزترین فرکانسهای ماهواره ای صدای آمریکا به این لینک مراجعه بفرمایید:
+https://ir.voanews.com/satellite
+
+📸همچنین سایر شبکه های اجتماعی ما را از لینک زیر دنبال کنید:
+https://linktr.ee/voafarsi
+
+🛜در صورتی که با کندی یا مشکل اینترنت مواجه هستید میتوانید نسخه کم حجم وبسایت ما را دنبال کنید:
+https://ir.voanews.com/lite
+</div>
+
+## Persian_Trend_Official — post 16053
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16053_1780892579.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Skies over southern Israel
+</div>
+
+## Persian_Trend_Official — post 16052
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16052_1780892579.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جنوب شرق نابلس
+</div>
+
+## Persian_Trend_Official — post 16051
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16051_1780892581.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇮🇱🇵🇸 آژیرهای هشدار قرمز در نزدیکی دی‌مونا، آراد و سایر مناطق اطراف در جنوب اسرائیل و کرانه باختری به صدا درآمده‌اند:
+
+• مرکز نگب
+• دریای مرده
+• جنوب نگب
+• یهودا
+</div>
+
+## Persian_Trend_Official — post 16050
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16050_1780892581.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یکی از موشک‌های ایرانی به یک مرکز نظامی اسرائیلی در نزدیکی نابلس اصابت کرد.
+</div>
+
+## Persian_Trend_Official — post 16049
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+المیادین به نقل از منابع خبری:
+
+در پی حمله موشکی ایران، صدای چندین انفجار مهیب و مداوم در سراسر فلسطین اشغالی شنیده شد.
+</div>
+
+## Persian_Trend_Official — post 16048
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16048_1780892582.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رهگیری موشک های ایرانی بر فراز اورشلیم
+</div>
+
+## Persian_Trend_Official — post 16047
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پرتاب موشک از بیدگنه!
+</div>
+
+## Persian_Trend_Official — post 16046
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#فوری// ارتش اسرائیل نیز تأیید کرد که نیروی هوایی این رژیم مواضع نظامی ایران را در غرب و مرکز کشور مورد هدف قرار داده است./فارس
+</div>
+
+## RadioFarda — post 158020
+
+<div align="center">
+  <a href="https://t.me/radiofarda/158020" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📻بشنوید: سرخط خبرها با رادیوفردا، ۱۸ خرداد ۱۴۰۵‌
+
+@RadioFarda
+</div>
+
+## BBCPersian — post 283138
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻 ارتش اسرائیل: ایران موشک‌هایی را به سمت این کشور شلیک کرده است
+
+ارتش اسرائیل می‌گوید موشک‌های جدیدی را رصد کرده که به تازگی از ایران به سمت خاک اسرائیل شلیک شده‌اند.
+
+اسرائیل گفته است که «سامانه‌های دفاعی در حال مقابله با تهدید هستند.»
+
+ارتش اسرائیل از مردم خواست که به دستورالعمل‌های اعلام شده عمل کنند.
+
+https://bbc.in/4agJF3S
+@BBCPersian
+</div>
+
+---
 📅 بروزرسانی: 1405/03/18 07:43
 ---
 

@@ -7,6 +7,321 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/18 11:13
+---
+
+## VahidOOnLine — post 244297
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_244297_1780904589.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی رسیده به ایران‌اینترنشنال در دوشنبه ۱۸ خرداد، دود ناشی از انفجارها را در پتروشیمی کارون واقع در منطقه ویژه اقتصادی ماهشهر پس از حملات اسرائیل نشان می‌دهد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13925
+
+<div align="center">
+  <a href="telegram/content/WithYashar_13925_1780904590.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+موقعیت دقیق لانچر پرتاب کنندهی موشک در ابهر
+@withyashar
+</div>
+
+## WithYashar — post 13924
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مسئول سیاست خارجی اتحادیه اروپا امروز از اعمال تحریم‌های بیشتر بر ایران به بهانه بسته‌بودن تنگه هرمز خبر داد.
+
+
+کالاس در گفتگو با خبرنگاران پیش از ورود به نشست غیررسمی وزیران دفاع کشورهای عضو اتحادیه اروپا در قبرس، گفت: «امروز اولین باری خواهد بود که تحریم‌های مربوط به آزادی ناوبری علیه ایران اعمال می‌شود».
+@withyashar
+</div>
+
+## mwarmonitor — post 10407
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_10407_1780904592.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ارتش اسرائیل یک حمله گسترده علیه سامانه‌های پدافندی راهبردی رژیم تروریستی ایران را تکمیل کرد
+
+🔸در دوره اخیر، سامانه‌های پدافندی در چندین منطقه مختلف در ایران مستقر شده بودند، در چارچوب تلاش رژیم برای بازسازی توانایی‌های شناسایی و دفاعی خود که در عملیات «غرش شیران» آسیب دیده بودند — این حمله منجر به انهدام این سامانه‌ها شد.
+
+🔹در عملیات «غرش شیران»، ارتش اسرائیل به‌طور عمیق به سامانه‌های پدافندی رژیم تروریستی ایران آسیب وارد کرد. حملات تکمیل‌شده به تعمیق بیشتر آزادی عمل نیروی هوایی در آسمان ایران کمک می‌کنند.
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 92869
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+منم ایفون 17 میخام😭😭
+</div>
+
+## pm_afshaa — post 92868
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+منم ایفون 17 میخام😭😭
+</div>
+
+## IranIntlTV — post 341131
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341131_1780904593.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حملات متقابل جمهوری اسلامی و اسرائیل واکنش‌های گسترده‌ای در میان مقامات و رسانه‌های ترکیه به‌همراه داشت.
+
+گفت‌وگو با نرگس هورخش، خبرنگار ایران‌اینترنشنال
+
+@iranintltv
+</div>
+
+## IranIntlTV — post 341130
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341130_1780904595.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی رسیده به ایران‌اینترنشنال در دوشنبه ۱۸ خرداد، دود ناشی از انفجارها را در پتروشیمی کارون واقع در منطقه ویژه اقتصادی ماهشهر پس از حملات اسرائیل نشان می‌دهد.
+</div>
+
+## IranIntlTV — post 341129
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341129_1780904596.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در آستانه سالروز تولد کیان پیرفلک، کودک کشته‌شده در جریان خیزش انقلابی، گروهی از ایرانیان در کانادا در یکی از خیابان‌های اصلی شهر گرد هم آمدند.
+
+گزارش سپیدار ولیان، خبرنگار ایران‌اینترنشنال
+
+@iranintltv
+</div>
+
+## DW_Farsi — post 125675
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125675_1780904597.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 کتائب حزب‌الله عراق تهدید کرد پایگاه‌های آمریکا را هدف قرار می‌دهد
+
+گروه شبه‌نظامی "کتائب حزب‌الله" عراق که از سوی جمهوری اسلامی حمایت می‌شود، تهدید کرد که حملات تازه‌ای را علیه پایگاه‌های نظامی آمریکا در منطقه انجام خواهد داد.
+
+این گروه شامگاه یکشنبه ۱۷ خرداد با انتشار بیانیه‌ای اعلام کرد در صورتی که ایالات متحده به طور مستقیم در تشدید جدید تنش‌ها میان ایران و اسرائیل دخالت کند، پایگاه‌ها و منافع آمریکا در منطقه را هدف قرار خواهد داد.
+
+پیش‌تر سایت خبری "اکسیوس" به نقل از یک مقام آمریکایی گزارش داده بود که ایالات متحده در حملات اسرائیل در بامداد دوشنبه علیه ایران دخالتی نداشته است. در همین حال روزنامه اسرائیلی "معاریو" نوشته بود که حملات ارتش این کشور علیه ایران با "هماهنگی دولت ترامپ" انجام شده است.
+
+یخیل لایتر، سفیر اسرائیل در آمریکا، پیش‌تر در پیامی در ایکس تهدید کرده بود در صورتی که حزب‌الله لبنان به سمت اسرائیل موشک شلیک کند، مراکز فرماندهی این گروه در ضاحیه بیروت به شدت هدف قرار خواهند گرفت. او نوشته بود: «این موضوع هیچ ارتباطی با ایران ندارد. همه از این رژیم دیوانه ایران به ستوه آمده‌اند.»
+
+از زمان آغاز حملات آمریکا و اسرائیل علیه ایران، گروه‌های شبه‌نظامی مورد حمایت جمهوری اسلامی در منطقه از جمله در عراق مسئولیت صدها حمله به اهدافی در منطقه از جمله حمله به تأسیسات و مراکز متعلق به آمریکا را بر عهده گرفته‌اند.
+
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 16119
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تصاویری از موج آخر حملات موشکی سپاه به سوی اسرائیل
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16118
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16118_1780904598.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سپاه: تجاوز دشمن به صنایع پتروشیمی پاسخ داده شد!
+
+روابط عمومی سپاه پاسداران انقلاب اسلامی اعلام کرد:
+
+بسم الله قاصم الجبارین
+فمن اعتدی علیکم فاعتدوا علیه بمثل ما اعتدی علیکم
+
+با استعانت از خداوند قادر متعال، رزمندگان نیروی هوا فضای سپاه پاسداران انقلاب اسلامی، در پاسخ به تجاوز دشمن آمریکایی صهیونی به یکی از صنایع پتروشیمی، دقایقی پیش صنایع مشابه در حیفا را مورد حمله موشکی قرار دادند.
+
+اخطار می کنیم؛ دشمن صهیونیستی با اقدام علیه اهداف غیر نظامی و هدف قرار دادن صنایع نفتی، بازی خطرناکی را شروع کرد، که دامنه آن کلیه اهداف انرژی منطقه را در بر خواهد گرفت و عواقب آن برای اقتصاد جهانی، بر عهده آتش افروز اصلی این میدان، آمریکا می باشد.
+
+و ما النصر الا من عند الله العزیز الحکیم
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16116
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16116_1780904598.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فیلمی از حمله به پتروشیمی ماهشهر
+</div>
+
+## idfinfarsi — post 11815
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل یک حمله گسترده علیه سامانه‌های پدافندی راهبردی رژیم تروریستی ایران را تکمیل کرد
+
+در دوره اخیر، سامانه‌های پدافندی در چندین منطقه مختلف در ایران مستقر شده بودند، در چارچوب تلاش رژیم برای بازسازی توانایی‌های شناسایی و دفاعی خود که در عملیات «غرش شیران» آسیب دیده بودند — این حمله منجر به انهدام این سامانه‌ها شد.
+
+در عملیات «غرش شیران»، ارتش اسرائیل به‌طور عمیق به سامانه‌های پدافندی رژیم تروریستی ایران آسیب وارد کرد. حملات تکمیل‌شده به تعمیق بیشتر آزادی عمل نیروی هوایی در آسمان ایران کمک می‌کنند.
+</div>
+
+## Dirty_Kids — post 391334
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391334_1780904600.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سینا ولی‌الله رقابت تنگاتنگی داره با واشقانی
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391333
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏😂 بیانیه رسمی فیفا:
+دیدار ایران و مصر قطعا دیدار افتخار همجنسگرایان خواهد بود و به هیچ عنوان این رویداد لغو نخواهد شد
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Hranews — post 113462
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کیفرخواست پرونده منصور عبدالله‌زاده صادر شد
+
+
+❗️
+❗️
+❗️
+❗️
+❗️ – پرونده قضایی منصور عبدالله‌زاده، شهروند بازداشتی اهل نقده، با صدور کیفرخواست به دادگستری این شهرستان ارجاع داده شد.
+
+ادامه مطلب
+
+#منصور_عبدالله‌زاده
+
+↘️
+@hranews_bot تماس ✉️ -  @Hranews  کانال هرانا 🆑
+</div>
+
+## alonews — post 126163
+
+<div align="center">
+  <a href="telegram/content/alonews_126163_1780904600.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سپاه : اسرائیل با هدف قرار دادن صنعت نفت و مراکز غیرنظامی ایران، وارد یک «بازی خطرناک» شده
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126162
+
+<div align="center">
+  <a href="telegram/content/alonews_126162_1780904600.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سخنگوی وزارت امور خارجه ایران: هیچ کس باور ندارد که آمریکا بتواند بدون هماهنگی کامل با آمریکا در منطقه اقدام کند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126161
+
+<div align="center">
+  <a href="telegram/content/alonews_126161_1780904601.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 کانال 12 اسرائیل: انتظار می‌رود وزیر دارایی اسرائیل، سموتریچ، استدلال کند که اسرائیل باید به جای حمله مستقیم به ایران، در لبنان در پاسخ به هر حمله ایرانی واکنش نشان دهد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126160
+
+<div align="center">
+  <a href="telegram/content/alonews_126160_1780904601.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 تصاویری از لبنان
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126159
+
+<div align="center">
+  <a href="telegram/content/alonews_126159_1780904601.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حمید رسایی:
+این اینترنت بی صاحاب رو چرا نمیبندید؟
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126158
+
+<div align="center">
+  <a href="telegram/content/alonews_126158_1780904601.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈مسئول سیاست خارجی اتحادیه اروپا امروز از اعمال تحریم‌های بیشتر بر ایران به بهانه بسته‌بودن تنگه هرمز خبر داد.
+
+
+🔴 کالاس در گفتگو با خبرنگاران پیش از ورود به نشست غیررسمی وزیران دفاع کشورهای عضو اتحادیه اروپا در قبرس، گفت: «امروز اولین باری خواهد بود که تحریم‌های مربوط به آزادی ناوبری علیه ایران اعمال می‌شود».
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126157
+
+<div align="center">
+  <a href="telegram/content/alonews_126157_1780904602.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سخنگوی وزارت خارجه: آتش‌بس به‌طور مستمر و مکرر توسط طرف‌های مقابل نقض شده است.
+
+
+🔴ما هر وقت لازم بدانیم برای دفاع از امنیت کشور اقدام خواهیم کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/18 11:03
 ---
 

@@ -7,6 +7,118 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/18 17:03
+---
+
+## VahidOOnLine — post 244366
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_244366_1780925630.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ارتش اسرائیل عصر دوشنبه اعلام کرد سامانه دفاع موشکی این کشور مشغول مقابله با پرتابه‌های شلیک شده از جنوب لبنان است.
+
+این خبر ساعتی پس از اعلام توقف حملات جمهوری اسلامی به این کشور و انتشار خبر توقف حملات نظامی اسرائیل به ایران، منتشر شد.
+
+خبرگزاری فرانسه ویدیویی از آسمان مرز اسرائیل و لبنان و مقابله سامانه دفاع موشکی با پرتابه‌های حزب‌الله را منتشر کرده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## mwarmonitor — post 10469
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سازمان امداد اسرائیل (MDA) از مردم خواسته است در پی کمبود خون، به‌ویژه گروه خونی O، برای اهدای خون اقدام کنند. مراکز اهدای خون اضطراری امروز در حیفا، اورشلیم (قدس)، ریشون لتسیون و چند شهر دیگر برگزار می‌شود — به نقل از شبکه ۱۲.
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 92921
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92921_1780925630.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نیویورک تایمز به نقل از دو مقام نظامی اسرائیلی: نتانیاهو به ارتش اسرائیل دستور داد مقدمات حمله جدید به ایران رو متوقف کنه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## Persian_Trend_Official — post 16193
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16193_1780925631.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚫هم اکنون شهر صور، جنوب لبنان
+</div>
+
+## Persian_Trend_Official — post 16192
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال ۱۲ اسرائیل از یک مقام ارشد اسرائیلی نقل کرده است که: «اسرائیل در پاسخ به درخواست رئیس جمهور آمریکا حملات خود علیه ایران را متوقف می‌کند اما حملات به جنوب لبنان همچنان با تمام قدرت ادامه خواهد داشت. او اضافه کرده است که اگر حملات به شهرک‌های اسرائیلی و غیرنظامیان ادامه پیدا کند، اسرائیل به ضاحیه بیروت نیز حمله خواهد کرد.»
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Dirty_Kids — post 391382
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏کلا هر وقت اینترنت قطع نشد یعنی مساله انقدرها جدی نیست.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 126286
+
+<div align="center">
+  <a href="telegram/content/alonews_126286_1780925632.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / سی‌بی‌اس به نقل از مقام آمریکایی : دولت ترامپ دستور داده هیچ اقدام دفاعی برای محافظت از اسرائیل در برابر موشک‌های ایران انجام نشه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126285
+
+<div align="center">
+  <a href="telegram/content/alonews_126285_1780925632.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نخست وزیر پاکستان: ما با شرکای خود سخت تلاش می‌کنیم تا یک راه حل دیپلماتیک صلح‌آمیز برای این درگیری پیدا کنیم، زیرا به هدف نهایی نزدیک می‌شویم.
+
+
+🔴ما صمیمانه از همه طرف‌ها می‌خواهیم که خویشتنداری کنند و به صلح فرصت بهتری بدهند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126284
+
+<div align="center">
+  <a href="telegram/content/alonews_126284_1780925632.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سفیر آمریکا در لبنان پس از دیدار با نبیه بری: آتش‌بس برقرار خواهد شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/18 16:53
 ---
 

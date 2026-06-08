@@ -7,6 +7,222 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/18 14:53
+---
+
+## kianmeli1 — post 87791
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+-هموطنان از شمال برگردید ..
+</div>
+
+## kianmeli1 — post 87790
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴قرارگاه خاتم
+
+جنگ ۱۲ ساعته به پایان رسید
+https://t.me/+_a5ind9hr7sxOTE0
+</div>
+
+## Shin_Persian — post 6747
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6747_1780917812.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔁 Quoting above tweet:
+Shin ✓ @hey_itsmyturn
+Mon, 08 Jun 2026 11:21:18 UTC
+
+Coords:
+35.30647, 51.14114 (~ 7km SW of Shamsabad Industrial Town)
+Tehran Province, #Iran
+
+فارسی
+
+مختصات:
+35.30647, 51.14114 (~ ۷ کیلومتری جنوب غربی شهرک صنعتی شمس‌آباد)
+استان تهران، #Iran
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6746
+
+<div align="center">
+  <a href="telegram/content/Shin_Persian_6746_1780917812.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet: Shin ✓ @hey_itsmyturn Mon, 08 Jun 2026 10:32:22 UTC #IDF 🇮🇱: "First color documentation from the attacks in Iran: The IDF destroyed Iranian terror regime air defense systems a short time ago The Air Force completed a short time ago an attack…
+</div>
+
+## Shin_Persian — post 6745
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+Shin ✓ @hey_itsmyturn
+Mon, 08 Jun 2026 10:32:22 UTC
+
+#IDF 🇮🇱:
+"First color documentation from the attacks in Iran: The IDF destroyed Iranian terror regime air defense systems a short time ago
+
+The Air Force completed a short time ago an attack sortie against air defense systems of the Iranian terror regime in western and central
+
+↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
+
+فارسی
+
+#IDF 🇮🇱:
+«اولین مستندات رنگی از حملات در ایران: ارتش دفاعی اسرائیل (IDF) ساعتی پیش سیستم‌های پدافند هوایی رژیم تروریستی ایران را منهدم کرد.
+
+نیروی هوایی ساعاتی قبل یک سورتی حمله علیه سیستم‌های پدافند هوایی رژیم تروریستی ایران در غرب و مرکز را به پایان رساند.»
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 220016
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220016_1780917814.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نواف سلام، نخست‌وزیر لبنان، گفت اسرائیل از زمان اعلام آتش‌بس با میانجیگری آمریکا در ۱۶ آوریل، نزدیک به سه هزار و ۵۰۰ حمله هوایی به لبنان انجام داده است.
+
+به گزارش رویترز، سلام پس از نشست کابینه لبنان گفت اسرائیل از ۱۷ آوریل تا ۷ ژوئن، سه هزار و ۴۹۱ حمله هوایی، ۴۰۷ انفجار کنترل‌شده و شش عملیات تخریب در لبنان انجام داده است.
+
+این عملیات‌ها به گفته او، بخش‌هایی از برخی روستاهای جنوب لبنان را کاملاً ویران کرده است.
+
+ارتش اسرائیل به درخواست رویترز برای اظهار نظر در این باره پاسخ نداد.
+
+آتش‌بس اعلام‌شده با میانجیگری آمریکا، حملات هوایی به بیروت و حومه آن را تا حد زیادی متوقف کرده، اما نتوانسته درگیری‌ها در جنوب لبنان میان اسرائیل و حزب‌الله مورد حمایت جمهوری اسلامی را پایان دهد.
+
+سلام گفت لبنان برای پایبندی به آتش‌بس تلاش می‌کند، اما تشدید تازه درگیری میان جمهوری اسلامی و اسرائیل موج‌های جدیدی از آوارگی ایجاد کرده و توان لبنان برای میزبانی از خانواده‌های فراری را تحت فشار گذاشته است.
+
+جمهوری اسلامی به بهانه حمله اسرائیل به مواضع حزب‌الله، از شب گذشته اقدام به حملات موشکی به اسرائیل کرده است.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220015
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺ترامپ: اسرائیل و جمهوری اسلامی به دنبال آتش‌بس فوری هستند
+
+◾️دونالد ترامپ، رئیس‌جمهوری آمریکا، اعلام کرد که هم اسرائیل و هم جمهوری اسلامی به دنبال «برقراری فوری آتش‌بس» هستند و مذاکرات نهایی درباره «صلح» در حال پیشرفت است.
+
+◾️پرزیدنت ترامپ یادآور شد: «هر دو طرف، اسرائیل و ایران، به دنبال برقراری فوری آتش‌بس هستند. مذاکرات نهایی «صلح» در حال پیشرفت است، مشروط بر اینکه نادانی یا حماقت مانع آن نشود.»
+
+◾️او با این حال تأکید کرد که «محاصره همچنان برقرار خواهد ماند و تا زمان دستیابی به یک «توافق نهایی»، با تمام قدرت و به طور کامل اجرا خواهد شد.»
+
+◾️ساعتی پیش از این پیام، رئیس‌جمهوری آمریکا در پیام قاطع دیگری خواستار توقف فوری جنگ میان اسرائیل و جمهوری اسلامی شده بود.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8158501.html
+</div>
+
+## RadioFarda — post 158051
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸بقایای موشکی که صبح دوشنبه ۱۸ خرداد از ایران به سمت اسرائیل شلیک شد، در منطقه‌ای غیرمسکونی در کرانه باختری در نزدیکی شهر اریحا، سقوط کرد.
+
+🔸تصاویری که رویترز منتشر کرده است، شهرک‌نشینان اسرائیلی را در کنار بقایای موشک که بخشی از آن در زمین دفن شده بود، دیده شدند.
+
+🔸قرارگاه مرکزی خاتم‌الانبیا روز دوشنبه مدعی شد که سپاه پاسداران، «ضربات سنگینی به اهداف مهم و حساس» در اسرائیل وارد کرده است.
+
+🔸سخنگوی این قرارگاه گفته «در موج جدید اقدامات علیه اهداف مهم و حساس در سرزمین‌های اشغالی، دشمن با دریافت ضربات سنگین، هدفمند، هوشمندانه و خسارت‌بار، عملیات هجومی و موفقی را از سوی نیروهای قدرتمند جمهوری اسلامی ایران تجربه کرد.»
+
+🔸او اشاره‌ای به جزئیات در این زمینه نکرده است.
+
+🔸پیشتر روابط عمومی سپاه پاسداران هم در بیانیه‌ای مدعی شد که به یکی از صنایع پتروشیمی اسرائیل در حیفا حمله موشکی کرده است.
+
+🔸با این حال این قرارگاه هشدار داده که «در صورت تداوم تجاوز و شرارت، با شدت بیشتری با آنها برخورد خواهد شد.»
+
+🔸ارتش اسرائیل صبح دوشنبه اعلام کرد شلیک شمار دیگری موشک از مبداء ایران را شناسایی کرده است.
+
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 21828
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فوری ، سپاه پاسداران :
+
+عملیات‌مون پایان یافت و دیگه حمله ای نمیکنیم، ولی اخطار میدیم دشمن مواظب باشه
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21827
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21827_1780917815.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+@IranianMinds
+</div>
+
+## alonews — post 126252
+
+<div align="center">
+  <a href="telegram/content/alonews_126252_1780917815.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈عوستاد خوش چشم: جنگ ادامه داره
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126251
+
+<div align="center">
+  <a href="telegram/content/alonews_126251_1780917815.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚫
+🏆 به دنیای هیجان‌انگیز فوتبال خوش اومدی!
+
+
+⭐️اینجا قراره باهم لحظه‌به‌لحظه‌ی جام جهانی رو زندگی کنیم؛
+از بازی‌های حساس و نتایج داغ گرفته تا حاشیه‌ها، کری‌خونی‌ها و اتفاقاتی که همه درباره‌ش حرف میزنن! 
+🔥
+🔥
+
+
+✅ پوشش کامل مسابقات
+
+💀ترول تیم‌ها و بازیکن‌ها
+
+🎥ویدیوها و لحظه‌های فان فوتبالی
+
+📊آمار، ترکیب‌ها و اخبار فوری
+
+🌍حواشی جذاب از سراسر جام جهانی
+
+
+📢اینجا فقط یک کانال خبری نیست؛
+یک جمع فوتبالیه برای کسایی که فوتبال رو با هیجان، شوخی و احساس واقعی دنبال میکنن 
+📛
+💟
+
+
+🆘
+🔞 آماده باش چون قراره جام جهانی رو متفاوت تجربه کنیم!
+
+
+⚡ @Vaarzesh_Plus
+
+⚡ @Vaarzesh_Plus
+</div>
+
+---
 📅 بروزرسانی: 1405/03/18 14:48
 ---
 

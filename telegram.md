@@ -7,6 +7,272 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/18 15:54
+---
+
+## VahidOOnLine — post 244354
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244354_1780921449.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دولت عراق روز دوشنبه ۱۸ خرداد و دقایقی پس از اعلامیه پایان عملیات نظامی سپاه علیه اسرائیل، آسمان خود را بازگشایی کرد.
+عراق شامگاه یکشنبه و اندکی پس از بسته شدن حریم هوایی ایران پیش از آغاز حملات موشکی به اسرائیل، آسمان خود را به روی پروازهای بین‌المللی بست.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244353
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244353_1780921450.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امیر حاتمی، فرمانده کل ارتش جمهوری اسلامی، گفت: «مسئولیت حملات اسرائیل برعهده آمریکا است و در صورت تکرار «شرارت‌های دشمن»، اقدامات ما شدیدتر خواهد شد. »
+
+او افزود: «دشمن در حالی که میانجی گفت‌وگوها در ایران حضور داشت، بار دیگر با عهدشکنی و نقض تمامیت آتش‌بس ثابت کرد به هیچ وجه به آتش‌بس و توافق پای‌بند نیست.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## mwarmonitor — post 10464
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴منبع آمریکایی به CBS: ارتش آمریکا در حملات به ایران مشارکت نداشته است و ترامپ نیز هیچ دستوری برای انجام عملیات یا حمایت دفاعی از اسرائیل در برابر حملات موشکی ایران صادر نکرده است.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10463
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_10463_1780921451.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨آژیرهای هشدار در کریات شمونه و اطراف آن پس از حمله حزب‌الله به صدا درآمد. @mwarmonitor
+</div>
+
+## mwarmonitor — post 10462
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴بحرین در بحبوحه افزایش تنش‌ها در خلیج فارس، یک مانور تخلیه در سراسر پل ملک فهد برگزار می‌کند – وزارت دفاع
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10461
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴حملات هوایی به جنوب لبنان @mwarmonitor
+</div>
+
+## pm_afshaa — post 92911
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92911_1780921452.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴حزب‌الله هم حمله موشکی کرد به سمت اسرائیل و آژیرها فعال شد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92909
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92909_1780921453.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴هم‌اکنون جنوب لبنان :
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 341177
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341177_1780921454.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امیر حاتمی، فرمانده کل ارتش جمهوری اسلامی، گفت: «مسئولیت حملات اسرائیل برعهده آمریکا است و در صورت تکرار «شرارت‌های دشمن»، اقدامات ما شدیدتر خواهد شد. »
+
+او افزود: «دشمن در حالی که میانجی گفت‌وگوها در ایران حضور داشت، بار دیگر با عهدشکنی و نقض تمامیت آتش‌بس ثابت کرد به هیچ وجه به آتش‌بس و توافق پای‌بند نیست.»
+https://iranintl.com/202606082067
+</div>
+
+## IranIntlTV — post 341176
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341176_1780921455.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رافائل گروسی در پاسخ به پرسش ایران‌اینترنشنال درباره احتمال دستیابی تهران و واشینگتن به توافقی خارج از چارچوب نظارتی آژانس گفت: «دو کشور می‌توانند هر توافقی که می‌خواهند داشته باشند، اما امیدوارم چنین کاری نکنند.»
+
+جزییات این نشست در گفت‌وگو با احمد صمدی، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## FarsiVOA — post 220024
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺گزارش‌ها از حمله به یک شناور در نزدیکی عمان؛ درخواست کمک فوری ۲۴ دریانورد هندی
+
+◾️گزارش‌ها حاکی است ۲۴ دریانورد هندی سوار بر شناوری که ظاهراً در نزدیکی سواحل عمان هدف حمله قرار گرفته است، خواستار کمک فوری شده‌اند.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/indian-seafarers-seek-urgent-rescue/8158511.html
+</div>
+
+## Persian_Trend_Official — post 16181
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تصاویری از بمباران شدید امروز جنوب لبنان
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16180
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16180_1780921458.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آژیر خطر حملات راکتی در کریات شمونا و متولا در پی حمله راکتی حزب‌الله به صدا درآمد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16179
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16179_1780921458.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امروز در کنار حملات موشکی سپاه پاسداران به اسرائیل، مقر گروهک های تجزیه طلب در کردستان عراق مورد حمله پهپادی سپاه واقع شد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 21843
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 حزب الله ۵ موشک دیگه شلیک کرد به سمت شمال اسرائیل @IranianMinds
+</div>
+
+## IranianMinds — post 21842
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حزب الله حمله ی موشکی کرد به سمت اسرائیل @IranianMinds
+</div>
+
+## IranianMinds — post 21841
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 حملات شدید جنگنده های اسرائیلی به لبنان
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21840
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ارتش اسرائیل مناطق بابلیه، کوثریه‌الروز، زراریه، عرب‌سلیم، خربه‌الدویر و برج‌الشمالی در جنوب لبنان را هدف قرار داده است
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21839
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک‌ روز‌ کاملا عادی در خاورمیانه
+
+مدت زمان صلح : ۵ دقیقه
+</div>
+
+## IranianMinds — post 21838
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21838_1780921461.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حزب الله حمله ی موشکی کرد به سمت اسرائیل
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21837
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ارتش اسرائیل همزمان داره ۴ منطقه در‌ جنوب لبنان رو بمباران میکنه
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 283177
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🖊 لین برون، بی‌بی‌سی
+
+🔻 شی جین‌پینگ، رهبر چین، پس از آنکه در هفته‌های گذشته به طور متوالی میزبان رهبران دیگر کشورها بود، این هفته خود راهی سفری خارجی شده و مقصدش کره شمالی است.
+
+این دیدار که برای روزهای ۸ و ۹ ژوئن برنامه‌ریزی شده و از مدت‌ها پیش انتظار آن می‌رفت، پس از دیدار ماه گذشته شی با ولادیمیر پوتین، رئیس‌جمهور روسیه، و گفت‌وگوی رودرروی او با دونالد ترامپ، رئیس‌جمهور آمریکا، برگزار می‌شود.
+
+شی جین‌پینگ با سفر مستقیم به پیونگ‌یانگ پس از این دیدارها و انتخاب کره شمالی به‌عنوان نخستین مقصد خارجی خود در سال ۲۰۲۶، بر اهمیت اتحاد با همسایه غیرقابل‌پیش‌بینی‌اش تاکید می‌کند.
+
+اون جو چوی، پژوهشگر موسسه سجونگ در سئول، می‌گوید رابطه این دو کشور «از نظر راهبردی ضروری، اما خالی از اصطکاک نیست».
+
+این دیدار، فراتر از تعاملات عمومی کاملا برنامه‌ریزی‌شده، به پکن و پیونگ‌یانگ فرصتی می‌دهد تا پس از گذشته‌ای پرفراز و نشیب، به شراکت خود که «با خون شکل گرفته» است، جانی تازه ببخشند.
+
+بیشتر بخوانید:
+https://bbc.in/4uPXbno
+📸GettyImages/ Reuters/ AFP via Getty Images/ KCNA via Reuters
+@BBCPersian
+</div>
+
+## alonews — post 126266
+
+<div align="center">
+  <a href="telegram/content/alonews_126266_1780921461.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کانال ۱۲:
+آژیر خطر در کریات شمونا و حومه آن در شمال اسرائیل
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/18 15:43
 ---
 

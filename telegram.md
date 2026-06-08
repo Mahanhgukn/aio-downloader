@@ -7,6 +7,342 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/18 19:03
+---
+
+## WithYashar — post 14037
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نتانیاهو: همانطور که به دوست خودم ترامپ میگم: ما اسرائیل رو با عزم و هوشمندی دفاع خواهیم کرد و با هم امنیت رو به شمال اسرائیل بازخواهیم گرداند.
+@withyashar
+</div>
+
+## WithYashar — post 14036
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نتانیاهو: ایران نمیتونه معادلات رو به ما تحمیل کنه. من این موضع رو تأیید میکنم. پس از اینکه حزب‌الله به اسرائیل شلیک کرد، ما به بیروت حمله کردیم. و پس از اینکه ایران به اسرائیل حمله کرد، ما به مناطق دیگری در ایران حمله کردیم.
+@withyashar
+</div>
+
+## WithYashar — post 14035
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نتانیاهو: در حال حاضر آتش در جبهه ایران محصور است، زیرا پس از اینکه رژیم تروریستی در تهران آماده شد، دیگر به ما حمله نکرد. اگر دوباره به ما حمله کند - با قدرت پاسخ خواهیم داد
+@withyashar
+</div>
+
+## WithYashar — post 14034
+
+<div align="center">
+  <a href="telegram/content/WithYashar_14034_1780932804.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نخست‌وزیر اسرائیل، بنیامین نتانیاهو:
+
+اگر رژیم جمهوری اسلامی اشتباه کند و حملات خود را علیه ما از سر بگیرد، ما به شدت پاسخ خواهیم داد، زیرا اسرائیل حق دفاع از خود را دارد و ما این حق را حفظ خواهیم کرد.
+@withyashar
+</div>
+
+## pm_afshaa — post 92941
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92941_1780932806.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نتانیاهو: ایران و حزب‌الله امروز از هر زمان دیگه‌ای ضعیف‌ترن و اسرائیل از همیشه قوی‌تره، اما کارزار ما علیه اون‌ها هنوز تموم نشده. تو 24 ساعت گذشته، ایران و حزب‌الله سعی کردن قواعد جدیدی به ما تحمیل کنن، اما من این موضوع رو نمی‌پذیرم. همون‌طور که سال‌هاست انجام دادم، روی حق اسرائیل برای پاسخ دادن به این حملات پافشاری می‌کنم.
+
+و اگه ایران دوباره اشتباه کنه و حملاتش رو از سر بگیره، با قدرت بهش پاسخ خواهیم داد، اسرائیل حق دفاع از خودش رو داره و این حق رو حفظ خواهد کرد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92940
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92940_1780932806.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نتانیاهو: همانطور که به دوست خودم ترامپ میگم: ما اسرائیل رو با عزم و هوشمندی دفاع خواهیم کرد و با هم امنیت رو به شمال اسرائیل بازخواهیم گرداند.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92939
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92939_1780932807.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نتانیاهو: ایران نمیتونه معادلات رو به ما تحمیل کنه. من این موضع رو تأیید میکنم. پس از اینکه حزب‌الله به اسرائیل شلیک کرد، ما به بیروت حمله کردیم. و پس از اینکه ایران به اسرائیل حمله کرد، ما به مناطق دیگری در ایران حمله کردیم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## VahidOnline — post 76072
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76072_1780932807.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسرائیل هشدار تخلیه فوری برای مناطقی از لبنان صادر کرده.
+J74wabx
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 76071
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76071_1780932807.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shah_yakh
+(بحث وطنه*)
+📡 @VahidOnline
+</div>
+
+## kianmeli1 — post 87810
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴لغو تمام پروازهای کشور تا اطلاع ثانوی
+
+شرکت فرودگاه‌ها و ناوبری هوایی ایران:
+
+در پی صدور اطلاعیه رسمی هوانوردی (NOTAM) توسط سازمان هواپیمایی کشوری مبنی بر بسته‌شدن فضای پروازی غرب کشور، تمامی پروازهای فرودگاه‌های سراسر کشور تا اطلاع ثانوی لغو شده و انجام نخواهد شد.
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87809
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نتانیاهو:
+
+نظام ایران پس از پاسخ ما عقب‌نشینی کرد و اگر اشتباهش را تکرار کند با شدت پاسخ خواهیم داد
+https://t.me/kianmeli1
+</div>
+
+## Shin_Persian — post 6757
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6757_1780932808.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+افيخاي ادرعي ✓ @AvichayAdraee Mon, 08 Jun 2026 15:23:06 UTC #عاجل ‼️إنذار عاجل إلى سكان لبنان وتحديدًا سكان زقوق المفدي 🔸في ضوء قيام حزب الله الارهابي بخرق اتفاق وقف اطلاق النار يضطر جيش الدفاع للعمل ضده بقوة. جيش الدفاع لا ينوي المساس بكم. 🔸حرصًا على…
+</div>
+
+## Shin_Persian — post 6756
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+افيخاي ادرعي ✓ @AvichayAdraee
+Mon, 08 Jun 2026 15:23:06 UTC
+
+#عاجل ‼️إنذار عاجل إلى سكان لبنان وتحديدًا سكان زقوق المفدي
+
+🔸في ضوء قيام حزب الله الارهابي بخرق اتفاق وقف اطلاق النار يضطر جيش الدفاع للعمل ضده بقوة. جيش الدفاع لا ينوي المساس بكم.
+
+🔸حرصًا على سلامتكم عليكم إخلاء منازلكم فوراً والانتقال الى شمال نهر الزهراني.
+
+🔸كل من يتواجد بالقرب من عناصر حزب الله ومنشآته ووسائله القتالية يعرّض حياته للخطر!
+
+English
+
+#Urgent ‼️ Urgent warning to the residents of Lebanon, specifically the residents of Zqouq al-Mufdi
+
+🔸In light of the terrorist Hezbollah's violation of the ceasefire agreement, the IDF (Israel Defense Forces) is compelled to act against it forcefully. The IDF does not intend to harm you.
+
+🔸For your safety, you must evacuate your homes immediately and move north of the Zahrani River.
+
+🔸Anyone located near Hezbollah members, their facilities, or their combat equipment is putting their life at risk!
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 220035
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220035_1780932808.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی منتشر شده در شبکه‌های اجتماعی گذر موشک جمهوری اسلامی را از آسمان ملارد در بامداد دوشنبه ۱۸ خرداد نشان می‌دهد.
+</div>
+
+## Persian_Trend_Official — post 16206
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16206_1780932810.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حمله به یک نفتکش مربوط به ایران توسط آمریکا
+
+خبرگزاری CNN گزارش می‌دهد روز دوشنبه نیروی دریایی آمریکا یک کشتی را در سواحل عمان هدف قرار داده است. این کشتی، نفتکش Marivex است که به‌ عنوان یک نفتکش Handymax طبقه‌بندی می‌شود و در دسامبر 2025 به‌دلیل حمل محموله‌های نفتی ایران تحت تحریم وزارت خزانه‌داری آمریکا قرار گرفت.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16205
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تا دقایقی دیگه لایو جمعبندی بیانیه قرارگاه خاتم آغاز میشه
+</div>
+
+## Persian_Trend_Official — post 16204
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16204_1780932811.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بنیامین نتانیاهو، نخست وزیر اسرائیل: اگر ایران اشتباه کند و حملات خود را علیه ما از سر بگیرد، ما با قدرت پاسخ خواهیم داد، زیرا اسرائیل حق دفاع از خود را دارد و ما این حق را حفظ خواهیم کرد.
+
+همانطور که به دوستم رئیس جمهور ترامپ می‌گویم: ما با قاطعیت و با درایت از اسرائیل دفاع خواهیم کرد و با هم امنیت را به شمال اسرائیل باز خواهیم گرداند.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16203
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16203_1780932812.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بنیامین نتانیاهو، نخست وزیر اسرائیل: ایران و حزب الله از همیشه ضعیف‌تر و ما از همیشه قوی‌تر هستیم. اما مبارزه ما علیه آنها هنوز تمام نشده است.
+
+در طول 24 ساعت گذشته، ایران و حزب الله سعی کردند معادله جدیدی را به ما تحمیل کنند. این معادله برای من غیرقابل قبول است.
+
+همانطور که دهه‌هاست انجام داده‌ام، من قاطعانه بر حق خود برای پاسخ به چنین حملاتی پافشاری می‌کنم.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16202
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16202_1780932813.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بنیامین نتانیاهو، نخست وزیر اسرائیل: اسرائیل شبانه یک حمله تاریخی برای جلوگیری از حمله هسته‌ای به اسرائیل(اشاره به عملیات طلوع شیران)انجام داد.
+
+من تعهد خود را تکرار می‌کنم: ایران سلاح هسته‌ای نخواهد داشت. ما همین عزم را علیه حزب‌الله نیز داشتیم.
+
+حزب‌الله قصد داشت با هزاران تروریست به جلیله حمله کند و همزمان قصد داشت شهرهای اسرائیل را با 150 هزار موشک و راکت نابود کند.
+
+رزمندگان شجاع ما در حال نابودی حزب‌الله هستند.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16201
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سازمان عملیات تجارت دریایی انگلیس از وقوع حادثه در 15 مایل دریایی شمال شرق جزیره مصیره در کشور عمان خبر داد که طی آن یک نفتکش دچار آتش سوزی شد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## RadioFarda — post 158062
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_158062_1780932815.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸شهباز شریف، نخست وزیر پاکستان و میانجی اصلی در مذاکرات ایران و آمریکا، روز دوشنبه در پیامی با اشاره به این که هدف نهایی این مذاکرات در دسترس است از طرفین خواستار خویشتن‌داری و ادامه روند دیپلماسی شد.
+
+🔸ساعتی پس از آن که سپاه پاسداران از توقف حملات به اسرائیل خبر داد، نخست وزیر پاکستان در شبکه ایکس نوشت: «حال که... بالاخص هدف نهایی نزدیک به دستیابی است، خالصانه از همه طرف‌ها می‌خواهیم که خویشتن‌داری پیشه کنند و به صلح فرصتی دیگر بدهند.»
+
+🔸به گفته شهباز شریف، بالا گرفتن دوباره خشونت در خاورمیانه در شب گذشته «یادآور خطراتی است که آتش‌بسی شکننده با خود دارد و عواقب تحمل‌ناپذیری که می‌تواند به همراه داشته باشد».
+
+🔸این پیام تأیید پیامی است که ساعتی پیش دونالد ترامپ در شبکه اجتماعی خود منتشر کرد.
+
+🔸او اندکی پس از آنکه در شبکه اجتماعی خود از دو کشور خواست فوراً حملات متقابل به یکدیگر را متوقف کنند، بار دیگر نوشت: «مذاکرات نهایی برای دستیابی به صلح در جریان است؛ مگر آنکه ناآگاهی یا حماقت مانع آن شود.»
+
+
+@RadioFarda
+</div>
+
+## alonews — post 126319
+
+<div align="center">
+  <a href="telegram/content/alonews_126319_1780932815.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نتانیاهو: فعلاً از حمله به ایران خودداری می‌کنیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126318
+
+<div align="center">
+  <a href="telegram/content/alonews_126318_1780932815.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 نتانیاهو: اگر ایران اشتباه کند و حملات خود را علیه ما از سر بگیرد، ما با قدرت پاسخ خواهیم داد، زیرا اسرائیل حق دفاع از خود را دارد و ما از این حق دفاع خواهیم کرد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126317
+
+<div align="center">
+  <a href="telegram/content/alonews_126317_1780932817.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 نتانیاهو: ایران و حزب‌الله از همیشه ضعیف‌ترند و ما از همیشه قوی‌تر.
+
+
+🔴کارزار ما علیه آنها هنوز تمام نشده است.
+
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126316
+
+<div align="center">
+  <a href="telegram/content/alonews_126316_1780932818.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نتانیاهو: حزب‌الله قصد داشت با هزاران تروریست به جلیله حمله کند و همزمان با آن، قصد داشت شهرهای اسرائیل را با ۱۵۰ هزار موشک و راکت نابود کند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/18 18:53
 ---
 

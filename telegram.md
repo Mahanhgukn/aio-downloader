@@ -7,6 +7,111 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/19 02:12
+---
+
+## WithYashar — post 14091
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رئیس‌جمهور ترامپ درباره لیندزی گراهام:
+
+او برجسته است. مدت‌ها در کنار من بوده است.
+ما ابتدا مدت‌ها پیش بر سر موضوع کاندیداتوری با هم مبارزه کردیم. او کاندیدا بود و من هم کاندیدا بودم، و ما مبارزه کردیم، و من شروع کردم به این که بفهمم او فردی بسیار بااستعداد است.
+بعد از آن مبارزه، ما بهترین دوستان شدیم و او به من به اندازه هر کسی در سنا کمک کرده است.
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342731
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342731_1780958562.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+“There are people in the United States Senate right now who are not saints.”
+
+Sen. Bernie Sanders explained why he's backing Democratic Maine Senate candidate Graham Platner despite a growing list of scandalous allegations plaguing his campaign.
+
+Sanders pointed to Platner's struggles with PTSD and the treatment he has received to rebuild his life.
+
+The former presidential candidate also said that many of the lawmakers judging Platner have their own imperfections.
+</div>
+
+## DEJradio — post 5486
+
+<div align="center">
+  <img src="telegram/content/DEJradio_5486_1780958565.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💀
+🚨 منابع موثق به دژ می‎گویند در حملات اسرائیل به تأسیسات نظامی جمهوری اسلامی که روز دوشنبه ۱۸ خرداد ۱۴۰۵ روی داد دو پرسنل نیروی پدافند ارتش کشته شدند.
+
+بهمن حسینی و علیرضا عبیری عضو یگان ترابری بودند که موقعیت آنها لو رفته است. هر دو نفر اقدام به تغییر موقعیت می‌کنند که مورد اصابت موشک قرار می‌گیرند. هنوز مشخص نیست موشک‌ها از پهپاد شلیک شده یا دورایستا بودند.
+
+خبر کشته شدن این دو نفر رسانه‌ای نشد تا حکومت مجبور به انتقام فوری نشود.
+
+پیش‌تر چهار عضو سـ.ـپاه پاسداران در حمله آمریکا به قایق‌های تندرو در تنگه هرمز کشته شدند و خبر آن رسانه‌ای نشده بود.
+
+#ارتش #جنگ
+@DEJradio
+</div>
+
+## IranIntlTV — post 341260
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341260_1780958565.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مئیر جاودانفر، تحلیل‌گر مسائل اسرائیل، گفت: «حزب‌الله سرباز نظام ولایت فقیه است که از خاک لبنان برای عملیات علیه اسرائیل استفاده می‌کند. موثرترین راه بازدارندگی، حمله به زیرساخت‌های نظامی جمهوری اسلامی در داخل ایران است، نه صرفا هدف قرار دادن نیروهای نیابتی آن در کشورهای منطقه.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 341259
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341259_1780958567.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علیرضا نامور حقیقی، تحلیل‌گر سیاسی، درباره اظهارات اسماعیل قاآنی درباره عملیاتی شدن آنچه «کمربند امنیتی مقاومت» از تنگه هرمز تا باب‌المندب نامیده، گفت: «این اقدام بیش از آنکه به طرف مقابل ضربه‌ای راهبردی وارد کند، می‌تواند هزینه‌های سیاسی، اقتصادی و امنیتی بیشتری برای خود جمهوری اسلامی ایجاد کند.»
+
+او افزود: «تجربه تاریخی نیز نشان داده است که هرگاه نظم تجارت جهانی در معرض تهدید قرار گیرد، اجماع بین‌المللی برای مقابله با آن با سرعت بیشتری شکل می‌گیرد.»
+@iranintltv
+</div>
+
+## Persian_Trend_Official — post 16240
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16240_1780958570.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ گزارش: آمریکا مخفیانه نیروهای لشکر ۸۲ هوابرد را به اسرائیل اعزام کرده بود
+
+کن کلیپنستین گزارش داده است که آمریکا در فروردین‌ماه به‌صورت محرمانه بخشی از نیروهای لشکر ۸۲ هوابرد را به اسرائیل اعزام کرده بود.
+بر اساس این گزارش، نیروهایی از گردان دوم هنگ ۵۰۱ پیاده‌نظام موسوم به «جرونیمو» با دستور موقت به اسرائیل منتقل شدند، اما پنتاگون هرگز این استقرار را به‌طور رسمی اعلام نکرد.
+در این گزارش ادعا شده که این نیروها در چارچوب طرح‌های مشترک آمریکا و اسرائیل برای سناریوهای احتمالی مرتبط با ایران به منطقه اعزام شده‌اند و بخشی از آنها همچنان در اسرائیل حضور دارند.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## alonews — post 126420
+
+<div align="center">
+  <a href="telegram/content/alonews_126420_1780958570.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ دربارهٔ ایران:
+«ما الان داریم مذاکره می‌کنیم، و آنها می‌خواهند یک توافق بسیار خوب انجام دهند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/19 02:02
 ---
 

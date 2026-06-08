@@ -7,6 +7,77 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/19 03:22
+---
+
+## IranianMinds — post 21888
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21888_1780962769.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اگه شک دارید اینا ایرانی باشن
+
+اینو ببینید.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21887
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21887_1780962772.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🕔 انتظارها به پایان رسید
+
+📃 از سایت وینرو رونمایی شد.
+معتبرترین سایت ایرانی
+
+🤩
+🤩
+🤩
+🤩 بونوس اضافه به ازای اولین واریز 
+💰
+
+🔴فرصت تکرارنشدنی به مناسبت افتتاحیه
+🔴
+
+⚡️هر چقدر شارژ کنی، بیشتر هدیه می‌گیری
+⚡️
+
+🔴تا سقف ۳ میلیون تومان
+🔴
+
+⌛ فقط برای مدت محدود
+
+
+💣بالاترین بونوس‌ها فقط در سایت وینرو
+
+پیش بینی کن و برنده شو
+🎯
+
+
+📺 تلویزیون لایو برای پوشش بازی ها
+
+🛍بالاترین ضرایب ممکن
+و هزاران امکانات خاص دیگه
+💰
+
+
+🎰 همین الان وارد شو و با اولین شارژ تا ۲۰۰ درصد شارژ اضافه از ما هدیه بگیر
+
+🔤 Winro.io         معتبرترین سایت ایران
+
+🔤 Winro.io
+
+📱 کانال اخبار و هدایــا ea18
+🌟
+
+📱 @winro_io
+</div>
+
+---
 📅 بروزرسانی: 1405/03/19 03:12
 ---
 

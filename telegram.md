@@ -7,6 +7,438 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/18 12:35
+---
+
+## VahidOOnLine — post 244311
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244311_1780909524.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دفتر بنیامین نتانیاهو، نخست‌ وزیر اسرائیل اعلام کرد که این کشور در پاسخ به پرتاب موشک از سوی جمهوری اسلامی، اهدافی را در داخل ایران هدف قرار داده است.
+
+در این بیانیه تاکید شده که اسرائیل از نظر دفاعی و تهاجمی در وضعیت آماده‌باش بالا قرار دارد.
+iranintl
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13964
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روسیا الیوم نوشت: ترامپ به پیاده کردن نیروهای ویژه در ایران تهدید کرد.
+@withyashar
+</div>
+
+## WithYashar — post 13963
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرهایی پخش شده از حمله به ایست بازرسی ولی هیچ گزارش مردمی در این رابطه به دستم نرسیده. به نظر من این خبر فیک برای توجه یا امید واهی است، فعلاً! ولی حتماً شروع و انجام خواهد شد.
+@withyashar
+</div>
+
+## WithYashar — post 13962
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صدای جنگنده مرکز تهران
+@withyashar
+</div>
+
+## WithYashar — post 13961
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نائب ریس کمیسیون صنایع: امکان قطع اینترنت بین‌الملل وجود دارد
+بالاخره شرایط جنگی است و مصلحت ایران اولویت دارد.
+@withyashar
+</div>
+
+## WithYashar — post 13960
+
+<div align="center">
+  <a href="telegram/content/WithYashar_13960_1780909525.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+از پایگاه عظیم کوه معروف یزد الان شلیک شد @withyashar
+</div>
+
+## mwarmonitor — post 10430
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴«ارتش اسرائیل می‌گوید تمام حملاتی که تاکنون در ایران انجام شده، صرفاً توسط اسرائیل صورت گرفته است، در حالی که ایالات متحده در رهگیری برخی موشک‌های ایرانی کمک کرده است.»
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10429
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨«ارتش اسرائیل تصمیم گرفته است عملیات “غرش شیران” را از همان جایی که متوقف شده بود ادامه دهد، به‌جای آن‌که عملیات جدیدی آغاز کند. ارتش این را روز ۴۲ عملیات “غرش شیران ” محسوب می‌کند، پس از یک وقفه دوماهه ـ i24News»
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10428
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✈️«شرکت Wizz اعلام کرد که تمامی پروازها به اسرائیل را دست‌کم تا فردا لغو کرده است.»
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10427
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📌 حزب‌الله: با موشک‌ها یک تجمع از ادوات نظامی اسرائیلی را در اطراف شهرک بیت یاحون در جنوب لبنان هدف قرار دادیم.»
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10426
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴«شهرداری تهران اعلام می‌کند که پارکینگ‌های زیرزمینی برای استفاده به‌عنوان پناهگاه در پایتخت در حال آماده‌سازی هستند.»
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10425
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✈️«نیروی هوایی اسرائیل به حملات در عمق خاک ایران ادامه می‌دهد ـ رادیو ارتش اسرائیل.»
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10424
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴«حمله به یک ایست بازرسی بسیج در کبودرآهنگ در استان همدان، غرب ایران.» @mwarmonitor
+</div>
+
+## pm_afshaa — post 92889
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92889_1780909527.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مستند حملات در به تهران
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92888
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نتانیاهو: الوعده‌وفا
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92887
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+از یزد موشک شلیک شد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## mamlekate — post 103639
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 گزارش دیلی‌میل از تعرض یک بازیکن تیم‌ملی به یک دختر ۱۴ ساله در ترکیه
+
+روزنامه دیلی‌میل گزارشی منتشر کرده که یک فوتبالیست ملی‌پوش که نامش فاش نشده، از سوی یک خانواده بریتانیایی متهم شده است که در جریان تعطیلات آن‌ها در یک هتل پنج‌ستاره در ترکیه، تلاش کرده دختر ۱۴ ساله‌شان را برای «در آغوش گرفتن» به پشت یک پرچین ببرد.
+
+@mamlekate
+</div>
+
+## mamlekate — post 103638
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 حمله به پتروشیمی کارون؛ از نقش صنعتی و صادراتی تا پیوند با برنامه‌های نظامی جمهوری اسلامی
+
+معاون امنیتی و انتظامی استانداری خوزستان صبح دوشنبه ۱۸ خرداد از حمله به پتروشیمی کارون خبر داد. حمله به این تاسیسات راهبردی که با سپاه پاسداران مرتبط است، می‌تواند زنجیره‌ تولید را در بخش نظامی و غیرنظامی با اختلال مواجه کند.
+
+@mamlekate
+</div>
+
+## kianmeli1 — post 87784
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴روسیا الیوم نوشت: ترامپ به پیاده کردن نیروهای ویژه در ایران تهدید کرد.
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 341147
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341147_1780909529.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دفتر بنیامین نتانیاهو، نخست‌ وزیر اسرائیل اعلام کرد که این کشور در پاسخ به پرتاب موشک از سوی جمهوری اسلامی، اهدافی را در داخل ایران هدف قرار داده است.
+
+در این بیانیه تاکید شده که اسرائیل از نظر دفاعی و تهاجمی در وضعیت آماده‌باش بالا قرار دارد.
+iranintl.com/202606080219
+</div>
+
+## IranIntlTV — post 341146
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341146_1780909530.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در پی حمله‌های متقابل جمهوری اسلامی و اسرائیل، کانال ۱۳ اسرائیل از حمله به ۲۰ هدف در داخل ایران در واکنش به حمله‌های سپاه پاسداران گزارش داد.
+
+اشکان صفایی، خبرنگار ایران‌اینترنشنال، گزارش می‌دهد
+
+@iranintltv
+</div>
+
+## FarsiVOA — post 219996
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219996_1780909532.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مدیرکل مدیریت بحران استانداری آذربایجان شرقی، هدف قرار گرفتن یک مرکز نظامی در شهر تبریز، طی بامداد روز دوشنبه ۱۸ خرداد، را تایید کرد.
+
+مجید فرشی، زمان وقوع این حمله را ساعت پنج صبح اعلام و مدعی شد که تلفات جانی نداشته است. او از بیان مکان دقیق این حملات خودداری کرد، اما یادآور شد که ابعاد حادثه در دست بررسی است.
+
+ساعاتی قبل برخی منابع از هدف قرار گرفتن فرودگاه تبریز خبر دادند که این اخبار از سوی رسانه‌های داخلی تکذیب شد.
+
+بامداد دوشنبه ۱۸ خرداد، ارتش اسرائيل در پاسخ به حملات موشکی سپاه، مناطقی را در تهران و نیز غرب و مرکز و جنوب ایران هدف قرار داد.
+@FarsiVOA
+</div>
+
+## DW_Farsi — post 125676
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125676_1780909533.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 حوثی‌ها تهدید کردند کشتی‌های اسرائیلی در دریای سرخ را هدف قرار خواهند داد
+
+شبه‌نظامیان حوثی یمن حمله موشکی روز دوشنبه به اسرائیل را تأیید کردند و مدعی شدند که این نخستین حمله آنها به اسرائیل طی چند هفته گذشته بوده است.
+
+یحیی سریع، سخنگوی نظامی حوثی‌ها در بیانیه‌ای که از شبکه تلویزیونی "المسیره" متعلق به این گروه پخش شد، اعلام کرد "محاصره کامل" کشتیرانی مرتبط با اسرائیل در دریای سرخ برقرار شده است و هر تردد مرتبط با اسرائیل در این منطقه به عنوان "هدف نظامی" تلقی خواهد شد.
+
+سخنگوی حوثی‌ها تهدید کرد که به تشدید تنش پاسخ خواهد داد و عملیات این گروه "همسو با شرایط جنگ و با مشارکت محور جهاد و مقاومت خواهد بود".
+
+ارتش اسرائیل صبح دوشنبه اعلام کرده بود که یک موشک از سمت یمن به خاک این کشور را شناسایی و رهگیری کرده است. این نخستین حمله مستقیم حوثی‌ها به اسرائیل از حدود دو ماه پیش تا کنون به شمار می‌رود.
+
+شبه‌نظامیان حوثی یمن یکی از مهمترین‌ متحدان منطقه‌ای جمهوری اسلامی به شمار می‌روند و پس از آغاز حملات اسرائیل و آمریکا علیه ایران در ۹ اسفند سال گذشته، "همبستگی کامل" خود را با حکومت ایران اعلام کردند.
+
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 16159
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16159_1780909534.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سازمان اطلاعات سپاه: مطابق قانون مقابله با اقدامات خصمانه رژیم صهیونی هرگونه همکاری با دشمن از جمله تهیه و ارسال فیلم و عکس اقدامی مجرمانه محسوب شده و با مرتکبان برابر قانون در زمان جنگ، برخورد خواهد شد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16158
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حدودا نیم ساعت دیگه لایو رو شروع میکنیم
+</div>
+
+## Persian_Trend_Official — post 16157
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16157_1780909536.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انفجار مهیب اصفهان
+</div>
+
+## Persian_Trend_Official — post 16156
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16156_1780909537.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هم‌اکنون تهران
+</div>
+
+## Persian_Trend_Official — post 16155
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16155_1780909540.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ ارتش اسرائیل می گوید نه تنها در ایران بلکه در لبنان نیز در حال عملیات های گسترده است و بیش از 90 مرکز مربوط به حزب الله را مورد هدف قرار داده است.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 21787
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 رسانه سپاه :
+
+خبرهای ترور همشون کذبن و فرماندهان ما همه حالشون خوبه
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21786
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 شهرداری تهران:
+
+پارکینگ‌های زیرسطحی برای استفاده به عنوان پناهگاه آماده می‌شوند.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21785
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ارتش اسرائیل :
+
+در‌ کنار حملاتمون به ایران در ۲۴ ساعت گذشته بیش از ۹۰ زیرساخت تروریستی حزب الله رو هم نابود کردیم
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 283166
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻افزایش قیمت نفت پس از حملات ایران و اسرائیل
+
+قیمت نفت پس از حملات ایران و اسرائیل روند افزایشی به خود گرفته است.
+
+قیمت نفت برنت با ۴/۵ درصد افزایش به ۹۷/۳۰ دلار در هر بشکه رسید، درحالی‌که نفت خام آمریکا با ۴/۳ درصد افزایش به حدود ۹۴/۵۰ دلار رسید.
+
+بازارهای آسیا نیز در آغاز روز دوشنبه به‌شدت سقوط کردند و شاخص‌های اصلی مانند کاسپی کره جنوبی تقریبا ۸ درصد کاهش یافتند.
+
+@BBCPersian
+</div>
+
+## alonews — post 126208
+
+<div align="center">
+  <a href="telegram/content/alonews_126208_1780909540.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈الحدث به نقل از سفیر آمریکا در بیروت:
+قرار است مذاکرات لبنان و اسرائیل در واشنگتن از سر گرفته شود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126207
+
+<div align="center">
+  <a href="telegram/content/alonews_126207_1780909541.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈قیمت دلار آزاد به ۱۷۸ هزار تومان رسید
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126206
+
+<div align="center">
+  <a href="telegram/content/alonews_126206_1780909541.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / روسیا الیوم نوشت: ترامپ به پیاده کردن نیروهای ویژه در ایران تهدید کرد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126205
+
+<div align="center">
+  <a href="telegram/content/alonews_126205_1780909541.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سخنگوی ارتش اسرائیل: حملات به سامانه‌های دفاعی استراتژیک در ‌ایران را تکمیل کرده‌ایم
+
+
+🔴 نیروی هوایی به حملات خود در عمق خاک ایران ادامه می‌دهد و این حملات شامل فرودگاه شیراز در جنوب ایران نیز می‌شود.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126204
+
+<div align="center">
+  <a href="telegram/content/alonews_126204_1780909542.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈مهر: هیچ اصابت یا برخوردی در فرودگاه شیراز رخ نداده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126203
+
+<div align="center">
+  <a href="telegram/content/alonews_126203_1780909542.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری/نائب ریس کمیسیون صنایع: امکان قطع اینترنت بین‌الملل وجود دارد
+
+
+🔴بالاخره شرایط جنگی است و مصلحت ایران اولویت دارد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/18 12:23
 ---
 

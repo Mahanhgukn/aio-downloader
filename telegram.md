@@ -7,6 +7,205 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/18 05:03
+---
+
+## VahidOOnLine — post 244228
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244228_1780882392.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ حکومت ایران همزمان با حمله‌های موشکی یکشنبه شب به اسرائیل که در دوره آتش‌بس انجام شد، تهدید کرد که اگر اسرائیل حملات خود را تشدید کند، یک گذرگاه حیاتی دریایی دیگر در خاورمیانه را مسدود خواهد کرد.
+علی‌اکبر ولایتی، مشاور رهبر نظام در پیامی در اکس نوشت: «امنیتِ امروزِ باب‌المندب، نباید دشمن را دچار خطای محاسباتی کند. حلقه‌های مقاومت توان قفل کردن هر دو آبراه را دارند؛ انتخاب با شماست: توقف حماقت یا ورود به موازنه ضابطه مند شدن دو تنگه!»
+تنگه باب‌المندب که بین یمن از یک‌سو و جیبوتی و اریتره از سوی دیگر قرار دارد، یکی دیگر از شریان‌های حیاتی است که مسیرهای اصلی تجارت بین اروپا، آسیا و جهان عرب را به هم متصل می‌کند.
+ولایتی همچنین حمله‌های یکشنبه‌شب را «حلقه اول پاسخ زنجیره‌ای جمهوری اسلامی» توصیف کرده است.
+او افزود: «انتخاب با شماست: یا این حماقت را متوقف کنید یا وارد یک معادله متوازن برای کنترل دو تنگه شوید.»
+سی‌ان‌ان می‌نویسد، رژیم ایران می‌تواند با فعال‌سازی نیروهای نیابتی منطقه‌ای خود، از جمله حوثی‌های یمن، زمینه بسته شدن تنگه باب‌المندب را فراهم کند
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## mwarmonitor — post 10360
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انفجار در اصفهان تهران تایید شد
+</div>
+
+## mwarmonitor — post 10359
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨نیروهای دفاعی اسرائیل (IDF): گزارش اولیه - لحظاتی پیش، نیروی هوایی اسرائیل به اهداف نظامی متعلق به رژیم تروریستی ایران در غرب و مرکز ایران حمله کرد. جزئیات تکمیلی ارسال خواهد شد.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10358
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴چند گزارش از انفجارها در بغداد و بخش‌هایی از ایران، در آنچه می‌تواند یک حمله احتمالی اسرائیل باشد. کانال ۱۴ اسرائیل
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10357
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حمله به ایران
+</div>
+
+## Shin_Persian — post 6681
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Mon, 08 Jun 2026 01:27:16 UTC
+
+#IDF 🇮🇱:
+"The Air Force, guided by Military Intelligence, struck a short time ago military targets of the Iranian terror regime in western and central Iran. Additional details to follow."
+#Iran
+
+فارسی
+
+#IDF 🇮🇱:
+"نیروی هوایی، با هدایت اطلاعات نظامی، مدتی پیش اهداف نظامی رژیم تروریستی ایران را در غرب و مرکز ایران مورد حمله قرار داد. جزئیات تکمیلی متعاقباً اعلام خواهد شد."
+#Iran
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6680
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Mon, 08 Jun 2026 01:25:47 UTC
+
+2 blasts heard in Isfahan suburbs
+Isfahan Province, #Iran
+
+فارسی
+
+۲ انفجار در حومه اصفهان شنیده شد
+استان اصفهان، #Iran_
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6679
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Mon, 08 Jun 2026 01:24:53 UTC
+
+0113Z
+5 blasts in Eastern Tehran
+#Tehran Province, #Iran
+
+فارسی
+
+۰۱۱۳ زولو (۰۴:۴۳ به وقت تهران)
+۵ انفجار در شرق تهران
+#Tehran Province, #Iran
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6678
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Mon, 08 Jun 2026 01:24:12 UTC
+
+0110Z
+Blast in Urmia
+West Azerbaijan Province, #Iran
+
+فارسی
+
+۰۱۱۰ زولو (۰۴:۴۰ به وقت تهران)
+انفجار در ارومیه
+استان آذربایجان غربی، #Iran_
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6677
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Mon, 08 Jun 2026 01:22:41 UTC
+
+Blasts shaking Baghdad now
+#Iraq 🇮🇶
+
+فارسی
+
+انفجارها هم‌اکنون بغداد را می‌لرزانند
+#Iraq 🇮🇶
+
+𝕏 · @shin_persian
+</div>
+
+## Iliaen — post 4453
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ساعت ۰۴:۵۴ صبح دوشنبه؛ گزارش‌ها از شنیده شدن انفجارهای متعدد در سایت موشکی تبریز، سایت پدافند آبدانان، مناطقی در اطراف تهران، شهریار، فردیس کرج و اسلامشهر حکایت دارد.
+
+@iliaen
+</div>
+
+## Dirty_Kids — post 391314
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 اسرائیل تایید کرد حملاتی در ایران انجام داده
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391313
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391313_1780882393.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صدا و سیما رسما حمله به ایران رو تایید کرد.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391312
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ساعت ۰۴:۵۴ صبح دوشنبه؛ گزارش‌ها از شنیده شدن انفجارهای متعدد در سایت موشکی تبریز، سایت پدافند آبدانان، مناطقی در اطراف تهران، شهریار، فردیس کرج و اسلامشهر حکایت دارد.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391311
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گفته بودم رو خریت شیعه همیشه حساب کنید.
+</div>
+
+---
 📅 بروزرسانی: 1405/03/18 04:52
 ---
 

@@ -7,6 +7,610 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/18 12:13
+---
+
+## WithYashar — post 13956
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨🚨🚨🚨🚨🚨🚨🚨🚨
+گزارشهای از یک تررور هدفمند در تهران
+@withyashar
+</div>
+
+## WithYashar — post 13955
+
+<div align="center">
+  <img src="telegram/content/WithYashar_13955_1780908213.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مشاهده دود از شرق تهران
+@withyashar
+</div>
+
+## WithYashar — post 13954
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سفارت هند در تهران از شهروندان خود می‌خواهد فوراً ایران را ترک کنن
+@withyashar
+</div>
+
+## WithYashar — post 13953
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رادیو اسرائیل: همکنون نتانیاهو ریاست جلسه‌ای کوچک از هیئت وزیران را بر عهده دارد تا درباره مسائل امنیتی و سیاسی در تمامی جبهه‌ها بحث و بررسی کند.»
+@withyashar
+</div>
+
+## WithYashar — post 13952
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش چند انفجار در جنوب تهران
+@withyashar
+</div>
+
+## WithYashar — post 13951
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کان نیوز عبری: نیروی هوایی درحال انجام عملیات در ایران است
+@withyashar
+</div>
+
+## WithYashar — post 13950
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فارس: موج جدید حملات موشکی در راهه.
+@withyashar
+</div>
+
+## WithYashar — post 13949
+
+<div align="center">
+  <img src="telegram/content/WithYashar_13949_1780908213.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اصفهان الان
+@withyashar
+</div>
+
+## WithYashar — post 13948
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارشات از انفجار در فرودگاه شیراز
+@withyashar
+</div>
+
+## mwarmonitor — post 10421
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨بر اساس گزارش AFP: «صدای یک انفجار بزرگ در تهران شنیده شده است.»
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10420
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨«فوری | رادیو اسرائیل: نتانیاهو ریاست جلسه‌ای کوچک از هیئت وزیران را بر عهده دارد تا درباره مسائل امنیتی و سیاسی در تمامی جبهه‌ها بحث و بررسی کند.»
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 92884
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پدافند اصفهان همچنان فعاله
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92883
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سفارت هند در تهران از شهروندان خود می‌خواهد فوراً ایران را ترک کنن
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92882
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انفجار در فرودگاه شیراز
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92881
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لشکر10 سیدالشهداء (ص) سپاه کرج مورد حمله پهپادی اسرائیل قرار گرفت
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92880
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حمله موشکی حوثی ها به اسراییل
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5460
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5460_1780908214.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+❗️ هموطنان گرامی، با توجه به شدت گرفتن درگیری‌ها از تردد غیرضروری در اماکن عمومی و خیابان‌ها، به‌ویژه نزدیک مراکز نظامی و ساختمان‌های حکومتی، خودداری کنید.
+
+صاحبان کارخانجات و سیلوها، به‌ویژه در حومه شهرها، مراقب باشید اطراف محل کار شما اگر لانچر مستقر است فاصله بگیرید.
+
+#هشدار #جنگ
+@DEJradio
+</div>
+
+## mamlekate — post 103637
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 الو ساعت ۱۰:۳۴ صدای یه انفجار سمت ستارخان تهران
+
+
+📝 سمت غرب تهران صدای انفجار اومد
+
+
+📝 مرکز شهر پدافند فعال شد
+
+
+📝 حدود ۱۲:۳۵ صدای انفجار در کرج. متوجه نشدیم کجا رو زدن
+
+@mamlekate
+</div>
+
+## kianmeli1 — post 87782
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴لشکر10 سیدالشهداء سپاه کرج مورد حمله اسرائیل قرار گرفت
+https://t.me/+_a5ind9hr7sxOTE0
+</div>
+
+## kianmeli1 — post 87781
+
+<div align="center">
+  <a href="telegram/content/kianmeli1_87781_1780908215.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴امروز-فیلم فرود موشک به پتروشیمی سلمان فارسی (ماهشهر)
+https://t.me/+_a5ind9hr7sxOTE0
+</div>
+
+## IranIntlTV — post 341144
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341144_1780908216.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تیم فوتبال ایران بامداد یکشنبه به وقت محلی وارد شهر تیخوانا شد و نخستین تمرین خود را در این شهر برگزار کرد. هم‌زمان در لس‌آنجلس و در اطراف ورزشگاه محل برگزاری مسابقات جام جهانی، صدها نفر از ایرانیان با در دست داشتن پرچم‌های شیر و خورشید تجمع کردند.
+
+گزارش رضا محدث، خبرنگار ایران‌اینترنشنال
+
+@iranintltv
+</div>
+
+## Shin_Persian — post 6732
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6732_1780908217.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Mon, 08 Jun 2026 08:39:10 UTC
+
+THIS
+IMAGE
+IS
+OLD.
+
+Thank you for your attention to this matter,
+Not DJT.
+
+فارسی
+
+این
+تصویر
+قدیمی
+است.
+
+از توجه شما به این موضوع سپاسگزارم،
+دی جی تی نیستم.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6731
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Mon, 08 Jun 2026 08:36:27 UTC
+
+UAV strike, Deir El Balh, Gaza.
+Highly likely a targeted assassination.
+(AGAIN: GAZA, NOT IRAN)
+
+فارسی
+
+حمله پهپادی، دیرالبلح، غزه.
+به احتمال بسیار زیاد یک ترور هدفمند است.
+(تکرار می‌کنم: غزه، نه ایران)
+
+𝕏 · @shin_persian
+</div>
+
+## Iliaen — post 4460
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ساعت حدود ۱۲:۰۰ شهر دوشنبه؛ چند ایستگاه ایست بازرسی‌ در اتوبان همت تهران، محل خدمت را ترک کردند.
+
+@iliaen
+</div>
+
+## FarsiVOA — post 219994
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219994_1780908218.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دقایقی پیش گزارش‌هایی از شنیده‌شدن صدای انفجار در چند نقطه تهران منتشر شد.
+
+بر اساس گزارش‌های اولیه، ابتدا صدای انفجار در غرب تهران به گوش رسیده و سپس گزارش‌هایی از شنیده‌شدن صداهای مشابه در شرق و جنوب پایتخت نیز منتشر شده است.
+
+گزارش‌های اولیه از شنیده‌شدن چندین انفجار در مناطق اسلام‌شهر، ملارد، کهریزک در محدوده تهران حکایت دارد. شدت انفجارها به اندازه‌ای بوده که ساکنان این مناطق از لرزش زمین و شنیده‌شدن صداهای پیاپی خبر داده‌اند.
+
+هنوز جزئیات دقیقی درباره محل هدف، میزان خسارت و تلفات احتمالی منتشر نشده است؛ اما گسترش دامنه انفجارها در اطراف تهران نشان می‌دهد پایتخت و حومه آن همچنان در وضعیت پرتنش قرار دارند.
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 16151
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سخنگوی شهرداری تهران: پارکینگ‌ های زیرسطحی برای استفاده به عنوان پناهگاه آماده می‌شوند.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16150
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16150_1780908219.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سفارت هند در تهران از شهروندان خود می‌خواهد فوراً ایران را ترک کنن
+</div>
+
+## Persian_Trend_Official — post 16149
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16149_1780908220.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سفارت هند در تهران از شهروندان خود می‌خواهد فوراً ایران را ترک کنن
+</div>
+
+## Persian_Trend_Official — post 16148
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16148_1780908220.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ زیرنویس شبکه خبر:
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16147
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بر اساس گزارش‌های منتشرشده از سوی برخی رسانه‌ها و منابع مخالف حکومت ایران، نیروهای هوایی اسرائیل بامداد امروز در حمله‌ای که به‌عنوان اقدام تلافی‌جویانه توصیف شده است، یک مرکز فرماندهی و کنترل زیرزمینی در کرمانشاه را هدف قرار دادند. این گزارش‌ها مدعی‌اند که در زمان حمله، شماری از فرماندهان ارشد سپاه پاسداران در حال بررسی برنامه‌های عملیاتی بوده‌اند و در نتیجه این حمله جان خود را از دست داده‌اند. تاکنون مقامات رسمی ایران و منابع مستقل جزئیات این ادعاها را تأیید نکرده‌اند.
+
+
+👺Phantom
+
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16146
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16146_1780908221.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبکه الإخباريه سوریه: یک موشک ایرانی پس از رهگیری از سوی اسرائیل، اطراف روستای زبیده در نزدیکی قنیطره سوریه سقوط کرد.
+
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16145
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16145_1780908221.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ فارس: در صورت خطای مجدد، زیرساخت نفت و گاز منطقه هدف قرار می‌گیرد.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## RadioFarda — post 158041
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸ولی‌الله حیاتی، معاون امنیتی و انتظامی استانداری خوزستان از حمله هوایی و موشکی اسرائیل به شرکت پتروشیمی کارون ماهشهر خبر داد.
+
+🔸خبرگزاری فارس با انتشار این خبر به نقل از حیاتی، افزوده که بخشی از این کارخانه در این حمله آسیب دیده است.
+
+🔸ارتش اسرائیل هم تأیید کرد که به «چندین هدف» در تأسیسات پتروشیمی ایران در ماهشهر حمله کرده است.
+
+🔸به‌دنبال این حمله، خبرگزاری‌ها در ایران به نقل از اطلاعیه روابط عمومی سازمان منطقه ویژه اقتصادی پتروشیمی، نوشتند: با تصمیم فرماندهی ارشد پدافند غیرعامل و مدیریت بحران منطقه ویژه اقتصادی پتروشیمی، تمامی کارکنان روزکار باید به صورت اضطراری از منطقه خارج شوند.
+
+🔸در جریان حملات مشترک آمریکا و اسرائیل نیز شماری از شرکت‌های پتروشیمی در ایران، اهداف حمله بودند.
+
+🔸روابط عمومی سپاه پاسداران هم در واکنش، در بیانیه‌ای مدعی شد که به یکی از صنایع پتروشیمی اسرائیل در حیفا حمله موشکی کرده است.
+
+🔸این بیانیه تهدید کرده که اسرائیل «با اقدام علیه اهداف غیرنظامی و هدف قرار دادن صنایع نفتی، بازی خطرناکی را شروع کرد، که دامنه آن کلیه اهداف انرژی منطقه را در بر خواهد گرفت.»
+
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 21778
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21778_1780908222.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسلامشهر
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21777
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21777_1780908222.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تهران
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21776
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 انفجار در جنوب تهران
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21775
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ارتش اسرائیل :
+
+سامانه های پدافندی رو در چند نقطه از ایران هدف قرار دادیم.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21774
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21774_1780908224.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بنازم سپاه نقطه زن موشک مستقیم خورد به هدف کف دریا @IranianMinds
+</div>
+
+## IranianMinds — post 21773
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ارتش اسرائیل :
+
+رفتیم بالا سر سپاه و موج جدید حملات خودمون رو آغاز کردیم.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21772
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هنوزم آتش بسه یا دیگه میتونیم بگیم نقض شده عزیزان؟؟؟؟
+
+
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 391336
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391336_1780908225.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بنده وقتی بی‌بی سپاهی کباب میکنه:
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391335
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391335_1780908226.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امینم❌ ایگریت✅
+
+فکر کن بیمار داره جون میده، براش امینم بخونی
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 126200
+
+<div align="center">
+  <a href="telegram/content/alonews_126200_1780908228.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سخنگوی شهرداری تهران: پارکینگ‌های زیرسطحی برای استفاده به عنوان پناهگاه آماده می‌شوند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126199
+
+<div align="center">
+  <a href="telegram/content/alonews_126199_1780908228.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈برخی منابع از شنیده شدن صدای انفجار در کرج خبر داده اند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126198
+
+<div align="center">
+  <a href="telegram/content/alonews_126198_1780908228.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خبرگزاری مهر خبر خود را تکذیب کرد!
+
+
+🔴بر اساس پیگیری‌های خبرنگار مهر هیچگونه انفجاری طی ساعت اخیر در اصفهان رخ نداده است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126197
+
+<div align="center">
+  <a href="telegram/content/alonews_126197_1780908228.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈مشاهده دود از شرق تهران
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126196
+
+<div align="center">
+  <a href="telegram/content/alonews_126196_1780908229.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈صدای انفجار و فعالیت پدافند در جنوب تهران
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126195
+
+<div align="center">
+  <a href="telegram/content/alonews_126195_1780908229.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کان نیوز عبری: نیروی هوایی درحال انجام عملیات در ایران است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126194
+
+<div align="center">
+  <a href="telegram/content/alonews_126194_1780908229.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈شنیده شدن صدای انفجار در جنوب تهران
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126193
+
+<div align="center">
+  <a href="telegram/content/alonews_126193_1780908229.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 تصاویری از تهران
+
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/18 12:03
 ---
 

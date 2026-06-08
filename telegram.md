@@ -7,6 +7,191 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/18 11:03
+---
+
+## VahidOOnLine — post 244296
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_244296_1780904004.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوهای رسیده به ایران‌اینترنشنال در دوشنبه ۱۸ خرداد، رد موشک شلیک‌شده جمهوری اسلامی را به سمت اسرائیل در آسمان شهر گلمان در شهرستان ارومیه نشان می‌دهد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13923
+
+<div align="center">
+  <img src="telegram/content/WithYashar_13923_1780904005.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نقاطی که امروز تا این لحظه توسط ارتش اسرائیل هدف قرار گرفته
+@withyashar
+</div>
+
+## WithYashar — post 13922
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨🚨🚨🚨🚨🚨🚨🚨
+موج بعدی حملات اسرائیل آغاز شد
+@withyashar
+</div>
+
+## WithYashar — post 13921
+
+<div align="center">
+  <img src="telegram/content/WithYashar_13921_1780904006.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+@withyashar
+</div>
+
+## mwarmonitor — post 10406
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سفارت هند در تهران به شهروندان هندی هشدار داده و بار دیگر تأکید کرده است که از سفر به ایران خودداری کنند و به افرادی که هم‌اکنون در این کشور هستند توصیه کرده است با هر وسیله حمل‌ونقل ممکن فوراً ایران را ترک کنند.
+
+@mwarmonitor
+</div>
+
+## IranIntlTV — post 341128
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341128_1780904006.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوهای رسیده به ایران‌اینترنشنال در دوشنبه ۱۸ خرداد، رد موشک شلیک‌شده جمهوری اسلامی را به سمت اسرائیل در آسمان شهر گلمان در شهرستان ارومیه نشان می‌دهد.
+</div>
+
+## Persian_Trend_Official — post 16115
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بقایی: رژیم صهیونیستی بدون هماهنگی با آمریکا کاری نمی‌کند. سخنگوی وزارت خارجه: وزارت خارجه آمریکا صراحتا دلیل اصلی تحمیل این جنگ علیه ایران را حمایت از رژیم صهیونیستی ذکر کرده است. این موضع رسمی آمریکا بوده است. همچنین، علی‌رغم ادعای مقامات آمریکایی، ما اطلاع…
+</div>
+
+## Persian_Trend_Official — post 16114
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16114_1780904008.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🤑توییت ایلان ماسک در مورد ایران و تنگه هرمز: تنگه هرمز به نام اهورا مزدا از آیین زرتشت نامگذاری شده است.
+
+👑
+👑
+👑
+👑
+👑
+👑
+👑
+👑
+👑
+👑
+👑
+👑
+
+
+👺Phantom
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16113
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16113_1780904008.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تنگه هرمز به نام اهورا مزدا از آیین زرتشت نامگذاری شده است.
+</div>
+
+## Persian_Trend_Official — post 16112
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل می‌گوید از شب گذشته تاکنون در مجموع 30 موشک از مبدا ایران و یمن به سمت اسرائیل پرتاب شده که تماما رهگیری شده و بخشی به منطقه ای باز اصابت کردند.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16111
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16111_1780904009.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قیمت نفت با وجود رشد حدود ۵ درصدی، همچنان واکنش کامل به تحولات و درگیری‌های اخیر نشان نداده و در حال حاضر زیر سطح ۱۰۰ دلار باقی مانده است.
+
+Phantom
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## RadioFarda — post 158038
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_158038_1780904009.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸ارتش اسرائیل نزدیک ساعت ۱۰ بامداد به وقت تهران، اعلام کرد شلیک شمار دیگری موشک از مبداء ایران را شناسایی کرده که احتمالاً به سوی شمال اسرائیل هدایت شده است.
+
+🔸خبرنگار رادیو فردا در اسرائیل می‌گوید مردم در این مناطق هشدار گرفتند به پناهگاه بروند.
+
+🔸بر اساس بیانیه ارتش اسرائیل، سامانه‌های دفاعی در حال فعالیت برای رهگیری این تهدید هستند.
+
+🔸در این بیانیه از عموم مردم خواسته شده مسئولانه عمل کرده و مطابق دستورالعمل‌ها رفتار کنند؛ «این دستورالعمل‌ها جان انسان‌ها را نجات می‌دهند».
+
+@RadioFarda
+</div>
+
+## alonews — post 126156
+
+<div align="center">
+  <a href="telegram/content/alonews_126156_1780904010.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزارت امورخارجه ایران: ایالات متحده مسئولیت مستقیم نقض آتش‌بس کنونی را بر عهده دارد و اقدامات اسرائیل را به واشنگتن مرتبط می‌داند.
+
+
+🔴اقدامات اسرائیل در منطقه را نمی‌توان جدا از ایالات متحده بررسی کرد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126155
+
+<div align="center">
+  <a href="telegram/content/alonews_126155_1780904010.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وضعیت کانفیگ فروشا
+
+[@AloTweet]
+</div>
+
+## alonews — post 126154
+
+<div align="center">
+  <a href="telegram/content/alonews_126154_1780904012.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢فوووووووری/موج بعدی حملات اسرائیل آغاز شد 
+🚨 @AkhbareFouri
+</div>
+
+---
 📅 بروزرسانی: 1405/03/18 10:53
 ---
 

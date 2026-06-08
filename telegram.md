@@ -7,6 +7,184 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/18 23:34
+---
+
+## VahidOOnLine — post 244423
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244423_1780949059.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️روزنامه نیویورک‌پست، گزارش داده است که خرما، میوه محبوب مردم خاورمیانه، به گزینه‌ای محبوب در میان مصرف‌کنندگان آمریکایی تبدیل شده و به تدریج جای تنقلات فوق‌فرآوری‌شده را می‌گیرد.
+بر اساس این گزارش، فروش خرما در آمریکا در سال ۲۰۲۵ نسبت به سال قبل ۳۳ درصد افزایش یافته و پیش‌بینی می‌شود ارزش بازار این محصول تا سال ۲۰۳۴ به حدود ۱.۶ میلیارد دلار برسد.
+کارشناسان تغذیه این روند را ناشی از افزایش تمایل مصرف‌کنندگان به مواد غذایی طبیعی و کمتر فرآوری‌شده می‌دانند. محبوبیت خرما همچنین با انتشار گسترده دستورهای تهیه دسرها و میان‌وعده‌های مبتنی بر این میوه در شبکه‌های اجتماعی افزایش یافته است.
+نیویورک پست به نقل از متخصصان تغذیه می‌نویسد، خرما منبع خوبی از فیبر، آنتی‌اکسیدان‌ها، پتاسیم و منیزیم است و می‌تواند به سلامت دستگاه گوارش و کاهش خطر برخی بیماری‌ها کمک کند.
+با این حال، کارشناسان هشدار می‌دهند که خرما حاوی مقدار قابل توجهی قند طبیعی است و بهتر است همراه با مغزها و دانه‌های خوراکی مصرف شود تا تأثیر آن بر قند خون کاهش یابد.
+به گزارش نیویورک پست، برآوردها نشان می‌دهد ارزش بازار جهانی خرما از ۳۴.۵ میلیارد دلار در سال ۲۰۲۶ به بیش از ۵۵ میلیارد دلار در سال ۲۰۳۴ خواهد رسید. خاورمیانه و آفریقا همچنان بزرگ‌ترین مصرف‌کنندگان خرما در جهان به شمار می‌روند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14070
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+@withyashar جنگ مخفی
+</div>
+
+## WithYashar — post 14069
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سامانه های پدافندی آمریکا در اقلیم کردستان، عراق در حال فعالیت می‌باشند.
+@withyashar
+</div>
+
+## WithYashar — post 14068
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جنگنده های آمریکایی در شمال عراق به پرواز درآمدند.
+@withyashar
+</div>
+
+## pm_afshaa — post 92973
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92973_1780949060.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رئیس کمیسیون امنیت ملی مجلس:
+اگه آمریکا صادق باشه مشکلی با ادامه مذاکرات نداریم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 341237
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341237_1780949060.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در واکنش به درگیری‌ها میان اسرائیل و ایران، محمدباقر ذوالقدر، دبیر شورای عالی امنیت ملی جمهوری اسلامی، هشدار داد در صورت حمله ائتلاف اسرائیل و آمریکا، منطقه برای آنها «جهنم» می‌شود. قالیباف هم گفت معادله آتش‌بس بر هم خورده و تا زمان نبود اعتمادسازی، پاسخ ایران ادامه دارد.
+@iranintltv
+</div>
+
+## IranianMinds — post 21878
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+۵ ماه پیش
+در چنین‌ روزی
+هزاران نفر رفتن تو خیابونا
+و دیگه هیچوقت برنگشتن 🖤
+
+احترام به تمامشون...
+
+
+@IranianMinds
+</div>
+
+## alonews — post 126396
+
+<div align="center">
+  <a href="telegram/content/alonews_126396_1780949062.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈یک مقام آمریکایی به Axios گفت:
+بیبی برای زنده ماندن سیاسی در اسرائیل نیاز دارد که جنگ ادامه یابد، و ترامپ برای زنده ماندن سیاسی در آمریکا نیاز دارد که جنگ پایان یابد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126395
+
+<div align="center">
+  <a href="telegram/content/alonews_126395_1780949062.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚫
+🏆 به دنیای هیجان‌انگیز فوتبال خوش اومدی!
+
+
+⭐️اینجا قراره باهم لحظه‌به‌لحظه‌ی جام جهانی رو زندگی کنیم؛
+از بازی‌های حساس و نتایج داغ گرفته تا حاشیه‌ها، کری‌خونی‌ها و اتفاقاتی که همه درباره‌ش حرف میزنن! 
+🔥
+🔥
+
+
+✅ پوشش کامل مسابقات
+
+💀ترول تیم‌ها و بازیکن‌ها
+
+🎥ویدیوها و لحظه‌های فان فوتبالی
+
+📊آمار، ترکیب‌ها و اخبار فوری
+
+🌍حواشی جذاب از سراسر جام جهانی
+
+
+📢اینجا فقط یک کانال خبری نیست؛
+یک جمع فوتبالیه برای کسایی که فوتبال رو با هیجان، شوخی و احساس واقعی دنبال میکنن 
+📛
+💟
+
+
+🆘
+🔞 آماده باش چون قراره جام جهانی رو متفاوت تجربه کنیم!
+
+
+⚡ @Vaarzesh_Plus
+
+⚡ @Vaarzesh_Plus
+</div>
+
+## alonews — post 126394
+
+<div align="center">
+  <a href="telegram/content/alonews_126394_1780949063.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پدافند هوایی آمریکا یه موشک بالستیک از ایران به سمت پایگاه آمریکایی تو شمال عراق رو رهگیری کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126392
+
+<div align="center">
+  <a href="telegram/content/alonews_126392_1780949065.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 یک انبار مهمات عظیم امروز صبح نزدیک بلوفسکویه در منطقه بلگورود روسیه منفجر شد.
+
+
+🔴 گزارش شده که این انفجار ناشی از هیچ حمله‌ای نبوده است، اگرچه هنوز مشخص نیست چرا این اتفاق افتاده است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126391
+
+<div align="center">
+  <a href="telegram/content/alonews_126391_1780949067.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 آکسیوس: ترامپ صراحتاً به نتانیاهو گفته که از پاسخ به ایران حمایت نمی‌کند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/18 23:23
 ---
 

@@ -7,6 +7,282 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/18 13:13
+---
+
+## WithYashar — post 13982
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+همکنون دو تا از رادار های بیدگنه رو زدند
+@withyashar
+</div>
+
+## WithYashar — post 13981
+
+<div align="center">
+  <img src="telegram/content/WithYashar_13981_1780911832.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسرائیل و ایران باید فوراً «شلیک» را متوقف کنند. پرزیدنت دونالد جی. ترامپ
+@withyashar
+</div>
+
+## WithYashar — post 13980
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کابینه امنیتی اسرائیل ساعت یازده و نیم پیش‌ازظهر دوشنبه به ریاست بنیامین نتانیاهو تشکیل جلسه می‌دهد.
+
+این مقامات همچنین گفته‌اند هر حمله موشکی ایران به اسرائیل «با حمله در ضاحیه» در لبنان نیز روبه‌رو خواهد شد.
+وزیران راستگرای افراطی در دولت نتانیاهو به او گفته بودند در پاسخ به حمله موشکی ایران به اسرائیل، «تهران باید بسوزد».
+@withyashar
+</div>
+
+## WithYashar — post 13979
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل: برای احتمال شلیک موشک از سوی حزب‌الله به خاک اسرائیل آماده هستیم.
+@withyashar
+</div>
+
+## WithYashar — post 13978
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک منبع آگاه در حوزه ارتباطات به سیتنا اعلام کرد که تاکنون هیچ دستور، ابلاغ یا تصمیمی درباره قطع یا محدودسازی اینترنت بین‌الملل به دستگاه‌های مسئول اعلام نشده است، در همین حال شب گذشته پیک ترافیک اینترنت بعد از قطعی‌ها زده شد.
+@withyashar
+</div>
+
+## WithYashar — post 13977
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سازمان ملل از شرایط موجود ابراز نگرانی کرد
+@withyashar
+</div>
+
+## mwarmonitor — post 10437
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_10437_1780911832.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ در سوشال تروث
+
+اسرائیل و ایران باید فوراً «شلیک» را متوقف کنند
+
+@mwarmonitor
+</div>
+
+## DEJradio — post 5464
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5464_1780911833.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🛩️
+🔥 بمباران مراکز نظامی در تهران
+
+#جنگ #تهران
+@DEJradio
+</div>
+
+## mamlekate — post 103642
+
+<div align="center">
+  <img src="telegram/content/mamlekate_103642_1780911834.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کرمانشاه، تنگه کنشت، صبح ساعت ۹:۲۰ دود ناشی از برخورد موشک
+
+@mamlekate
+</div>
+
+## mamlekate — post 103641
+
+<div align="center">
+  <a href="telegram/content/mamlekate_103641_1780911835.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پتروشیمی سلمان فارسی ماهشهر
+
+@mamlekate
+</div>
+
+## Shin_Persian — post 6739
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6739_1780911835.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Mon, 08 Jun 2026 09:40:17 UTC
+
+POTUS:
+"Israel and Iran must immediately stop “shooting.” President DONALD J. TRUMP"
+
+فارسی
+
+رئیس‌جمهور ایالات متحده:
+«اسرائیل و ایران باید فوراً "تبادل آتش" را متوقف کنند. رئیس‌جمهور دونالد جی. ترامپ»
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 220000
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺ارتش اسرائیل: انتظار چند روز درگیری با جمهوری اسلامی داریم اما برای رویارویی طولانی‌تر هم آماده‌ایم
+
+◾️ارتش اسرائیل اعلام کرد دست‌کم برای چند روز درگیری با جمهوری اسلامی آماده می‌شود و احتمال از سرگیری کامل جنگ را نیز در نظر گرفته است.
+
+◾️تایمز اسرائیل گزارش داد که مقام‌های نظامی اسرائیل انتظار دارند درگیری‌ها برای چند روز ادامه پیدا کند، اما ارتش برای یک رویارویی طولانی‌تر هم آماده است.
+
+◾️از شب گذشته جمهوری اسلامی دست‌کم ۲۰ موشک بالستیک به سوی اسرائیل شلیک کرده که به گفته ارتش اسرائیل، یا رهگیری شده‌اند یا در مناطق باز فرود آمده‌اند.
+
+◾️حوثی‌های مورد حمایت جمهوری اسلامی در یمن نیز دو موشک بالستیک به سوی اسرائیل شلیک کردند. ارتش اسرائیل می‌گوید یکی از این موشک‌ها رهگیری شد و موشک دوم به خاک اسرائیل نرسید.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8158492.html
+</div>
+
+## Persian_Trend_Official — post 16168
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سخنگوی شهرداری تهران: پارکینگ‌های زیرسطحی بعد از اعمال استاندارهای لازم، برای استفاده به عنوان پناهگاه آماده می‌شوند
+</div>
+
+## RadioFarda — post 158044
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_158044_1780911836.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸کابینه امنیتی اسرائیل ساعت یازده و نیم پیش‌ازظهر دوشنبه به ریاست بنیامین نتانیاهو تشکیل جلسه می‌دهد.
+
+🔸نشست کابینه در یکشنبه‌شب به اتخاذ تصمیم به حمله به ایران در واکنش به حملات موشکی ایران به اسرائیل منجر شده بود.
+
+🔸پس از آن نشست، دونالد ترامپ با نخست‌وزیر اسرائیل تلفنی سخن گفت. رئیس‌جمهور آمریکا پیش از آن گفت‌وگو از ایران و اسرائیل خواست از انجام اقداماتی که به تشدید اوضاع منجر شود، خودداری کنند.
+
+🔸اما به نوشته سایت والانیوز و گزارش شبکه کان، مقامات دفاعی اسرائیل گفته‌اند اگر ایران «به سوی تشدید تنش گام بردارد»، اسرائیل این بار «باید زیرساخت‌های ملی ایران را هدف حمله قرار دهد».
+
+🔸این مقامات همچنین گفته‌اند هر حمله موشکی ایران به اسرائیل «با حمله در ضاحیه» در لبنان نیز روبه‌رو خواهد شد.
+
+🔸وزیران راستگرای افراطی در دولت نتانیاهو به او گفته بودند در پاسخ به حمله موشکی ایران به اسرائیل، «تهران باید بسوزد».
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 21799
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ : ایران و اسرائیل سریع باید شلیک رو متوقف کنن ! @IranianMinds
+</div>
+
+## IranianMinds — post 21798
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21798_1780911836.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ :
+
+ایران و اسرائیل سریع باید شلیک رو متوقف کنن !
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21797
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گروه کامنت ها :
+
+@IranianMindsGroup
+</div>
+
+## IranianMinds — post 21796
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 سازمان ملل :
+
+بس کنید بسه مگه تو آتش بس نبودید بسه بس کنید ما نگرانیم
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 283167
+
+<div align="center">
+  <a href="telegram/content/BBCPersian_283167_1780911837.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این ویدیو از حمله اسرائیل به پتروشیمی کارون در ماهشهر منتشر شده است. روابط عمومی سازمان منطقه ویژه اقتصادی پتروشیمی دربیانیه‌ای گفت که «دو اصابت به شرکت پتروشیمی کارون» صورت گرفت که مصدومی در پی نداشت و میزان خسارت در دست بررسی است.
+
+پیش از آن، اسرائیل گفته بود که به «چند هدف» در تاسیسات پتروشیمی ماهشهر حمله کرده است.
+
+شرکت پتروشیمی کارون در سال‌ ۱۳۸۱ به عنوان اولین شرکت پتروشیمی «دانش‌بنیان» ایران تاسیس شد.
+طبق آمار منتشر شده در وبسایت این شرکت، سالانه بیش از ۲۰۰ هزار تن محصولات پتروشیمی تولید می‌کند.
+
+سپاه پاسداران در بیانیه‌ای گفت که در پاسخ به حمله اسرائیل به صنایع پتروشیمی ایران به صنایع پتروشیمی حیفا حمله موشکی کرده است.
+@BBCPersian
+</div>
+
+## alonews — post 126226
+
+<div align="center">
+  <a href="telegram/content/alonews_126226_1780911838.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈آسوشیتدپرس: سوریه فرودگاه دمشق را به دلیل درگیری ایران و اسرائیل موقتاً تعطیل کرد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126225
+
+<div align="center">
+  <a href="telegram/content/alonews_126225_1780911838.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈لغو پرواز‌های مشهد به تهران
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126224
+
+<div align="center">
+  <a href="telegram/content/alonews_126224_1780911839.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: اسرائیل و ایران باید فوراً تیراندازی را متوقف کنند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126223
+
+<div align="center">
+  <a href="telegram/content/alonews_126223_1780911839.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رادیو ارتش اسرائیل: اگر فرصتی برای ترور رهبران حزب‌الله در حومه بیروت پیش آید، در انجام حمله هرگز تردید نخواهیم کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/18 13:03
 ---
 

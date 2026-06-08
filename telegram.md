@@ -7,6 +7,124 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/19 01:32
+---
+
+## WithYashar — post 14089
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کن کلیپنشتاین، روزنامه‌نگار آمریکایی، مدعی شده اسناد محرمانه‌ای را دیده که نشان می‌دهد بخشی از نیروهای لشکر ۸۲ هوابرد آمریکا در آوریل ۲۰۲۶ به‌طور مخفیانه به اسرائیل اعزام شده‌اند. به ادعای او، این نیروها در چارچوب برنامه‌ریزی مشترک آمریکا و اسرائیل برای سناریوهایی از جمله تصرف جزیره خارگ ایران و ایجاد یک منطقه ساحلی در داخل خاک ایران آماده شده بودند. این ادعا تاکنون از سوی پنتاگون یا دولت آمریکا به‌صورت رسمی تأیید نشده است.
+@withyashar
+</div>
+
+## IranIntlTV — post 341255
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341255_1780956158.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی ارسال‌شده به ایران‌اینترنشنال نشان می‌دهد جمعی از ایرانیان شهر رجاینای کانادا، به‌مناسبت سالروز تولد کیان پیرفلک، کودک کشته‌شده به‌دست ماموران جمهوری اسلامی در جریان اعتراضات سال ۱۴۰۱، روز یک‌شنبه ۱۷ خرداد روی پل آلبرت تجمع کردند و یاد او را گرامی داشتند.
+</div>
+
+## IranIntlTV — post 341254
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341254_1780956159.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «امروز صدمین روز ایران بدون خامنه‌ای است؛ ۱۰۰ روزی که جمهوری اسلامی نه توان برگزاری مراسم تشییع و دفن رهبر قبلی خود را داشته و نه توانسته از رهبر جدیدش رونمایی کند.»
+@iranintltv
+</div>
+
+## FarsiVOA — post 220074
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220074_1780956160.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ارتش اسرائيل اعلام کرد که یک پهپاد شلیک‌شده از سمت یمن را سرنگون کرد. ارتش اسرائيل پیشتر اعلام کرد که بود این پهپاد وارد منطقه جنوبی ایلات شده است. شورشیان حوثی مورد حمایت جمهوری اسلامی بارها به سمت اسرائيل پهپاد و موشک شلیک کرده‌اند.
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 16236
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16236_1780956161.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نشستم به در نگاه میکنم دریچه آه میکشد
+</div>
+
+## Persian_Trend_Official — post 16235
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16235_1780956161.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸🛥 آخرین بروزرسانی از وضعیت ناوگروه‌های نیروی دریایی ایالات متحده آمریکا در سراسر جهان نشان می‌دهد که ناوهای هواپیمابر ابراهام لینکلن و جورج دبلیو بوش به همراه ناوگروه‌های ضربت خود و با همکاری ناو تهاجمی آبی-خاکی یو‌اس‌اس تریپولی، همچنان محاصره دریایی علیه بنادر ایران را ادامه می‌دهند.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 21884
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21884_1780956162.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 مارک لوین، تحلیلگر نزدیک به ترامپ :
+
+جوانان ایران دوباره درحال اعتراض هستند، مردم ایران را مسلح کنید
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21883
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴گزارش خبرنگار مهر:
+
+زمین‌لرزه‌ای به بزرگی ۵ ریشتر، بامداد سه‌شنبه مرز استان‌های هرمزگان و کرمان در حوالی سرگز را لرزاند.
+
+@IranianMinds
+</div>
+
+## alonews — post 126417
+
+<div align="center">
+  <a href="telegram/content/alonews_126417_1780956162.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈در هیئت‌ها چه میگذرد؟
+
+
+🔴کُفرخوانی در هیئت‌ها توسط مداح‌ها برای ریتم بهتر و جذب یوزر!
+
+
+🔴سالهاست که هیئت‌ها از یک مکان مذهبی به یک مکان جهت فستیوال موزیک جاز و راک با ماسک مذهبی تبدیل شده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126416
+
+<div align="center">
+  <a href="telegram/content/alonews_126416_1780956164.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: فکر نمی‌کنم نتانیاهو دوباره به جنگ با ایران برگردد، چون اوضاع خوب پیش می‌رود و ایران دارد کاری را که باید انجام دهد، انجام می‌دهد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/19 01:22
 ---
 

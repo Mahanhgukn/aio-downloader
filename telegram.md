@@ -7,6 +7,245 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/18 18:04
+---
+
+## VahidOOnLine — post 244378
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️در پی حمله موشکی نیروهای مسلح جمهوری اسلامی به اسرائیل در روز یکشنبه ۱۷ خرداد، علاءالدین بروجردی، عضو کمیسیون امنیت ملی و سیاست خارجی مجلس ادعا کرد موشک به‌کاررفته در این حمله از نسل جدید موشک‌های ایران بوده و جمهوری اسلامی هنوز از همه توانمندی‌های نظامی خود رونمایی نکرده است.
+بروجردی در یک گفتگوی تلویزیونی گفت: «طبق اطلاعاتی که دوستان نظامی اعلام کردند، موشکی که به طرف اسرائیل شلیک شد، در واقع یک نمونه جدید از موشک‌های ما بود.»
+او همچنین مدعی شد جمهوری اسلامی از همه ظرفیت‌های نظامی خود پرده‌برداری نکرده و افزود: «ما توانمندی‌های فوق‌العاده‌ای داریم.»
+عضو کمیسیون امنیت ملی مجلس در ادامه ادعا کرد ایران سلاح‌ها و توانمندی‌هایی در اختیار دارد که در صورت استفاده از آن‌ها، زندگی شهروندان اسرائیل مختل خواهد شد.
+بروجردی همچنین مدعی شد اسرائیل به دلیل نداشتن «عمق راهبردی» در برابر حملات گسترده آسیب‌پذیر است و در صورت گسترش درگیری‌ها با خسارت‌های جدی مواجه خواهد شد.
+او در بخش دیگری از سخنانش از کشورهای عربی حوزه خلیج فارس خواست برای جلوگیری از گسترش جنگ وارد عمل شوند و گفت اگر این کشورها خواهان جلوگیری از تکرار حوادث اخیر و وقوع یک جنگ گسترده هستند، باید بر طرف‌هایی که به گفته او از امکانات آن‌ها استفاده می‌کنند فشار وارد کنند.
+بروجردی هشدار داد که در صورت ادامه تنش‌ها و گسترش درگیری‌ها، منطقه با پیامدهای گسترده‌تری روبه‌رو خواهد شد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244377
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244377_1780929242.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پارلمان لبنان اعلام کرد نبیه بری، رییس این پارلمان، با میشل عیسی، سفیر آمریکا در بیروت، درباره تحولات لبنان و منطقه گفت‌وگو کرده است.
+
+به گزارش الحدث، سفیر آمریکا در بیروت هرگونه ارتباط میان واشینگتن و حزب‌الله را تکذیب کرد.
+
+او گفت که اسرائیل از لبنان عقب‌نیشنی خواهد کرد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342717
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342717_1780929243.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+A newly released 200-page report is putting Minnesota’s top Democrats under intense scrutiny.
+
+The report alleges Gov. Tim Walz and Attorney General Keith Ellison were aware of major fraud concerns tied to programs like Feeding Our Future as far back as 2020, but failed to act on warning signs and, in some cases, retaliated against whistleblowers.
+
+It also claims state officials worried that aggressively pursuing fraud investigations could trigger accusations of racism, @ChadPergram reports
+
+Stop scrolling for updates and turn on live alerts. Get FOX One and get the facts.
+
+https://www.fox.com/stream/fox-news?cmpid=org=fn::ag=owned_other::mc=organicsocial%5B%E2%80%A6%5DWITTER::cmp=100_o2_th4::cont=m2_tp1::add=03_17_00_05_13_00_02_A
+</div>
+
+## FoxNewsTwitter — post 342716
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342716_1780929245.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+More than a million people packed the streets of Madrid to catch a glimpse of Pope Leo XIV.
+
+Aerial footage shows massive crowds lining the Spanish capital as the pope rode through the city in the popemobile before celebrating Mass in Cibeles Square.
+
+Before the service, Madrid Mayor José Luis Martínez-Almeida presented him with the city's gold medal at City Hall.
+</div>
+
+## FoxNewsTwitter — post 342715
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342715_1780929247.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Embattled Maine Democratic Senate candidate Graham Platner accepts a card reading "We are your Grahamily" from a supporter as his campaign weathers ongoing scandals surrounding his personal conduct.
+
+“This is a pretty hard thing to go through, to be entirely honest.”
+
+“And, the only thing that really makes it bearable is going around the state of Maine and having as much support as we've gotten from people in our community and from people all over the state.”
+</div>
+
+## FoxNewsTwitter — post 342714
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342714_1780929249.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH LIVE: NYPD and Secret Service leaders unveil security plan for NBA Finals game as Trump prepares to attend https://twitter.com/i/broadcasts/1DGleewwznDJL
+</div>
+
+## pm_afshaa — post 92927
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_92927_1780929249.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خسته شده از فیلتر شکن ضعیف ؟ 🥹
+
+تو این وضعیت همه گیگی 50 تومن کانفیگ میفروشن این مجموعه گیگی 15 تومن هم داره و وصله کانفیگاش با بهترین سرعت
+🖥
+الکی خدا تومن پول کانفیگ ندین اونا هم همینه
+اکانت نامحدود هم دارن با بهترین کیفیت 
+🚀
+و ضمانت بازگشت وجه هم دارن
+🔥
+@bluee_service
+</div>
+
+## pm_afshaa — post 92926
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92926_1780929250.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کارشناس صداوسیما:
+در جنگ 40 روزه، اسرائیل بالای 5 هزار زخمی و 2 هزار کشته و آمریکا بالای 8 هزار زخمی و هزار کشته دادن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 341195
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341195_1780929252.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال ۱۲ اسرائیل خبر داد دونالد ترامپ، رییس‌جمهوری آمریکا و بنیامین نتانیاهو، نخست‌وزیر اسرائیل، با یکدیگر گفت‌وگو کردند.
+
+سمیرا قرایی و بابک اسحاقی، خبرنگاران ایران‌اینترنشنال، گزارش می‌دهند
+@iranintltv
+</div>
+
+## Shin_Persian — post 6753
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet: Emanuel (Mannie) Fabian ✓ @manniefabian Mon, 08 Jun 2026 14:23:25 UTC Lebanese media reports that an Israeli drone strike hit a car in the coastal city of Tyre. ↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید. فارسی رسانه‌های لبنانی…
+</div>
+
+## Shin_Persian — post 6752
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6752_1780929254.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+Emanuel (Mannie) Fabian ✓ @manniefabian
+Mon, 08 Jun 2026 14:23:25 UTC
+
+Lebanese media reports that an Israeli drone strike hit a car in the coastal city of Tyre.
+
+↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
+
+فارسی
+
+رسانه‌های لبنانی گزارش می‌دهند که حمله پهپادی اسرائیل به یک خودرو در شهر ساحلی صور اصابت کرده است.
+
+𝕏 · @shin_persian
+</div>
+
+## DW_Farsi — post 125694
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125694_1780929254.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 تکذیب ادعای گروه هکری "حنظله" از سوی یک شهرداری اسرائیل
+
+"حنظله"، گروه هکتیویست سایبری منتسب به جمهوری اسلامی ایران، صبح روز دوشنبه، ۱۷ خرداد، ادعا کرد که شهرداری "کفار یونا" در اسرائیل را هدف حمله سایبری قرار داده است.
+
+این گروه مدعی شده که اختلالات گسترده‌ای در خدمات ارتباطی و مدیریتی این شهرداری ایجاد کرده است.
+
+در مقابل، شهرداری کفار یونا ضمن تکذیب این ادعا اعلام کرد که هدف هیچ‌گونه حمله‌ای قرار نگرفته و هیچ آسیبی به سیستم‌های آن وارد نشده است.
+
+با این حال، خبرگزاری N12 اسرائیل اشاره کرد که سیستم تلفنی این منطقه روز دوشنبه دچار اختلال شد، اما تصریح کرد که این سیستم توسط یک شرکت مخابراتی خارجی پشتیبانی و اداره می‌شود و ارتباطی با سرورهای خود شهرداری ندارد.
+
+کفار یونا شهری در مرکز "سرزمین‌های اشغالی" و در نزدیکی نتانیا در منطقه شارون واقع شده است.
+
+گروه هکری حنظله در پیامی بحث‌انگیز از "تمامی ساکنان صهیونیست حاضر در مناطق شمالی سرزمین‌های اشغالی" خواسته بود که "برای حفظ جان خود، فوراً خانه‌های غصب‌شده را ترک کنند".
+
+@dw_farsi
+</div>
+
+## DW_Farsi — post 125693
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125693_1780929255.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 لغو پروازها در سراسر ایران به رغم اعلام پایان درگیری‌ها
+
+شرکت فرودگاه‌ها و ناوبری هوایی ایران اعلام کرد که بسته‌شدن فضای پروازی غرب ایران که از شب گذشته به اجرا درآمده بود تا اطلاع ثانوی به کل فضای هوایی ایران تعمیم می‌یابد.
+
+بنا بر اطلاعیه این شرکت تمامی پروازهای فرودگاه‌های سراسر کشور تا اطلاع ثانوی لغو شده و انجام نخواهد شد.
+
+همزمانی صدور این اطلاعیه با اعلام پایان درگیری‌ها با اسرائیل از سوی قرارگاه خاتم‌الانبیا ابهاماتی را ایجاد کرده است. این در حالی است که عراق هم که با آغاز عملیات شلیک موشک از سوی ایران به اسرائیل فضای هوایی خود را بسته بود، بلافاصله پس از اعلام پایان درگیری‌ها به این محدودیت پایان داد.
+
+اطلاعیه شرکت فرودگاه‌ها و ناوبری هوایی ایران در ادامه از مسافران " اکیداً" خواسته است که "جهت حفظ نظم و پیشگیری از هرگونه سردرگمی، تا زمان اعلام وضعیت عادی از سوی مراجع ذی‌صلاح، به فرودگاه‌ها مراجعه نکنند".
+
+با توجه به ضرورت بازگرداندن زائران حج فرودگاه مشهد در این اطلاعیه مستثنا شده و قرار است حجاج در بازگشت به ایران به فرودگاه مشهد انتقال داده شوند.
+
+@dw_farsi
+</div>
+
+## IranianMinds — post 21856
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21856_1780929255.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏کارشناسان دلایل مختلفی را برای این قطع ارتباط مطرح کرده‌اند:
+​فرضیه اول (نقص فنی در خط تولید): برخی می‌گویند با بارندگی‌های اخیر، رطوبت به سیستم نفوذ کرده. جنس «مقوا» در برابر آب و باد مقاومت کمی دارد! آب که به مقوا بخورد، وا می‌رود و ارتباط کلا قطع می‌شود.
+​فرضیه دوم (صرفه‌جویی در مصرف انرژی): با توجه به بحران‌های اخیر، احتمالا بیت تصمیم گرفته برای کاهش هزینه‌ها، فعلا زیرساخت‌های مقوایی را سشوار بکشد تا برای روزهای مبادا خشک و آماده بماند.
+​فرضیه سوم (اشتباه محاسباتی): مقامات فکر می‌کردند دارند روی یک رهبر فولادی حساب باز می‌کنند، اما دیشب که خواستند سیستم را آپدیت کنند تازه فهمیدند کل ماجرا یک کاردستی مقوایی کلاس دوم دبستان بوده است!
+
+@IranianMinds
+</div>
+
+## alonews — post 126300
+
+<div align="center">
+  <a href="telegram/content/alonews_126300_1780929256.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈یک حمله پهپادی اسرائیلی خودرویی را در نزدیکی مرکز صلیب سرخ لبنان در ورودی جنوبی صور، جنوب لبنان هدف قرار داد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/18 17:54
 ---
 

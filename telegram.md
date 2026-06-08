@@ -7,6 +7,170 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/18 09:43
+---
+
+## VahidOOnLine — post 244280
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244280_1780899189.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رادیو ارتش اسرائیل گزارش داد برآورد ارتش اسرائیل نشان می‌دهد درگیری با جمهوری اسلامی احتمالا چند روز ادامه خواهد داشت. در این گزارش آمده است که ارتش اسرائیل برای فراخوان گسترده نیروهای ذخیره آماده می‌شود.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244279
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244279_1780899190.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️وزارت نفت جمهوری اسلامی ایران روز دوشنبه ۱۸ خرداد با انتشار بیانیه‌ای اعلام کرد حوالی ساعت ۷:۳۰ و در پی حمله اسرائیل، دو اصابت به شرکت پتروشیمی کارون در منطقه ویژه اقتصادی پتروشیمی صورت گرفت.
+
+به گفته وزارت نفت این حمله مصدومی در پی نداشت و کلیه کارکنان این منطقه تخلیه شده‌اند.
+
+ارتش اسرائیل مسئولیت این حمله را برعهده گرفت.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244278
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244278_1780899190.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️انفجار در کرمانشاه؛ خبرگزاری مهر: پدافند فعال شد
+
+♦️خبرگزاری مهر ۹ صبح دوشنبه همزمان با شنیده شدن صدای انفجار در کرمانشاه از فعال شدن پدافند در مقابله با «اهداف متخاصم» خبر داد. جزئیات دیگری از این خبر منتشر نشده است.
+
+ارتش اسرائیل چند ساعت قبل اعلام کرده بود اهداف نظامی حکومت ایران را در غرب و مرکز ایران هدف قرار داده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## pm_afshaa — post 92848
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حوثی ها: باب المندب رو به روی اسراییل بستیم
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92847
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴برخی منابع خبر از ترور احمد وحیدی فرمانده تروریست سپاه دادن
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 341115
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341115_1780899191.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رادیو ارتش اسرائیل گزارش داد برآورد ارتش اسرائیل نشان می‌دهد درگیری با جمهوری اسلامی احتمالا چند روز ادامه خواهد داشت. در این گزارش آمده است که ارتش اسرائیل برای فراخوان گسترده نیروهای ذخیره آماده می‌شود.
+https://iranintl.com/202606080046
+</div>
+
+## FarsiVOA — post 219983
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺پرونده‌سازی قضایی برای بیش از سه هزار نفر به اتهام همکاری با «دشمن»
+
+◾️معاون پیشگیری از وقوع جرم و سخنگوی قوه قضائیه جمهوری اسلامی، اعلام کرد ۳ هزار و ۱۲۱ نفر به اتهام همکاری با «دشمن» تحت تعقیب قضایی قرار گرفته‌اند و از این میان، ۲ هزار و ۴۰۶ نفر بازداشت شده و در بازداشت به سر می‌برند.
+
+◾️اصغر جهانگیر، شامگاه یکشنبه در یک سخنرانی در تهران، گفت این افراد با همکاری ضابطان اطلاعات سپاه، وزارت اطلاعات و فراجا شناسایی شده‌اند و تاکنون حدود هزار کیفرخواست برای آنها صادر شده است.
+
+◾️نهادهای حقوق بشری بین‌المللی در ماه‌های گذشته نسبت به گسترش بازداشت‌های امنیتی، خطر محاکمه‌های ناعادلانه و افزایش استفاده از مجازات اعدام در پرونده‌های مرتبط با امنیت ملی در ایران هشدار داده‌اند.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8158486.html
+</div>
+
+## Persian_Trend_Official — post 16086
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👔 انصارالله یمن، اعلام کرد در هماهنگی کامل با محور مقاومت، باب المندب را مسدود کردیم.
+
+
+👺Phantom
+
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 21732
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21732_1780899191.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ویدیویی از رهگیری آبگرمکن های سپاه در آسمان اسرائیل توسط گنبدآهنین
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21731
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 انصارالله یمن :
+
+ادریای سرخ را به روی کشتی‌ های اسرائیلی بستیم و از امروز ببینیم اینا رد میشن با موشک میزنیمشون.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 283153
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻سپاه پاسداران: حمله به پایگاه‌های هوایی نواتیم و تل‌نوف را آغاز کردیم
+
+سپاه پاسداران می‌گوید حمله به پایگاه‌های هوایی نواتیم و تل‌نوف را آغاز کرده است.
+
+این نهاد در اطلاعیه‌ای که در رسانه‌های ایران منتشر شده، اعلام کرده است هدف این حملات مراکز مهم این دو پایگاه هوایی بوده است.
+
+سپاه پاسداران این حملات را پاسخی به حملات اسرائیل به چند سایت راداری در سه نقطه ایران اعلام کرده است.
+
+@BBCPersian
+</div>
+
+## alonews — post 126124
+
+<div align="center">
+  <a href="telegram/content/alonews_126124_1780899194.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈مجری فاکس‌نیوز: ارتش اسرائیل اعلام کرده که نیروی هوایی این کشور در حال حمله به اهداف نظامی متعلق به ایران در غرب و مرکز ایران است. این حملات ساعاتی پس از آن انجام می‌شود که ایران دست‌کم چهار موج موشکی به سمت اسرائیل پرتاب کرد
+
+
+🔴گزارش شده که ترامپ از نخست‌وزیر اسرائیل خواسته بود به حملات علیه ایران پاسخ ندهد، هرچند دیگر به نظر نمی‌رسد که این خواسته عملی شده باشد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/18 09:33
 ---
 

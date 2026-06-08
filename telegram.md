@@ -7,6 +7,187 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/18 06:03
+---
+
+## VahidOOnLine — post 244245
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244245_1780885985.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک خبرنگار روزنامه هاآرتص پس از اعلام ارتش اسرائیل مبنی بر حمله به اهداف نظامی در غرب و مرکز ایران، این اقدام را در تضاد با درخواست‌های علنی اخیر دونالد ترامپ، رییس‌جمهوری آمریکا، برای خودداری از تشدید تنش‌ها دانست و دو سناریوی محتمل را درباره موضع واشینگتن مطرح کرد.
+
+بن ساموئلز در شبکه اجتماعی ایکس نوشت که با وقوع این حمله، اکنون دو احتمال وجود دارد: یا دولت ترامپ و بنیامین نتانیاهو در چارچوب یک عملیات فریب و گمراه‌سازی هماهنگ عمل کرده‌اند، یا اینکه نخست‌وزیر اسرائیل به‌طور آشکار درخواست رییس‌جمهوری آمریکا مبنی بر خودداری از اقدام تلافی‌جویانه علیه [حکومت] ایران را نادیده گرفته است.
+
+او افزود در صورت صحت سناریوی نخست، این موضوع می‌تواند پیامدهای قابل توجهی برای روند تلاش‌های دیپلماتیک میان واشینگتن و تهران داشته باشد، و تاکید کرد: «در هر دو صورت، کمربندها را محکم ببندید.»
+
+این اظهارات در حالی مطرح می‌شود که ترامپ طی روز گذشته بارها بر ضرورت ادامه مذاکرات با جمهوری اسلامی تاکید کرده و از اسرائیل خواسته بود از اقداماتی که می‌تواند روند گفت‌وگوها را مختل کند، خودداری کند.
+
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244242
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244242_1780885986.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️آتش‌نشانی تهران اعلام کرد: صبح دوشنبه دست کم صدای ۲ انفجار حوالی ساعت ۴:۴۳ و ۴:۴۵ در نقاط مختلفی از غرب تهران شنیده شد و ادعاهایی درباره هدف قرار گرفتن فرودگاه مهرآباد منتشر شده است. سخنگوی آتش نشانی تهران از آماده باش آتش‌نشانی خبر داد، اما اعلام کرد که نقاط شهری در تهران هدف قرار نگرفته‌اند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244241
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244241_1780885986.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️همزمان با شنیده شدن صدای انفجارهای متعدد در شهرهای غربی و مرکزی ایران از جمله تهران، خبرگزاری تسنیم، نزدیک به سپاه از انفجار در بغداد خبر داد و نوشت که صدای آن در سراسر پایتخت عراق شنیده شده است. منابع دولت عراق هنوز در این زمینه اظهارنظر نکرده‌اند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## mwarmonitor — post 10374
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨رسانه‌های اسرائیلی: نیروی دریایی اسرائیل در حمله به ایران مشارکت داشته است.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10373
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴جبهه داخلی اسرائیل: از همه اسرائیلی‌ها می‌خواهیم نزدیک پناهگاه‌ها بمانند و از تجمع خودداری کنند.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10372
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴جبهه داخلی اسرائیل: محدودیت‌های اضطراری را دوباره اعمال می‌کنیم و مدارس و مؤسسات آموزشی همچنان تعطیل خواهند بود.
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 342708
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342708_1780885987.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+The retaliation didn't take long.
+
+Hours after Iran launched ballistic missiles toward northern Israel, the IDF says Israeli warplanes struck targets in western and central Iran.
+
+Explosions were reportedly heard across multiple Iranian cities, including Tehran, Tabriz and Isfahan.
+
+The exchange threatens to deepen tensions as President Trump attempts to negotiate a deal with Iran.
+</div>
+
+## VahidOnline — post 76023
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76023_1780885987.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آتش‌نشانی تهران اعلام کرد: صبح دوشنبه دست کم صدای ۲ انفجار حوالی ساعت ۴:۴۳ و ۴:۴۵ در نقاط مختلفی از غرب تهران شنیده شد و ادعاهایی درباره هدف قرار گرفتن فرودگاه مهرآباد منتشر شده است. سخنگوی آتش نشانی تهران از آماده باش آتش‌نشانی خبر داد، اما اعلام کرد که نقاط شهری در تهران هدف قرار نگرفته‌اند.
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 341095
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341095_1780885988.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک خبرنگار روزنامه هاآرتص پس از اعلام ارتش اسرائیل مبنی بر حمله به اهداف نظامی در غرب و مرکز ایران، این اقدام را در تضاد با درخواست‌های علنی اخیر دونالد ترامپ، رییس‌جمهوری آمریکا، برای خودداری از تشدید تنش‌ها دانست و دو سناریوی محتمل را درباره موضع واشینگتن مطرح کرد.
+
+بن ساموئلز در شبکه اجتماعی ایکس نوشت که با وقوع این حمله، اکنون دو احتمال وجود دارد: یا دولت ترامپ و بنیامین نتانیاهو در چارچوب یک عملیات فریب و گمراه‌سازی هماهنگ عمل کرده‌اند، یا اینکه نخست‌وزیر اسرائیل به‌طور آشکار درخواست رییس‌جمهوری آمریکا مبنی بر خودداری از اقدام تلافی‌جویانه علیه [حکومت] ایران را نادیده گرفته است.
+
+او افزود در صورت صحت سناریوی نخست، این موضوع می‌تواند پیامدهای قابل توجهی برای روند تلاش‌های دیپلماتیک میان واشینگتن و تهران داشته باشد، و تاکید کرد: «در هر دو صورت، کمربندها را محکم ببندید.»
+
+این اظهارات در حالی مطرح می‌شود که ترامپ طی روز گذشته بارها بر ضرورت ادامه مذاکرات با جمهوری اسلامی تاکید کرده و از اسرائیل خواسته بود از اقداماتی که می‌تواند روند گفت‌وگوها را مختل کند، خودداری کند.
+
+
+https://iranintl.com/202606080608
+</div>
+
+## Persian_Trend_Official — post 16034
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حملات هوایی اسرائیل با استفاده از موشک‌های کروز و بالستیک هواپرتاب از محدوده دریای مدیترانه انجام شده است.
+گزارشاتی و تصاویری نیز درباره رهگیری و انهدام چند موشک اسرائیلی در آسمان عراق منتشر شده که بزودی تو کانال میزارم
+</div>
+
+## Persian_Trend_Official — post 16033
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16033_1780885988.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+غیر رسمی/نجف‌آباد
+</div>
+
+## Persian_Trend_Official — post 16032
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حمله محدود بوده تا به اینجای کار به نظر بیشتر حملات با سلاح های دورایستا شامل کروز های دریاپرتاب و بالستیک های هواپرتاب انجام شده و اهداف نظامی بوده اند و احتمالا تلاش شده سطح تنش محدود نگه داشته شود.
+</div>
+
+## Persian_Trend_Official — post 16031
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16031_1780885989.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سخنگوی ارتش اسرائیل:
+
+نیروی هوایی به هدایت آمان به تازگی اهداف نظامی ایران را در غرب و مرکز ایران مورد حمله قرار داد.
+</div>
+
+## Dirty_Kids — post 391325
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بریم بخوابیم دو ساعت دیگه پاشیم پست بزنیم
+
+از همین الان کس مادر اونیکه دکمه قطع اینترنت رو میزنه.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391324
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+افراد پشت پدافند رو جوری که بدفاز نشن یواش بیدار کنین، نماز صبحشون قضا شد.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/03/18 05:52
 ---
 

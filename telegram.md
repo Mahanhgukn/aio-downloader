@@ -7,6 +7,372 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/18 14:03
+---
+
+## VahidOOnLine — post 244325
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244325_1780914801.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️دهلی نو از آتش‌سوزی در یک نفتکش هندی در آب‌های عمان خبر داد
+
+♦️وزارت نفت هند روز دوشنبه ۱۸ خردادماه اعلام کرد یک نفتکش این کشور در آب‌های خلیج فارس در نزدیکی سواحل عمان دچار آتش‌سوزی شده است.
+به گزارش رویترز، وزارت نفت هند اعلام کرد تمام ۲۴ خدمه این کشتی در سلامت هستند.
+
+هنوز خبری درباره منشاء این آتش‌سوزی و حمله احتمالی به نفتکش هندی منتشر نشده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244324
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244324_1780914801.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های عربی و هندی از حمله به یک کشتی باری با پرچم پالائو با ۲۴ خدمه هندی در نزدیکی تنگه هرمز در روز دوشنبه خبر دادند.
+بر اساس این گزارش‌ها، در این حمله موتورخانه کشتی هدف قرار گرفته است.
+iranintl
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13996
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کابینه جنگ اسرائیل امشب ساعت 9 به وقت اسرائیل تشکیل جلسه خواهد داد.
+@withyashar
+</div>
+
+## WithYashar — post 13995
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرپرست سرکنسولگری ایران در کربلا: هماهنگی‌های لازم با عراق جهت انتقال حجاج انجام شده است
+@withyashar
+حجاجی که نیومده بودن باید برن عراق زمینی‌ بیان
+</div>
+
+## mwarmonitor — post 10445
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_10445_1780914802.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 جنگ که بالا می‌گیرد، انبار خرافات و توهمات حضرات هم سرریز می‌کند! این مارمولک‌ زیر یخچال که تا دیروز سوراخ موش اجاره می‌کرد، حالا که بوی حلوا بلند شده، یاد «توانمندی‌های فوق‌العاده» و «رونمایی‌نشده‌شان» افتاده‌.
+
+🔸باید از این نابغه‌های استراتژیک پرسید: ای دلاورانِ توخالی، اگر تکه‌ای باروتِ کارآمد در چنته داشتید، چرا دقیقاً زمانی رو نکردید که کل نظام داشت به دیار باقی می‌شتافت؟ معلوم نیست پای بساط کدام جنسِ مرغوب نشسته و چه متای نابی مصرف می‌کنند که این‌طور در ابعاد کهکشانی توهم قدرت می‌زنند! در حالی کل نظام سینه قبرستان است، این‌ها روی خرابه‌ها ایستاده‌اند و برای جهان خط و نشان می‌کشند؛ کمدی سیاهی که قهرمانانش غرق در نشئگیِ قدرتِ نداشته‌شان هستند.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10444
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✈️«شرکت هواپیمایی آذربایجان پروازهای خود به اسرائیل را برای روزهای آینده لغو می‌کند ـ کانال ۱۲»
+
+@mwarmonitor
+</div>
+
+## IranIntlTV — post 341156
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341156_1780914803.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های عربی و هندی از حمله به یک کشتی باری با پرچم پالائو با ۲۴ خدمه هندی در نزدیکی تنگه هرمز در روز دوشنبه خبر دادند.
+بر اساس این گزارش‌ها، در این حمله موتورخانه کشتی هدف قرار گرفته است.
+iranintl.com/202606081987
+</div>
+
+## Shin_Persian — post 6742
+
+<div align="center">
+  <a href="telegram/content/Shin_Persian_6742_1780914804.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn Mon, 08 Jun 2026 10:32:22 UTC #IDF 🇮🇱: "First color documentation from the attacks in Iran: The IDF destroyed Iranian terror regime air defense systems a short time ago The Air Force completed a short time ago an attack sortie against…
+</div>
+
+## Shin_Persian — post 6741
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Mon, 08 Jun 2026 10:32:22 UTC
+
+#IDF 🇮🇱:
+"First color documentation from the attacks in Iran: The IDF destroyed Iranian terror regime air defense systems a short time ago
+
+The Air Force completed a short time ago an attack sortie against air defense systems of the Iranian terror regime in western and central Iran.
+
+The IDF is now releasing color documentation of the destruction of one of the systems, in which missiles intended to hit aircraft were stored. After the attack, secondary explosions were identified indicating the presence of missiles in the launcher.
+
+The destruction of the systems further expands the Air Force's air superiority in Iranian skies, with the goal of continuing to remove threats against Israeli citizens."
+#Iran
+
+https://x.com/manniefabian/status/2063931548752109885/video/1
+
+فارسی
+
+ارتش دفاعی اسرائیل (#IDF) 🇮🇱:
+«اولین مستندات رنگی از حملات در ایران: ارتش دفاعی اسرائیل اندکی پیش سیستم‌های پدافند هوایی رژیم تروریستی ایران را منهدم کرد.
+
+نیروی هوایی اندکی پیش یک سورتی پرواز تهاجمی را علیه سیستم‌های پدافند هوایی رژیم تروریستی ایران در غرب و مرکز ایران به پایان رساند.
+
+ارتش دفاعی اسرائیل اکنون در حال انتشار تصاویر رنگی از انهدام یکی از این سیستم‌هاست که موشک‌های در نظر گرفته شده برای هدف قرار دادن هواپیماها در آن ذخیره شده بود. پس از حمله، انفجارهای ثانویه شناسایی شد که نشان‌دهنده وجود موشک در پرتابگر است.
+
+انهدام این سیستم‌ها برتری هوایی نیروی هوایی در آسمان ایران را بیش از پیش گسترش می‌دهد، با این هدف که حذف تهدیدات علیه شهروندان اسرائیلی ادامه یابد.»
+#Iran
+
+https://x.com/manniefabian/status/2063931548752109885/video/1
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 220006
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220006_1780914805.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مسئول سیاست خارجی اتحادیه اروپا اعلام کرد که این اتحادیه چند فرد و نهادهای جمهوری اسلامی را به دلیل تهدید آزادی تردد دریایی تحریم کرده است.
+
+کایا کالاس روز دوشنبه در جمع خبرنگاران، در جریان نشست وزیران دفاع اتحادیه اروپا در قبرس، از این تحریم‌ها خبر داد.
+
+هنوز جزئیات بیشتری از تحریم‌های جدید اتحادیه اروپا علیه جمهوری اسلامی منتشر نشده است. این اتحادیه پیشتر بارها خواستار بازگشایی فوری تنگه هرمز شده است.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220005
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺ترامپ قاطعانه خواستار توقف فوری حملات اسرائیل و جمهوری اسلامی شد
+
+◾️دونالد ترامپ، رئیس‌جمهوری آمریکا در پیام کوتاه و قاطعی خواستار توقف فوری جنگ جاری میان اسرائیل و جمهوری اسلامی شد.
+
+◾️آقای ترامپ روز دوشنبه در شبکه اجتماعی تروث‌سوشال نوشت: «اسرائیل و ایران باید فوراً "تیراندازی" را متوقف کنند.»
+
+◾️شامگاه یکشنبه و پس از آغاز حملات موشکی جمهوری اسلامی به اسرائیل که در واکنش به حمله این کشور به ضاحیه بیروت صورت گرفته بود، پرزیدنت ترامپ گفت: «همین الان با نتانیاهو تماس می‌گیرم و به او می‌گویم که حمله متقابل نکند.»
+
+◾️همچنین خبرگزاری کان اسرائيل گزارش داد که رئیس جمهوری آمریکا، به این رسانه گفت: «به نظر من اسرائیل به اندازه کافی پاسخ داده است، دیگر نیازی به پاسخ ندارند.»
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8158494.html
+</div>
+
+## RadioFarda — post 158047
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+استقبال از رئیس‌جمهور چین در کره شمالی؛ «سیاستِ رابطه با پیونگ‌یانگ تغییرناپذیر است»
+
+
+🔸شی جین‌پینگ، رئیس‌جمهور چین، که به پیونگ‌یانگ سفر کرده، می‌گوید روابط میان چین و کره شمالی «در آستانه فصلی نوین در تاریخ خود» قرار گرفته است.
+
+🔸او این اظهارات را روز دوشنبه، ۱۸ خرداد، همزمان با ورود به پیونگ‌یانگ برای برگزاری نشستی کم‌سابقه با رهبر این کشور، کیم جونگ اون، بیان کرد. صحبت‌های او در رسانه دولتی کره شمالی منتشر شد.
+
+🔸رئیس جمهور چین به روزنامه رودونگ سینمون گفت توسعه روابط با کره شمالی، سیاست «ثابت و تغییرناپذیر» چین است و دو کشور همکاری‌ها و تبادلات خود را در همه زمینه‌ها تقویت خواهند کرد.
+
+🔸خبرگزاری رویترز نوشته این سفر از آن جهت اهمیت دارد که نخستین سفر خارجی شی در سال جاری محسوب می‌شود. پکن در سال‌های اخیر به دنبال نزدیک‌تر کردن پیونگ‌یانگ به خود بوده است.
+
+🔸شی افزود: «ما باید با هژمونی‌طلبی، اقتدارگرایی و همه تلاش‌ها و توطئه‌هایی که برای احیای نظامی‌گری و به خطر انداختن امنیت و ثبات منطقه صورت می‌گیرد، مقابله کنیم.»
+
+🔸رسانه‌های دولتی چین گزارش دادند که شی پس از ورود به پیونگ‌یانگ با استقبال رسمی بر روی فرش قرمز از سوی کیم جونگ اون و همسرش روبه‌رو شد. همچنین یگان تشریفات نظامی به او ادای احترام کرد و کودکانی دسته‌گل‌هایی به وی تقدیم کردند.
+
+🔸در مراسمی که در میدان کیم ایل سونگ، محل برگزاری رژه‌های نظامی و جشن‌های دولتی کره شمالی برگزار شد، یک گروه موسیقی نظامی سرود ملی هر دو کشور را نواخت.
+
+🔸خبرگزاری رسمی شین‌هوا نیز گزارش داد که به مناسبت این استقبال، ۲۱ گلوله توپ شلیک شد و جمعیتی که در برابر تصاویر عظیم رهبران دو کشور گرد آمده بودند، شعار سر دادند و بادکنک‌های رنگارنگ را به هوا فرستادند.
+
+🔸نسخه کامل این گزارش را در وب‌سایت رادیوفردا بخوانید.
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 21814
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 سخنگوی ارتش اسرائیل:
+
+اولین مستند رنگی از حملات در ایران: ارتش اسرائیل مدتی پیش سامانه‌های دفاع هوایی رژیم تروریستی ایران را منهدم کرد
+
+نیروی هوایی مدتی پیش پرواز حمله‌ای به سمت سامانه‌های دفاع هوایی رژیم تروریستی ایران در غرب و مرکز ایران انجام داد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21813
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فوری
+
+کابینه امنیتی اسرائیل امشب ساعت ۹ شب دوباره تشکیل جلسه خواهد داد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21812
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+از موقعی که ترامپ از خواب بیدار شد جنگ تموم شد
+
+بدرد نخور
+</div>
+
+## IranianMinds — post 21811
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ : ایران و اسرائیل سریع باید شلیک رو متوقف کنن ! @IranianMinds
+</div>
+
+## IranianMinds — post 21810
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 حمله رژیم جمهوری اسلامی به یک کشتی هندی در سواحل عمان
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21809
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دختر مردمو زدن سر اینکه موهاش یه کمی بیرون بود کشتن بعد یه جنده هاشون تو تجمعات و رسانه هاشون لخت لخت مینوازن واسه خودشون
+</div>
+
+## BBCPersian — post 283169
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻لغو تمامی پرواز‌های فرودگاه شیراز تا پایان امروز
+
+مدیرکل فرودگاه‌های استان فارس اعلام کرده که تمامی پرواز‌های فرودگاه شیراز «به دلیل شرایط به وجود آمده، فعلا تا ساعت ۲۳ و ۱۵ دقیقه امشب لغو شده و این فرودگاه در حال حاضر هیچ‌گونه عملیات پروازی نخواهد داشت.»
+
+پیش از این ارتش اسرائیل گفته بود که اهدافی را در این فرودگاه هدف قرار داده است.
+
+با این حال خبرگزاری مهر گزارش کرده که «هیچ اصابت یا برخوردی» در این فرودگاه روی نداده است.
+
+این رسانه نوشته: «بر اساس پیگیری‌های خبرنگار مهر هیچگونه انفجار ناشی برخوردی در فرودگاه شیراز رخ نداده است.»
+
+بنابر اعلام سازمان هواپیمایی ایران، تمام پروازها از فرودگاه‌های «مهرآباد و امام خمینی تا اطلاع ثانوی» لغو شده است.
+
+@BBCPersian
+</div>
+
+## BBCPersian — post 283168
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283168_1780914806.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻دونالد ترامپ، رئیس‌جمهور آمریکا خواستار توقف حملات ایران و اسرائیل شد.
+
+آقای ترامپ در شبکه اجتماعی تروث سوشال نوشت: «اسرائیل و ایران باید فورا "شلیک" را متوقف کنند.»
+
+پس از حملات هوایی اسرائیل به چند شهر ایران از جمله تهران، اصفهان، تبریز و کرج مقام‌های آمریکایی گفتند که ارتش ایالات متحده در این حملات هیچ نقش و مشارکتی نداشته است.
+
+با این حال اسماعیل بقایی، سخنگوی وزارت خارجه ایران امروز گفت مسئول تمام اتفافات در منطقه با آمریکاست.
+
+هم ایران هم اسرائیل امروز حملات جدیدی به یکدیگر کرده‌اند.
+
+آقای ترامپ بعد از شروع این حملات از این موضوع و قطع ‌آتش‌بس ابراز نارضایتی کرده است.
+
+@BBCPersian
+📷 REUTERS
+</div>
+
+## idfinfarsi — post 11818
+
+<div align="center">
+  <a href="telegram/content/idfinfarsi_11818_1780914807.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‼️ اولین مستندات رنگی از حملات در ایران: ارتش اسرائیل مدتی پیش سامانه‌های پدافند هوایی رژیم تروریستی ایران را منهدم کرد
+
+⭕️نیروی هوایی مدتی پیش یک موج حمله علیه سامانه‌های پدافند هوایی رژیم تروریستی ایران در غرب و مرکز ایران را تکمیل کرد.
+
+⭕️ارتش اسرائیل اکنون تصاویری رنگی از انهدام یکی از این سامانه‌ها منتشر می‌کند که در آن موشک‌هایی که برای هدف قرار دادن هواگردها در نظر گرفته شده بودند، نگهداری می‌شدند. پس از حمله، انفجارهای ثانویه شناسایی شد که نشان‌دهنده وجود این موشک‌ها در سکوی پرتاب است.
+
+⭕️انهدام این سامانه‌ها، برتری هوایی نیروی هوایی در آسمان ایران را بیش از پیش گسترش می‌دهد، با هدف ادامه رفع تهدید از شهروندان کشور اسرائیل.
+</div>
+
+## Dirty_Kids — post 391353
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391353_1780914808.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[هشدار: ویدئو حاوی صدای حیدعععررررررر حیدعععررررررر گوش‌خراش ] ⚠️
+
+فیلمی از موشتبا AI که کانال‌های شیعه‌سانان رافضی منتشر کردن، لذت میبرن کشور رو به جنگ بعدی کشوندن
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391352
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391352_1780914809.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 دنیا جهانبخت توی بله و روبیکا کانال زده!
+
++ احتمالا بزودی برمیگرده ایران.
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 126235
+
+<div align="center">
+  <a href="telegram/content/alonews_126235_1780914809.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / یه جت خصوصی از امارات ،با وجود لغو تمام پرواز ها داره میاد تو کشور و نزدیک تهرانه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126234
+
+<div align="center">
+  <a href="telegram/content/alonews_126234_1780914809.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈زلزله‌ای به قدرت ۴ ریشتر ظهر امروز حوالی مهران در استان ایلام را لرزاند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126233
+
+<div align="center">
+  <a href="telegram/content/alonews_126233_1780914810.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سخنگوی وزارت خارجه چین : پکن به‌شدت نگران وضعیت فعلی و از سر گرفته شدن درگیری‌ها بین اسرائیل و ایرانه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/18 13:53
 ---
 

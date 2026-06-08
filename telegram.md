@@ -7,6 +7,291 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/18 05:12
+---
+
+## VahidOOnLine — post 244230
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244230_1780882975.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️صبح دوشنبه، به دنبال بیانیه ارتش اسرائیل مبنی بر حمله به اهداف حکومت ایران در غرب و مرکز ایران، گزارش‌های مردمی حاکی از شنیده شدن صدای انفجار در تبریز و تهران است. سپاه پاسداران یکشنبه شب و در جریان آتش‌بسی که از ۱۹ فروردین‌ماه برقرار بود در چند موج حمله موشکی شمال اسرائیل را هدف قرار داد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244229
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244229_1780882975.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ سخنگوی ارتش اسرائیل در نخستین ساعات بامداد دوشنبه و اندکی پس از حمله‌های موشکی جمهوری اسلامی به اسرائیل در گزارش اولیه اعلام کرد: «نیروی هوایی اسرائیل، تحت هدایت رکن اطلاعات ارتش، اندکی قبل به اهداف نظامی رژیم ایران در غرب و مرکز ایران حمله کرد. جزئیات بیشتر متعاقبا اعلام خواهد شد.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## mwarmonitor — post 10366
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+۳ انفجار در اصفهان
+</div>
+
+## mwarmonitor — post 10365
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴بر اساس گزارش شبکه ۱۲ اسرائیل، فرودگاه مهرآباد در تهران هدف حمله قرار گرفته است.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10364
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_10364_1780882976.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کرمانشاه
+</div>
+
+## mwarmonitor — post 10363
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_10363_1780882976.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تهران کرج
+</div>
+
+## mwarmonitor — post 10362
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_10362_1780882977.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انفجار در اصفهان
+</div>
+
+## mwarmonitor — post 10361
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴جنگنده‌های اسرائیلی در آسمان پایتخت بیروت در حال پرواز هستند.
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 92751
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ارتش اسرائیل: نیروی هوایی اسرائیل دقایقی پیش به اهداف نظامی ایران تو غرب و مرکز این کشور حمله کرد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92750
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+زدن
+</div>
+
+## kianmeli1 — post 87765
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87765_1780882978.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری
+
+اصفهان زیر بمباران شدید اسراییل
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87764
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری-کانال ۱۲ اسرائیل اعلام کرد که فرودگاه مهرآباد تهران مورد حمله قرار گرفته است.
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87763
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87763_1780882979.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری
+
+حمله اسراییل به غرب ایران
+https://t.me/kianmeli1
+</div>
+
+## Shin_Persian — post 6683
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6683_1780882979.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Mon, 08 Jun 2026 01:36:32 UTC
+
+Regarding this image that's being published now: object shadows don't match with the current time in Iran AT ALL.
+
+فارسی
+
+درباره این تصویری که اکنون در حال انتشار است: سایه‌های اشیاء به هیچ وجه با زمان فعلی در ایران مطابقت ندارند.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6682
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6682_1780882980.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Mon, 08 Jun 2026 01:33:14 UTC
+
+Reportedly from Isfahan
+#Isfahan Province, #Iran
+(Image: not mine)
+
+فارسی
+
+گزارش‌ها از اصفهان
+استان #اصفهان، #ایران
+(تصویر: متعلق به من نیست)
+
+𝕏 · @shin_persian
+</div>
+
+## Iliaen — post 4454
+
+<div align="center">
+  <img src="telegram/content/Iliaen_4454_1780882981.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترجمه بیانیه رسمی ارتش اسرائیل:
+
+“نیروی هوایی اسرائیل اندکی پیش به اهداف نظامی متعلق به رژیم تروریستی ایران در غرب و مرکز ایران حمله کرد.”
+
+@iliaen
+</div>
+
+## FarsiVOA — post 219964
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219964_1780882982.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ارتش اسرائيل دقایقی قبل اعلام کرد که به اهداف نظامی جمهوری اسلامی در غرب و مرکز ایران حمله کرده است.
+@FarsiVOA
+</div>
+
+## BBCPersian — post 283127
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283127_1780882982.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 رسانه‌های رسمی ایران از شنیدن انفجار و حمله هوایی به چند شهر ایران از جمله تهران، اصفهان، تبریز و نزدیک به کرج خبر می‌دهند.
+
+https://bbc.in/4fwDUTo
+@BBCPersia
+</div>
+
+## BBCPersian — post 283126
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻افزایش نگرانی از تشدید بحران؛ پرسش اصلی میزان نفوذ آمریکا بر اسرائیل است
+
+جان سودورس - خبرنگار اعزامی بی‌بی‌سی به بیروت
+نگرانی‌ها از تشدید درگیری‌ها در منطقه در حال افزایش است و پرسش‌هایی درباره میزان نفوذ ایالات متحده بر روند تحولات مطرح شده است.
+
+ارتش اسرائیل پیش‌تر اعلام کرده بود پس از هدف قرار دادن مواضع حزب‌الله در بیروت، برای «احتمال حملات بیشتر» آماده است.
+
+بیروت به نوعی به میدان رقابت ژئوپلیتیک در چارچوب درگیری گسترده‌تر میان اسرائیل و لبنان تبدیل شده است.
+
+در حالی که بخش عمده درگیری‌ها در جنوب لبنان و در قالب حملات زمینی و هوایی شدید اسرائیل ادامه دارد، بیروت در هفته‌های اخیر به دلایل سیاسی تا حدی متفاوت مدیریت شده بود و تحت فشار آمریکا، اسرائیل تا حدی در حملات به پایتخت لبنان محتاط تر عمل می‌کرد.
+
+اما این وضعیت امروز تغییر کرده است؛ با حمله به حومه جنوبی بیروت و گزارش‌هایی از خسارات شدید به یک ساختمان مسکونی و انتقال مجروحان به بیمارستان.
+
+همزمان ارتش اسرائیل هشدار داده که «ممکن است حملات ادامه داشته باشد» و یکی از سخنگویان آن در شبکه اجتماعی ایکس نوشته است: «ادامه دارد».
+
+این حمله پس از آن رخ داد که ارتش اسرائیل اعلام کرد دو پرتابه از سوی حزب‌الله از مرز عبور کرده و حزب‌الله نیز مسئولیت آن را بر عهده گرفته است.
+
+از نگاه اسرائیل، این تحولات نشانه پایان صبر این کشور بوده است. با وجود فشارهای آمریکا، اسرائیل همواره تأکید کرده که در صورت تشخیص تهدید امنیتی، حق حمله به بیروت را برای خود محفوظ می‌داند.
+
+این حملات تازه، نگرانی‌ها درباره احتمال گسترش بیشتر جنگ را افزایش داده است.
+
+همچنین با توجه به گزارش‌هایی از واشنگتن که می‌گویند دونالد ترامپ این حمله را تأیید نکرده، پرسش‌هایی درباره میزان کنترل و نفوذ آمریکا بر اسرائیل مطرح شده است؛ به ویژه در شرایطی که ایالات متحده تلاش می‌کند از جنگی که خود سه ماه پیش آغاز کرده بود، خارج شود.
+
+https://bbc.in/4fwDUTo
+@BBCPersian
+</div>
+
+## BBCPersian — post 283125
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283125_1780882983.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ پس از حمله موشکی ايران به اسرائيل با چند رسانه آمريکايی و بين‌المللی گفت وگو کرده و بر لزوم جلوگيری از تشديد تنش‌ها تأکيد کرده است.
+
+او پيش از تماس تلفنی با بنيامين نتانياهو، نخست وزير اسرائيل، به نشریه آکسیوس گفته بود که قصد دارد از نخست‌وزیر اسرائیل بخواهد در واکنش به حملات ايران اقدام تلافی جويانه انجام ندهد.
+
+ترامپ در گفت وگو با شبکه ۱۲ اسرائيل نيز همين موضع را تکرار کرد و گفت نمی‌خواهد «حمله ديگری امشب» رخ دهد. او به نقل از تايمز آو اسرائيل گفت: «حملات ايران به کسی آسيب نزد. هر طرف کار خودش را انجام داد؛ اسرائيل حمله کرد و ايران هم حمله کرد. ما نيازی به حمله ديگری نداريم.»
+
+او افزود که قصد دارد «همين حالا» با نتانياهو تماس بگيرد و به او بگويد از تلافی خودداری کند.»
+
+ترامپ همچنين پيش تر در گفت وگو با فايننشال تايمز گفته بود که نتانياهو «چاره‌ای جز پذيرش توافق با ايران نخواهد داشت»، در حالی که تلاش‌ها برای رسيدن به يک توافق و مهار تنش‌های منطقه‌ای ادامه دارد.
+
+📸 Getty
+
+https://bbc.in/4fwDUTo
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 391316
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391316_1780882983.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انفجار بزرگی در نزدیکی فرودگاه مهرآباد تهران
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391315
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391315_1780882984.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترجمه بیانیه رسمی ارتش اسرائیل:
+
+“نیروی هوایی اسرائیل اندکی پیش به اهداف نظامی متعلق به رژیم تروریستی ایران در غرب و مرکز ایران حمله کرد.”
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/03/18 05:03
 ---
 

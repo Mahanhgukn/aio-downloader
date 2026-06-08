@@ -7,6 +7,241 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/18 18:24
+---
+
+## mwarmonitor — post 10473
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴«سخنرانی نتانیاهو تا دقایقی دیگر»
+</div>
+
+## pm_afshaa — post 92933
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92933_1780930457.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خضریان، عضو کمیسیون امنیت ملی مجلس: حملات موشکی ما تا برقراری آتش‌بس در لبنان ادامه داره.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92932
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92932_1780930458.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴قالیباف: معادله آتش‌‌بس روی کاغذ و نقض مکرر آن در میدان رو به هم زدیم. تا زمانی که ارادهٔ واقعی برای اعتمادسازی نداشته باشید، پاسخ ایران همین خواهد بود.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## VahidOnline — post 76063
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76063_1780930459.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رییس سازمان اورژانس ایران، روز دوشنبه ۱۸ خرداد ۱۴۰۵، اعلام کرد در جریان حملات اسراییل به ایران، ۱۵ نفر مجروح شده‌اند و تاکنون هیچ موردی از جان‌باختن شهروندان گزارش نشده است.
+@VahidHeadline
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 76062
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76062_1780930460.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری ایسنا عصر روز دوشنبه، ۱۸ خردادماه، به نقل از شرکت فرودگاه‌ها و ناوبری هوایی ایران خبر داد که «همه پروازهای فرودگاه‌های کشور تا اطلاع ثانوی لغو شد».
+
+این اداره همچنین از تمام مسافران خواست تا «جهت حفظ نظم و پیشگیری از هرگونه سردرگمی، تا زمان اعلام وضعیت عادی از سوی مراجع ذی‌صلاح به فرودگاه‌ها مراجعه نکنند».
+
+این خبر ساعتی پس از آن منتشر شده که قرارگاه مرکزی خاتم‌الانبیاء سپاه در آغاز بعدازظهر روز دوشنبه با انتشار بیانیه‌ای از توقف عملیات نیروهای مسلح جمهوری اسلامی علیه اسرائیل خبر داد.
+
+همزمان رئیس سازمان حج و زیارت خبر داده است که «با توجه به شرایط پروازهای بازگشت حجاج احتمال تأخیر در برخی پروازها حتی تا ۷۲ ساعت وجود دارد».
+
+او اضافه کرد: «برای فردا (سه‌شنبه ۱۹ خرداد) ۱۰ پرواز پیش‌بینی شده که امیدواریم بخش عمده آن‌ها انجام شود.»
+@VahidHeadline
+
+📡 @VahidOnline
+</div>
+
+## DW_Farsi — post 125695
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 پهپادها؛ چالش تازه فرودگاه‌های آلمان
+
+پرواز پهپادهای غیرمجاز در نزدیکی فرودگاه‌های آلمان به یکی از چالش‌های رو به رشد صنعت هوانوردی این کشور تبدیل شده است.
+
+تازه‌ترین پژوهش "مرکز هوافضای آلمان" DLR، نهاد پژوهشی دولتی آلمان در حوزه هوافضا، نشان می‌دهد که تنها در سال ۲۰۲۵ در مجموع ۲۲۶ مشاهده پهپاد در اطراف فرودگاه‌های آلمان ثبت شده که ۱۱۶ مورد از آنها به توقف کامل یا محدود شدن عملیات پروازی در ۲۵ فرودگاه این کشور انجامیده است.
+
+بر این اساس، خسارت مستقیم ناشی از این اختلال‌ها حدود ۶۰ میلیون یورو برآورد می‌شود. پژوهشگران می‌گویند اگر هزینه‌های ناشی از تاخیرها، تغییر مسیر پروازها، لغو پروازها و اختلال در برنامه شرکت‌های هواپیمایی نیز محاسبه شود، این رقم می‌تواند به ۱۶۰ میلیون یورو برسد.
+
+بر اساس آمار سازمان "کنترل ترافیک هوایی" DFS گزارش‌های مربوط به مشاهده پهپادها در اطراف فرودگاه‌ها و مسیرهای پروازی در سال‌های اخیر روند صعودی داشته و به یکی از دغدغه‌های اصلی مسئولان ایمنی پرواز تبدیل شده است.
+
+بیشتر بخوانید: توقف چند ساعته فعالیت فرودگاه مونیخ به دلیل مشاهده پهپاد
+
+به گفته کارشناسان در بسیاری موارد، صرف مشاهده یک پهپاد در نزدیکی باند فرودگاه کافی است تا برج مراقبت برای حفظ ایمنی پروازها، نشست و برخاست هواپیماها را متوقف یا محدود کند. همین توقف‌های کوتاه‌مدت می‌توانند به زنجیره‌ای از تأخیرها و اختلال‌ها در سراسر شبکه حمل‌ونقل هوایی منجر شوند.
+</div>
+
+## Persian_Trend_Official — post 16198
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16198_1780930461.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یسرائیل کاتز، وزیر دفاع اسرائیل: با ضاحیه در بیروت مانند شهرک‌های شمالی رفتار می‌شود.
+
+هرگونه حمله به شهرک‌های شمالی منجر به حمله به ضاحیه خواهد شد. ارتش اسرائیل به عملیات خود در لبنان علیه سازمان تروریستی حزب‌الله ادامه خواهد داد. ما تهدیدات ایران را کاملاً رد می‌کنیم.
+
+هرگونه تلاش ایران برای پیوند دادن لبنان و ایران و حمله به اسرائیل، همانطور که دیروز اتفاق افتاد با پاسخ شدیدی روبرو خواهد شد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16197
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16197_1780930463.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قالیباف: معادله آتش‌‌بس روی کاغذ و نقض مکرر آن در میدان را برهم زدیم.
+
+تا ارادهٔ واقعی برای اعتمادسازی نداشته باشید، پاسخ ایران همین خواهد است.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16196
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16196_1780930463.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سخنگوی وزارت دفاع عربستان اعلام کرد که گزارش های منتشر شده از حمله به پایگاه هوایی شاهزاده سلطان کذب میباشد.
+
+او افزود که به صدا درآمدن آژیر خطر در استان الخرج در سپیده دم امروز، یک اقدام احتیاطی پس از پرتاب یک موشک بالستیک از یمن بود که در نزدیکی مرز ناپدید شد. تحقیقات برای تعیین جزئیات این پرتاب ادامه دارد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 21857
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21857_1780930464.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴دبیر شورای عالی امنیت ملی:
+
+اگر ائتلاف شیطانی خطا کند، منطقه برایش جهنم خواهد شد.
+
+@IranianMinds
+</div>
+
+## Hranews — post 113468
+
+<div align="center">
+  <img src="telegram/content/Hranews_113468_1780930465.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جعفر میعادفر، رئیس سازمان اورژانس کشور اعلام کرد که در جریان درگیری‌های ایران و اسرائیل که پس از آتش‌بس صورت گرفته است، ۱۵ شهروند مجروح شدند که یک تن از این افراد کماکان در بیمارستان بستری و مابقی مجروحین پس از دریافت خدمات درمانی، ترخیص شده‌اند. وی همچنین در ادامه افزود:«۱۴ نفر از این مجروحین، مربوط به شهرستان ماهشهر و یک نفر نیز از شهر تهران است.»
+#حمله_نظامی #جنگ
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## alonews — post 126309
+
+<div align="center">
+  <a href="telegram/content/alonews_126309_1780930466.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نتانیاهو ساعت ۱۸:۱۵ به وقت اسرائیل قراره یه بیانیه بده
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126308
+
+<div align="center">
+  <a href="telegram/content/alonews_126308_1780930466.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزیر دفاع اسرائیل کاتز: اسرائیل به طور قاطع تهدیدات ایران را رد می‌کند.
+
+
+🔴هر تلاش ایرانی برای پیوند دادن لبنان و ایران و حمله به اسرائیل با نیروی عظیمی مواجه خواهد شد، همانطور که دیروز اتفاق افتاد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126307
+
+<div align="center">
+  <a href="telegram/content/alonews_126307_1780930467.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈قالیباف: معادلهٔ آتش‌‌بس روی کاغذ و نقض مکرر آن در میدان را برهم زدیم
+
+
+🔴تا زمانی که ارادهٔ واقعی برای اعتمادسازی نداشته باشید، پاسخ ایران همین خواهد بود.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126306
+
+<div align="center">
+  <a href="telegram/content/alonews_126306_1780930467.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فیلد مارشال ، محسن رضایی: ایران از غنی‌سازی کوتاه نمیاد و در موضوع آزاد کردن پول‌های بلوکه‌شده جدیه
+
+
+🔴اگه مذاکره نتیجه نده، محاصره دریایی رو تحمل نمیکنیم و اقدام نظامی انجام میدیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126305
+
+<div align="center">
+  <a href="telegram/content/alonews_126305_1780930467.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نیروهای اسرائیلی در حال هدف قرار دادن یحمر الشقیف در جنوب لبنان هستند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/18 18:14
 ---
 

@@ -7,6 +7,195 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/18 22:03
+---
+
+## VahidOOnLine — post 244413
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244413_1780943629.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسماعیل قاآنی، فرمانده نیروی قدس سپاه پاسداران، در واکنش به شلیک موشک از یمن به سمت اسرائیل، در پیامی نوشت که اقدام یمن نشان از هوشمندی جبهه مقاومت دارد؛ اگر لازم شد دیگران نیز می‌آیند.
+او افزود: از تنگه هرمز تا باب‌المندب و از خلیج فارس تا دریای سرخ کمربند امنیتی جدید مقاومت خواهد بود. حملات اسرائیل و آمریکا در این منطقه عکس‌العمل جبهه متحد مقاومت را در پی خواهد داشت.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244412
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_244412_1780943630.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️بنیامین نتانیاهو، نخست‌وزیر اسرائیل، در پیامی ویدیویی که پس از درگیری نظامی اخیر میان ایران و اسرائیل منتشر شد، گفت پس از حمله ایران، به ارتش اسرائیل دستور داده است اهداف نظامی و اقتصادی را در سراسر ایران هدف قرار دهد.
+نتانیاهو گفت: «پس از اینکه ایران به اسرائیل حمله کرد، من به ارتش دستور دادم که اهداف نظامی و اقتصادی را در سراسر ایران هدف قرار دهد. این کار را هم انجام دادیم.»
+او در ادامه مدعی شد حملات اسرائیل باعث توقف حملات ایران شده است و افزود: «در حال حاضر، آتش در این جبهه متوقف شده است، زیرا پس از ضربه‌ای که به رژیم در تهران وارد کردیم، او از حمله به ما دست کشید.»
+نخست‌وزیر اسرائیل همچنین هشدار داد در صورت ازسرگیری حملات از سوی جمهوری اسلامی، اسرائیل با شدت بیشتری واکنش نشان خواهد داد.
+او گفت: «اگر دوباره به ما حمله کنند، با قدرت پاسخ خواهیم داد؛ زیرا اسرائیل حق کامل دفاع از خود را دارد و هر زمان که لازم باشد، این حق را اعمال خواهد کرد.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14060
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+استان یزد فردا تعطیل شد
+@withyashar
+</div>
+
+## WithYashar — post 14059
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: جمهوری اسلامی از ما خواست تا اسرائیل حملاتش به ایران را متوقف کند
+@withyashar
+جمهوری اسلامی هم میگه آمریکا خواست 🤣
+</div>
+
+## IranIntlTV — post 341228
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341228_1780943631.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسماعیل قاآنی، فرمانده نیروی قدس سپاه پاسداران، در واکنش به شلیک موشک از یمن به سمت اسرائیل، در پیامی نوشت که اقدام یمن نشان از هوشمندی جبهه مقاومت دارد؛ اگر لازم شد دیگران نیز می‌آیند.
+او افزود: از تنگه هرمز تا باب‌المندب و از خلیج فارس تا دریای سرخ کمربند امنیتی جدید مقاومت خواهد بود. حملات اسرائیل و آمریکا در این منطقه عکس‌العمل جبهه متحد مقاومت را در پی خواهد داشت.
+https://iranintl.com/202606088480
+</div>
+
+## IranIntlTV — post 341227
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341227_1780943632.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بنیامین نتانیاهو گفت: «در شبانه‌روز گذشته، ایران و حزب‌الله تلاش کردند معادله‌ای جدید و غیرقابل‌تحمل را به ما تحمیل کنند. آن‌ها تصور کردند می‌توانند از خاک لبنان و ایران به اسرائیل شلیک کنند و ما واکنشی نشان ندهیم. اما این اتفاق نیفتاد و هرگز هم نخواهد افتاد.»
+
+او افزود: «ما ضربات سنگینی به حزب‌الله وارد کرده‌ایم و به نابودی تمام زیرساخت‌های تروریستی آن‌ها در منطقه امنیتی ادامه می‌دهیم. ایران و حزب‌الله امروز ضعیف‌تر از همیشه‌اند و ما قوی‌تر از همیشه، اما نبرد با آنها هنوز به پایان نرسیده است.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 341226
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/341226" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی تیتراول با نیوشا صارمی: هشدار نتانیاهو به تهران: حمله به اسرائیل بی‌پاسخ نمی‌ماند؛ کار ما تمام نشده
+@iranintlTV
+</div>
+
+## IranIntlTV — post 341225
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341225_1780943634.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نظارت بر سلامت محصولات دامی غیرخام و فرآوری‌شده در ایران از سازمان دامپزشکی به سازمان غذا و دارو منتقل می‌شود. نیما بهرامی، دامپزشک و پژوهشگر، در این باره گفت: «هدف اصلی خدمت به مردم نیست، بلکه منافع اقتصادی برخی گروه‌ها در میان است.»
+
+او افزود: «نظام سلامت ما به جای آنکه پیشگیری‌محور باشد، درمان‌محور است، زیرا سود اقتصادی در درمان نهفته است؛ در حالی که برای جامعه، پیشگیری بسیار کم‌هزینه‌تر و موثرتر است.»
+@iranintltv
+</div>
+
+## FarsiVOA — post 220055
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220055_1780943636.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+برادر سیاوش منصوری‌نژاد، از کشته‌شدگان دی ماه ۱۴۰۴، بعد از بازگشایی محدود اینترنت در ایران، ویدیویی از سوگواری بر آرامگاه سیاوش منتشر کرده است.
+
+سیاوش منصوری‌نژاد، ۳۰ ساله، مکانیک، ۱۹ دی ۱۴۰۴ با شلیک گلوله ماموران حکومتی به سینه‌اش در مهرشهر کرج کشته شد.
+
+نسخه اصلی این ویدیو با موسیقی متن منتشر شده است.
+</div>
+
+## Persian_Trend_Official — post 16223
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16223_1780943638.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تصویری واضح تر از سوله منهدم شده در پایگاه رامات دیوید
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Dirty_Kids — post 391406
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391406_1780943639.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این دخترا چشونه؟! یه دو دیقه نجنگید ببینیم تکلیف جنگ چی میشه
+
+
+@Dirty_Kids 👻
+</div>
+
+## Hranews — post 113473
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارشی از معوقات مزدی، بیمه ای و بیکاری کارگران کارخانه تولی پرس قزوین
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– حدود ۱۰۸ #کارگر کارخانه تولی پرس قزوین پس از تعطیلی این کارخانه در بلاتکلیفی شغلی به سر می‌برند. این کارگران از عدم پرداخت چندین ماه حق بیمه و مطالبات مزدی خود ابراز نارضایتی کرده و خواستار بازگشت به کار هستند.
+
+ادامه مطلب
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## alonews — post 126369
+
+<div align="center">
+  <a href="telegram/content/alonews_126369_1780943639.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈عارف: دشمن ناچار به التماس مجدد برای آتش‌بس شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126368
+
+<div align="center">
+  <a href="telegram/content/alonews_126368_1780943639.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تصویر آخرالزمانی از زلزله ۷/۸ ریشتری‌ فیلیپین؛ این ۳ ساختمان متصل به هم از یکدیگر جدا شدند و آب استخر به پایین می‌ریزد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126367
+
+<div align="center">
+  <a href="telegram/content/alonews_126367_1780943641.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈استان یزد فردا تعطیل شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/18 21:53
 ---
 

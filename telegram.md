@@ -7,6 +7,353 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/18 05:43
+---
+
+## VahidOOnLine — post 244240
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244240_1780884814.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️سپاه پاسداران انقلاب اسلامی در بیانیه‌ای ادعا کرد، ارتش اسرائیل در حمله‌های بامداد دوشنبه که پس از حمله‌های یکشنبه شب سپاه به شمال اسرائیل انجام شد، از «موشک‌های بالستیک پرتاب‌شونده از هوا» استفاده کرده است. ارتش اسرائیل هنوز نوع سلاح‌های به کار رفته را اعلام نکرده و تنها گفته است که به مواضع رژیم ایران در غرب و مرکز ایران حمله کرده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244239
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244239_1780884815.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سپاه پاسداران صبح دوشنبه در بیانیه‌ای اعلام کرد که اسرائیل با استفاده از موشک‌های بالستیک هواپرتاب اقدام به حمله به اهدافی در خاک ایران کرد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244238
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244238_1780884816.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️درحالی که هنوز ارتش اسرائیل اعلام نکرده حمله‌های بامداد دوشنبه در پاسخ به حمله‌های یکشنبه شب سپاه پاسداران به شمال اسرائیل را با چه تجهیزات و تسلیحاتی انجام داده است، کانال ۱۴ تلویزیون اسرائیل گفت که جنگنده های اسرائیلی اهدافی را در ایران هدف قرار داده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244237
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244237_1780884816.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال ۱۲ اسرائیل از حمله نیروی هوایی این کشور به فرودگاه مهرآباد تهران خبر داد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244236
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244236_1780884817.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️در ساعات اولیه بامداد دوشنبه، به دنبال حمله موشکی سپاه به شمال اسرائیل و پاسخ اسرائیل که با انفجارهای شدید در غرب و مرکز ایران همراه بود، حریم هوایی ایران در اطراف فرودگاه «امام خمینی» بسته شد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## mwarmonitor — post 10371
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨«گزارش‌ها حاکی است که اسرائیل حداقل ۱۵ هدف را در سراسر ایران مورد حمله قرار داده است. از جمله اهدافی که تاکنون هدف قرار گرفته‌اند: یک کارخانه تولید پهپاد، فرودگاه بین‌المللی تهران، و تأسیسات نفتی راهبردی.» I24
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10370
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 سایت والا: نیروی هوایی اسرائیل بیش از ۱۰ هدف را از جمله سامانه‌های پدافند هوایی و موشک‌های بالستیک هدف قرار داده است.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10369
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸سپاه پاسداران انقلاب اسلامی : دشمن صهیونیستی با استفاده از موشک‌های بالستیک شلیک‌شده از هوا، اهدافی را در خاک ما مورد حمله قرار داده است.
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 342706
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342706_1780884818.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: The Israel Defense Forces confirmed it carried out strikes Sunday in western and central Iran.
+
+In a statement, the military said the Israeli Air Force carried out the strikes.
+
+The strikes come after Iran launched a missile attack on Israel earlier in the day, and as President Trump warns retaliation could "blow up" peace negotiations.
+</div>
+
+## pm_afshaa — post 92768
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92768_1780884819.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سپاه: اهدافی از خاک کشورمون مورد حمله دشمن قرار گرفت.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92767
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92767_1780884820.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴بیش از 20 سایت ایرانی، از جمله فرودگاه مهرآباد تهران، کارخانه تولید پهپاد و سایت‌های موشکی، توسط اسرائیل هدف قرار گرفته شد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## VahidOnline — post 76018
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76018_1780884821.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👆 نجف اباد ساعت ۴:۴۰ فکر کنم با پهپاد زدن
+
+سار پیام‌های دریافتی:
+کرج هستیم الان دوشنبه ساعت ۴:۴۳ دقیقه صبح از راه دور صدای انفجار بسیار بزرگی اومد
+
+
+سلام وحید سمت شهرک غرب ۴:۴۳ دو بار تا الان صدا اومد خفیف بود
+
+ما رباط کریم هستیم
+ساعت ۴:۴۵ صبح ۴ بار صدای انفجار اوم
+
+وحید ساعت 4:44 صدای انفجار نزدیک سمت جنوب تهران (باقرشهر) شنیده شد طوری ک خونه لرزید
+
+سلام،چهاردانگه دوبار صدای بلند اومد ساعت ۴:۴۳ دقیقه
+
+سلام وحید سمت مهرآباد ساعت 4:45 دو تا صدای انفجار شبیه دوران جنگ اومد
+
+ما شمال غرب تهران چند دقیقه پیش و دقایق قبلش صدای انفجار مهیبی شنیدیم ولی دور بود. صدای جنگنده هم نیومد
+
+📡 @VahidOnline
+بقیه پیام‌ها رو هم بعدا در این پست جا می‌دمن.
+</div>
+
+## kianmeli1 — post 87773
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87773_1780884821.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴صداسیما حمله به تهران،تبریز و اصفهان رو تایید کرد
+https://t.me/+_a5ind9hr7sxOTE0
+</div>
+
+## kianmeli1 — post 87772
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری-ارتش اسرائیل:
+
+تاسیسات نظامی در غرب و مرکز ایران مورد هدف قرار گرفت
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87771
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏🔴وقوع دست‌کم سه انفجار در اصفهان گزارش میشود
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87770
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سپاه اعلام کرد به ایران حمله موشکی شده است
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 341094
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341094_1780884822.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سپاه پاسداران صبح دوشنبه در بیانیه‌ای اعلام کرد که اسرائیل با استفاده از موشک‌های بالستیک هواپرتاب اقدام به حمله به اهدافی در خاک ایران کرد.
+https://iranintl.com/202606086987
+</div>
+
+## IranIntlTV — post 341093
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341093_1780884822.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال ۱۲ اسرائیل از حمله نیروی هوایی این کشور به فرودگاه مهرآباد تهران خبر داد.
+https://iranintl.com/202606080070
+</div>
+
+## Shin_Persian — post 6690
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet: OSINTdefender ✓ @sentdefender Mon, 08 Jun 2026 01:30:18 UTC Get ready for an angry post on TruthSocial by President Trump. ↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید. فارسی منتظر یک پست تند و عصبی در TruthSocial از سوی پرزیدنت…
+</div>
+
+## Shin_Persian — post 6689
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+OSINTdefender ✓ @sentdefender
+Mon, 08 Jun 2026 01:30:18 UTC
+
+Get ready for an angry post on TruthSocial by President Trump.
+
+↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
+
+فارسی
+
+منتظر یک پست تند و عصبی در TruthSocial از سوی پرزیدنت ترامپ باشید.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6688
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet: Shin ✓ @hey_itsmyturn Mon, 08 Jun 2026 02:03:34 UTC Seems like ALBMs were used for the recent strikes on Iran, not bombs. ↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید. فارسی به نظر می‌رسد که در حملات اخیر به ایران، به جای بمب از…
+</div>
+
+## Shin_Persian — post 6687
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+Shin ✓ @hey_itsmyturn
+Mon, 08 Jun 2026 02:03:34 UTC
+
+Seems like ALBMs were used for the recent strikes on Iran, not bombs.
+
+↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
+
+فارسی
+
+به نظر می‌رسد که در حملات اخیر به ایران، به جای بمب از موشک‌های بالستیک هواپایه (ALBM) استفاده شده است.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6686
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Mon, 08 Jun 2026 02:03:34 UTC
+
+Seems like ALBMs were used for the recent strikes on Iran, not bombs.
+
+فارسی
+
+به نظر می‌رسد در حملات اخیر به ایران از موشک‌های بالستیک هواپایه (ALBM) استفاده شده است، نه بمب.
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 219967
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺ساعاتی پس از حمله موشکی جمهوری اسلامی؛ اسرائيل می‌گوید به مواضع «رژیم تروریستی» در مرکز و غرب ایران حمله کرد
+
+▪️ارتش اسرائيل بامداد دوشنبه ۱۸ خرداد به وقت تهران اعلام کرد که به اهداف نظامی جمهوری اسلامی در غرب و مرکز ایران حمله کرده است.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8158481.html
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 16026
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+الجزیره : اسرائیل انبار پهپادها رو تو تهران هدف قرار داد.
+</div>
+
+## Persian_Trend_Official — post 16025
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+والا نیوز عبری: نیروی هوایی اسرائیل بیش از 10 سایت از جمله سامانه‌های دفاع هوایی و موشک‌های بالستیک را هدف قرار داد.
+</div>
+
+## Persian_Trend_Official — post 16024
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16024_1780884823.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال ۱۴ اسرائیل: هواپیماهای ما در حال حاضر در حال حمله به اهدافی در داخل خاک ایران هستند
+
+برخی منابع از حملات جدید ایران به مواضع دشمن خبر می دهند
+</div>
+
+## BBCPersian — post 283129
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283129_1780884824.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻ارتش اسرائیل با انتشار بیانیه‌ای از حملات هوایی به چند نقطه ایران خبر داده و گفته است: «نیروی هوایی اسرائیل، تحت هدایت رکن اطلاعات ارتش، اندکی قبل به اهداف نظامی رژیم تروریستی ایران در غرب و مرکز ایران حمله کرد.»
+
+پیش از این سپاه پاسداران هشدار داده بود که در صورت اقدام متقابل اسرائیل با شدت بیشتری واکنش نشان خواهد داد.
+
+جزئيات بيشتری درباره ماهيت اهداف مورد حمله، ميزان خسارات يا تلفات احتمالی منتشر نشده است.
+
+اين حملات پس از آن انجام می شود که ايران ساعاتی پيش چندين موج حمله موشکی به شمال اسرائيل انجام داد و سپاه پاسداران اعلام کرد اين حملات آغاز يک هفته عمليات مستمر خواهد بود. همزمان، مقام‌های اسرائيلی هشدار داده بودند که در برابر حملات ايران واکنش نشان خواهند داد.
+
+اين تحول در حالی رخ می دهد که دونالد ترامپ، رئيس جمهور آمريکا، در ساعات گذشته از بنيامين نتانياهو خواسته بود از اقدام تلافی‌جويانه خودداری کند تا روند مذاکرات و توافق احتمالی با ايران آسيب نبيند.
+
+📸 EPA
+
+https://bbc.in/4fwDUTo
+@BBCPersian
+</div>
+
+---
 📅 بروزرسانی: 1405/03/18 05:33
 ---
 

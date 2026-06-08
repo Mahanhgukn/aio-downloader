@@ -7,6 +7,230 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/18 18:14
+---
+
+## VahidOOnLine — post 244380
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244380_1780929890.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علی خضریان، عضو کمیسیون امنیت ملی مجلس، گفت: «دشمن این شبهه را مطرح خواهد کرد که جمهوری اسلامی در حالی وارد درگیری نظامی شد که جنگ در لبنان بود؛ اساسا این حرف دروغ است. نقض آتش‌بس نه‌تنها در لبنان بلکه در جنوب ایران نیز به صورت جدی اتفاق افتاد.»
+
+او افزود جمهوری اسلامی تا زمانی که دشمن بخواهد نقض آتش‌بس را در جبهه مقاومت ادامه دهد عملیات موشکی را ادامه خواهد داد و دیگر نقض آتش‌بس در لبنان و در جنوب ایران را تحمل نخواهد کرد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244379
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_244379_1780929891.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️شی جین‌پینگ، رئیس‌جمهوری چین، روز دوشنبه ۱۸ خرداد در سفری کم‌سابقه وارد کره شمالی شد و در دیدار با کیم جونگ اون، رهبر این کشور، بر گسترش روابط دوجانبه و رساندن آن به «سطوحی جدید» تاکید کرد.
+این نخستین سفر شی به پیونگ‌یانگ از سال ۲۰۱۹ به شمار می‌رود و پس از آن انجام می‌شود که او در ماه‌های اخیر میزبان شماری از رهبران جهان، از جمله دونالد ترامپ، رئیس‌جمهوری آمریکا، و ولادیمیر پوتین، رئیس‌جمهوری روسیه، در پکن بوده است.
+بر اساس گزارش رسانه‌های دولتی چین، شی و همسرش پنگ لی‌یوان در فرودگاه پیونگ‌یانگ با استقبال رسمی کیم جونگ اون روبه‌رو شدند. این مراسم شامل فرش قرمز، ادای احترام نظامی و حضور جمعیت استقبال‌کننده بود. در بخش‌هایی از پایتخت کره شمالی نیز پرچم‌های چین و کره شمالی در کنار یکدیگر نصب شده بودند.
+کره شمالی طی دهه‌های گذشته به شدت به حمایت اقتصادی و سیاسی چین متکی بوده است. با این حال، در سال‌های اخیر کیم جونگ اون روابط خود را با روسیه نیز گسترش داده و پس از اعزام نیروهای کره شمالی برای حمایت از ارتش روسیه در جنگ اوکراین، همکاری‌های دو کشور بیش از پیش افزایش یافته است.
+با وجود نزدیکی پیونگ‌یانگ و مسکو، چین همچنان مهم‌ترین شریک تجاری کره شمالی و اصلی‌ترین حامی دیپلماتیک این کشور در برابر تحریم‌های بین‌المللی به شمار می‌رود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## mwarmonitor — post 10472
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وزیر دفاع اسرائیل، کاتس، گفت «قانون مربوط به ضاحیهٔ بیروت همان قانون مربوط به شهرک‌های شمال اسرائیل است» و هشدار داد هر حمله به شمال اسرائیل با حمله به ضاحیه پاسخ داده خواهد شد.
+
+🔴او افزود ارتش اسرائیل به عملیات خود علیه حزب‌الله در لبنان ادامه خواهد داد و تهدیدهای ایران را رد کرد و گفت هرگونه تلاش تهران برای مرتبط کردن لبنان و ایران و حمله به اسرائیل با «نیروی بسیار زیاد» پاسخ داده خواهد شد.
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 92931
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جمهوری اسلامی گفته اگه اسراییل حملاتش به جنوب لبنان رو ادامه بده اسراییل رو میزنیم
+
++اسراییلم داره همچنان لبنان رو شخم میزنه
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92930
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92930_1780929892.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴محسن رضایی:
+آتش‌بس باید در تمام لبنان اعمال بشه!
+
+مذاکره نتیجه نده، محاصره رو تحمل نمی‌کنیم. به توافق خوشبین نیستم چون ترامپ مرد مذاکره نیست.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92929
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92929_1780929893.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴اسرائیل هیوم: درگیری 24 ساعت اخیر نشان داد قدرت نظامی ایران حتی نزدیک به شرایط قبل از جنگ هم نیست.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92928
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رئیس موساد، رومن گوفمن:مردم ایران را مسلح کنید.بازی را تغییر دهید
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 341197
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341197_1780929893.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علی خضریان، عضو کمیسیون امنیت ملی مجلس، گفت: «دشمن این شبهه را مطرح خواهد کرد که جمهوری اسلامی در حالی وارد درگیری نظامی شد که جنگ در لبنان بود؛ اساسا این حرف دروغ است. نقض آتش‌بس نه‌تنها در لبنان بلکه در جنوب ایران نیز به صورت جدی اتفاق افتاد.»
+
+او افزود جمهوری اسلامی تا زمانی که دشمن بخواهد نقض آتش‌بس را در جبهه مقاومت ادامه دهد عملیات موشکی را ادامه خواهد داد و دیگر نقض آتش‌بس در لبنان و در جنوب ایران را تحمل نخواهد کرد.
+https://iranintl.com/202606083826
+</div>
+
+## IranIntlTV — post 341196
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341196_1780929894.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرخط خبرهای دوشنبه ۱۸ خرداد
+@iranintltv
+</div>
+
+## Shin_Persian — post 6754
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6754_1780929896.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+UKMTO Operations Centre @UK_MTO
+Mon, 08 Jun 2026 14:33:25 UTC
+
+UKMTO WARNING 064-26
+
+Click here to view the full warning⤵️
+http://www.ukmto.org/-/media/ukmto/products/20260608-ukmto_warning-064-26.pdf?rev=a9ef7e77a02e48f08d886fa66301c299
+
+#MaritimeSecurity #MarSec
+
+فارسی
+
+هشدار UKMTO (عملیات تجارت دریایی بریتانیا) ۰۶۴-۲۶
+
+برای مشاهده هشدار کامل اینجا کلیک کنید⤵️
+http://www.ukmto.org/-/media/ukmto/products/20260608-ukmto_warning-064-26.pdf?rev=a9ef7e77a02e48f08d886fa66301c299
+
+#MaritimeSecurity #MarSec
+
+𝕏 · @shin_persian
+</div>
+
+## Persian_Trend_Official — post 16195
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حوثی های یمن ویدیویی از شلیک موشک بالستیک فلسطین-2 به سمت تل آویو طی درگیری های امروز منتشر کرد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Dirty_Kids — post 391386
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391386_1780929897.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عمو ویسی اینبار با انگشت فاک 🖕
+اصل مطلبو در مورد محسن ارضایی رسوند 😂😂😂😂😂😂
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391385
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391385_1780929898.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 حتی مورچه‌هام دارن مهاجرت میکنن و میرن.
+
++ بودید حالا یه لقمه نون و قندی بود دور هم میخوردیم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391384
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391384_1780929899.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏😂 بیانیه رسمی فیفا: دیدار ایران و مصر قطعا دیدار افتخار همجنسگرایان خواهد بود و به هیچ عنوان این رویداد لغو نخواهد شد @Dirty_Kids 👻
+</div>
+
+## alonews — post 126304
+
+<div align="center">
+  <a href="telegram/content/alonews_126304_1780929899.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خبرنگار الجزیره: آنچه ایران به دنبال آن است، تحمیل یک توافق آتش‌بس جامع در لبنان، در هر توافقی با واشنگتن است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126303
+
+<div align="center">
+  <a href="telegram/content/alonews_126303_1780929899.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈دبیر شورای عالی امنیت ملی: اگر ائتلاف شیطانی خطا کند، منطقه برایش جهنم خواهد شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/18 18:04
 ---
 

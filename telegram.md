@@ -7,6 +7,122 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/19 00:42
+---
+
+## VahidOOnLine — post 244433
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️علی قمصری، آهنگساز و نوازنده، با انتشار ویدئویی در روز یکشنبه، ۱۷ خردادماه، صدوهفتادودومین اجرای «تار ایرانی» خود را به بنای تاریخی طاق کسری (ایوان مدائن) در بغداد عراق اختصاص داد و در آن قطعه ماندگار «وطن من» ساخته استاد پرویز مشکاتیان را نواخت. قمصری با اشاره به اینکه این اجرا پیش از «فجایع اندوه‌بار اخیر» ضبط شده است، هدف از این سفرها در جغرافیای ایرانِ کهن را نه نمایش تفاوت‌ها، بلکه یادآوری پیوندهای فرهنگی عمیق خاورمیانه و روزگاری دانست که موسیقی بدون نیاز به ترجمه، مردم را پیش از پیدایش مرزها به هم پیوند می‌داد. او با اشاره به افسانه کج ساخته‌شدن این طاق بزرگ عهد ساسانی به نشانه احترام انوشیروان به حق مالکیت یک پیرزن و نماد عدالت، این اجرا را که ویدئوی آن توسط مادرش با تلفن همراه ثبت شده، به عنوان پیام صلح، دوستی و همبستگی به مردم شریف عراق و صلح جهانی تقدیم کرد؛ سفری که با هماهنگی مثنی البهادی و استاد نصیر شمه (نوازنده برجسته عود) میسر شده و تدوین آن را علیرضا سفرنژاد و پالایش صوتی‌اش را حسن خدایی‌نیا بر عهده داشته‌اند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14084
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+زلزله شدید بندرعباس الان
+@withyashar
+</div>
+
+## WithYashar — post 14083
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صدا جنگنده در آسمان تهران
+@withyashar
+</div>
+
+## WithYashar — post 14082
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حمله پهپادی حزب‌الله به اسرائیل🚨
+@withyashar
+</div>
+
+## WithYashar — post 14081
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش صدای انفجار از‌ دروازه دولت 🚨
+@withyashar
+</div>
+
+## WithYashar — post 14080
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش از وقوع انفجار مهیب در محدوده گیشا تهران؛ لرزش شدید ساختمان‌ها و شیشه‌ها.
+هجوم شهروندان به خیابان‌ها در پی شنیده شدن صدای انفجار و ایجاد رعب و وحشت.
+@withyashar
+</div>
+
+## WithYashar — post 14079
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک پهپاد از لبنان به شمال اسرائیل نفوذ کرد و آژیرها به صدا درآمدند
+@withyashar
+</div>
+
+## mwarmonitor — post 10498
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_10498_1780953139.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔹دریاسالار برد کوپر، فرمانده سنتکام، امروز در واشنگتن دی‌سی در کمیته فرعی دفاعی کمیته تخصیص بودجه مجلس نمایندگان درباره اولویت‌های عملیاتی ارتش آمریکا در خاورمیانه توضیحاتی ارائه کرد.
+
+🔸کوپر فردا نیز در سنا به همین کمیته گزارش خواهد داد. این جلسات پس از گزارش‌های عمومی به کمیته‌های نیروهای مسلح در ماه گذشته برگزار می‌شود.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10497
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨آژیرهای هشدار حمله احتمالی پهپادی در جنوبی‌ترین شهر ایلات به صدا درآمدند.
+
+🚨چند لحظه پیش نیز آژیرهای هشدار حمله پهپادی از سمت لبنان در منطقه جلیل غربی (غرب الجلیل) به صدا درآمد.
+
+🔸ارتش اسرائیل (IDF) اعلام کرده است که در حال بررسی جزئیات این حادثه است.
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 342730
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342730_1780953140.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Union Pacific's Big Boy No. 4014, the world's largest operating steam locomotive, is making its first tour of the East Coast as part of America 250 celebrations.
+</div>
+
+## FarsiVOA — post 220071
+
+
+
+
+## IranianMinds — post 21881
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21881_1780953143.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 بعد از اینکه فیفا اعلام کرده که ورود پرچم شیروخورشید به استادیوم های جام جهانی ممنوعه؛ حالا یه تیم برنامه نویسی اومدن یه سایتی رو به اسم «ایران سینک» طراحی کردن که وقتی تماشاگرای توی استادیوم برن تو این سایت میتونن از طریق اسکن یه تیکه از پرچم رو بیارن روی صفحه گوشیشون و اینطوری هرکسی با گوشیش یه تیکه از پرچم رو میتونه نشون بده و طرح موزاییکی پرچم درست بشه.
+
+@IranianMinds
+</div>
+
+---
 📅 بروزرسانی: 1405/03/19 00:32
 ---
 

@@ -7,6 +7,214 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/18 22:34
+---
+
+## VahidOOnLine — post 244417
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244417_1780945447.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمدرضا عارف، معاون اول پزشکیان، درباره حملات موشکی اخیر جمهوری اسلامی به اسرائیل نوشت که دشمن در کوتاه‌ترین زمان ممکن ناچار به التماس مجدد برای پذیرش توقف آتش از سوی تهران شد.
+
+این در حالی است که پیش‌تر ترامپ به کانال ۱۲ اسرائیل گفت: «صبح دوشنبه ایرانی‌ها به ما گفتند دیگر حمله‌ای به اسرائیل انجام نمی‌دهند و خواستند ما به اسرائیل بگوییم حملات را متوقف کند. من با بی‌بی تماس گرفتم و او را متوقف کردم.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244416
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️شبکه خبری سی‌ان‌ان، شامگاه دوشنبه ۱۸ خرداد ماه، به نقل از یک منبع اسرائیلی و یک مقام آمریکایی آگاه گزارش کرد اسرائیل در حال آماده شدن برای حمله‌ای گسترده به تهران بود، اما دونالد ترامپ، رئیس‌جمهوری آمریکا، در تماس تلفنی با بنیامین نتانیاهو از او خواست از انجام حملات تلافی‌جویانه بیشتر خودداری کند.
+
+به گفته منبع اسرائیلی، ترامپ در این تماس از نتانیاهو خواست دامنه واکنش اسرائیل را محدود کند تا از تشدید تنش‌ها جلوگیری شود.
+
+بر اساس این گزارش، نتانیاهو در نخستین تماس که شامگاه یکشنبه به وقت آمریکا انجام شد، در برابر درخواست ترامپ مقاومت کرد و اصرار داشت اسرائیل باید به حملات ایران پاسخ دهد.
+
+با وجود اخطار ترامپ در گفتگوی یکشنبه شب، ارتش اسرائیل برخی اهداف را در ایران، از جمله یک مجتمع مهم پتروشیمی، هدف قرار داد.
+
+این شبکه همچنین نوشت لحن گفتگوهای اخیر ترامپ و نتانیاهو به اندازه تماس‌های هفته گذشته تند نبوده است. به گزارش سی‌ان‌ان، در تماس‌های هفته گذشته تنش میان دو طرف به حدی رسیده بود که ترامپ با الفاظ تندی با نخست‌وزیر اسرائیل صحبت کرده بود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## mwarmonitor — post 10490
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴یک قاضی فدرال، الزام تعیین‌شده از سوی ترامپ برای پرداخت هزینه ۱۰۰ هزار دلاری درخواست ویزای H-1B را لغو کرد و حکم داد که او اختیار قانونی لازم برای اعمال این سیاست جدید را نداشته است. این برنامه توسط شرکت‌ها برای استخدام نیروهای خارجی بسیار ماهر در حوزه‌های تخصصی استفاده می‌شود. CNN
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 92968
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92968_1780945448.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خضریان، عضو کمیسیون امنیت ملی مجلس: خیلی عجیبه که افرادی در کشور از مذاکره دفاع میکنن در حالی که رئیس هیئت مذاکره‌کننده ایران میگه دشمن به مذاکره اعتقاد نداره.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5483
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5483_1780945449.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺🎥 زنجان؛ ما از جنگ خسته شدیم
+یک شهروند از استان زنجان با ارسال ویدیویی نوشت:
+«این فیلم دیوارنویسی رو که دیشب تو زنجان دیدم و گرفتم رو براتون می‌فرستم شاید به‌دردتون بخوره.
+این درد دل مردم ایران رو بیان می‌کنه که حکومتش قدرت دفاع از مردمشو نداره»...
+
+#جنگ #زنجان
+@DEJradio
+</div>
+
+## DEJradio — post 5482
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5482_1780945450.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🔸 خبر ۲۱
+دوشنبه ۱۸ خرداد ۱۴۰۵
+
+#خبر۲۱
+@DEJradio
+</div>
+
+## IranIntlTV — post 341232
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341232_1780945453.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمدرضا عارف، معاون اول پزشکیان، درباره حملات موشکی اخیر جمهوری اسلامی به اسرائیل نوشت که دشمن در کوتاه‌ترین زمان ممکن ناچار به التماس مجدد برای پذیرش توقف آتش از سوی تهران شد.
+
+این در حالی است که پیش‌تر ترامپ به کانال ۱۲ اسرائیل گفت: «صبح دوشنبه ایرانی‌ها به ما گفتند دیگر حمله‌ای به اسرائیل انجام نمی‌دهند و خواستند ما به اسرائیل بگوییم حملات را متوقف کند. من با بی‌بی تماس گرفتم و او را متوقف کردم.»
+https://iranintl.com/202606083905
+</div>
+
+## Shin_Persian — post 6765
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6765_1780945453.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Ben Tzion Macales ✓ @BenTzionMacales Mon, 08 Jun 2026 18:37:35 UTC In a Sentinel-2 satellite imagery over western Iran, I identified a plume of smoke rising from a vehicle that caught fire following an apparent airstrike in the vicinity of the missile bases…
+</div>
+
+## Shin_Persian — post 6764
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Ben Tzion Macales ✓ @BenTzionMacales
+Mon, 08 Jun 2026 18:37:35 UTC
+
+In a Sentinel-2 satellite imagery over western Iran, I identified a plume of smoke rising from a vehicle that caught fire following an apparent airstrike in the vicinity of the missile bases near Kermanshah.
+
+At the same time, reports emerged of IAF strike waves across Iran, and the timing of the imagery aligns with reports indicating that missile-related targets were being engaged.
+
+The proximity of the incident strongly suggests that the asset (a possible launcher) was associated with the nearby missile base. It appears that IAF aircraft struck it before it could be transferred into the underground facilities.
+
+فارسی
+
+در تصاویر ماهواره‌ای سنتینل-۲ (Sentinel-2) بر فراز غرب ایران، من ستونی از دود را شناسایی کردم که از خودرویی برمی‌خاست که پس از یک حمله هوایی ظاهراً در مجاورت پایگاه‌های موشکی نزدیک کرمانشاه دچار حریق شده است.
+
+همزمان، گزارش‌هایی از موج‌های حملات نیروی هوایی اسرائیل (IAF) در سراسر ایران منتشر شد و زمان‌بندی تصاویر با گزارش‌هایی که نشان‌دهنده هدف قرار گرفتن اهداف مرتبط با موشکی بود، مطابقت دارد.
+
+نزدیکی این حادثه به شدت نشان می‌دهد که آن دارایی (احتمالاً یک پرتابگر) با پایگاه موشکی مجاور در ارتباط بوده است. به نظر می‌رسد که هواپیماهای نیروی هوایی اسرائیل (IAF) پیش از آنکه این تجهیزات بتوانند به تاسیسات زیرزمینی منتقل شوند، آن‌ها را هدف قرار داده‌اند.
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 220060
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺رسانه‌ اسرائیلی: پرزیدنت ترامپ به نتانیاهو درباره تشدید درگیری با رژیم ایران هشدار داده بود
+
+◾️رسانه اسرائیلی «کانال ۱۲» می‌گوید دونالد ترامپ، رئیس جمهوری ایالات متحده، اعلام کرد طی روزهای اخیر به بنیامین نتانیاهو، نخست‌ وزیر اسرائیل، هشدار داده بود در صورت تشدید درگیری با جمهوری اسلامی، اسرائیل ممکن است خود را بدون حمایت کامل بین‌المللی و در شرایطی دشوارتر بیابد.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/president-trump-warned-netanyahu-israel-left-alone-if-escalated-against-iran/8158593.html
+</div>
+
+## FarsiVOA — post 220059
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علی جوانمردی: چرا پرزیدنت ترامپ جنگ ۱۶ ساعتە را متوقف کرد؟
+</div>
+
+## Persian_Trend_Official — post 16224
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16224_1780945454.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سنتکام: نفتکش Marivex را هدف قرار دادیم.
+
+سنتکام با انتشار توییتی اعلام کرد یک جنگنده F-18 سوپر هورنت برخاسته از ناو هواپیمابر آبراهام لینکلن پس از اینکه نفتکش Marivex به هشدارها برای عدم حرکت به سمت بنادر تحت محاصره ایران توجه نکرد، هدف پرتابه قرار گرفت و از ادامه حرکت آن به سمت ایران جلوگیری شد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## alonews — post 126375
+
+<div align="center">
+  <a href="telegram/content/alonews_126375_1780945454.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خاویر بالاس ستون نویس بلومبرگ: سقوط آزاد ذخایر استراتژیک نفت آمریکا؛ در آستانه پایین‌ترین سطح ۴۰ سال گذشته
+
+
+🔴 گزارش‌ها حاکی از آن است که با آزادسازی ۷.۹ میلیون بشکه دیگر از ذخایر استراتژیک نفت ایالات متحده (SPR)، حجم این ذخایر تا پنجم ژوئن به ۳۴۹.۲ میلیون بشکه افت کرده است.
+
+
+🔴 این روند نزولی نشان می‌دهد که ذخایر استراتژیک آمریکا با سرعت به سمت رکورد ۳۴۶ میلیون بشکه در حرکت است؛ رقمی که پایین‌ترین سطح ثبت‌شده برای این ذخایر در ۴۰ سال اخیر (در دوران دولت بایدن) محسوب می‌شود.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126374
+
+<div align="center">
+  <a href="telegram/content/alonews_126374_1780945455.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / نبویان، نماینده مجلس: ایران پیشنهاد واگذاری تنگه هرمز را داده
+
+
+🔴بر اساس پیش‌نویس تفاهم ایران باید ظرف ۳۰ روز ترتیباتی اتخاد کند تا رفت و آمد کشتی‌ها به حالت قبل جنگ برگردد.
+
+
+🔴وضعیت اخذ عوارض مشخص نیست.
+
+
+🔴وظیفه مین‌روبی هم به ایران سپرده شده.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/18 22:24
 ---
 

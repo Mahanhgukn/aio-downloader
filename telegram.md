@@ -7,6 +7,290 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/18 10:43
+---
+
+## VahidOOnLine — post 244293
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_244293_1780902797.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوهای رسیده به ایران‌اینترنشنال در دوشنبه ۱۸ خرداد، دود ناشی از انفجار را در نجف‌آباد نشان می‌دهد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244292
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_244292_1780902798.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ویدیوهای منتشر شده در شبکه‌های اجتماعی حاکی از مقابله سامانه‌های دفاعی اسرائیل با موشک‌های سپاه در روز دوشنبه ۱۸ خرداد در آسمان مناطق مرکزی این کشور است.
+
+ارتش اسرائیل اعلام کرد در تازه‌ترین دور حملات موشکی جمهوری اسلامی، ۶ موشک به سوی مناطق شمالی و مرکزی این کشور شلیک شده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13916
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش از صدای انفجار در قشم 🚨
+@withyashar
+</div>
+
+## WithYashar — post 13915
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسرائیل : ما تمام موشکهارو رهگیری و منهدم میکنیم چیزی میفته لاشه موشکاست
+@withyashar
+</div>
+
+## WithYashar — post 13914
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تمامی پروازهای فرودگاه کرمانشاه تا اطلاع ثانوی لغو شد
+@withyashar
+</div>
+
+## mwarmonitor — post 10403
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸طرح جدید اسموتریچ وزیر دارایی اسرائیل برای کابینه امروز: تغییر معادله ایران–لبنان.
+
+🔹به‌جای حملات تلافی‌جویانه دوربرد با تهران، او خواستار وارد کردن هزینه سنگین به حزب‌الله است. منطق او این است که به ازای هر موشک ایرانی، باید ده‌ها ساختمان در ضاحیه تخریب شود.
+
+📌استدلال راهبردی او:
+
+🔹عملیات «گاوآهن نقره‌ای» برای نابودی روستاهای تماس در جنوب لبنان آسان‌تر است و امنیت شمال اسرائیل را تأمین می‌کند.
+
+🔹در هم شکستن حزب‌الله باعث می‌شود این گروه از ایران درخواست توقف کند و در نتیجه انعطاف ایران در مذاکرات با آمریکا افزایش یابد.
+
+🔸ترامپ از ابتکارهای جسورانه و تغییر دهنده معادلات استقبال می‌کند و این اقدام می‌تواند امتیاز سیاسی برای اسرائیل ایجاد کند.
+
+🔹اسموتریچ معتقد است باید حملات مستقیم به ایران برای ضربه نهایی به انرژی و اقتصاد آن کشور نگه داشته شود، نه اینکه در «معادلات معمول» مصرف شود.
+
+🔸او این را یک استراتژی هزینه–فایده جالب می‌داند؛ اینکه آیا نتانیاهو آن را می‌پذیرد یا نه، هنوز مشخص نیست. آمیت سیگال خبرنگار کانال ۱۲
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10402
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 خبرنگار الجزیره: حمله هوایی اسرائیل به شهرک یاطر در بخش بنت جبیل در جنوب لبنان.
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 92867
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/proxy?server=post.my-miner.info.&port=8443&secret=7gggggggggggggggggggggh0cmFuc2xhdGUuZ29v
+
+پروکسی متصل سرعت بالا
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92866
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آژیر خطر در اسراییل فعال شد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5450
+
+<div align="center">
+  <img src="telegram/content/DEJradio_5450_1780902800.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🛩️
+🔥 اسرائیل با مهمات دورایستا فرودگاه مهرآباد، انبار مونتاژ پهپاد و چند پایگاه سـ.ـپاه را در کرمانشاه، نجف‌آباد و کرج هدف قرار داد.
+
+یک منبع آگاه می‌گوید موشک‌ها از روی ناو و هواپیما از فاصله دور پرتاب شدند.
+
+#جنگ #IRGCterrorists
+@DEJradio
+</div>
+
+## DEJradio — post 5449
+
+<div align="center">
+  <img src="telegram/content/DEJradio_5449_1780902800.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🛩️
+🔥 در پاسخ به موشک‌پرانی سـ.ـپاه پاسداران، اسرائیل با موشک، روز دوشنبه ۱۸ خرداد ۱۴۰۵ اهدافی در تهران، کرمانشاه، کرج، اصفهان و تبریز را هدف قرار داد.
+
+#جنگ #موشکپرانی
+@DEJradio
+</div>
+
+## VahidOnline — post 76050
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76050_1780902801.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت امور خارجه قطر اعلام کرد «محمد بن عبدالرحمن آل ثانی»، نخست وزیر و وزیر امور خارجه این کشور، در تماس تلفنی با «عباس عراقچی»، وزیر امور خارجه جمهوری اسلامی، درباره تلاش‌های میانجیگرانه میان ایالات متحده و ایران و همچنین تحولات لبنان گفت‌وگو کرده است.
+
+بر اساس بیانیه وزارت امور خارجه قطر، نخست وزیر این کشور در این تماس بر حمایت دوحه از تلاش‌ها برای مهار تنش‌ها و دستیابی به توافقی جامع که به تقویت امنیت و صلح در منطقه کمک کند، تاکید کرد.
+@VahidHeadline
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 341126
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341126_1780902801.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوهای رسیده به ایران‌اینترنشنال در دوشنبه ۱۸ خرداد، دود ناشی از انفجار را در نجف‌آباد نشان می‌دهد.
+</div>
+
+## Persian_Trend_Official — post 16103
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16103_1780902802.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اگه نرخ پایین اصابت درست باشه، معنی مهمی داره که توی لایو بعدی بهش اشاره میکنم
+</div>
+
+## Persian_Trend_Official — post 16102
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16102_1780902803.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🤔
+</div>
+
+## Persian_Trend_Official — post 16101
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+غیررسمی/منابع محلی از صدای انفجار در قشم خبر میدهند!
+</div>
+
+## IranianMinds — post 21751
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21751_1780902803.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یادش بخیر روزی که موش جوان شد
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21750
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21750_1780902804.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بنازم سپاه نقطه زن موشک مستقیم خورد به هدف کف دریا @IranianMinds
+</div>
+
+## BBCPersian — post 283159
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻حوثی‌های یمن حمله به اسرائیل را تایید کردند
+
+حوثی‌های یمن حمله به اسرائیل را تایید کردند و گفتند که «منطقه اشغالی یافا» را هدف قرار داده‌اند.
+
+حوثی‌ها همچنین در بیانیه‌ای «ممنوعیت کامل و مطلق» تردد دریایی اسرائیل در دریای سرخ را اعلام کردند:
+
+«ما در قبال محاصره ناعادلانه تحمیل‌شده بر مردم خود و مردم محور جهاد و مقاومت در فلسطین، غزه، ایران، لبنان و عراق، ساکت نخواهیم نشست.»
+
+@BBCPersian
+</div>
+
+## BBCPersian — post 283158
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻اورژانس تهران در «آماده‌باش کامل» قرار گرفت
+
+رسانه‌های ایران می‌گویند تمامی نیروهای عملیاتی اورژانس استان تهران در آماده‌باش کامل قرار دارند.
+
+خبرگزاری ایسنا گفت این آماده‌باش «در پی تحولات اخیر منطقه و با توجه به ضرورت حفظ آمادگی حداکثری برای پاسخگویی به هرگونه شرایط احتمالی» است.
+
+پس از حملات هوایی اسرائیل به چند شهر ایران، رسانه‌های رسمی گزارش دادند که در حملات اسرائيل مناطق شهری تهران هدف قرار نگرفته‌اند.
+
+به نقل از سازمان آتش نشانی تهران، بامداد دوشنبه دست‌کم صدای دو انفجار در بخش‌های غربی پايتخت شنيده شده است.
+
+@BBCPersian
+</div>
+
+## BBCPersian — post 283157
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻اسرائیل می‌گوید موج جدید حملات ایران را شناسایی کرده است
+
+ارتش اسرائیل از موج جدید حملات ایران خبر داد.
+
+اسرائیل گفت «سامانه‌های دفاعی در حال مقابله با تهدید هستند» و از مردم خواست که به دستورالعمل‌های صادر شده عمل کنند.
+
+پیشتر سپاه پاسداران اعلام کرد که حمله به پایگاه‌های هوایی نواتیم و تل‌نوف اسرائیل را آغاز کرده است.
+
+سپاه پاسداران این حملات را پاسخی به حملات اسرائیل به چند سایت راداری در سه نقطه ایران دانست.
+
+@BBCPersian
+</div>
+
+## BBCPersian — post 283156
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻تمام پروازها از دو فرودگاه اصلی تهران تا اطلاع ثانوی لغو شد
+
+بنابر اعلام سازمان هواپیمایی ایران تمام پروازها از فرودگاه‌های «مهرآباد و امام خمینی تا اطلاع ثانوی» لغو شده است.
+
+مجید اخوان، سخنگوی این سازمان گفته است: «در پی صدور اطلاعیه هوانوردی در شب گذشته مبنی بر بسته شدن آسمان غرب کشور، پروازهای فرودگاه مهرآباد و امام تا اطلاع ثانوی لغو شدند.»
+
+سازمان هواپیمایی ایران از مسافران خواسته از مراجعه به این دو فرودگاه خودداری کنند.
+
+@BBCPersian
+</div>
+
+## alonews — post 126148
+
+<div align="center">
+  <a href="telegram/content/alonews_126148_1780902805.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ایلان ماسک: جالب است بدانید اسم تنگه هرمز از اهورامزدا، خدای آیین زرتشتی، گرفته شده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/18 10:33
 ---
 

@@ -7,6 +7,279 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/18 13:43
+---
+
+## WithYashar — post 13992
+
+<div align="center">
+  <img src="telegram/content/WithYashar_13992_1780913615.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حمله اسرائیل به سایت موشکی تنگه کنشت کرمانشاه
+@withyashar
+</div>
+
+## WithYashar — post 13991
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک منبع نظامی به تسنیم: ایران برای جنگ طولانی مدت آماده شده است
+@withyashar
+</div>
+
+## WithYashar — post 13990
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه های عبری: درگیری ها تا ساعات آینده گسترده و سنگین‌تر خواهد شد
+@withyashar
+</div>
+
+## WithYashar — post 13989
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨🚨🚨🚨🚨🚨🚨
+تنقلات خود را آماده کنید
+</div>
+
+## WithYashar — post 13988
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک منبع ارشد نظامی در ایران: حزب‌الله روزهای آینده نشان خواهد داد که محاسبات اسرائیلی‌ها و آمریکایی‌ها همیشه اشتباه است، و ایران ثابت کرده که دوستان خود را رها نمی‌کند.
+@withyashar
+</div>
+
+## mwarmonitor — post 10441
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴«ارتش اسرائیل می‌گوید حمله این صبح به یک مجتمع پتروشیمی در جنوب‌غرب ایران با هدف نابودی زیرساخت‌هایی انجام شده که ایران از آن‌ها برای تولید مواد اولیه ساخت موشک استفاده می‌کند.
+
+🔸ارتش می‌گوید: «زیرساخت‌های هدف‌گرفته‌شده موادی ویژه تولید می‌کردند که به‌عنوان اجزای حیاتی برای توسعه موشک‌های بالستیک به کار می‌روند و تهدیدی برای دولت اسرائیل و غیرنظامیان آن هستند.»
+
+🔸ارتش اسرائیل در ادامه افزود: «این‌ها اجزای حیاتی زیرساخت تولیدی هستند که از برنامه موشکی رژیم تروریستی ایران پشتیبانی می‌کنند.»
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10440
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴«ارتش اسرائیل گزارش‌ها درباره ادامه حملات اسرائیل در تهران و دیگر مناطق را رد می‌کند و می‌گوید از صبح امروز هیچ حمله اضافی دیگری در ایران انجام نشده است.
+
+📌 ارتش اسرائیل همچنین شایعات مربوط به ترور یک مقام ارشد ایرانی، از جمله فرمانده سپاه پاسداران، را تکذیب کرده است ـ کانال ۱۲»
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10439
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨«هدف قرار گرفتن یک کشتی هندی با یک پهپاد در نزدیکی دریای عرب.»
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 92891
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آکسیوس به نقل از رادیو ارتش اسرائیل اعلام کرد که ارتش خود را برای چندین روز درگیری در ایران و احتمال بازگشت به یک نبرد طولانی‌مدت آماده می‌کند
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92890
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایران اینترنشنال: از دیشب ارتباط موشتبی با مقام‌های حکومتی دچار اختلال شده و غیب شده
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## Shin_Persian — post 6740
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Mon, 08 Jun 2026 10:07:34 UTC
+
+#IDF 🇮🇱:
+"At the Petrochemical Complex in Mahshahr: IDF Attacked Infrastructure for Producing Raw Materials for the Iranian Terror Regime's Missile Program
+
+The Air Force, with precise intelligence guidance, attacked this morning several infrastructures at the petrochemical complex in Mahshahr in southwestern Iran, which were used by armed forces subordinate to the Iranian terror regime for producing and exporting raw materials for combat means.
+
+The attacked infrastructures produced unique materials that serve as essential components for developing ballistic missiles, which pose a direct threat to the State of Israel and its citizens.
+
+These are critical components in the existing production infrastructure at the complex for the Iranian terror regime's missile program.
+
+The attack joins several additional strikes carried out against the complex in Operation "Roar of the Lion.""
+#Iran
+
+فارسی
+
+#IDF 🇮🇱:
+"در مجتمع پتروشیمی ماهشهر: ارتش دفاعی اسرائیل زیرساخت‌های تولید مواد اولیه برای برنامه موشکی رژیم تروریستی ایران را مورد حمله قرار داد.
+
+نیروی هوایی، با هدایت اطلاعاتی دقیق، امروز صبح چندین زیرساخت را در مجتمع پتروشیمی در ماهشهر در جنوب غربی ایران هدف قرار داد که توسط نیروهای مسلح تابع رژیم تروریستی ایران برای تولید و صادرات مواد اولیه ابزارهای جنگی استفاده می‌شدند.
+
+زیرساخت‌های مورد حمله، مواد منحصر به فردی تولید می‌کردند که به عنوان اجزای ضروری برای توسعه موشک‌های بالستیک عمل می‌کنند، موشک‌هایی که تهدیدی مستقیم علیه دولت اسرائیل و شهروندانش محسوب می‌شوند.
+
+این‌ها اجزای حیاتی در زیرساخت‌های تولید موجود در این مجتمع برای برنامه موشکی رژیم تروریستی ایران هستند.
+
+این حمله به چندین حمله دیگر که علیه این مجتمع در عملیات «غرش شیر» انجام شده است، می‌پیوندد."
+#Iran
+
+𝕏 · @shin_persian
+</div>
+
+## Iliaen — post 4462
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در جریان حملات ظهر امروز دوشنبه، یک ایست بازرسی واقع در مسیر منتهی به پایگاه هوایی سوم شکاری همدان (کبودراهنگ) هدف پهپاد قرار گرفت و همچنین مکانی در داخل قرارگاه سیدالشهدا کرج نیز مورد اصابت موشک قرار گرفت.
+
+@iliaen
+</div>
+
+## FarsiVOA — post 220004
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220004_1780913616.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چند انفجار پیاپی ناشی از حملات اسرائیل به نقاطی در ایران؛
+
+گزارش‌ها و تصاویر منتشر شده از ایران حاکی از وقوع چندین انفجار در مناطق مختلف کشور در بامداد روز دوشنبه، ۱۸ خرداد است.
+
+این تحولات پس از آن رخ داد که ارتش اسرائیل اعلام کرد به دنبال حملات موشکی جمهوری اسلامی به این کشور، مناطقی در غرب و مرکز ایران را هدف قرار داده است.
+@FarsiVOA
+</div>
+
+## DW_Farsi — post 125680
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 توافق اروپا و اوکراین بر سر طرح پنج‌ماده‌ای برای پایان جنگ
+
+در جریان سفر ولودیمیر زلسنکی به لندن، آلمان، فرانسه، بریتانیا و اوکراین با صدور بیانیه‌ای مشترک، ولادیمیر پوتین، رئیس‌ جمهور روسیه را به برقراری آتش‌بس فوری و آغاز مذاکرات جدی برای پایان دادن به این بحران نظامی فراخواندند.
+
+بر اساس این پیشنهاد، خط مقدم فعلی نبرد به عنوان نقطه آغاز و مبنای گفتگوها در نظر گرفته خواهد شد. فریدریش مرتس، صدراعظم آلمان، امانوئل مکرون، رئیس‌ جمهور فرانسه، کی‌یر استارمر، نخست‌وزیر بریتانیا و ولودیمیر زلنسکی در این بیانیه تاکید کردند که ایالات متحده و کل اروپا باید نقشی "فعال" در این فرآیند ایفا کنند. رهبران چهار کشور پنج شرط اساسی را برای تحقق یک "صلح عادلانه و پایدار" ترسیم کرده‌اند.
+
+گام نخست این طرح، دستیابی به یک توافق فراگیر برای پایان دادن به درگیری‌هاست که بر اساس آن، ولادیمیر پوتین باید با یک آتش‌بس فوری و کامل موافقت کند. هرچند رهبران اروپایی و اوکراین پذیرفته‌اند که خط مقدم فعلی نبرد مبنا و نقطه آغاز گفتگوهای صلح باشد، اما به‌طور هم‌زمان و با قاطعیت بر حفظ مرزهای بین‌المللی تاکید دارند.
+
+@dw_farsi
+</div>
+
+## RadioFarda — post 158046
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_158046_1780913618.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸شورشیان حوثی در یمن که از حمایت جمهوری اسلامی برخوردارند، روز دوشنبه از حمله موشکی به اسرائیل خبر داده و اعلام کردند که بر تردد کشتی‌های اسرائیلی از دریای سرخ اعلام ممنوعیت می‌کنند.
+
+🔸حوثی‌ها در طول جنگ اسرائیل و حماس بارها کشتی‌های تجاری را در این آبراه مهم هدف قرار دادند و بسیاری از شرکت‌های حمل‌ونقل را مجبور کرده بودند مسیر طولانی‌تری را از اطراف جنوبی قاره آفریقا انتخاب کنند.
+
+🔸این تهدید در شرایطی مطرح می‌شود که تنگه هرمز، گذرگاه اصلی خلیج فارس و مسیر صادرات انرژی کشورهای منطقه، در نتیجه جنگ خاورمیانه میان ایران از یک سو و آمریکا و اسرائیل از سوی دیگر، همچنان از سوی ایران مسدود شده است.
+
+🔸در بیانیه حوثی‌ها آمده است: «ما ممنوعیت کامل و همه‌جانبه‌ای را برای تردد دریایی اسرائیل در دریای سرخ اعلام می‌کنیم» و «از لحظه انتشار این بیانیه، تمامی تحرکات دشمن را اهداف نظامی مشروع برای نیروهای مسلح خود تلقی می‌کنیم.»
+
+
+@RadioFarda
+</div>
+
+## idfinfarsi — post 11817
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‼️در مجتمع پتروشیمی ماهشهر: ارتش اسرائیل زیرساخت‌هایی برای تولید مواد اولیه برنامه موشکی رژیم تروریستی ایران را هدف قرار داد
+
+⭕️نیروی هوایی با هدایت دقیق معاونت اطلاعات ارتش اسرائیل، در ساعات صبح چندین زیرساخت را در مجتمع پتروشیمی ماهشهر در جنوب‌غرب ایران هدف قرار داد که توسط نیروهای مسلح وابسته به رژیم تروریستی ایران برای تولید و صادرات مواد اولیه تجهیزات نظامی مورد استفاده قرار می‌گرفتند.
+
+⭕️در زیرساخت‌های هدف قرار گرفته، مواد خاصی تولید می‌شد که به‌عنوان اجزای ضروری برای توسعه موشک‌های بالستیک به‌کار می‌روند و تهدیدی مستقیم علیه کشور اسرائیل و شهروندان آن محسوب می‌شوند.
+
+⭕️این اجزا،‌ اجزای حیاتی در زیرساخت‌های تولید موجود در این مجتمع برای برنامه موشکی رژیم تروریستی ایران هستند.
+
+⭕️این حمله به مجموعه‌ای از حملات دیگر که در چارچوب عملیات «غرش شیران» علیه این مجتمع انجام شد، می‌پیوندد
+</div>
+
+## Dirty_Kids — post 391350
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391350_1780913618.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تصاویر دوربین مداربسته فدراسیون ووشو از حمله خواهران منصوریان به اتاق رئیس
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391346
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تصاویر ادعایی فدراسیون ووشو از آثار حمله خواهران منصوریان به دفتر رئیس فدراسیون😂
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391345
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در جریان حملات ظهر امروز دوشنبه، یک ایست بازرسی واقع در مسیر منتهی به پایگاه هوایی سوم شکاری همدان (کبودراهنگ) هدف پهپاد قرار گرفت و همچنین مکانی در داخل قرارگاه سیدالشهدا کرج نیز مورد اصابت موشک قرار گرفت.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391344
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 رسایی: حتما باید رهبری رو ترور کنن که اینترنت قطع بشه؟ اینترنت در شرایط جنگی یعنی خیانت به کشور، هر چه زودتر قطعش کنین. @Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391343
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391343_1780913620.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+متاسفانه عملیات با شکست مواجه شد:
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 126231
+
+<div align="center">
+  <a href="telegram/content/alonews_126231_1780913620.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈انهدام یک پهپاد اسرائیلی در غرب تهران
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/18 13:33
 ---
 

@@ -7,6 +7,336 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/18 10:03
+---
+
+## VahidOOnLine — post 244285
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244285_1780900388.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در پی حملات متقابل جمهوری اسلامی و اسرائیل، تمامی پروازهای فرودگاه‌های «امام خمینی» و مهرآباد تهران و همچنین فرودگاه‌های تبریز و مشهد تا اطلاع ثانوی لغو شده‌اند.
+
+بررسی داده‌های وب‌سایت فلایت‌رادار نیز نشان می‌دهد که صبح دوشنبه هیچ هواپیمایی در آسمان ایران در حال پرواز نیست.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244284
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_244284_1780900389.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی ارسال‌شده به ایران‌اینترنشنال، رد موشک شلیک‌شده جمهوری اسلامی را از کرمانشاه به سمت اسرائیل در دوشنبه ۱۸ خرداد نشان می‌دهد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13906
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نقاطی که تایید شده توسط اسرائیل مورد هدف قرار گرفته :
+پتروشیمی کارون ماهشهر ٫ سایت راداری تبریز ، سایت های نظامی سپاه در نجف آباد و اسلام آباد غرب و فرودگاه مهرآباد
+@withyashar
+</div>
+
+## WithYashar — post 13905
+
+<div align="center">
+  <img src="telegram/content/WithYashar_13905_1780900390.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کرمانشاه الان
+@withyashar
+</div>
+
+## WithYashar — post 13904
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تنگه باب المندب توسط یمن بسته شد
+
+یمن تردد شناورهای اسرائیل در دریای سرخ را ممنوع اعلام کرد
+
+سخنگوی نیروهای مسلح یمن:‌ از این لحظه تردد کشتی‌های اسرائیلی در دریای سرخ ممنوع است.
+@withyashar
+</div>
+
+## mwarmonitor — post 10396
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_10396_1780900390.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨هشدار اولیه برای شمال اسرائیل پس از شلیک از سوی ایران.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10395
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📌تنگه هرمز باز خواهد بود، اما تحت شرایط جدیدی که توسط ایران و عمان تعیین خواهد شد، از جمله دریافت هزینه عبور ، به گفته سفیر ایران در مسکو.
+
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10394
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 روزنامه اسرائیل هیوم: مقامات امنیتی اسرائیل معتقدند پس از رگبار موشکی ایران، چند روز جنگ بین اسرائیل و ایران ادامه خواهد داشت.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10393
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 شبکه ۱۲ اسرائیل: رئیس ستاد کل ارتش از دیشب تاکنون سه تماس با فرمانده ستاد فرماندهی مرکزی آمریکا (سنتکام) داشته است.
+
+@mwarmonitor
+</div>
+
+## IranIntlTV — post 341120
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341120_1780900391.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی رسیده به ایران‌اینترنشنال در دوشنبه ۱۸ خرداد، دود ناشی از انفجارها را در پتروشیمی کارون منطقه ویژه اقتصادی ماهشهر پس از حملات اسرائیل نشان می‌دهد.
+</div>
+
+## IranIntlTV — post 341119
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341119_1780900393.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در پی حملات متقابل جمهوری اسلامی و اسرائیل، تمامی پروازهای فرودگاه‌های «امام خمینی» و مهرآباد تهران و همچنین فرودگاه‌های تبریز و مشهد تا اطلاع ثانوی لغو شده‌اند.
+
+بررسی داده‌های وب‌سایت فلایت‌رادار نیز نشان می‌دهد که صبح دوشنبه هیچ هواپیمایی در آسمان ایران در حال پرواز نیست.
+https://iranintl.com/202606089513
+</div>
+
+## IranIntlTV — post 341118
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341118_1780900393.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی ارسال‌شده به ایران‌اینترنشنال، رد موشک شلیک‌شده جمهوری اسلامی را از کرمانشاه به سمت اسرائیل در دوشنبه ۱۸ خرداد نشان می‌دهد.
+</div>
+
+## Shin_Persian — post 6720
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Mon, 08 Jun 2026 06:30:05 UTC
+
+#IDF 🇮🇱:
+"The IDF has identified that a short time ago missiles were launched from Iran toward Israeli territory.
+
+Defense systems are operating to intercept the threat. In recent minutes, the Home Front Command has distributed preliminary instructions directly to mobile phones in the relevant areas.
+
+The public is asked to show responsibility and act according to the instructions - they save lives.
+
+You must enter protected spaces upon receiving the alert, and remain in them until a new announcement.
+
+Exit from the protected space will be possible only after receiving explicit instruction, you must continue to act according to Home Front Command guidelines."
+#Iran
+
+فارسی
+
+#ارتش_دفاعی_اسرائیل (IDF) 🇮🇱:
+«ارتش دفاعی اسرائیل (IDF) شناسایی کرده است که مدت کوتاهی قبل، موشک‌هایی از ایران به سمت خاک اسرائیل پرتاب شده است.
+
+سیستم‌های دفاعی برای رهگیری این تهدید در حال فعالیت هستند. در دقایق اخیر، فرماندهی جبهه داخلی دستورالعمل‌های اولیه را مستقیماً به تلفن‌های همراه در مناطق مربوطه ارسال کرده است.
+
+از عموم مردم درخواست می‌شود که مسئولیت‌پذیری نشان داده و طبق دستورالعمل‌ها عمل کنند - این اقدامات جان انسان‌ها را نجات می‌دهند.
+
+شما باید به محض دریافت هشدار وارد فضاهای محافظت‌شده شوید و تا زمان اعلامیه جدید در آنجا بمانید.
+
+خروج از فضای محافظت‌شده تنها پس از دریافت دستور صریح امکان‌پذیر خواهد بود؛ شما باید به عمل مطابق با دستورالعمل‌های فرماندهی جبهه داخلی ادامه دهید.»
+#Iran
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 219985
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺افزایش قیمت نفت پس از حملات موشکی سپاه به اسرائیل
+
+◾️قیمت نفت در آغاز معاملات هفتگی، پس از حملات موشکی جمهوری اسلامی به اسرائیل و افزایش نگرانی‌ها درباره گسترش درگیری در خاورمیانه، بالا رفت.
+
+◾️بر اساس گزارش رویترز، بهای نفت برنت، شاخص جهانی نفت خام، با بیش از سه دلار افزایش به ۹۶ دلار و ۲۴ سنت در هر بشکه رسید؛ افزایشی معادل ۳ و ۳۹ صدم درصد. نفت خام آمریکا نیز با رشد ۳ و ۱۷ صدم درصدی، به ۹۳ دلار و ۴۱ سنت در هر بشکه رسید.
+
+◾️این افزایش پس از آن رخ داد که ارتش اسرائیل اعلام کرد موشک‌هایی از مبدأ ایران به سوی اسرائیل شلیک شده، و همزمان، گزارش‌هایی از انفجار در چند شهر ایران منتشر شد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8158487.html
+</div>
+
+## Persian_Trend_Official — post 16090
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16090_1780900394.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ هم‌اکنون شلیک موشک به حیفا و شمال اسرائیل
+</div>
+
+## Persian_Trend_Official — post 16089
+
+
+
+
+## RadioFarda — post 158033
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_158033_1780900395.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸دفاع مدنی عربستان سعودی اعلام کرد درباره وجود «خطر احتمالی» در منطقه الخرج، در جنوب شرق ریاض، هشدار صادر کرده و از ساکنان خواسته است در پناهگاه بمانند.
+
+🔸بر اساس این هشدار، از شهروندان و ساکنان منطقه خواسته شده است تا رفع خطر از ترک محل‌های امن خودداری کنند.
+
+🔸مقام‌های عربستانی در این اطلاعیه جزئیات بیشتری درباره ماهیت خطر احتمالی یا منشأ آن ارائه نکرده‌اند. کمی پس از اعلام این هشدار، این نهاد از «رفع خطر» خبر داد اما از ساکنان خواست همچنان هشدارهای ایمنی را دنبال کنند.
+
+🔸این هشدارها در حالی صادر می‌شود که منطقه الخرج، محل استقرار پایگاه هوایی شاهزاده سلطان است؛ پایگاهی که در تحولات نظامی ماه‌های اخیر نیز نام آن مطرح شده بود.
+
+🔸پیشتر و در دوره پیش از آتش‌بس، قرارگاه مرکزی خاتم‌الانبیا در ایران تأیید کرده بود که پایگاه هوایی شاهزاده سلطان در الخرج عربستان سعودی را با موشک‌های بالستیک هدف قرار داده است.
+
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 21737
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 شلیک موشک از کاشان
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21736
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 شلیک موشک از خمین
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21735
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21735_1780900395.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 حمله ی موشکی مجدد جمهوری اسلامی به اسرائیل
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 283155
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻سفیر آمریکا در اسرائیل، حملات ایران را محکوم کرد
+
+مایک هاکبی، سفیر ایالات متحده در اسرائیل، حملات شب گذشته ایران را به شدت محکوم کرد.
+
+او در پستی در شبکه اجتماعی ایکس نوشت که «ایران و عوامل شیطانی نیابتی آن می‌خواهند آمریکا و اسرائیل را با خاک یکسان کنند.»
+
+او نوشته است: «آژیرهای هشدار موشکی ساعت ۶ صبح در بیت‌المقدس به صدا درآمدند. خدا را شکر که آنها رهگیری شدند!»
+
+آقای هاکبی در انتهای پستش هم نوشته که «مادر شیطان در تهران است.»
+
+@BBCPersian
+</div>
+
+## idfinfarsi — post 11814
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل شناسایی کرده است که مدتی پیش موشک‌هایی از ایران به سمت حریم کشور اسرائیل شلیک شده‌اند.
+
+سامانه‌های پدافندی در حال رهگیری این تهدید هستند.
+</div>
+
+## alonews — post 126132
+
+<div align="center">
+  <a href="telegram/content/alonews_126132_1780900396.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری/حمله موشکی به اسرائیل هم اکنون
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126131
+
+<div align="center">
+  <a href="telegram/content/alonews_126131_1780900396.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تصویری از بقایای موشک‌های شلیک شده به سمت اسرائیل در محله‌ای در شرق اورشلیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126130
+
+<div align="center">
+  <a href="telegram/content/alonews_126130_1780900396.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فووووری / تنگه باب المندب توسط یمن بسته شد،یمن تردد شناورهای اسرائیل در دریای سرخ را ممنوع اعلام کرد 
+🔴سخنگوی نیروهای مسلح یمن:‌ از این لحظه تردد کشتی‌های اسرائیلی در دریای سرخ ممنوع است. 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126129
+
+<div align="center">
+  <a href="telegram/content/alonews_126129_1780900396.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کانال ۱۲ عبری: رئیس ستاد کل ارتش اسرائیل از دیشب، سه بار با فرمانده سنتکام صحبت کرده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126128
+
+<div align="center">
+  <a href="telegram/content/alonews_126128_1780900396.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 ارتش اسرائیل فراخوان گسترده در نیروهای ذخیره خود صادر کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/18 09:53
 ---
 

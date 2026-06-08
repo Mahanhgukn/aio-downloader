@@ -7,6 +7,602 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/18 12:03
+---
+
+## VahidOOnLine — post 244307
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244307_1780907623.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های ایران از شنیده شدن صدای انفجار در غرب، جنوب و شرق تهران خبر می‌دهند.
+
+بنا بر گزارش‌ها، چندین صدای انفجار در این مناطق شنیده شده و همزمان برخی رسانه‌های ایران از فعالیت پدافند در برخی مناطق خبر دادند.
+iranintl
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13947
+
+<div align="center">
+  <img src="telegram/content/WithYashar_13947_1780907623.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تهران الان
+@withyashar
+</div>
+
+## WithYashar — post 13946
+
+<div align="center">
+  <a href="telegram/content/WithYashar_13946_1780907624.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل : ما یک حمله گسترده علیه سامانه‌های پدافندی راهبردی رژیم تروریستی ایران را تکمیل کردیم
+
+در دوره اخیر، سامانه‌های پدافندی در چندین منطقه مختلف در ایران مستقر شده بودند، در چارچوب تلاش رژیم برای بازسازی توانایی‌های شناسایی و دفاعی خود که در عملیات «غرش شیران» آسیب دیده بودند — این حمله منجر به انهدام این سامانه‌ها شد.
+در عملیات «غرش شیران»، ارتش اسرائیل به‌طور عمیق به سامانه‌های پدافندی رژیم تروریستی ایران آسیب وارد کرد. حملات تکمیل‌شده به تعمیق بیشتر آزادی عمل نیروی هوایی در آسمان ایران کمک می‌کنند.
+@withyashat
+</div>
+
+## WithYashar — post 13945
+
+<div align="center">
+  <img src="telegram/content/WithYashar_13945_1780907627.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شمس آباد تهران
+@withyashar
+</div>
+
+## WithYashar — post 13944
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دانشگاه هوا فضای عاشورا رو زدن
+@withyashar
+</div>
+
+## WithYashar — post 13943
+
+<div align="center">
+  <img src="telegram/content/WithYashar_13943_1780907627.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یاشار شهرری صدا انفجار اومد ۵ مین پیش فکر کنم پالایشگاه زدن ستون دود دیده میشه @withyashar
+</div>
+
+## mwarmonitor — post 10419
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_10419_1780907628.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴«گزارش‌ها حاکی از آن است که پس از حملات هوایی اسرائیل، دود در شرق تهران مشاهده شده است.»
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10418
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨رسانه‌های اسرائیلی؛ فرودگاه شیراز هدف قرار گرفته است.»
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10417
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴«حمله به یک ایست بازرسی بسیج در کبودرآهنگ در استان همدان، غرب ایران.»
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 92879
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه های عبری دارن از ترور هدفمند در ایران حرف میزنن
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92878
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_92878_1780907628.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تهران هم اکنون
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92877
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گروه 22 توپخانه ارتش و لشکر8 زرهی سپاه اصفهان مورد حمله قرار گرفت
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92876
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_92876_1780907629.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شهر ری
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## VahidOnline — post 76056
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری مهر وابسته به سازمان تبلیغات اسلامی نوشته:
+
+"پهپاد متخاصم دشمن آمریکا_صهیونیستی توسط پدافند هوایی در آسمان تهران هدف قرار گرفت و منهدم شد./ مهر"
+
+📡 @VahidOnline
+</div>
+
+## kianmeli1 — post 87780
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری-از مجاورت پادگان ها و مراکز سیاسی و امنیتی فاصله بگیرید
+https://t.me/+_a5ind9hr7sxOTE0
+</div>
+
+## IranIntlTV — post 341143
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341143_1780907630.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻روزنامه دیلی‌میل گزارشی منتشر کرده که یک فوتبالیست ملی‌پوش که نامش فاش نشده، از سوی یک خانواده بریتانیایی متهم شده است که در جریان تعطیلات آن‌ها در یک هتل پنج‌ستاره در ترکیه، تلاش کرده دختر ۱۴ ساله‌شان را برای «در آغوش گرفتن» به پشت یک پرچین ببرد.
+
+🔹در گزارش دیلی‌میل به تیم ملی ایران اشاره نشده، اما آن‌طور که تصاویر منتشر شده توسط دیلی‌میل نشان می‌دهد، لوگوی روی لباس بازیکن نام‌برده مشخص می‌کند او یکی از بازیکنان تیم ملی فوتبال ایران است.
+
+🔹پدر این دختر در گفت‌وگو با روزنامه دیلی‌میل گفته است دخترش پس از این اتفاق دچار وحشت شده و در حالی که گریه می‌کرده، با خانواده خود تماس گرفته است. این حادثه زمانی رخ داده که دختر ۱۴ ساله به همراه خواهر ۱۰ ساله‌اش کنار استخر هتل حضور داشته و والدین آن‌ها برای گرفتن بستنی از محل دور شده بودند.
+
+🔹به گفته این خانواده، آن‌ها در اواخر ماه می متوجه شدند که یک تیم ملی فوتبال حاضر در جام جهانی نیز در همان هتل اقامت دارد.
+
+🔹جزییات بیشتر را در سایت بخوانید
+
+@iranintltvsport
+</div>
+
+## Shin_Persian — post 6730
+
+<div align="center">
+  <a href="telegram/content/Shin_Persian_6730_1780907631.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Mon, 08 Jun 2026 08:25:17 UTC
+
+Took me a while to find this video :))
+
+فارسی
+
+مدتی طول کشید تا این ویدیو را پیدا کنم :))
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6729
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Mon, 08 Jun 2026 08:24:37 UTC
+
+State-owned Mehr: A position in Kabudarahang has been targeted, no casualties.
+Hamadan Province, #Iran
+
+فارسی
+
+خبرگزاری دولتی مهر: موضعی در کبودرآهنگ مورد هدف قرار گرفته است، تلفاتی وجود ندارد.
+استان همدان، #Iran_
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6728
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Mon, 08 Jun 2026 08:23:42 UTC
+
+Initial:
+IRGC Aerospace Force's Ashoura University has been reportedly targeted, southwestern Tehran, #Tehran Province, #Iran
+
+فارسی
+
+گزارش‌ها حاکی از آن است که دانشگاه هوافضای عاشورای سپاه پاسداران انقلاب اسلامی (IRGC)، در جنوب غربی تهران، #استان_تهران، #ایران هدف قرار گرفته است.
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 219993
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219993_1780907632.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل اعلام کرد که حمله‌ای گسترده به سامانه‌های دفاعی استراتژیک جمهوری اسلامی انجام داد تا قابلیت‌های پدافند هوایی مستقر شده توسط تهران را از کار بیندازد.
+
+ارتش اسرائیل دوشنبه در بیانیه‌ای نوشت که ده‌ها جنگنده نیروی هوایی این ارتش، تحت هدایت اداره اطلاعات ارتش، یک حمله گسترده به سامانه‌های دفاعی راهبردی متعلق به رژیم ایران انجام دادند.
+
+بر اساس این بیانیه، در مدت اخیر، سامانه‌های دفاعی در مناطق مختلف ایران در چارچوب تلاش‌های رژیم ایران برای بازیابی توانایی‌های شناسایی و دفاعی خود که در جریان جنگ پیشین تضعیف شده بود، مستقر شده بودند.
+
+ارتش اسرائیل تأکید کرد که حمله روز دوشنبه باعث از هم پاشیدن این سامانه‌ها شد.
+
+در جریان جنگ پیشین، ارتش اسرائیل توانمندی‌های دفاعی جمهوری اسلامی را به‌شدت تضعیف کرد.
+
+ارتش اسرائیل نوشت: «این حملات آزادی عمل نیروی هوایی اسرائیل را در حریم هوایی ایران بیشتر می‌کند.»
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 16144
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16144_1780907635.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیویی از پرتاب موشک بالستیک از شهر یزد
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16143
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16143_1780907636.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+طهران!
+</div>
+
+## Persian_Trend_Official — post 16142
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16142_1780907637.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+توجه به شرایط موجود در کشور، استفاده از مترو و اتوبوس در هماهنگی با شورای شهر تهران همچنان رایگان خواهد بود /شهرداری تهران
+
+پ.ن : قربان جنگ شده مردم پناهگاه ندارن . اسرائیل داره حمله میکنه . دستور چیه ؟
++مسئول جمهوری اسلامی : فعلا مترو و اتوبوس رو رایگان کن تا ببینیم چی میشه !
+</div>
+
+## Persian_Trend_Official — post 16141
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+غیررسمی/گویا به یک ایستگاه بازرسی بسیج در استان همدان حمله شده
+
+
+👺Phantom
+
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16140
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گفته می‌شود فرودگاه شیراز نیز مورد حمله اسرائیل واقع شده است.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16139
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سایت موشکی در اصفهان که اوایل امروز در حمله به اسرائیل استفاده شد مورد حمله قرار گرفت!
+
+
+👺Phantom
+
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16138
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16138_1780907638.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گروه 22 توپخانه ارتش و لشکر 8 زرهی سپاه اصفهان مورد حمله قرار گرفت.
+
+
+
+👺Phantom
+
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16137
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16137_1780907638.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وضعیت دقایقی قبل تهران
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16136
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16136_1780907639.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فعالیت پدافند موشکی در اصفهان
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## RadioFarda — post 158040
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_158040_1780907641.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸گزارش‌های شهروندی و برخی رسانه‌ها حاکی از شنیده‌شدن صدای انفجار در غرب و جنوب‌ غرب تهران است.
+
+🔸خبرگزاری تسنیم و وب‌سایت خبرآنلاین این گزارش‌ها را تأیید کرده‌اند.
+
+🔸به‌دنبال حمله موشکی جمهوری اسلامی به اسرائیل در اعتراض به حملات این کشور به حزب‌الله لبنان، اسرائیل نیز مناطقی را در غرب و مرکز و جنوب ایران مورد حمله قرار داده بود.
+
+🔸حملات متقابل دو کشور به یکدیگر کماکان ادامه دارد.
+
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 21771
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 وزیر جنگ اسرائیل :
+
+حمله به‌ نقاط مختلف ایران را آغاز کردیم
+
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21770
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 انفجار‌‌ در محدوده فرودگاه مهرآباد
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21769
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21769_1780907641.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شرق تهران
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21768
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 تا الان :
+
+گروه 22 توپخانه ارتش
+لشکر8 زرهی سپاه
+سایت موشکی بیدگنه
+دانشگاه عاشورا هوافضای سپاه
+
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21767
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرق بین دو طرف اینه که سپاه هرچی‌ میزنه یا میخوره به بیابون یا تو هوا میزننش
+
+از این طرف اسرائیلم هرجارو‌ بخواد راحت میزنه :)
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21766
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وقتشه پیت هگست به مناسبت شروع جنگ یه بیستا شنا بره
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21765
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری مهر:
+
+یک پهپاد اسراییلی را سرنگون کردیم
+
++ مادر آدم دروغگو...
+
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21764
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21764_1780907642.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 تهران، شمس آباد
+
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21763
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21763_1780907642.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 تهران الان
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21762
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ورود جنگنده ها به کشور
+
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21761
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 آسمون شیراز صدای جنگنده
+
+
+
+@IranianMinds
+</div>
+
+## alonews — post 126192
+
+<div align="center">
+  <a href="telegram/content/alonews_126192_1780907643.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈دفتر نتانیاهو: به حملات موشکی ایران پاسخ دادیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126191
+
+<div align="center">
+  <a href="telegram/content/alonews_126191_1780907643.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حمله به شهر ری هم اکنون
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126190
+
+<div align="center">
+  <a href="telegram/content/alonews_126190_1780907643.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سخنگوی شهرداری تهران: با توجه به شرایط موجود در کشور، استفاده از مترو و اتوبوس در هماهنگی با شورای شهر تهران همچنان رایگان خواهد بود.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126189
+
+<div align="center">
+  <a href="telegram/content/alonews_126189_1780907644.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پرتاب دوباره موشک بالستیک از یمن به اسرائیل
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126188
+
+<div align="center">
+  <a href="telegram/content/alonews_126188_1780907644.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈دقایقی قبل، تهران
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126187
+
+<div align="center">
+  <a href="telegram/content/alonews_126187_1780907644.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈صدای انفجار در شمال کرج گزارش شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/18 11:54
 ---
 

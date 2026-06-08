@@ -7,6 +7,115 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/18 09:33
+---
+
+## VahidOOnLine — post 244277
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_244277_1780898618.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️موشک شلیک شده از ایران به چند خانه در کرانه باختری آسیب زد
+
+♦️به گفته نیروهای امدادی اسرائیل، اصابت یک قطعه از موشک‌های شلیک شده از ایران، به چند خانه در یکی از شهرک‌های کرانه باختری آسیب وارد کرد.
+در این حادثه مجروحیت گزارش نشده است.
+
+ارتش اسرائیل اعلام کرده است که تمام موشک‌های شلیک‌شده از ایران به سمت اسرائیل در صبح امروز رهگیری شده‌اند و احتمال می‌دهد برخورد گزارش‌شده در کرانه باختری ناشی از قطعه‌ای از یک موشک رهگیری‌شده باشد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## FarsiVOA — post 219982
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219982_1780898622.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال تلگرامی وحید آنلاین، از شنیده شدن صدای چندین انفجار در مناطق مختلف کشور در بامداد روز دوشنبه، ۱۸ خرداد خبر داد.
+
+این تحولات پس از آن رخ داد که ارتش اسرائیل اعلام کرد به دنبال حملات موشکی جمهوری اسلامی به این کشور، مناطقی در غرب و مرکز ایران را هدف قرار داده است.
+
+وحید آنلاین به نقل از شهروندان از شنیده شدن صدای انفجار در حدود ساعت هفت صبح در حوالی «پتروشیمی کارون» در ماهشهر خبر داد و پس از آن معاون امنیتی و انتظامی استانداری خوزستان، وقوع این حملات را تأیید کرد.
+
+وحید آنلاین همچنین از شنیده شدن صدای انفجار در غرب و جنوب تهران، حوالی فرودگاه مهرآباد، تبریز، ارومیه، اصفهان، خمینی‌شهر، کرج، فردیس، رباط کریم، نجف‌آباد، باقرشهر در جنوب تهران، اسلامشهر، شهرری، شهریار، تبریز، قروه در استان کردستان و ملارد خبر داده است.
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 16085
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://youtube.com/live/oPo1ZowDJQ8?feature=share
+</div>
+
+## IranianMinds — post 21730
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21730_1780898623.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 رادیو ارتش اسرائیل :
+
+تمام موشک هایی که ایران به سمت ما شلیک کرد رهگیری شدن و بقیه شون هم خوردن تو بیابون , چن تاشونم متاسفانه مناطق غیرنظامی رو هدف قرار داده بودن که ترکش هاشون به خونه های غیرنظامیان خورده.
+
+
+@IranianMinds
+</div>
+
+## alonews — post 126123
+
+<div align="center">
+  <a href="telegram/content/alonews_126123_1780898624.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تمام پرواز های فرودگاه مهرآباد تهران تا اطلاع ثانوی لغو شد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126122
+
+<div align="center">
+  <a href="telegram/content/alonews_126122_1780898624.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 حمله به پتروشیمی کارون مصدومی نداشته است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126121
+
+<div align="center">
+  <a href="telegram/content/alonews_126121_1780898625.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 تصویر منتشر شده توسط اسرائیل از نقاطی که در آنها حمله گزارش شده است.
+
+
+🔴 شامل تبریز، ارومیه، کردستان، کرمانشاه، کرج، تهران، اصفهان، شیراز و جزیره خارک
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126120
+
+<div align="center">
+  <a href="telegram/content/alonews_126120_1780898625.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سقوط ۷۰ هزار واحدی شاخص بورس تهران در آغاز معاملات
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/18 09:23
 ---
 

@@ -7,6 +7,421 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/18 05:22
+---
+
+## VahidOOnLine — post 244234
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244234_1780883573.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل اعلام کرد: «لحظاتی پیش، نیروی هوایی اسرائیل به اهداف نظامی متعلق به رژیم تروریستی ایران در غرب و مرکز ایران حمله کرد.»
+
+ارتش اسرائیل گفت که جزئیات حمله بعدا اعلام خواهد شد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244233
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244233_1780883574.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️سخنگوی ارتش اسرائیل در نخستین ساعات بامداد دوشنبه و اندکی پس از حمله‌های موشکی جمهوری اسلامی به اسرائیل در گزارش اولیه اعلام کرد: «نیروی هوایی اسرائیل، تحت هدایت رکن اطلاعات ارتش، اندکی قبل به اهداف نظامی رژیم ایران در غرب و مرکز ایران حمله کرد. جزئیات بیشتر متعاقبا اعلام خواهد شد.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244231
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244231_1780883574.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری فارس از وقوع انفجار در تهران، اصفهان و تبریز در بامداد دوشنبه خبر داد. خبرگزاری تسنیم از وقوع انفجار در کرج در بامداد دوشنبه خبر داد. ارتش اسرائیل نیز اعلام کرد نیروی هوایی این کشور «مدتی پیش» اهداف نظامی متعلق به «حکومت ایران» را در غرب و مرکز ایران هدف قرار داده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## mwarmonitor — post 10368
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_10368_1780883575.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اصفهان
+</div>
+
+## mwarmonitor — post 10367
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رسانه‌های اسرائیلی: هیچ هواپیمایی بر فراز ایران وجود نداشت؛ تمام شلیک‌ها از عراق و دریا انجام شده است.
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 92759
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آتش‌بس بالاخره نقض شد یا نه هنوز؟
+</div>
+
+## pm_afshaa — post 92758
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92758_1780883575.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴تسنیم: تبریز، کرمانشاه، تهران و اصفهان مورد حمله قرار گرفتن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92757
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_92757_1780883576.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کرمانشاه :
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92756
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92756_1780883576.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کانال 12 اسرائیل: فرودگاه مهرآباد تهران مورد حمله قرار گرفت.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92755
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92755_1780883577.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴صداوسیما: 3 انفجار در اصفهان رخ داده!
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92754
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92754_1780883577.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴بیش از 12 سایت ایرانی هدف حملات هوایی اسرائیل قرار گرفتن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92753
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_92753_1780883578.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شهید کشوری اصفهان
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92752
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_92752_1780883578.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هم‌اکنون اصفهان :
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## VahidOnline — post 76016
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیام‌های دریافتی از ساعت ۴:۴۰
+
+
+سلام وحید جان
+4:40 دقیقه انفجار از سمت سپاه تبریز طرف متظریه اومد
+
+۴:۴۰: وحید ارومیه یه صدایی اومد نمیدونم چی بود
+
+صدای انفجار شدید در ار‌ومیه
+مشخص نیست صدای چیه
+
+سلام آقا یک صدای مهیبی همین الان از ارومیه اومد ساعت ۴:۳۹. شب هم البته چندین تا موشک از اینجا فرستاده شده بود.
+
+سلام وحید ارومیه ساعت 3:39 صبح صدا اومد و انگار زدن چون خونمون لرزید و دقیقا مثل موقع جنگ بود
+
+وحیدجان نجف‌ آباد صدای چند انفجار شدید. ۴:۴۲
+
+وحیددد
+دارنن اصفهانو میزنن
+نجف اباددد سمت ویلا شهر
+دوتا زدن همه جا ترکید
+لرزید داریم سکته میکنیم
+
+
+شاباد موج انفجار شدید
+
+سلام وحید غرب تهران صدای انفجار شدید اومد همین الان ۴:۴۳
+
+وحید اینجا صدا انفجار اومد ۳ بار
+خیلی بلند و نزدیک. ما کامل از خواب پریدیم
+بدون صدای جنگنده بود.
+نجف آباد اصفهان
+
+خمینی شهر دوبار صداری انفجار اومد
+
+
+وحید زد الان تهران رو
+یوسف آباد ۴:۴٣ صدای انفجار از دور شنیدیم.
+مجدد ۴:۴۵ صدا اومد.
+
+۴:۴۲دقیقه همین الان دو انفجار پی در پی اسلامشهر
+
+انفجار مرکز تهران ساعت ۴:۴۳
+
+وحید زدددددددد
+بالاخره زد
+همین الان ۴:۴۳
+غرب تهران سمت جنت آباد صدای وحشتناک اصابت موشک یا بمب
+صدای جنگنده نیومد
+دوباره الان ۴:۴۵ دومی رو زد
+توضیحات اینکه چند دقیقه قبلش برق نوسان شدید کرد
+
+
+صدای دو تا انفجار همین الان نجف آباد اصفهان
+
+انفجار لرزش شیشه صادقیه تهران
+
+غرب تهرانسر یدونه صدا
+
+اسلامشهر همین الان صدای انفجار مهیب شنیده شد
+
+سلام ساعت ۴:۴۱ صبح، صدای انفجار شدید تو تبریز اومد، جوری که از خواب پریدم، قطعا پدافند و اینا نبود...
+
+وحید جان از سمت قروه کردستان صدای سه انفجار شنیدیم با فاصله ۱۵ دقیقه، به نظرم موشک خوردیم چون لرزشش زیاد بود
+
+سلام وحید جان
+ساعت ۴:۴۴ صبح اسلامشهر مرجان آباد
+۲ انفجار شدید پشت سر هم
+
+جنت آباد جنوبی صدای انفجار - ساعت ۴:۴۴ صبح - ادامه دار نبود در حد دو سه تا بود
+۴:۴۵ مجدد زدن
+
+ساعت ۴:۴۴ دوشنبه صدای ٢ انفجار با فاصله ١ دقیقه از هم غرب تهران
+
+الان صدای دو تا انفجار شدید اومد . اصفهان
+
+سلام از انديشه
+وحيدجان فكر كنم ٢تا صداي انفجار بمبي اومد اينجا
+
+صدای انفجار از دور
+غرب تهران ۴:۴۳ حدودا
+
+
+ساعت ۴:۴۲ دو تا صدای انفجار توی قائمیه اسلامشهر اومد
+پشت سر هم
+آنقدر شدید بود شیشه ها به شدت لرزید
+
+ساعت ۴:۴۲ صدای انفجار خیلی خفیف شمال اصفهان
+انگار خیلی دور بود از ما
+فکر کنم ۳ تا بود
+
+اسلامشهر ساعت ۴.۴۴ دقیقه صدای سه تا انفجار اومد
+
+وحید حان مرکز تهرانیم، ساعت ۰۴:۴۴ صدای ۳ تا انفجار شنیدیم.
+📡 @VahidOnline
+
+هنوز کلی پیام نخونده مونده. در حال آپدیت...
+</div>
+
+## VahidOnline — post 76015
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76015_1780883579.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ سخنگوی ارتش اسرائیل در نخستین ساعات بامداد دوشنبه و اندکی پس از حمله‌های موشکی جمهوری اسلامی به اسرائیل در گزارش اولیه اعلام کرد: «نیروی هوایی اسرائیل، تحت هدایت رکن اطلاعات ارتش، اندکی قبل به اهداف نظامی رژیم ایران در غرب و مرکز ایران حمله کرد. جزئیات بیشتر متعاقبا اعلام خواهد شد.»
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 76014
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76014_1780883579.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 رسانه‌های رسمی ایران از شنیدن انفجار و حمله هوایی به چند شهر ایران از جمله تهران، اصفهان، تبریز و نزدیک به کرج خبر می‌دهند.
+
+bbc.in
+@VahidHeadline
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 76013
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76013_1780883580.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری فارس از وقوع انفجار در تهران، اصفهان و تبریز در بامداد دوشنبه خبر داد. خبرگزاری تسنیم از وقوع انفجار در کرج در بامداد دوشنبه خبر داد. ارتش اسرائیل نیز اعلام کرد نیروی هوایی این کشور «مدتی پیش» اهداف نظامی متعلق به «حکومت ایران» را در غرب و مرکز ایران هدف قرار داده است.
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## kianmeli1 — post 87767
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏🔴فوری-الجزیره: رسانه‌های اسرائیلی گزارش دادند حملات هوایی اخیر فرودگاه مهرآباد تهران و همچنین یک انبار نگهداری پهپادهای انتحاری را هدف قرار داده است
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87766
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری-انفجارهایی در تهران و کرج و اصفهان و تبریز
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 341092
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341092_1780883580.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل اعلام کرد: «لحظاتی پیش، نیروی هوایی اسرائیل به اهداف نظامی متعلق به رژیم تروریستی ایران در غرب و مرکز ایران حمله کرد.»
+
+ارتش اسرائیل گفت که جزئیات حمله بعدا اعلام خواهد شد.
+https://iranintl.com/202606088162
+</div>
+
+## IranIntlTV — post 341091
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341091_1780883581.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری فارس از وقوع انفجار در تهران، اصفهان و تبریز در بامداد دوشنبه خبر داد. خبرگزاری تسنیم از وقوع انفجار در کرج در بامداد دوشنبه خبر داد.
+https://iranintl.com/202606087056
+</div>
+
+## Shin_Persian — post 6684
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6684_1780883581.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Mon, 08 Jun 2026 01:44:10 UTC
+
+Regarding this image: Old (12 days war).
+
+فارسی
+
+در مورد این تصویر: قدیمی (مربوط به جنگ ۱۲ روزه).
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 219965
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219965_1780883581.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️گزارش‌ها از شنیده شدن صدای انفحار در تهران، تبریز و اصفهان حکایت دارد. نیروی هوایی اسرائيل لحظاتی قبل از حمله به مواضع «رژیم تروریستی» در غرب و مرکز ایران خبر داد.
+@FarsiVOA
+</div>
+
+## BBCPersian — post 283128
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283128_1780883582.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+يک زمين لرزه شديد ساعت ۷:۳۷ صبح دوشنبه به وقت محلی جنوب فيليپين را لرزاند.
+
+هنوز درباره قدرت و عمق دقيق اين زمين لرزه اختلاف نظر وجود دارد.
+
+مؤسسه آتشفشان‌شناسی و زلزله‌شناسی فيليپين (فيوولکس) اعلام کرده است اين زلزله بزرگی ۷ و عمق ۱۰ کيلومتری داشته است.
+
+در مقابل، سازمان زمين‌شناسی آمريکا بزرگی اين زمين لرزه را ۷/۸ و عمق آن را ۳۵ کيلومتر اعلام کرده است.
+
+مرکز پژوهش‌های علوم زمين آلمان نيز بزرگی زلزله را ۷/۸ و عمق آن را ۵۰ کيلومتر برآورد کرده است.
+
+در پی اين زمين لرزه، چند کشور منطقه از جمله فيليپين، اندونزی و ژاپن هشدار سونامی صادر کرده‌اند.
+
+مقام‌های محلی در حال ارزيابی خسارت‌های احتمالی هستند و هنوز گزارشی رسمی از تلفات يا خسارات منتشر نشده است.
+
+📸 Getty
+
+https://bbc.in/4fwDUTo
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 391318
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 تصاویری از حملات به کرمانشاه، تهران و اصفهان.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391317
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ چه فیلمی بازی کرد :)))
+</div>
+
+---
 📅 بروزرسانی: 1405/03/18 05:12
 ---
 

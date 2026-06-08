@@ -7,6 +7,94 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/19 01:02
+---
+
+## VahidOOnLine — post 244434
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_244434_1780954365.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کارشناسی حکومتی در صداوسیمای جمهوری اسلامی مدعی شد آمریکا در جنگ ۴۰روزه بیش از ۷ تا ۸ هزار زخمی و دست‌کم هزار کشته داشته است.
+او گفت: «برای ما کشته گرفتن از آمریکایی‌ها و اسرائیلی‌ها هیچ کاری ندارد» و افزود جمهوری اسلامی به درخواست «عالمانه و عاجزانه» کشورهای منطقه خویشتن‌داری کرده است.
+پیش‌تر، دونالد ترامپ، ریس‌جمهوری آمریکا، چهارم خرداد در مراسم «روز یادبود»، یاد ۱۳ نظامی آمریکایی کشته‌شده در جریان جنگ ایران را گرامی داشت و گفت آن‌ها جان خود را فدا کردند تا اطمینان حاصل شود که ایران «هرگز به سلاح هسته‌ای دست نخواهد یافت.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14086
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک منبع جمهوری اسلامی به الجزیره: آمریکا تغییرات غیرقابل قبولی در پیش‌نویس یادداشت تفاهم ایجاد کرده است.
+@withyashar
+</div>
+
+## IranIntlTV — post 341248
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341248_1780954367.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «جمهوری اسلامی بار دیگر سرنوشت ایران و ایرانیان را به درگیری‌های منطقه‌ای، به‌ویژه حزب‌الله لبنان، گره زد و کشور را در معرض تنش و جنگ قرار داد. این سیاست تازه‌ای نیست؛ ۴۸ سال است که حکومت منافع و سرنوشت مردم ایران را به غزه، لبنان و دیگر گروه‌های نیابتی پیوند زده، در حالی که مردم ایران بارها مخالفت خود را با این رویکرد اعلام کرده‌اند.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 341247
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کارشناسی حکومتی در صداوسیمای جمهوری اسلامی مدعی شد آمریکا در جنگ ۴۰روزه بیش از ۷ تا ۸ هزار زخمی و دست‌کم هزار کشته داشته است.
+او گفت: «برای ما کشته گرفتن از آمریکایی‌ها و اسرائیلی‌ها هیچ کاری ندارد» و افزود جمهوری اسلامی به درخواست «عالمانه و عاجزانه» کشورهای منطقه خویشتن‌داری کرده است.
+پیش‌تر، دونالد ترامپ، ریس‌جمهوری آمریکا، چهارم خرداد در مراسم «روز یادبود»، یاد ۱۳ نظامی آمریکایی کشته‌شده در جریان جنگ ایران را گرامی داشت و گفت آن‌ها جان خود را فدا کردند تا اطمینان حاصل شود که ایران «هرگز به سلاح هسته‌ای دست نخواهد یافت.»
+</div>
+
+## Shin_Persian — post 6766
+
+<div align="center">
+  <a href="telegram/content/Shin_Persian_6766_1780954370.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Emanuel (Mannie) Fabian ✓ @manniefabian
+Mon, 08 Jun 2026 21:29:16 UTC
+
+A drone launched at Israel by the Iran-backed Houthis in Yemen was intercepted by air defenses over the southernmost city of Eilat a short while ago, the military says.
+
+فارسی
+
+ارتش اعلام کرد، دقایقی پیش یک پهپاد که توسط حوثی‌های مورد حمایت ایران در یمن به سمت اسرائیل پرتاب شده بود، توسط پدافند هوایی بر فراز جنوبی‌ترین شهر، ایلات، رهگیری شد.
+
+𝕏 · @shin_persian
+</div>
+
+## Persian_Trend_Official — post 16227
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16227_1780954372.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبتون بخیر 🌙
+
+📝 Nick
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## alonews — post 126411
+
+<div align="center">
+  <a href="telegram/content/alonews_126411_1780954373.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈دو موشک رهگیر اسرائیلی روی یک پهپاد در ایلات، جنوب اسرائیل استفاده شدند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/19 00:52
 ---
 

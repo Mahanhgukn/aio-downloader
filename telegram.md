@@ -7,6 +7,359 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/18 14:13
+---
+
+## WithYashar — post 14001
+
+<div align="center">
+  <img src="telegram/content/WithYashar_14001_1780915416.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: هر دو طرف، اسرائیل و ایران، به دنبال برقراری آتش‌بس فوری هستند!
+مذاکرات نهایی درباره «صلح» در حال پیشرفت است، مشروط بر اینکه جهل یا حماقت مانع آن نشود.
+محاصره به قوت خود باقی خواهد ماند و با قدرت کامل اجرا می‌شود، تا زمانی که «توافق نهایی» حاصل شود.
+اوضاع باید سریع پیش برود. از توجه شما به این موضوع سپاسگزارم!
+@withyashar
+</div>
+
+## WithYashar — post 14000
+
+<div align="center">
+  <img src="telegram/content/WithYashar_14000_1780915417.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ستون دود از انفجار در شیراز، ساعتی پیش
+@withyashar
+</div>
+
+## WithYashar — post 13999
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه های رژیم : پدافند یزد فعال شد
+@withyashar
+</div>
+
+## WithYashar — post 13998
+
+<div align="center">
+  <a href="telegram/content/WithYashar_13998_1780915418.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اولین تصاویر از حمله به یک کشتی باری با پرچم پالائو با ۲۴ خدمه هندی در نزدیکی تنگه هرمز ساعتی پیش , بر اساس این گزارش‌ها، در این حمله موتورخانه کشتی هدف قرار گرفته است.
+@withyashar
+</div>
+
+## WithYashar — post 13997
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سخنگوی وزارت خارجه چین : پکن به‌شدت نگران وضعیت فعلیه
+@withyashar 🥴
+</div>
+
+## mwarmonitor — post 10447
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 ترامپ در تروث سوشال:
+
+هر دو طرف، اسرائیل و ایران، به دنبال آتش‌بس فوری هستند! مذاکرات نهایی درباره “صلح” در حال انجام است، مشروط بر اینکه جهل یا حماقت مانعی در مسیر آن ایجاد نکند. محاصره تا زمان رسیدن به یک “توافق نهایی” همچنان برقرار خواهد ماند و با تمام قدرت و اثرگذاری ادامه پیدا می‌کند. همه چیز باید سریع پیش برود.
+
+از توجه شما به این موضوع سپاسگزارم!»
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10446
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_10446_1780915420.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‼️ اولین مستندات رنگی از حملات در ایران: ارتش اسرائیل مدتی پیش سامانه‌های پدافند هوایی رژیم تروریستی ایران را منهدم کرد
+
+⭕️نیروی هوایی مدتی پیش یک موج حمله علیه سامانه‌های پدافند هوایی رژیم تروریستی ایران در غرب و مرکز ایران را تکمیل کرد.
+
+⭕️ارتش اسرائیل اکنون تصاویری رنگی از انهدام یکی از این سامانه‌ها منتشر می‌کند که در آن موشک‌هایی که برای هدف قرار دادن هواگردها در نظر گرفته شده بودند، نگهداری می‌شدند. پس از حمله، انفجارهای ثانویه شناسایی شد که نشان‌دهنده وجود این موشک‌ها در سکوی پرتاب است.
+
+⭕️انهدام این سامانه‌ها، برتری هوایی نیروی هوایی در آسمان ایران را بیش از پیش گسترش می‌دهد، با هدف ادامه رفع تهدید از شهروندان کشور اسرائیل.
+
+@mwarmonitor
+</div>
+
+## IranIntlTV — post 341159
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341159_1780915421.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرخط خبرهای دوشنبه ۱۸ خرداد
+
+@iranintltv
+</div>
+
+## IranIntlTV — post 341158
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341158_1780915423.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نشست شورای حکام آژانس بین‌المللی انرژی اتمی دوشنبه در وین آغاز به کار کرد و بررسی برنامه هسته‌ای جمهوری اسلامی از محورهای اصلی این نشست است.
+
+احمد صمدی، خبرنگار ایران‌اینترنشنال، گزارش می‌دهد
+
+@iranintltv
+</div>
+
+## IranIntlTV — post 341157
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341157_1780915425.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایوت کوپر، وزیر امور خارجه بریتانیا، گفت ادامه درگیری‌ها میان جمهوری اسلامی و اسرائیل به سود هیچ‌کس نیست و دو طرف باید فورا برای کاهش تنش‌ها اقدام کنند.
+
+لی‌لی نیکفر، خبرنگار ایران‌اینترنشنال، از واکنش‌ها در اروپا گزارش می‌دهد
+
+@iranintltv
+</div>
+
+## Shin_Persian — post 6744
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6744_1780915427.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn Mon, 08 Jun 2026 10:35:26 UTC POTUS: "Both sides, Israel and Iran, are looking to do an immediate CEASEFIRE! Final negotiations on “Peace” are proceeding, subject to ignorance or stupidity getting in its way. The Blockade will remain…
+</div>
+
+## Shin_Persian — post 6743
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Mon, 08 Jun 2026 10:35:26 UTC
+
+POTUS:
+"Both sides, Israel and Iran, are looking to do an immediate CEASEFIRE! Final negotiations on “Peace” are proceeding, subject to ignorance or stupidity getting in its way. The Blockade will remain in place, and in full force and effect, until a “Final Deal” is reached. Things should move quickly. Thank you for your attention to this matter! President DONALD J. TRUMP"
+
+فارسی
+
+رئیس‌جمهور ایالات متحده (POTUS):
+«هر دو طرف، اسرائیل و ایران، به دنبال یک آتش‌بس فوری هستند! مذاکرات نهایی بر سر «صلح» در حال پیشرفت است، مشروط به اینکه جهالت یا حماقت مانع آن نشود. محاصره تا زمانی که یک «توافق نهایی» حاصل شود، به قوت خود و با تمام توان باقی خواهد ماند. مسائل باید به سرعت پیش برود. از توجه شما به این موضوع سپاسگزارم! رئیس‌جمهور دونالد جی. ترامپ»
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 220007
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220007_1780915428.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ستون‌های دود ناشی از حملات اسرائیل به چند نقطه در تهران؛
+
+گزارش‌های اولیه از وقوع چندین انفجار در مناطق اسلام‌شهر، ملارد، کهریزک در محدوده تهران حکایت دارد. شدت انفجارها به اندازه‌ای بوده که ساکنان این مناطق از لرزش زمین و شنیده‌شدن صداهای پیاپی خبر داده‌اند.
+@FarsiVOA
+</div>
+
+## DW_Farsi — post 125682
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125682_1780915431.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 ترامپ از ایران و اسرائیل خواست "فورا شلیک به یکدیگر را متوقف کنند"
+
+دونالد ترامپ‌ از ایران و اسرائیل خواست تا حملات متقابل به یکدیگر را فورا متوقف کنند. رئیس جمهور آمریکا در پستی در شبکه اجتماعی تروث سوشال نوشت: «اسرائیل و ایران باید سریعا ’شلیک‘ به یکدیگر را متوقف کنند.»
+
+او شامگاه یکشنبه نیز اندکی پس از آغاز حملات موشکی ایران به اسرائیل از تهران خواسته بود تا به میز مذاکره بازگردد و با واشنگتن به توافق برسد.
+
+سایت خبری "اکسیوس" پیش‌تر به نقل از یک مقام ارشد آمریکایی و یک منبع مطلع اسرائیلی گزارش داده بود که ترامپ روز یکشنبه در تماسی تلفنی با بنیامین نتانیاهو، نخست‌وزیر اسرائیل، از او خواسته بود تا حملات موشکی ایران را بدون پاسخ بگذارد و به دیپلماسی فرصت بیشتری بدهد. در این گزارش به نقل از مقام ارشد آمریکایی ذکر شده بود که دولت ترامپ به اسرائیل برای حمله به بیروت "چراغ سبز" نشان نداده بود.
+
+اکسیوس نوشته بود که ترامپ در تماس تلفنی با نتانیاهو به او گفته بود که برای حمله به ایران فعلا دست نگه دارد زیرا ایالات متحده "در آستانه دستیابی به نتیجه‌ای خوب در زمینه توافق" با تهران است. این مقام ارشد آمریکایی اضافه کرده بود که نتانیاهو با درخواست ترامپ مخالفت کرد اما در نهایت "به صورت ظاهری" موافقت کرد که از انجام حمله به ایران خودداری کند.
+
+با این حال حملات اسرائیل به ایران تا ظهر روز دوشنبه ادامه داشته است و به نوشته رسانه‌های اسرائیلی کابینه جنگی اسرائیل قرار است با حضور شمار اندکی از افراد کلیدی تشکیل جلسه دهد. سپاه پاسداران نیز اعلام کرده است که به اهدافی در اسرائیل از جمله دو پایگاه هوایی و تأسیسات پتروشیمی حیفا حمله کرده است.
+
+خبرگزاری تسنیم در گزارشی درخواست ترامپ از ایران و اسرائیل برای توقف حملات را یک "نمایش فریبنده" خواند و نوشت رئیس جمهور آمریکا به اسرائیل برای انجام حملات به لبنان "چراغ سبز" نشان داده است.
+
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 16172
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بروجردی، عضو کمیسیون امنیت ملی مجلس: تسلیحاتی داریم که اگر به کار بگیریم زندگی صهیونیست‌ها را مختل می‌کنیم
+</div>
+
+## Persian_Trend_Official — post 16171
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16171_1780915431.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بروجردی، عضو کمیسیون امنیت ملی مجلس: تسلیحاتی داریم که اگر به کار بگیریم زندگی صهیونیست‌ها را مختل می‌کنیم
+</div>
+
+## Persian_Trend_Official — post 16170
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ:
+
+هر دو طرف، اسرائیل و ایران، به دنبال برقراری آتش‌بس فوری هستند!
+
+مذاکرات نهایی درباره «صلح» در حال پیشرفت است، مشروط بر اینکه جهل یا حماقت مانع آن نشود.
+
+محاصره به قوت خود باقی خواهد ماند و با قدرت کامل اجرا می‌شود، تا زمانی که «توافق نهایی» حاصل شود.
+
+اوضاع باید سریع پیش برود. از توجه شما به این موضوع سپاسگزارم!
+</div>
+
+## IranianMinds — post 21817
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فوری ترامپ: هر دو طرف، اسرائیل و ایران، به دنبال آتش بس فوری هستند! مذاکرات نهایی در مورد "صلح" به شرط دوری از ناآگاهی یا حماقت در راه است. محاصره به قوت خود باقی خواهد ماند تا زمانی که "توافق نهایی" حاصل شود. همه چیز باید به سرعت حرکت کند. با تشکر…
+</div>
+
+## IranianMinds — post 21816
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21816_1780915434.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فوری ترامپ:
+
+هر دو طرف، اسرائیل و ایران، به دنبال آتش بس فوری هستند! مذاکرات نهایی در مورد "صلح" به شرط دوری از ناآگاهی یا حماقت در راه است.
+
+محاصره به قوت خود باقی خواهد ماند تا زمانی که "توافق نهایی" حاصل شود.
+
+همه چیز باید به سرعت حرکت کند. با تشکر از توجه شما به این موضوع!
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21815
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21815_1780915435.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پزشکیان : خو اومد زد!
+بازم گنده گوزی کنیم میاد میزنه.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 283171
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻حزب‌الله: به سربازان اسرائیلی در جنوب لبنان حمله کردیم
+
+حزب‌الله می‌گوید صبح امروز رگباری از موشک را به سمت گروهی از خودروهای ارتش و سربازان اسرائیلی در جنوب لبنان شلیک کرده است.
+
+حزب‌الله در کانال تلگرامش نوشت که این حمله در پاسخ به «نقض آتش‌بس و حملات اسرائیل به روستاهای جنوب لبنان» است.
+
+حزب‌الله گفت که یک تجمع پرسنل نظامی را در حومه بیت یاحون هدف قرار داده است.
+
+اسرائیل هنوز اظهار نظری نکرده و میزان خسارات یا جراحات احتمالی مشخص نیست.
+
+@BBCPersian
+</div>
+
+## BBCPersian — post 283170
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻اطلاعات سپاه و قوه قضائیه: ارسال فیلم و عکس اقدام مجرمانه محسوب می‌شود
+
+سازمان اطلاعات سپاه پاسداران در بیانیه‌ای اعلام کرد که هر گونه «همکاری با دشمن از جمله تهیه و ارسال فیلم و عکس اقدامی مجرمانه محسوب شده و با مرتکبان برابر قانون در زمان جنگ، برخورد خواهد شد.»
+
+این سازمان از مردم خواست افرادی که «با دشمن همکاری می‌کنند» معرفی کنند.
+
+دادستانی کل کشور هم در بیانیه‌ای هشدار داد: «انتشار تصاویر و فیلم‌هایی از محل اصابت پرتابه‌های دشمن که موجب تکمیل پازل اطلاعاتی دشمن شود، مصداق جرم بوده و با عاملان انتشار این‌گونه محتواها برخورد قاطع قانونی صورت خواهد گرفت.»
+
+قوه قضائیه ایران بارها گفته است که حتی ارسال عکس و فیلم «همکاری با دشمن» است که به توقیف، مصادره اموال و حتی اعدام ممکن منجر شود.
+
+با شروع جنگ اخیر صدها نفر در ایران به اتهام همکاری یا «جاسوسی برای دشمن» بازداشت و به مجازات‌های مختلف محکوم شده‌اند.
+
+@BBCPersian
+</div>
+
+## idfinfarsi — post 11819
+
+<div align="center">
+  <a href="telegram/content/idfinfarsi_11819_1780915435.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## Dirty_Kids — post 391354
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آقای جمهوری اسلامی اینترنتو قط نکن بهت بگیم جنگنده‌های دشمن از کدوم مناطق رد شدن بلکه کیرشونو بخوری
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 126238
+
+<div align="center">
+  <a href="telegram/content/alonews_126238_1780915438.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: به اسرائیل میگم بس کنید تا برخورد نکردیم!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126237
+
+<div align="center">
+  <a href="telegram/content/alonews_126237_1780915438.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری/معاونت ارتباطات و اطلاع‌رسانی دفتر معاون اول رئیس‌جمهور:
+
+
+🔴نگرانی برای قطع اینترنت وجود نداره و اینترنت قطع نمیشه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126236
+
+<div align="center">
+  <a href="telegram/content/alonews_126236_1780915438.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 ترامپ: هر دو طرف، اسرائیل و ایران، به دنبال برقراری آتش‌بس فوری هستند!
+
+
+🔴مذاکرات نهایی درباره «صلح» در حال پیشرفت است، مشروط بر اینکه جهل یا حماقت مانع آن نشود.
+
+
+🔴محاصره به قوت خود باقی خواهد ماند و با قدرت کامل اجرا می‌شود، تا زمانی که «توافق نهایی» حاصل شود.
+
+
+🔴اوضاع باید سریع پیش برود. از توجه شما به این موضوع سپاسگزارم!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/18 14:03
 ---
 

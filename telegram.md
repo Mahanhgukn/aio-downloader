@@ -7,6 +7,113 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/19 01:22
+---
+
+## VahidOOnLine — post 244440
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244440_1780955546.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+زلزله‌ای به بزرگی ۵ منطقه سرگزی احمدی در شمال هرمزگان را لرزاند. هنوز از تلفات یا خسارت‌های احتمالی این زمین‌لرزه گزارشی منتشر نشده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244439
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244439_1780955547.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️به گزارش مهر، بامداد روز سه‌شنبه، زمین‌لرزه‌ای به بزرگی ۵ مرز استان‌های هرمزگان و کرمان را در حوالی «سرگز» تکان داد. بنا بر گزارش مرکز لرزه‌نگاری، این زلزله در عمق ۲۲ کیلومتری زمین رخ داده و کانون آن در فاصله ۲۸ کیلومتری سرگز، ۳۳ کیلومتری زیارتعلی در هرمزگان و ۳۴ کیلومتری فاریاب در کرمان ثبت شده است. این منطقه در ۱۰۴ کیلومتری بندرعباس و ۲۶۴ کیلومتری شهر کرمان قرار دارد. با وجود شدت این زمین‌لرزه، تا زمان انتشار این گزارش هنوز هیچ‌گونه اطلاعاتی مبنی بر خسارات مالی یا تلفات جانی احتمالی از سوی مقامات مسئول و تیم‌های ارزیاب منطقه منتشر نشده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## IranIntlTV — post 341253
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341253_1780955547.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+زلزله‌ای به بزرگی ۵ منطقه سرگزی احمدی در شمال هرمزگان را لرزاند. هنوز از تلفات یا خسارت‌های احتمالی این زمین‌لرزه گزارشی منتشر نشده است.
+https://iranintl.com/202606083912
+</div>
+
+## IranIntlTV — post 341252
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341252_1780955548.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻نشان‌هایی که اعضای تیم ملی فوتبال در هنگام ورود به مکزیک بر لباس‌های خود داشتند ممکن است با جریمه‌هایی برای تیم ملی مواجه شود.
+
+🔹اعضای تیم ملی نشان‌های پینی روی یقه کت‌های خود نصب کرده بودند که روی آن نوشته شده بود «#168»؛ مشابه یک هشتگ که هواداران جمهوری اسلامی استفاده می‌کنند.
+
+🔹سایت اتلتیک در گزارشی به نقل از وزارت خارجه جمهوری اسلامی می‌نویسد که این هشتگ یادبود تعداد کودکانی است که در نخستین روز جنگ ۴۰ روزه در یک مدرسه ابتدایی کشته شدند.
+
+🔹به نوشته این رسانه، تیم ایران بعدازظهر شنبه هنگامی که اردوی پیش از جام جهانی خود در آنتالیا، ترکیه را ترک کرده بود، این نشان‌ها را به همراه نداشت. در طول سفر با توقفی برای سوخت‌گیری در اسپانیا، نشان‌ها به یقه کت‌های سرمه‌ای آن‌ها متصل شد و هنگام پیاده شدن در مکزیک و هنگام حرکت به سمت هتل تیم قابل مشاهده بود.
+
+🔹مقررات فیفا تصریح می‌کند که «تجهیزات نباید دارای هرگونه شعار، بیانیه یا تصویر سیاسی، مذهبی یا شخصی باشد» و در غیر این صورت بازیکنان و یا تیم ممکن است توسط برگزارکننده مسابقه یا فیفا با مجازات مواجه شوند.
+
+🔹جزییات بیشتر را در سایت بخوانید
+
+@iranintltvsport
+</div>
+
+## Persian_Trend_Official — post 16234
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش هایی از شنیده شدن صدای انفجار در اطراف گیشا در تهران
+</div>
+
+## Persian_Trend_Official — post 16233
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16233_1780955549.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ یک پهپاد از سوی حوثی‌ها شلیک شده بود و با شلیک دو موشک رهگیر سرنگون شد.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 21882
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21882_1780955550.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محور مقاومت
+
+@IranianMinds
+</div>
+
+## alonews — post 126414
+
+<div align="center">
+  <a href="telegram/content/alonews_126414_1780955551.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تو عراق یه رستوران به این نام باز شده؛
+
+ملت همیشه در صحنه هم انقدر واسشون کامنت گذاشتن که آخر سر مديريت رستوران هم مجبور شد این کامنت رو بذاره .
+
+#کاظم_صدیقی
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/19 01:12
 ---
 

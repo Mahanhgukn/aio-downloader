@@ -7,6 +7,296 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/18 16:23
+---
+
+## VahidOOnLine — post 244361
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244361_1780923220.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️جعفر میعادفر، رئیس سازمان اورژانس ایران، اعلام کرد در پی حملات اخیر اسرائیل به خاک ایران، ۱۵ نفر مجروح شده‌اند و تاکنون گزارشی از کشته‌شدن افراد در این حملات دریافت نشده است.
+به گزارش خبرگزاری تسنیم، میعادفر روز دوشنبه ۱۸ خرداد گفت ۱۴ نفر از مجروحان در شهرستان ماهشهر در استان خوزستان و یک نفر نیز در تهران زخمی شده‌اند.
+او افزود از مجموع مجروحان، ۱۴ نفر پس از دریافت خدمات درمانی از مراکز درمانی مرخص شده‌اند و تنها یک نفر همچنان در بیمارستان بستری است.
+رئیس سازمان اورژانس ایران همچنین گفت نظام سلامت و مجموعه اورژانس کشور در آمادگی کامل قرار دارند تا در صورت ادامه حملات، خدمات درمانی لازم را به مجروحان احتمالی ارائه کنند.
+این اظهارات در حالی مطرح می‌شود که از شامگاه یکشنبه ایران و اسرائیل حملات هوایی متقابلی را علیه یکدیگر انجام داده‌اند. در همین حال، قرارگاه مرکزی خاتم‌الانبیا روز دوشنبه اعلام کرد عملیات نیروهای مسلح جمهوری اسلامی علیه اسرائیل پایان یافته است. رسانه‌های رسمی اسرائیل نیز از توقف حملات این کشور به ایران به درخواست دونالد ترامپ خبر داده‌اند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244360
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244360_1780923221.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال ۱۲ اسرائیل به نقل از یک منبع نوشت که این کشور به درخواست ترامپ حملات به ایران را متوقف می‌کند اما حملات به جنوب لبنان با شدت ادامه خواهد یافت.
+
+این مقام افزود که اگر حملات حزب‌الله به شهرهای اسرائیل ادامه یابد، اسرائیل ضاحیه بیروت را هدف قرار خواهد داد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244359
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_244359_1780923222.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ارتش اسرائیل روز دوشنبه ۱۸ خردادماه با انتشار تصاویری اعلام کرد نیروی هوایی این کشور در جریان حملاتی در غرب و مرکز ایران، چندین سامانه پدافند هوایی را هدف قرار داده است.
+
+در بیانیه ارتش اسرائیل آمده است که تصاویر منتشرشده، انهدام یکی از سامانه‌های پدافندی را نشان می‌دهد که موشک‌های زمین‌به‌هوا در آن نگهداری می‌شد. به گفته ارتش اسرائیل، وقوع انفجارهای ثانویه پس از حمله نشان‌دهنده وجود این موشک‌ها در محل هدف بوده است.
+
+رسانه‌های داخلی ایران و کاربران شبکه‌های اجتماعی صبح دوشنبه از بمباران اهدافی در غرب ایران ازجمله کرمانشاه و کبودرآهنگ در استان همدان خبر داده بودند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## pm_afshaa — post 92916
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92916_1780923222.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رویترز به نقل از منابع: اسرائیل تصمیم گرفته حملاتش به ایران رو متوقف کنه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 341180
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/341180" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی اخبار نیمروزی | دوشنبه ۱۸ خرداد
+@iranintlTV
+</div>
+
+## IranIntlTV — post 341179
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341179_1780923224.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال ۱۲ اسرائیل به نقل از یک منبع نوشت که این کشور به درخواست ترامپ حملات به ایران را متوقف می‌کند اما حملات به جنوب لبنان با شدت ادامه خواهد یافت.
+
+این مقام افزود که اگر حملات حزب‌الله به شهرهای اسرائیل ادامه یابد، اسرائیل ضاحیه بیروت را هدف قرار خواهد داد.
+https://iranintl.com/202606081770
+</div>
+
+## Shin_Persian — post 6751
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Mon, 08 Jun 2026 12:51:40 UTC
+
+Iran Civil Aviation Organization: all flights from airports across the Iran are canceled and will not operate until further notice.
+
+فارسی
+
+سازمان هواپیمایی کشوری ایران: تمامی پروازها از فرودگاه‌های سراسر ایران لغو شده است و تا اطلاع ثانوی انجام نخواهد شد.
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 220026
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220026_1780923224.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+منابع امنیتی می‌گویند یک مقر گروه‌های کُرد مخالف جمهوری اسلامی در شرق اربیل عراق هدف دو حمله پهپادی قرار گرفت.
+منابع امنیتی روز دوشنبه ۱۸ خرداد به رویترز گفتند که مقر مخالفان کُرد ایرانی در شرق اربیل عراق هدف حمله پهپادی قرار گرفته است. هرچند به گفته این منابع تلفاتی گزارش نشده است.
+به گفته منابع امنیتی، روز یکشنبه دو حمله پهپادی در نزدیکی سلیمانیه عراق رخ داد که یکی از آنها مقر نیروهای پیشمرگه کُرد و دیگری اردوگاهی را که محل استقرار گروه‌های اپوزیسیون کُرد ایرانی در غرب این شهر بود، هدف قرار داد.
+</div>
+
+## Persian_Trend_Official — post 16189
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16189_1780923225.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ مقام ارشد اسرائیلی: احساس ما در طول مشاوره این بود که دور مذاکرات پشت سر گذاشته شده است.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16188
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16188_1780923225.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ جروزالم پست:
+
+تحلیل: حملات ایران به اسرائیل، بیش از آنکه پاسخی به حملات ارتش اسرائیل به بیروت باشد، تلاش ایران برای بازپس‌گیری قدرت و نفوذ منطقه‌ای پس از یک سری شکست‌ها است.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 21850
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 تمامی پرواز ها کنسل شدن و تمامی فرودگاهای کشور تا اطلاع ثانوی بسته شدن.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 283187
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻پزشکیان: نه میدان را ترک کرده‌ایم نه میز مذاکره را
+
+مسعود پزشکیان گفت ایران «نه میدان را ترک کرده و نه میز مذاکره را.»
+
+رئیس‌جمهور ایران همچنین در ایکس نوشت که «اولویت ما امنیت ملی و آرامش مردم است. با اقتدار از حقوق ملت دفاع می‌کنیم و در برابر هیچ تهدیدی عقب‌نشینی نخواهیم کرد.»
+
+شب گذشته ایران در آنچه که قرارگاه خاتم‌الانبیا ادامه حملات اسرائیل «در جنوب لبنان و منطقه ضاحیه» خواند، حملاتی را به اسرائیل انجام داد که با پاسخ متقابل اسرائیل همراه بود.
+
+مقام‌های ایران بر این نکته تاکید کرده‌اند درحالی‌که وزیر کشور پاکستان در تهران مشغول مذاکره بود اسرائیل به ضاحیه در جنوب بیروت حمله کرد.
+
+پاکستان میانجی اصلی گفت‌وگوهای ایران و آمریکاست.
+
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 391375
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آخرش می‌فهمید مجتبی درواقع همون ترامپ بوده و تمام این مدت داشت با خودش حرف می‌زده
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391374
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391374_1780923225.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+راهکار بعدی ترامپ برای جلوگیری از حملۀ نتانیاهو و نقض نشدن آتش‌بس
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391373
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بچه ها برنامه ریزی بلندمدت نکنید مثلا در حدی که تا نیم ساعت آینده آب، جوش بیاد نسکافه درست کنید همین.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391369
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 دقایقی پیش، اسرائیل جنوب لبنان رو شخم زد.
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 126275
+
+<div align="center">
+  <a href="telegram/content/alonews_126275_1780923226.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 کانال ۱۲ به نقل از یک مقام ارشد اسرائیلی: ارزیابی غالب در خلال مشورت‌های امنیتی حاکی از آن است که دور فعلی تشدید تنش را پشت سر گذاشته‌ایم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126274
+
+<div align="center">
+  <a href="telegram/content/alonews_126274_1780923226.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈لغو تمام پروازهای کشور تا اطلاع ثانوی
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126273
+
+<div align="center">
+  <a href="telegram/content/alonews_126273_1780923227.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈اورژانس ایران: ۱۵ نفر بر اثر حملات اخیر اسرائیل مجروح شدند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126272
+
+<div align="center">
+  <a href="telegram/content/alonews_126272_1780923227.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈لارنس نورمن خبرنگار وال استریت ژورنال: پیش‌نویس قطعنامه آمریکا برای نشست این هفته شورای حکام آژانس بین‌المللی انرژی اتمی (IAEA)، که کشورهای اروپایی (E3) چندان مشتاق آن نبودند، اصلاح شده و به گفته منابع، اکنون به قطعنامه مشترک سه کشور اروپایی و آمریکا تبدیل شده است. بنابراین به احتمال زیاد تصویب خواهد شد.
+
+
+🔴بر اساس برداشت من، فشار آمریکا برای ارجاع فوری پرونده ایران به شورای امنیت سازمان ملل، به عنوان یک مصالحه، از قطعنامه حذف شده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126271
+
+<div align="center">
+  <a href="telegram/content/alonews_126271_1780923227.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تخریب در الخریب، جنوب لبنان، پس از حمله اسرائیل
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126270
+
+<div align="center">
+  <a href="telegram/content/alonews_126270_1780923228.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 رویترز به نقل از منابع:
+اسرائیل تصمیم گرفته است حملات خود به ایران را متوقف کند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/18 16:14
 ---
 

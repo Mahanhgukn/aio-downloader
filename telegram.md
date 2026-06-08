@@ -7,6 +7,424 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/18 14:48
+---
+
+## VahidOOnLine — post 244332
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرزانه ساسانی‌پور، ۴۲ ساله و مادر دو فرزند، شامگاه ۱۹ دی‌ ۱۴۰۴ در کوه‌چنار هنگامی که مقابل خانه مادرش در حال کمک به مجروحان بود، هدف شلیک یک تک‌تیرانداز قرار گرفت و کشته شد. بر اساس گزارش‌ها، گلوله به گردن او اصابت کرد و قلبش را شکافت.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244331
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_244331_1780917504.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️بیماران بیمارستان‌ها در اسرائیل همزمان با حملات موشکی ایران به زیرزمین منتقل شدند
+
+♦️در پی ازسرگیری حملات موشکی جمهوری اسلامی، بیمارستان‌های اسرائیل فعالیت بخشی از واحدهای درمانی خود را به فضاهای محافظت‌شده و زیرزمینی منتقل کردند.
+
+وزارت بهداشت اسرائیل اعلام کرده است که مراکز درمانی در وضعیت اضطراری قرار گرفته‌اند و برخی بیمارستان‌ها بیماران و کادر درمان را به بخش‌های زیرزمینی منتقل کرده‌اند.
+همچنین عمل‌های جراحی غیرضروری لغو شده و روند ترخیص بیماران با شرایط پایدار تسریع شده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244330
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244330_1780917506.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علاءالدین بروجردی، عضو کمیسیون امنیت ملی مجلس گفت: «محاصره دریایی را اقدام غیرقانونی آمریکا می‌دانیم و با آن مقابله خواهیم کرد.»
+
+او افزود توصیه ما به آمریکایی‌ها این است که «عاقلانه‌تر» عمل کنند، «جمهوری اسلامی در جنگ دوم و سوم پیروز شد» و اگر بخواهند جنگ چهارم را آغاز کنند، قطعا باز هم پیروز خواهیم بود.»
+iranintl
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14007
+
+<div align="center">
+  <a href="telegram/content/WithYashar_14007_1780917507.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏ارتش اسرائیل : ما سیستم‌های پدافند هوایی رژیم تروریستی جمهوری اسلامی در غرب و مرکز ایران را نابود کردیم
+
+‏پس از حمله، انفجارهای ثانویه‌ای شناسایی شد که نشان می‌داد موشک‌ها در پرتابگر بوده‌اند.
+@withyashar
+</div>
+
+## WithYashar — post 14006
+
+<div align="center">
+  <a href="telegram/content/WithYashar_14006_1780917509.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+الان کرج سمت میدان استاندارد و فردیس
+@withyashar
+</div>
+
+## mwarmonitor — post 10453
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴یک مقام آمریکایی گفت تماس تلفنی ترامپ با نتانیاهو «مودبانه» بوده است، اما نتانیاهو با درخواست ترامپ برای توقف اقدامات بیشتر مخالفت کرده است. این مقام افزود: «به نتانیاهو صراحتاً گفته شد که این چرخه باید پایان یابد. آمریکا با این حملات موافقت نکرد و از آن‌ها حمایت نکرد.» — آکسیوس
+
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10452
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_10452_1780917511.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📌شی جین‌پینگ، رئیس‌جمهور چین، برای اولین بار در ۷ سال گذشته به‌صورت رسمی از کره شمالی بازدید کرد.
+
+🔸این نشست در حالی برگزار می‌شود که پکن تلاش دارد نفوذ خود را بر پیونگ‌یانگ دوباره تقویت کند. این موضوع پس از دوره‌ای رخ می‌دهد که کره شمالی روابط نظامی و اقتصادی خود را با مسکو به‌طور قابل توجهی گسترش داده است.
+
+🔸رهبران در حالی دیدار کردند که کیم جونگ اون از گسترش چشمگیر و چندبرابری زرادخانه هسته‌ای کره شمالی خبر داده بود.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10451
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨اسرائیل هیوم گزارش داده است که اسرائیل و ایالات متحده پیامی به ایران ارسال کرده‌اند مبنی بر اینکه اگر تهران حمله دیگری انجام ندهد، هیچ حمله دیگری صورت نخواهد گرفت.
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 342710
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342710_1780917511.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+An eventful 24 hours in the Middle East.
+
+Israel and Iran exchanged another round of missile fire across the region, with Israel carrying out strikes inside Iran, and Tehran responding with waves of ballistic missile launches. The latest attacks have raised fears that the conflict could spiral even further.
+
+President Trump is now pushing hard for the shooting to stop. Speaking with @TreyYingst, Trump said Iran should get back to the negotiating table as the U.S. works to secure a ceasefire and broader agreement.
+
+Stop scrolling for updates and turn on live alerts. Get FOX One and get the facts.
+
+http://fox.com/stream/fox-news?cmpid=org=fn::ag=owned_other::mc=organicsocial%5B%E2%80%A6%5DWITTER::cmp=100_o2_th4::cont=m2_tp1::add=03_17_00_05_13_00_02_A
+</div>
+
+## pm_afshaa — post 92896
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴اسرائیل هیوم: اسرائیل و ایالات متحده پیامی به ایران ارسال کردن که اگه تهران حمله دیگری انجام نده، هیچ حمله‌ای علیش نمیشه
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92895
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دفتر معاون پزشکیان: اینترنت قطع نمیشه
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## kianmeli1 — post 87789
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏🔴فوری-سرفرماندهی نیروی دریایی سپاه: هرگونه شناور رزمی از کشورهای متخاصم در تنگه هرمز، بی‌درنگ هدف قرار می‌گیرد
+https://t.me/+_a5ind9hr7sxOTE0
+</div>
+
+## IranIntlTV — post 341163
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرزانه ساسانی‌پور، ۴۲ ساله و مادر دو فرزند، شامگاه ۱۹ دی‌ ۱۴۰۴ در کوه‌چنار هنگامی که مقابل خانه مادرش در حال کمک به مجروحان بود، هدف شلیک یک تک‌تیرانداز قرار گرفت و کشته شد. بر اساس گزارش‌ها، گلوله به گردن او اصابت کرد و قلبش را شکافت.
+</div>
+
+## IranIntlTV — post 341162
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341162_1780917514.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علاءالدین بروجردی، عضو کمیسیون امنیت ملی مجلس گفت: «محاصره دریایی را اقدام غیرقانونی آمریکا می‌دانیم و با آن مقابله خواهیم کرد.»
+
+او افزود توصیه ما به آمریکایی‌ها این است که «عاقلانه‌تر» عمل کنند، «جمهوری اسلامی در جنگ دوم و سوم پیروز شد» و اگر بخواهند جنگ چهارم را آغاز کنند، قطعا باز هم پیروز خواهیم بود.»
+iranintl.com/202606087783
+</div>
+
+## FarsiVOA — post 220014
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220014_1780917514.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل اعلام کرد که در کنار «حملات در ایران»، طی ۲۴ ساعت گذشته بیش از ۹۰ زیرساخت حزب‌الله در لبنان را مورد هدف قرار داده است.
+
+در گزارش ارتش اسرائيل آمده است که اهدافی از جمله انبار تسلیحات و مراکز فرماندهی در این حملات هدف قرار گرفتند که از آنها برای پیشبرد طرح‌های «تروریستی» استفاده می‌شد. همزمان، سکوهای پرتاب حزب‌الله نیز با هدف رفع تهدید علیه شهروندان اسرائیلی مورد حمله قرار گرفتند.
+
+ارتش اسرائیل اعلام کرد که با قاطعیت به فعالیت خود برای رفع هرگونه تهدید علیه شهروندان این کشور «در هر مکانی که لازم باشد» ادامه خواهد داد.
+
+ایالات متحده و برخی از کشورها از جمله اسرائيل، حزب‌الله لبنان را یک سازمان تروریستی می‌دانند و اتحادیه اروپا نیز شاخه نظامی این سازمان را در فهرست گروه‌های تروریستی قرار داده است.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220013
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220013_1780917515.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل دلایل هدف قرار دادن مجتمع پتروشیمی کارون ماهشهر را «تولید مواد اولیه برنامه موشکی» در این مجتمع عنوان و اعلام کرد که به زیرساخت‌های نظامی حمله کرده است.
+
+در بیانیه ارتش اسرائیل آمده است که نیروی هوایی با هدایت دقیق معاونت اطلاعات ارتش اسرائیل، چندین زیرساخت را در مجتمع پتروشیمی ماهشهر در جنوب‌غرب ایران هدف قرار داد.
+
+ارتش اسرائیل اعلام کرد که این زیرساخت‌ها توسط نیروهای مسلح وابسته به جمهوری اسلامی، برای تولید و صادرات مواد اولیه تجهیزات نظامی مورد استفاده قرار می‌گرفتند.
+
+ارتش اسرائیل یادآور شد که در این زیرساخت‌ها، مواد خاصی تولید می‌شد که به‌عنوان اجزای ضروری برای توسعه موشک‌های بالستیک به‌کار می‌روند و تهدیدی مستقیم علیه کشور اسرائیل و شهروندان آن محسوب می‌شوند. به گفته ارتش اسرائیل، اهداف فوق برای برنامه موشکی جمهوری اسلامی حیاتی بودند.
+
+صبح روز دوشنبه، ۱۸ خرداد، رسانه‌های وابسته به جمهوری اسلامی از حملاتی به شرکت پتروشیمی کارون در ماهشهر خبر داده بودند. حملات ارتش اسرائیل، در واکنش به حملات موشکی بامداد دوشنبه سپاه به این کشور انجام شده است.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220012
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220012_1780917516.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نهادهای سرکوبگر جمهوری اسلامی به شهروندان ایران هشدار دادند که انتشار هرگونه تصویر و فیلم از محل اصابت پرتابه‌ها جرم تلقی شده و با شهروندان برخورد می‌شود.
+
+بر اساس گزارش خبرگزاری میزان وابسته به قوه قضائیه، دادستانی کل کشور با صدور اطلاعیه‌ای هشدار داد که «ملاحظات امنیتی» در پوشش اخبار و تصاویر جنگ باید رعایت شود و رسانه‌ها و فعالان فضای مجازی از انتشار «محتوای حساس» خودداری کنند
+
+همزمان، سازمان اطلاعات سپاه پاسداران نیز تهدید کرد که تهیه و ارسال عکس و فیلم درباره جنگ «همکاری اطلاعاتی با دشمن» است.
+
+جمهوری اسلامی در ماه‌های اخیر سرکوب‌ها را افزایش داده و بسیاری از شهروندان را به اتهام «همکاری با دشمن» بازداشت کرده است. همچنین چندین زندانی سیاسی را با اتهام «جاسوسی» اعدام کرده است.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220011
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺نشست شورای حکام آژانس در وین آغاز شد؛ جمهوری اسلامی در کانون حساسیت‌ها
+
+◾️نشست فصلی شورای حکام آژانس بین‌المللی انرژی اتمی با حضور نمایندگان ۳۵ کشور عضو این شورا در وین آغاز شد. این نشست که پشت درهای بسته برگزار می‌شود با افزایش تنش‌ها بر سر پرونده هسته‌ای جمهوری اسلامی حساسیت ویژه‌ای پیدا کرده است.
+
+◾️همزمان با آغاز نشست، نمایندگی جمهوری اسلامی در وین هشدار داد که به گفته تهران، «رویکرد تقابلی» در شورای حکام می‌تواند چشم‌انداز دیپلماسی را تضعیف کند.
+
+◾️رویترز اخیراً به نقل از گزارش محرمانه تازه آژانس نوشت این نهاد هنوز نتوانسته به شماری از سایت‌های هسته‌ای ایران که در حملات پیشین هدف قرار گرفته‌اند بازگردد و تهران نیز سرنوشت ذخایر اورانیوم غنی‌شده خود را روشن نکرده است.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8158495.html
+</div>
+
+## Persian_Trend_Official — post 16176
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16176_1780917516.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل ویدیویی از حملات خود به سامانه های پدافند هوایی در ایران منتشر کرد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16175
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16175_1780917518.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+معاونت ارتباطات و اطلاع‌رسانی دفتر معاون اول رئیس‌جمهور:
+
+نگرانی برای قطع اینترنت وجود نداره و اینترنت قطع نمیشه
+</div>
+
+## IranianMinds — post 21826
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تموم شد
+مبارک خیلیا
+</div>
+
+## IranianMinds — post 21825
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 اسرائیل هیوم :
+
+اسرائیل و آمریکا پیامی به جمهوری اسلامی ارسال کردن که اگر تهران حمله دیگری انجام نده، حمله دیگری نیز از سوی آن‌ها صورت نخواهد گرفت.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21824
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21824_1780917519.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 وقتی چند وقته نتونسی درست حسابی کانفیگ بفروشی
+
+آخوند رسایی حرومی : حتما باید بزنن چند نفرو ترور کنن تا بفهمن شرایط کشور جنگیه ؟ بزنید اینترنت رو قطع کنید!
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 391361
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏ما یه آشنا تو FBI داریم
+میگه آمریکا تا کریسمس رفتنیه.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391360
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏یک تئوری دارم که جمهوری اسلامی اونقدر باد شده و اعتماد به نفسش بالا رفته که حتی نیاز نمیبینه اینترنتو قطع کنه
+</div>
+
+## Dirty_Kids — post 391359
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تعداد جنگ هایی که توشون حضور داشتم از تعداد رابطه هایی که داشتم بیشتر بوده.
+</div>
+
+## Dirty_Kids — post 391358
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اب ریخت رو گوشیم خودش تایپ کرد وگرنه من چرا باید بهت بگم برو کصکش وی پی انتو‌ بکن تو کونت
+</div>
+
+## Dirty_Kids — post 391357
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391357_1780917520.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فوری: فیلمی که ارتش اسرائیل از لحظه انهدام سامانه‌های پدافندی در حملات امروز به ایران منتشر کرده.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391356
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391356_1780917522.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 خدایا شکرت؛ وضعیت دیشب کافه‌های مملکت:
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 126250
+
+<div align="center">
+  <a href="telegram/content/alonews_126250_1780917523.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈قرارگاه مرکزی خاتم‌: توقف عملیات نیروهای مسلح اعلام می‌گردد؛ اما در صورت تداوم حملات، از جمله در جنوب لبنان، اقدامات شدیدتر در راه خواهد بود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126249
+
+<div align="center">
+  <a href="telegram/content/alonews_126249_1780917523.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈اکسیوس: یک مقام آمریکایی گفت که تماس ترامپ و نتانیاهو «مودبانه» بود، اما نتانیاهو در برابر درخواست ترامپ مقاومت کرده است.
+
+
+🔴این مقام آمریکایی گفت: «به صراحت به نتانیاهو گفته شد که این چرخه باید پایان یابد. آمریکا با این حملات موافقت یا از آنها حمایت نکرد.»
+
+
+🔴در حالی که دو مقام آمریکایی گفتند نیروهای نظامی ایالات متحده در حملات اسرائیل به ایران نقشی نداشته اند، یک مقام اسرائیلی گفت که آمریکا در رهگیری حملات ایران به اسرائیل کمک کرده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126248
+
+<div align="center">
+  <a href="telegram/content/alonews_126248_1780917523.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / اسرائیل هیوم: اسرائیل و ایالات متحده پیامی به ایران ارسال کردن که اگه تهران حمله دیگری انجام نده، هیچ حمله‌ای علیش نمیشه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126247
+
+<div align="center">
+  <a href="telegram/content/alonews_126247_1780917524.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سفیر آمریکا در لبنان: اگر حزب‌الله حملات خود علیه اسرائیل را متوقف کند، اسرائیل نیز ضاحیه (حومه جنوبی بیروت) را هدف قرار نخواهد داد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126243
+
+<div align="center">
+  <a href="telegram/content/alonews_126243_1780917524.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈عکاس اسرائیلی؛ رفته کنار یه پوستر موشک ایرانی که تو اریحا فرو رفته، وایساده و عکس گرفته
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/18 14:33
 ---
 

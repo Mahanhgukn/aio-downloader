@@ -7,6 +7,176 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/18 07:13
+---
+
+## VahidOOnLine — post 244257
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244257_1780890185.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تایمز اسرائیل گزارش داد که موشک پرتاب شده از سوی حوثی‌های یمن با موفقیت رهگیری شده است. پیش‌تر ارتش اسرائیل از شناسایی یک موشک خبر داده بود.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13873
+
+<div align="center">
+  <a href="telegram/content/WithYashar_13873_1780890186.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+غرب تهران
+@withyashar
+</div>
+
+## WithYashar — post 13872
+
+<div align="center">
+  <a href="telegram/content/WithYashar_13872_1780890188.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ملارد ، تهران
+@withyashar
+</div>
+
+## WithYashar — post 13871
+
+<div align="center">
+  <img src="telegram/content/WithYashar_13871_1780890190.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اصفهان
+@withyashar
+</div>
+
+## WithYashar — post 13870
+
+<div align="center">
+  <img src="telegram/content/WithYashar_13870_1780890191.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کرمانشاه
+@withyashar
+</div>
+
+## WithYashar — post 13869
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال 14 اسرائیل به نقل از یک مقام ارشد اسرائیلی: ما در آغاز نبرد چند روزه علیه ایران و دست نشاندگان آنها در خاورمیانه هستیم.
+@withyashar
+</div>
+
+## pm_afshaa — post 92795
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92795_1780890192.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کانال 14 اسرائیل به نقل از یک مقام ارشد اسرائیلی: ما در آغاز نبرد چند روزه علیه ایران و هم‌پیمانانش در خاورمیانه هستیم. درگیری‌ها هنوز تموم نشده و تازه اولشه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 341102
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341102_1780890193.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تایمز اسرائیل گزارش داد که موشک پرتاب شده از سوی حوثی‌های یمن با موفقیت رهگیری شده است. پیش‌تر ارتش اسرائیل از شناسایی یک موشک خبر داده بود.
+https://iranintl.com/202606087219
+</div>
+
+## Persian_Trend_Official — post 16041
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16041_1780890193.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سفیر اسرائیل در ایالات متحده، یحیی لایتر:
+
+امروز ایران ۱۱ موشک بالستیک به سمت اسرائیل شلیک کرد. هر یک از این موشک‌ها می‌توانند یک محله کامل را ویران کرده و صدها نفر را به قتل برسانند. هیچ کشوری با شرافت در جهان چنین حمله‌ای را تحمل نخواهد کرد و اسرائیل نیز چنین نخواهد کرد.
+
+اسرائیل اکنون سایت‌های پرتاب موشک‌های سطح به سطح ایران و همچنین تأسیسات زیرساختی غیرمرتبط با بخش انرژی را هدف قرار می‌دهد.
+
+مردم لبنان نماینده ایران، حزب‌الله، را رد کرده‌اند و به ایران گفته‌اند که از کشورشان خارج شود.
+
+اگر حزب‌الله به اسرائیل شلیک کند، مراکز فرماندهی آن در داهیا به شدت هدف قرار خواهند گرفت.
+
+این موضوع هیچ ارتباطی با ایران ندارد.
+
+همه از این رژیم دیوانه‌وار ایرانی به ستوه آمده‌اند.
+</div>
+
+## Persian_Trend_Official — post 16040
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال 14 اسرائیل به نقل از یک مقام ارشد اسرائیلی: ما در آغاز نبرد چند روزه علیه ایران و دست نشاندگان آنها در خاورمیانه هستیم.
+</div>
+
+## Persian_Trend_Official — post 16039
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کاره انصارالله بوده
+</div>
+
+## BBCPersian — post 283136
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283136_1780890194.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻يک مقام آمريکايی به رسانه‌های این کشور گفته است که ارتش ايالات متحده در حملات شبانه اسرائيل به ايران هيچ نقشی نداشته است.
+
+نشریه آکسيوس به نقل از يک مقام وزارت دفاع آمريکا گزارش داده که اين حملات اسرائيل «نسبتا محدود» بوده است.
+
+اين گزارش در حالی منتشر می‌شود که دونالد ترامپ، رئيس جمهور آمريکا، پيش از حملات از بنيامين نتانياهو، نخست‌وزير اسرائيل، خواسته بود در بحبوحه تلاش‌های ديپلماتيک جاری از اقدام تلافی جويانه عليه ايران خودداری کند.
+
+آکسيوس پيش‌تر گزارش داده بود که آقای نتانياهو به صورت غيررسمی يا به تعبير اين رسانه «تلویحا موافقت کرده بود» که اين درخواست ترامپ را بپذيرد.
+
+حملات شبانه اسرائيل ساعاتی پس از شليک موشک‌های ايران به شمال اسرائيل انجام شد و در حالی صورت گرفت که واشنگتن همچنان می‌گويد در تلاش برای نهايی کردن توافقی با تهران و جلوگيری از تشديد بيشتر تنش‌ها در منطقه است.
+
+📸 Reuters
+
+https://bbc.in/4fwDUTo
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 391329
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+• حملهٔ موشکی از یمن به اسرائیل • اعلام هشدار موشکی در مناطق مختلف اسرائیل • آسمان اسرائیل بسته شد
+</div>
+
+## alonews — post 126088
+
+<div align="center">
+  <a href="telegram/content/alonews_126088_1780890195.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈دیلی میل :یک فوتبالیست ملی‌پوش تلاش کرده دختر 14 ساله‌ای رو به بهانه‌ی «بغل/نوازش پشت بوته‌ها از اطراف خانوادش دور کنه که پدر دختره فهمیده 😐
+ماجرا از این قراره که پدر و مادر دختره درحالی که گرم سلام و احوال پرسی بودن با بازیکنان ملی پوش ؛ بعد از ناهار که پدر و مادر دختره میرن بستنی بخورن و دخترشون تنها میزارن کنار استخر ، یهو تلفن مادر دختره زنگ میخوره و دختره با گریه میگه سریع بیاید کنار استخر
+وقتی میرن کنار استخر میفهمن یک فوتبالیست از کنار صندلی های افتابگیر بهش نزدیک شده و دختره با هیجان از فوتبالیسته میخواد باهاش عکس بگیره بعدش یکم با فوتبالیسته حرف میزنه و اون فوتبالیسته میگه بیا نوازشت کنم که دختره میگه نه ولی فوتبالیسته میگه بیا بریم پشت بوته ها که کسی نتونه مارو ببینه😂😐
+پدر دختره به محض اینکه این موضوع متوجه میشه به مدیرهتل شکایت میکنه و با چندتا از مربی و کارکنان اونجا صحبت میکنه و کادرفنی میگه بازیکن میفرستیم بیاد عذرخواهی کنه و از هتل اخراج میشه
+
+
+🔴کافیه لوگو مجید ببینید که روی کیت ورزشیه و خب این فوتبالیسته مربوط میشه به تیم جمهوری اسلامی
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/18 07:02
 ---
 

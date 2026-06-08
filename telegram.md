@@ -7,6 +7,229 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/18 16:04
+---
+
+## VahidOOnLine — post 244357
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244357_1780922047.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اتحادیه اروپا محمد اکبرزاده، معاون سیاسی نیروی دریایی سپاه پاسداران، و حمید حسینی، سخنگوی اتحادیه صادرکنندگان نفت ایران، را به دلیل نقش در آنچه تهدید کشتیرانی در تنگه هرمز عنوان شده، تحریم کرد.
+
+هم‌زمان، اتحادیه اروپا فرماندهی نیروی دریایی سپاه پاسداران را نیز به دلیل آنچه تهدید آزادی کشتیرانی در تنگه هرمز خوانده، در فهرست تحریم‌های خود قرار داد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244356
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244356_1780922048.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️اتحادیه اروپا روز دوشنبه ۱۸ خردادماه اعلام کرد دو فرد ایرانی و یک واحد از سپاه پاسداران انقلاب اسلامی را به دلیل تهدید آزادی تردد دریایی در تنگه هرمز تحریم کرده است.
+
+این اولین باری است که اتحادیه اروپا از اختیارات جدید خود برای تحریم ایران به دلیل محدود کردن آزادی دریانوردی استفاده می‌کند.
+
+اتحادیه اروپا در بیانیه‌ای اعلام کرد که فرماندهی نیروی دریایی سپاه پاسداران انقلاب اسلامی استان هرمزگان و همچنین محمد اکبرزاده و حمید حسینی، دو عضو سپاه را به فهرست تحریم‌های خود اضافه کرده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244355
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244355_1780922048.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️امیرحاتمی، فرمانده کل ارتش جمهوری اسلامی ایران، روز دوشنبه ۱۸ خرداد ماه، هشدار داد که در صورت تکرار آنچه «شرارت‌های دشمن» خواند، نیروهای مسلح ایران اقدامات شدیدتری انجام خواهند داد.
+حاتمی در پیامی با اشاره ضمنی به حضور وزیر کشور پاکستان در ایران هنگام شروع حملات اسرائیل نوشت: « دشمن در حالی که میانجی گفتگوها در ایران حضور داشت بار دیگر با عهدشکنی و نقض تمامیت آتش‌بس ثابت کرد به‌هیچ‌وجه به آتش‌بس و توافق پایبند نیست.»
+فرمانده کل ارتش جمهوری اسلامی در ادامه با اشاره به آمادگی نیروهای مسلح ایران گفت ارتش جمهوری اسلامی در آمادگی کامل قرار دارد و هشدار داد که در صورت تکرار حملات اسرائیل، پاسخ تهران شدیدتر از گذشته خواهد بود.
+امیر حاتمی همچنین مدعی شد مسئولیت اقدامات اسرائیل متوجه ایالات متحده است.
+این اظهارات در حالی مطرح می‌شود که پس از ۱۶ ساعت درگیری نظامی میان ایران و اسرائیل، قرارگاه مرکزی خاتم‌الانبیا روز دوشنبه ۱۸ خرداد از پایان عملیات نیروهای مسلح جمهوری اسلامی خبر داد، اما مقام‌های نظامی ایران همچنان نسبت به ازسرگیری احتمالی درگیری‌ها هشدار می‌دهند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14019
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حزب‌الله هم حمله موشکی کرد به سمت اسرائیل و آژیرها فعال شد.
+
+اسرائیل : 5 موشک رهگیری شد.
+@withyashar
+</div>
+
+## mwarmonitor — post 10465
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📌یک مقام ارشد اسرائیلی می‌گوید اسرائیل به درخواست ترامپ حملات خود در ایران را متوقف می‌کند، اما حملات در جنوب لبنان در روزهای آینده «با تمام قدرت» ادامه خواهد داشت. او همچنین اضافه کرده است که اگر حملات به شهرک‌های اسرائیلی و غیرنظامیان ادامه پیدا کند، اسرائیل به ضاحیه بیروت نیز حمله خواهد کرد. کانال ۱۲
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 342713
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342713_1780922049.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+RT @foxandfriends: PAID PROTESTERS: Border Czar Tom Homan slams anti-ICE agitators clashing with law enforcement in New Jersey, warning that the violent actors are organized and from out-of-state rather than local demonstrators.
+
+"Look, these are paid protesters...This is a well planned, established, thing they're doing. This isn't homegrown."
+</div>
+
+## pm_afshaa — post 92914
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92914_1780922052.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴حزب‌الله هم حمله موشکی کرد به سمت اسرائیل و آژیرها فعال شد. + 5 موشک رهگیری شد. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92912
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92912_1780922052.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کانال 12 به نقل از یک مقام ارشد اسرائیلی:
+به درخواست ترامپ، اسرائیل حملات علیه ایران رو متوقف میکنه.
+
+اما حملات در جنوب لبنان در روزهای آینده با حداکثر قدرت ادامه خواهد یافت و اگر حملات به شهرک‌های ما ادامه یابد، ضاحیه (بیروت) رو هم بمباران خواهیم کرد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5468
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5468_1780922053.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⭕️ روزنامه «دیلی‌میل» گزارش داد یک فوتبالیست تیم جمهوری اسلامی که نامش فاش نشده، از سوی یک خانواده بریتانیایی متهم شده است که در جریان تعطیلات آن‌ها در یک هتل پنج‌ستاره در آنتالیا، تلاش کرده دختر ۱۴ ساله‌شان را برای «در آغوش گرفتن» به پشت یک بوته ببرد.
+
+در گزارش دیلی‌میل به تیم ملی جمهوری اسلامی اشاره نشده، اما آن‌طور که تصاویر منتشر شده توسط دیلی‌میل نشان می‌دهد، لوگوی روی لباس بازیکن نام‌برده مشخص می‌کند او یکی از بازیکنان تیم ملی فوتبال ایران است.
+
+پدر این دختر در گفتگو با روزنامه دیلی‌میل گفته است دخترش پس از این اتفاق دچار وحشت شده و در حالی که گریه می‌کرده، با خانواده خود تماس گرفته است.
+
+این حادثه زمانی رخ داده که دختر ۱۴ ساله به همراه خواهر ۱۰ ساله‌اش کنار استخر هتل حضور داشته و والدین آن‌ها برای گرفتن بستنی از محل دور شده بودند. به گفته این خانواده، آن‌ها در اواخر ماه مه متوجه شدند که یک تیم ملی فوتبال حاضر در جام جهانی نیز در همان هتل اقامت دارد. اعضای خانواده ابتدا از دیدار با بازیکنان و گرفتن عکس با آن‌ها هیجان‌زده بودند، اما به گفته پدر خانواده، ماجرا در ادامه تغییر کرد.
+
+#فوتبال #تیم_ملی #تجاوز
+@DEJradio
+</div>
+
+## IranIntlTV — post 341178
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341178_1780922054.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اتحادیه اروپا محمد اکبرزاده، معاون سیاسی نیروی دریایی سپاه پاسداران، و حمید حسینی، سخنگوی اتحادیه صادرکنندگان نفت ایران، را به دلیل نقش در آنچه تهدید کشتیرانی در تنگه هرمز عنوان شده، تحریم کرد.
+
+هم‌زمان، اتحادیه اروپا فرماندهی نیروی دریایی سپاه پاسداران را نیز به دلیل آنچه تهدید آزادی کشتیرانی در تنگه هرمز خوانده، در فهرست تحریم‌های خود قرار داد.
+https://iranintl.com/202606086638
+</div>
+
+## Persian_Trend_Official — post 16185
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16185_1780922054.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش آمریکا در رهگیری موشک‌های ایرانی به ما کمک کرده است
+</div>
+
+## Persian_Trend_Official — post 16184
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16184_1780922055.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرفرماندهی نیروی دریایی سپاه: با ورود هرگونه شناور رزمی از کشورهای متخاصم به تنگه هرمز، بی‌درنگ مورد هدف قرار می‌گیرد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 21848
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ارتش اسرائیل : تمام موشک های شلیک شده حزب الله رهگیری و منهدم شدن. @IranianMinds
+</div>
+
+## IranianMinds — post 21847
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21847_1780922058.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترور‌‌ هدفمند اسرائیل در جنوب لبنان یه ساختمونو اوردن پایین @IranianMinds
+</div>
+
+## IranianMinds — post 21846
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حزب الله حمله ی موشکی کرد به سمت اسرائیل @IranianMinds
+</div>
+
+## IranianMinds — post 21845
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21845_1780922059.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترور‌‌ هدفمند اسرائیل در جنوب لبنان یه ساختمونو اوردن پایین
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21844
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21844_1780922061.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 حملات اسرائیل به جنوب لبنان
+
+@IranianMinds
+</div>
+
+## alonews — post 126267
+
+<div align="center">
+  <a href="telegram/content/alonews_126267_1780922061.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈مقام اسرائیلی به شبکه ۱۲ : به درخواست ترامپ، اسرائیل فعلاً حمله به ایران رو متوقف می‌کنه
+- ولی حمله‌ها تو جنوب لبنان تو روزهای آینده با قدرت ادامه داره
+- اگه حمله به شهرک‌ها و غیرنظامی‌های خودشون ادامه پیدا کنه، حتی ضاحیه رو هم بمبارون می‌کنن
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/18 15:54
 ---
 

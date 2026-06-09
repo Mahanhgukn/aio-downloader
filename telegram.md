@@ -7,6 +7,220 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/20 00:45
+---
+
+## WithYashar — post 14190
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرنگار کانال 14 اسرائیل:
+هرچند امیدوارم اشتباه کنم ولی پیش‌بینی‌ من اینه که ترامپ در پاسخ به سرنگونی بالگرد آمریکایی، یه حمله‌ جزئی و نمادین انجام میده؛ مثلا یک ایستگاه راداری و چند سکوی پرتاب ضدموشکی در منطقهٔ تنگه‌ هرمز رو میزنه.
+
+یعنی حملاتی از جنس همان حملاتی که قبلاً هم چند بار در جریان آتش‌بس دیدیم، نه چیزی که جنگی رو با ایران شعله‌ور کنه.
+@withyashar
+</div>
+
+## WithYashar — post 14189
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش های زیاد انفجار هم اکنون از قشم و بندر عباس🚨
+@withyashar
+</div>
+
+## WithYashar — post 14188
+
+<div align="center">
+  <img src="telegram/content/WithYashar_14188_1781039727.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هم اکنون انبوه هواپیما های آمریکایی در جنوب ايران
+@withyashar
+</div>
+
+## mwarmonitor — post 10555
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💥انفجار در سیریک
+</div>
+
+## mwarmonitor — post 10554
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨به گفته کانال ۱۲، مقامات سیاسی اسرائیل پیش‌تر تهدید کرده بودند که هرگونه شلیک به شهرک‌های شمالی، به‌منزله حمله به «ضاحیه» (بیروت) تلقی خواهد شد. @mwarmonitor
+</div>
+
+## pm_afshaa — post 93077
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93077_1781039728.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبرنگار کانال 14 اسرائیل:
+هرچند امیدوارم اشتباه کنم ولی پیش‌بینی‌ من اینه که ترامپ در پاسخ به سرنگونی بالگرد آمریکایی، یه حمله‌ جزئی و نمادین انجام میده؛ مثلا یک ایستگاه راداری و چند سکوی پرتاب ضدموشکی در منطقهٔ تنگه‌ هرمز رو میزنه.
+
+یعنی حملاتی از جنس همان حملاتی که قبلاً هم چند بار در جریان آتش‌بس دیدیم، نه چیزی که جنگی رو با ایران شعله‌ور کنه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93076
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93076_1781039729.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴صداوسیما: اگه دشمن بخواد به بهونه سقوط یه بالگرد نظامی دوباره دست به شرارت و حمله بزنه، با پاسخ قاطع ما روبه‌رو میشه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## Shin_Persian — post 6794
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Tue, 09 Jun 2026 21:13:38 UTC
+
+State-owned Mehr News:
+
+Explosions heard in Sirik area, Hormozgan Province
+Local residents report multiple blasts. Islamic Regime authorities have not commented on the cause.
+
+فارسی
+
+خبرگزاری دولتی مهر:
+
+شنیده شدن صدای انفجار در منطقه سیریک، استان هرمزگان
+ساکنان محلی از وقوع چندین انفجار خبر می‌دهند. مقامات رژیم اسلامی هنوز درباره علت آن اظهار نظری نکرده‌اند.
+
+𝕏 · @shin_persian
+</div>
+
+## Persian_Trend_Official — post 16341
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری مهر: شنیده شدن صدای انفجارهایی در محدوده بندر سیریک
+
+ساکنان محلی بندرسیریک از شنیده شدن صدای انفجار‌هایی در محدوده این شهرستان خبر دادند.
+
+به گزارش خبرنگار مهر، شامگاه سه شنبه، صدای انفجار‌هایی در محدوده شهرستان سیریک از سوی منابع محلی و ساکنان بندر سیریک و روستاهای اطراف گزارش شده است.
+
+بر اساس این گزارش، هنوز ماهیت این صداها به طور دقیق مشخص نیست و هیچ‌ یک از نهادهای رسمی نظامی و انتظامی تا این لحظه درباره علت وقوع این صداها اظهارنظری نکرده‌اند.
+
+پیگیری‌ها برای کسب اطلاع از ماهیت دقیق این انفجار ادامه دارد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16340
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+منابع محلی از وقوع چند انفجار در بندرعباس، قشم و سیریک میدهند.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16339
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16339_1781039729.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک نکته از لایو امشب که گوشه ذهنت نگه داشتی چی هست ؟
+</div>
+
+## IranianMinds — post 21967
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 گزارشات تایید نشده از صدای انفجار در قشم و بندرعباس.
+
+@IranianMinds
+</div>
+
+## alonews — post 126638
+
+<div align="center">
+  <a href="telegram/content/alonews_126638_1781039730.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری/ایالات متحده رسما حمله کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126637
+
+<div align="center">
+  <a href="telegram/content/alonews_126637_1781039730.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری/انفجار در جزیره سیریک
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126636
+
+<div align="center">
+  <a href="telegram/content/alonews_126636_1781039731.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری/گزارش‌ها از هدف قرار گرفتن پایگاه شهید راهبر در بندرعباس
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126635
+
+<div align="center">
+  <a href="telegram/content/alonews_126635_1781039731.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری/گزارش‌ها از حمله به بندرعباس
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126634
+
+<div align="center">
+  <img src="telegram/content/alonews_126634_1781039731.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حقارت تمام عیار قبل از جام جهانی
+‼️
+
+تیم جمهوری اسلامی فردا در دیداری دوستانه به مصاف تیم زیر 21 ساله‌های شهر تیخوانا مکزیک خواهد رفت
+
+هیچ تیم ملی‌ای حاضر به بازی با تیم جمهوری اسلامی نشده
+
+@AloSport
+</div>
+
+---
 📅 بروزرسانی: 1405/03/20 00:34
 ---
 

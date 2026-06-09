@@ -7,6 +7,274 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/19 22:53
+---
+
+## VahidOOnLine — post 244565
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244565_1781033018.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سازمان عملیات تجارت دریایی بریتانیا اعلام کرد وضعیت در تنگه هرمز همچنان پرخطر است.
+
+این سازمان افزود خطر مین‌گذاری در نزدیکی مسیرهای کشتیرانی همچنان پابرجاست و اختلال در سامانه موقعیت‌یابی ماهواره‌ای نیز ادامه دارد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14159
+
+
+
+
+## WithYashar — post 14158
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پست جدید از آخرین وضعیت و اتفاقات پیش رو کارهای اداریش را انجام بدید. کلیک کنید.💥💥😁
+
+https://www.instagram.com/reel/DZYFeVJS_V2/?igsh=MWNobm81Z282cWtmZQ==
+</div>
+
+## mwarmonitor — post 10540
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴تحلیل گزارش‌های راستی‌آزمایی و نظارت آژانس بین‌المللی انرژی اتمی (IAEA) درباره ایران – ژوئن ۲۰۲۶
+
+🔸یافته‌های کلیدی:
+در گزارش جدید پادمان‌ها، آژانس همچنان اعلام می‌کند که ایران در نقض توافق پادمانی معاهده عدم اشاعه هسته‌ای (NPT) قرار دارد.
+
+
+آژانس قادر نیست توقف فعالیت‌های غنی‌سازی اورانیوم، بازفرآوری پلوتونیوم و تولید آب سنگین ایران را تأیید کند؛ طبق قطعنامه‌های شورای امنیت که در اکتبر ۲۰۲۵ دوباره اعمال شده‌اند، و ایران نیز دسترسی، اطلاعات و همکاری را از آژانس دریغ کرده است.
+آژانس نمی‌تواند ذخایر اورانیوم غنی‌شده ایران (مقدار، محل و ترکیب شیمیایی آن) و وضعیت سانتریفیوژها و تجهیزات مرتبط را تأیید کند.
+آژانس مجتمع تونلی اصفهان (Esfahan/Isfahan) را به‌عنوان محل ذخیره اورانیوم ۲۰٪ و ۶۰٪ معرفی کرده و نسبت به فعالیت‌های آن در فوریه ۲۰۲۶ ابراز نگرانی کرده است.
+طبق گزارش راستی‌آزمایی، از ۲۸ فوریه ۲۰۲۶ آژانس «عملاً انجام فعالیت‌های نظارتی در ایران مطابق توافق پادمانی NPT را متوقف کرده است».
+گزارش اطلاعات کافی ارائه نمی‌دهد و جزئیات کمتری درباره محل اورانیوم غنی‌شده نسبت به اظهارات رسانه‌ای مدیرکل رافائل گروسی دارد و به برخی سایت‌های احتمالی دیگر (مثل فردو، نطنز و Pickaxe Mountain) اشاره نمی‌کند.
+در گزارش به سایت‌های مرتبط با تسلیحات هسته‌ای که در حملات آمریکا و اسرائیل (ژوئن ۲۰۲۵ و فوریه تا آوریل ۲۰۲۶) آسیب دیده‌اند، پرداخته نشده، با وجود اینکه برخی از آن‌ها طبق JCPOA تحت نظارت بودند.
+آژانس تنها به فهرستی از سایت‌های اعلام‌شده «آسیب‌دیده در حملات» بسنده کرده است.
+درباره وضعیت مراکز تولید سانتریفیوژ مانند TESA کرج و کالای الکتریک اطلاعاتی ارائه نشده، اگرچه تأیید شده کرج دوباره هدف حمله قرار گرفته است.
+گزارش به آسیب دیدن کارخانه آب سنگین و کارخانه تولید کیک زرد اردکان در مرحله دوم درگیری‌ها اشاره می‌کند.
+پیشنهاد شده شورای حکام آژانس از ایران بخواهد اطلاعات دقیق‌تر و دسترسی کامل برای بازرسی فراهم کند، از جمله درباره محل مواد هسته‌ای و وضعیت تجهیزات.
+پیش‌نویس قطعنامه‌ای (با حمایت آمریکا و اتحادیه اروپا) خواستار ارائه اطلاعات دقیق حسابرسی مواد هسته‌ای و دسترسی کامل و فوری بازرسان به ایران شده است.
+در پایان نیز اشاره شده گزارش کامل این تحلیل در وب‌سایت ISIS-online منتشر شده است.
+
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 342770
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342770_1781033019.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"Do you think that somebody who has a Nazi tattoo on their chest should serve in the United States Senate?"
+
+Rep. @realBrandonGill grills SPLC Interim CEO Bryan Fair over Maine Senate candidate Graham Platner's Nazi-linked tattoo, pressing him on whether it should be viewed as evidence of extremist beliefs.
+
+GILL: "Do you think if somebody got a Nazi tattoo on their chest, that's indicative that they might be a Nazi?"
+
+FAIR: "You'd have to ask Mr. Platner why he has that symbol."
+
+GILL: "Do people who aren't Nazis normally get Nazi tattoos on their chests?"
+
+FAIR: "Again, I assume they don't."
+</div>
+
+## pm_afshaa — post 93048
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+احتمالا اسرائیل و آمریکا باهم حمله میکنن
+</div>
+
+## pm_afshaa — post 93047
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93047_1781033020.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴انفجارهای متعدد در اربیل عراق 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93046
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93046_1781033020.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴انفجارهای متعدد در اربیل عراق
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 341388
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341388_1781033021.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رییس‌جمهوری آمریکا گفت که به او اطلاع داده شده است جمهوری اسلامی یکی از بالگردهای بسیار پیشرفته آپاچی آمریکا را در حالی که بر فراز تنگه هرمز در حال گشت‌زنی بود، سرنگون کرد. دونالد ترامپ در تروث سوشال نوشت که آمریکا به سرنگونی بالگرد خود به دست ایران پاسخ می‌دهد.
+
+گفت‌وگو با فرزین ندیمی، پژوهشگر ارشد امور دفاعی و امنیتی
+@iranintltv
+</div>
+
+## IranIntlTV — post 341387
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341387_1781033023.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ گفت جمهوری اسلامی یک بالگرد آپاچی آمریکا را بر فراز تنگه هرمز سرنگون کرده و واشینگتن ناگزیر به پاسخ است. او افزود دو خلبان این بالگرد سالم‌اند. همزمان، اسکای‌نیوز عربی گزارش داد متن توافق با تهران برای بررسی به ایالات‌متحده ارسال شده و به طور اولیه مورد پذیرش قرار گرفته است.
+
+ارزیابی شهیر شهیدثالث، تحلیلگر روابط بین‌الملل و مسائل ایران
+@iranintltv
+</div>
+
+## IranIntlTV — post 341386
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341386_1781033025.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سازمان عملیات تجارت دریایی بریتانیا اعلام کرد وضعیت در تنگه هرمز همچنان پرخطر است.
+
+این سازمان افزود خطر مین‌گذاری در نزدیکی مسیرهای کشتیرانی همچنان پابرجاست و اختلال در سامانه موقعیت‌یابی ماهواره‌ای نیز ادامه دارد.
+https://iranintl.com/202606098726
+</div>
+
+## IranIntlTV — post 341385
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341385_1781033026.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پروژه دفن خامنه‌ای، تبعات حذف ناگهانی دیکتاتور ایران
+
+«چشم انداز با مهدی مهدوی‌آزاد»
+
+تماشای نسخه کامل این برنامه در یوتیوب:
+
+https://youtu.be/iRfAOlmQl5E
+@iranintltv
+</div>
+
+## FarsiVOA — post 220162
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220162_1781033028.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️گفت‌وگو با علی دادپی، اقتصاددان، درباره وضعیت دشوار معیشتی خانواده‌ها در ایران، در شرایطی که گزارش‌ها می‌گویند ۹۰ درصد «حقوق کارگرانِ با حداقلِ حقوق» صرف خرید غذا می‌شود.
+
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 16312
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسکای نیوز عربی به از نقل یک مقام ناشناس: ایران پیش‌ نویس پیشنهاد آتش‌بس را به ایالات متحده ارسال کرده است که طبق گزارش‌ها اکنون توسط دولت ترامپ در دست بررسی است. طبق این گزارش، ظاهراً متن اولیه این پیشنهاد برای دولت قابل قبول است. این اظهارات پس از اظهارات…
+</div>
+
+## IranianMinds — post 21952
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 حملات سپاه پاسداران به اربیل عراق
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21951
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21951_1781033029.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 سپاه لیست ترور داده بیرون
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21950
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 الجزیره: مقامات ایران گفتن بالگرد آمریکایی روی آب های بین المللی پرواز نمیکرده و چاره ای جز زدنش نداشتیم. اگه حمله کنن قاطعانه پاسخ میدیم.
+
+@IranianMinds
+</div>
+
+## Hranews — post 113504
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حکم اعدام یک زندانی در زندان عادل آباد شیراز اجرا شد
+
+
+❗️
+❗️
+❗️
+❗️
+❗️ – حکم یک زندانی که پیشتر از بابت اتهام قتل به #اعدام محکوم شده بود، مورخ ۱۳ خردادماه، در زندان عادل آباد شیراز اجرا شد.
+
+ادامه مطلب
+
+#داریوش_کلکو
+
+↘️
+@hranews_bot تماس ✉️ -  @Hranews  کانال هرانا 🆑
+</div>
+
+## alonews — post 126602
+
+<div align="center">
+  <a href="telegram/content/alonews_126602_1781033030.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نبویان، نماینده مجلس: غنی‌سازی ۹۳ درصد می‌تواند به صورت صلح‌آمیز باشد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126601
+
+<div align="center">
+  <a href="telegram/content/alonews_126601_1781033031.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری/ ایران در حال انجام حملاتی به مقر گروه‌های مخالف کرد ایرانی در اربیل عراق است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126600
+
+<div align="center">
+  <a href="telegram/content/alonews_126600_1781033031.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فعالیت جنگنده ها در آسمان کردستان عراق
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/19 22:43
 ---
 

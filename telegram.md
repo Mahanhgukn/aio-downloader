@@ -7,6 +7,108 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/19 14:22
+---
+
+## Shin_Persian — post 6771
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+The Associated Press ✓ @AP
+Tue, 09 Jun 2026 10:12:35 UTC
+
+BREAKING: Iranian state television says at least two members of an air defense unit were killed in the Israeli attacks on Monday.
+
+The report represented the first time Iran acknowledged fatalities from the strikes. https://apnews.com/article/iran-us-ceasefire-helicopter-hezbollah-israel-9-june-2026-50d7a8ecbb2cf33836af152679adb40e?taid=6a27e712c0a91f000176583d&utm_campaign=TrueAnthem&utm_medium=AP&utm_source=Twitter
+
+فارسی
+
+خبر فوری: تلویزیون دولتی ایران اعلام کرد که در حملات روز دوشنبه اسرائیل، دست‌کم دو تن از اعضای یک واحد پدافند هوایی کشته شدند.
+
+این گزارش اولین باری است که ایران تلفات ناشی از این حملات را تایید می‌کند. https://apnews.com/article/iran-us-ceasefire-helicopter-hezbollah-israel-9-june-2026-50d7a8ecbb2cf33836af152679adb40e?taid=6a27e712c0a91f000176583d&utm_campaign=TrueAnthem&utm_medium=AP&utm_source=Twitter
+
+𝕏 · @shin_persian
+</div>
+
+## DW_Farsi — post 125715
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125715_1781002375.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📸 کاریکاتور هفته
+
+در حالی که آتش‌بس شکننده میان اسرائیل و ایران و نیروهای نیابتی تهران در منطقه برقرار بود، حملات هوایی اسرائیل به مواضع حزب‌الله در لبنان، از جمله در حومه بیروت و مناطق جنوبی این کشور، بار دیگر تنش‌ها را شعله‌ور کرد. پس از این حملات، جمهوری اسلامی با شلیک موشک به اسرائیل عملاً از چارچوب آتش‌بس خارج شد و اعلام کرد که ادامه حملات اسرائیل به لبنان را تحمل نخواهد کرد.
+
+این واکنش بار دیگر این پرسش را مطرح می‌کند که آیا رهبران جمهوری اسلامی حاضرند برای دفاع از حزب‌الله لبنان، کشور و مردم ایران را دوباره در معرض جنگی پرهزینه قرار دهند؟ به نظر می‌رسد برای سپاه پاسداران، حفظ شبکه نیروهای نیابتی منطقه‌ای گاه چنان اولویتی دارد که خطر کشیده شدن ایران به یک رویارویی نظامی گسترده نیز مانع آن نمی‌شود؛ رویارویی‌ای که هزینه اصلی آن را نه فرماندهان نظامی، بلکه شهروندان عادی ایران خواهند پرداخت.
+
+این موضوع دستمایه مانا نیستانی در طراحی کاریکاتور هفته برای دویچه وله فارسی بوده است.
+
+@dw_farsi
+</div>
+
+## Dirty_Kids — post 391448
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391448_1781002376.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌ی امنیتی «آن یا عن» چقدر لجنه!
+
+البته آفت وسط‌بازی و عافیت‌طلبی هم همینه که هر دو طرف ماجرا می‌تونند میانه‌رو ها رو تخریب کنند.
+ولی گفتن این حرف‌ها در دوربین هم وقاحت خاصی می‌خواد!
+
+#فردوسی‌پور
+
+
+@Dirty_Kids 👻
+</div>
+
+## Hranews — post 113483
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چابهار؛ یک سوختبر بر اثر تیر اندازی نیروهای نظامی مجروح شد
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– امروز تیراندازی نیروهای نظامی به سمت خودروی یک #سوختبر در منطقه خور کلانی از توابع شهرستان چابهار، موجب مجروح شدن وی شد.
+
+ادامه مطلب
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## alonews — post 126490
+
+<div align="center">
+  <a href="telegram/content/alonews_126490_1781002378.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کانال ۱۲ عبری، به نقل از یک منبع امنیتی:
+ما وارد مرحله «دورهای مکرر» با ایران شده‌ایم. ارزیابی‌ها حاکی از آن است که تشدید اخیر، رویارویی نهایی با ایران نیست
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126489
+
+<div align="center">
+  <a href="telegram/content/alonews_126489_1781002378.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حمله به نیروهای امنیتی پاکستان ۱۴ کشته بر جای گذاشت/ ۷ نفر ربوده شدند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/19 14:12
 ---
 

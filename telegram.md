@@ -7,6 +7,38 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/19 03:52
+---
+
+## FoxNewsTwitter — post 342737
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342737_1780964567.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: Spencer Pratt will miss the Los Angeles mayoral runoff election after city council member Nithya Raman surpasses him for second place behind current Mayor Karen Bass, according to the Associated Press. | @JesseBWatters
+</div>
+
+## FoxNewsTwitter — post 342736
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING NEWS: AP projects Nithya Raman will advance in LA mayor's race. She will face incumbent Mayor Karen Bass in the general election.
+</div>
+
+## FarsiVOA — post 220085
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️تلاش آمریکا برای برقراری صلح و ثبات در لبنان در میانە جنگ افروزی جمهوری اسلامی و حزب‌الله
+@FarsiVOA
+</div>
+
+---
 📅 بروزرسانی: 1405/03/19 03:42
 ---
 

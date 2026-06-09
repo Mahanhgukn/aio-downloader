@@ -7,6 +7,85 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/19 11:12
+---
+
+## IranianMinds — post 21895
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تو خاورمیانه
+
+وقتی بیدارمیشید ۲ حالت بیشتر نداره
+یا جنگ شده
+یا روز دختره
+
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 391439
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391439_1780990953.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بزن که خوب میزنی، اجرای ترکیبی چندتا داف
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391438
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391438_1780990955.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دیگه کسی بتخمشم نیست تیم آخوندی مجبور شدن از پرستوها تو ژانر غیرتخصصی‌شون استفاده کنن
+
+باور کن تو عمرش دوتا بازی ندیده این همش تو خونه عفاف صیغه میشه
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391437
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏از این «سی میلیون جانفدا»؛ سه هزار نفر نمیخوان برن لبنان؟! بکی جواب منو بده!
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 126450
+
+<div align="center">
+  <a href="telegram/content/alonews_126450_1780990957.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزیر ارتباطات: ترافیک اینترنت بین‌الملل قبل از ۴ خرداد با ترافیکی که از مسیر استارلینک از شبکه‌های مرزی خارج می‌شد، برابری می‌کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126449
+
+<div align="center">
+  <a href="telegram/content/alonews_126449_1780990957.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ویدیویی از رهگیری موفق یک پهپاد پرتاب‌شده حوثی‌های یمن توسط پدافند اسرائیل
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/19 11:03
 ---
 

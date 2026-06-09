@@ -7,6 +7,226 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/19 14:03
+---
+
+## WithYashar — post 14111
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ادعای ترامپ درباره ایران:
+
+اگر برویم و بمباران کنیم، که اگر بخواهیم خیلی آسان می‌توانیم این کار را انجام دهیم.
+
+اما تنگه برای ماه‌ها باز نخواهد بود. اگر بمباران کنیم، می‌دانید، افراد زیادی کشته خواهند شد. چه کسی می‌خواهد این کار را بکند؟ من نمی‌خواهم.
+@withyashar
+</div>
+
+## mwarmonitor — post 10511
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📌کرملین: میانجی‌گری آمریکا درباره اوکراین در حال حاضر متوقف شده است.
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 92988
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تسنیم: دو عضو از یگان‌های پدافند هوایی روز گذشته در حمله اسرائیل کشته شدن
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 341314
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341314_1781001181.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک منبع امنیتی اسرائیلی به کانال ۱۲ این کشور گفت تبادل آتش اخیر با جمهوری اسلامی آخرین دور درگیری نبوده و احتمال تکرار آن در آینده وجود دارد. این منبع افزود: «وارد دوره‌ای از دورهای درگیری شده‌ایم و در ادامه مسیر بارها با ایران روبه‌رو خواهیم شد.»
+
+او تاکید کرد منظورش وقوع فوری دور بعدی نیست، اما تا زمانی که جمهوری اسلامی به گفته او به دنبال نابودی اسرائیل باشد و در پی دستیابی به سلاح هسته‌ای بماند، این وضعیت ادامه خواهد داشت.
+
+به گفته این مقام، احتمال درگیری‌های بیشتر با جمهوری اسلامی نه مسئله اگر، بلکه مسئله زمان است.
+https://iranintl.com/202606091371
+</div>
+
+## IranianMinds — post 21903
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21903_1781001182.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خوش‌چشم:
+
+فکر نکنم حالا حالاها جنگ بشه.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21901
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21901_1781001183.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻🔺آویخای ادرعی، سخنگوی عربی‌زبان ارتش اسرائیل:
+
+هشدار فوری به ساکنان شهر صور، اردوگاه‌ها و محله‌های اطراف آن، مطابق منطقه مشخص‌شده روی نقشه.
+
+در پی نقض آتش‌بس از سوی حزب‌الله و هدف قرار دادن جبهه داخلی اسرائیل، ارتش اسرائیل ناچار است با قدرت علیه این گروه اقدام کند.
+
+ارتش اسرائیل قصد آسیب‌رساندن به شما را ندارد. برای حفظ جانتان، از شما خواسته می‌شود فوراً خانه‌های خود را در محدوده مشخص‌شده روی نقشه تخلیه کنید و به شمال رود زهرانی بروید.
+
+این هشدار شامل افراد حاضر در شهر صور، از جمله محله مسیحی، و همچنین ساکنان اردوگاه‌ها و مناطق اطراف آن می‌شود: شیبریا، حمادیه، جل‌البحر، زقوق‌المفدی، البص، المعشوق، برج الشمالی، نبع، الحوش، رشیدیه و عین بعال.
+
+حضور شما در نزدیکی نیروهای حزب‌الله، تأسیسات یا تجهیزات نظامی این گروه، جانتان را به خطر می‌اندازد.
+
+همان‌طور که پیش‌تر هشدار داده شد، در پی فعالیت نیروهای حزب‌الله در محله مسیحی شهر، ارتش اسرائیل در آینده نزدیک علیه فعالیت‌های این گروه در آن منطقه اقدام خواهد کرد. هر ساختمانی که حزب‌الله از آن برای اهداف نظامی استفاده کند، ممکن است هدف قرار گیرد.
+
+برای حفظ جانتان، فوراً خانه‌های خود را تخلیه کنید و به شمال، آن‌سوی رود زهرانی بروید. هرگونه حرکت به جنوب رود زهرانی می‌تواند جان شما را به خطر بیندازد.
+</div>
+
+## Dirty_Kids — post 391446
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+میدونستید ساسانیان شمشیر دودستی داشتن؟
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391445
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391445_1781001186.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فوری کانال ۱۴ اسرائیل :
+
+بیکینی باتم مستقیما وارد جنگ شد. تصویر منتشر شده از نقطه زنی دیروز سپاه رستوران اقای خرچنگ.
+کانال ۱۴ اسرائیل رسما تایید کرد که متاسفانه aquaman شهید شد.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391444
+
+<div align="center">
+  <a href="https://t.me/Dirty_Kids/391444" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ریتزوبت تنها سایت بین المللی میباشد ، که به صورت هفتگی پرومو کد دریافت میکنید ✅
+
+♦️ آموزش شارژ حساب با کریپتو
+♦️ آموزش شارژ حساب ریالی در ریتزوبت
+#پیشبینی
+🔵ریتزوبت برندی با لایسنس معتبر در صنعت شرطبندی و پیشبینی مسابقات ورزشی و کازینویی 👇
+
+https://t.me/+LB508WZyIr8xNmY0
+</div>
+
+## Dirty_Kids — post 391443
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391443_1781001187.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎁 می‌دونستین توی ریتزوبت هرکی شرط‌بندی کنه، هر هفته بین 1.000.000 تومن تا 100.000.000 تومان پروموکد می‌گیره 
+‼️
+
+
+💰 باحالیش اینجاست که فرقی نداره شرطت ببره یا ببازه، تو هر صورت پروموکد بهت میدن 
+🔥
+
+🚀 وقتی شرط ‌هاتون رو توی ریتزوبت ثبت کنین ، هم شانس برد دارین و هم هفتگی کسب درآمد میکنید 
+🤑
+
+
+🛸 لینک ورود به سایت 👉
+
+
+🌐 کانال تلگرامی 
+3️⃣
+2️⃣
+1️⃣
+R19
+https://t.me/+LB508WZyIr8xNmY0
+</div>
+
+## Dirty_Kids — post 391442
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 یوتیوب قراره رفع فیلتربشه!!
+
+مصطفی پوردهقان، نماینده مجلس:
+وزیر ارتباطات در کمیسیون قول دادند که فضا را به شرایط عادی برگردانند و بعد از رفع فیلتر واتساپ، رفع فیلتر یوتیوب هم در دستور کار بود.
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 126488
+
+<div align="center">
+  <a href="telegram/content/alonews_126488_1781001188.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈به گزارش اکونومیست، ایران و اسرائیل که برای دهه‌ها درگیر جنگی پنهان با تابوی حملات مستقیم بودند، اکنون آماده‌اند تا با شکستن این مرزها، خطر یک درگیری تمام‌عیار را به جان بخرند؛ وضعیتی که دونالد ترامپ را در برابر یک دوراهی دشوار قرار داده است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126487
+
+<div align="center">
+  <a href="telegram/content/alonews_126487_1781001188.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فرماندهی مرکزی ایالات متحده: ما دو خدمه یک بالگرد آپاچی را پس از سقوط آن در نزدیکی سواحل عمان در حین گشت‌زنی نجات دادیم.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126486
+
+<div align="center">
+  <a href="telegram/content/alonews_126486_1781001188.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کرملین: میانجیگری آمریکا در مورد اوکراین در حال حاضر متوقف شده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126485
+
+<div align="center">
+  <a href="telegram/content/alonews_126485_1781001188.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 انفجار خودروی بمب‌گذاری شده در مسکو
+
+
+🔴 یک نظامی عالی‌رتبه ارتش روسیه در انفجار خودروی بمب گذاری شده در مسکو ترور شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/19 13:52
 ---
 

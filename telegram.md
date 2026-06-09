@@ -7,6 +7,158 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/19 22:43
+---
+
+## VahidOOnLine — post 244564
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244564_1781032390.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عباس عراقچی، وزیر خارجه جمهوری اسلامی، در شبکه ایکس نوشت: «نیروهای خارجی که در نزدیکی قلمرو ما حضور دارند، همواره در معرض خطر هستند. برای کاهش این خطر، بهترین راه‌حل این است که آن‌ها منطقه را ترک کنند.»
+
+او افزود: «ما زبان دیپلماسی را ترجیح می‌دهیم، اما به زبان‌های دیگر هم سخن می‌گوییم.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14157
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرودگاه های تهران رو دارن تخلیه می کنند.
+@withyashar
+</div>
+
+## WithYashar — post 14156
+
+<div align="center">
+  <img src="telegram/content/WithYashar_14156_1781032391.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کاور
+@withyashar
+</div>
+
+## WithYashar — post 14155
+
+
+
+
+## mwarmonitor — post 10539
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✈️پرواز جنگنده های ناشناس در آسمان استان دیالی در شرق عراق مشاهده شدند.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10538
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_10538_1781032392.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✈️هفت هواپیمای سوخت‌رسان نیروی هوایی آمریکا (USAF) در حال حاضر در حال پرواز در خاورمیانه هستند که شش فروند از آن‌ها در نزدیکی خلیج فارس پرواز می‌کنند.
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 93045
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93045_1781032393.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴طبق گزارش‌ها، پرواز گسترده هواپیماهای مسافربری از فرودگاه مهراباد تهران.
+
++ دقیقا مثل دو شب پیش برای تخلیه هواپیماها پیش از حمله احتمالی امریکا
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 341384
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341384_1781032394.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عباس عراقچی، وزیر خارجه جمهوری اسلامی، در شبکه ایکس نوشت: «نیروهای خارجی که در نزدیکی قلمرو ما حضور دارند، همواره در معرض خطر هستند. برای کاهش این خطر، بهترین راه‌حل این است که آن‌ها منطقه را ترک کنند.»
+
+او افزود: «ما زبان دیپلماسی را ترجیح می‌دهیم، اما به زبان‌های دیگر هم سخن می‌گوییم.»
+https://iranintl.com/202606098268
+</div>
+
+## FarsiVOA — post 220161
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ویژه برنامه جام جهانی ۲۰۲۶ صدای آمریکا از پنج شنبه ۲۱ خرداد تا پایان جام جهانی هر شب ساعت ۲۳ به وقت ایران
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 16311
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16311_1781032395.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیت هگست، وزیر جنگ امریکا پست ترامپ در تروث سوشال را در حساب X خود منتشر کرد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## RadioFarda — post 158109
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_158109_1781032396.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸ساعاتی پس از اعلام رئیس‌جمهور آمریکا مبنی بر «ناگزیری» این کشور در پاسخ به سرنگونی یک بالگرد آپاچی ایالات متحده از سوی ایران، وزیر خارجه جمهوری اسلامی خواستار خروج نیروهای خارجی از تنگه هرمز شد و گفت این نیروها «در معرض خطر» هستند.
+
+🔸عباس عراقچی روز سه‌شنبه ۱۹ خرداد در پیامی در شبکه اجتماعی ایکس ادعا کرد که «تنگه هرمز در آب‌های بین‌المللی قرار ندارد» و به نوشته او «میان ایران و عمان مشترک است و هزاران مایل از سواحل ایالات متحده فاصله دارد».
+
+🔸وزیر خارجه ایران بدون اشاره به سرنگونی بالگرد نظامی آمریکا نوشت: «نیروهای خارجی که در نزدیکی قلمرو ما قرار دارند، همواره در معرض خطر هستند؛ چه به‌سبب خطاهای انسانی خود، چه حوادث ساده، و چه احتمال گرفتار شدن در تبادل آتش».
+
+🔸او با تکرار مواضع پیشین مسئولان جمهوری اسلامی مبنی بر ترجیح «زبان دیپلماسی»، در عین حال تهدید کرد که «ما به زبان‌های دیگر نیز سخن گفتن را به‌خوبی می‌دانیم».
+
+🔸دونالد ترامپ، رئیس‌جمهور آمریکا، روز سه‌شنبه تأیید کرد که ایران یک فروند بالگرد بسیار پیشرفتهٔ آپاچی این کشور را سرنگون کرده و ایالات متحده ناگزیر است به این حمله پاسخ دهد.
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 21949
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21949_1781032397.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴هفت هواپیمای سوخت‌رسان نیروی هوایی آمریکا USAF در حال حاضر به سمت خاورمیانه در حرکت هستند، شش فروند از آن‌ها در نزدیکی خلیج‌فارس پرواز می‌کنند.
+
+@IranianMinds
+</div>
+
+## alonews — post 126599
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 صابرین نیوز : باند اپستین در حال تدارک حمله گسترده به بهانه واهی است
+این چندمین‌بار است که آمریکا در وسط مذاکره به ایران حمله می‌کند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/19 22:32
 ---
 

@@ -7,6 +7,129 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/19 18:13
+---
+
+## VahidOOnLine — post 244531
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️محسن زنگنه، عضو کمیسیون برنامه و بودجه مجلس شورای اسلامی، روز سه‌شنبه ۱۹ خردادماه، در گفتگو با پایگاه تحلیلی-خبری «نود اقتصادی» گفت محاصره دریایی باعث محدود شدن واردات و صادرات ایران شده و در کنار کاهش درآمدهای نفتی، مالیاتی و ارزی، کسری بودجه قابل‌توجهی در سه ماه نخست سال ایجاد کرده است.
+
+زنگنه با اشاره به شرایط جنگی میان جمهوری اسلامی و آمریکا گفت تهران با بستن تنگه هرمز بر اقتصاد آمریکا فشار وارد می‌کند، اما آمریکا نیز با محاصره در پشت تنگه هرمز، واردات و صادرات ایران را محدود کرده است.
+
+او افزود این شرایط موجب کاهش درآمدهای نفتی، مالیات بر عملکرد و درآمدهای ارزی شده و فشار قابل‌توجهی بر بودجه کشور وارد کرده است.
+
+عضو کمیسیون برنامه و بودجه مجلس شورای اسلامی در عین حال ابراز امیدواری کرد با پایان جنگ و رفع تحریم‌ها، درآمدهای نفتی و مالیاتی افزایش یابد، رونق اقتصادی و سازندگی آغاز شود و دارایی‌های بلوکه‌شده به کشور بازگردد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342757
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342757_1781016203.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: House Judiciary Chairman Jim Jordan rips into the Southern Poverty Law Center during a fiery congressional hearing, accusing the civil rights organization of fabricating extremism for profit.
+
+Jordan alleged that the SPLC coordinated with and paid an individual who helped plan the infamous Charlottesville rally. Following the violent event, the group allegedly saw its income skyrocket from $51 million to $133 million.
+
+"You run a scam, you become the standard, you don't get prosecuted and you make a ton of money.”
+
+“They got 800 million assets, 700 million in an endowment. Such a deal."
+
+Head to Fox One right now so you don't miss a single second of this historic hearing: https://www.fox.com/stream/fox-news?cmpid=org=fn::ag=owned_other::mc=organicsocial%5B%E2%80%A6%5DWITTER::cmp=100_o2_th4::cont=m2_tp1::add=03_17_00_05_13_00_02_A
+</div>
+
+## IranIntlTV — post 341347
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341347_1781016205.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرخط خبرهای سه‌شنبه ۱۹ خرداد
+@iranintltv
+</div>
+
+## IranIntlTV — post 341346
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341346_1781016207.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند از بجنورد با ارسال ویدیویی به ایران اینترنشنال آثار باقی مانده از رد دست خونی معترضان انقلاب ملی روی در یکی از بانک‌های این شهر را نشان می‌دهد.
+</div>
+
+## DW_Farsi — post 125724
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶آلمان و بحران پناهجویی؛ اصرار وزیر کشور بر ادامه کنترل مرزها
+
+مقررات سخت‌گیرانه‌تر پناهندگی در اتحادیه اروپا از روز جمعه، ۱۲ ژوئن (۲۲ خرداد) اجرایی می‌شود. هدف از این طرح، کاهش آمار پناهجویان است.
+
+حزب سوسیال‌دموکرات آلمان (SPD) این رویداد را فرصتی برای برچیدن گام‌به‌گام کنترل‌های مرزی آلمان می‌داند، اما اتحادیه احزاب مسیحی (Union) این اقدام را بسیار زودهنگام ارزیابی می‌کند.
+
+تنها چند روز مانده به اجرایی شدن اصلاحات قوانین پناهندگی اروپا (GEAS)، حزب سوسیال‌دمکرات آلمان خواهان لغو تدریجی کنترل‌های مرزی شده است.
+
+سباستین فیدلر، سخنگوی سیاست داخلی فراکسیون سوسیال‌دمکرات‌ها، در گفت‌وگو با گروه رسانه‌ای بایرن (Mediengruppe Bayern) اعلام کرد که با اجرایی شدن قوانین جدید در روز جمعه، "کنترل در مرزهای داخلی اتحادیه اروپا باید در میان‌مدت پایان یابد."
+
+او تأکید کرد که این موضوع در متن قرارداد ائتلاف دولتی نیز توافق شده است. فیدلر گفت: «من توصیه می‌کنم که پس از ۱۲ ژوئن، کنترل‌های مرزی را قدم‌به‌قدم کاهش دهیم.» پیشنهاد او این است که این روند از مرزهای داخلی شروع شود که کمتر تحت تأثیر عبورهای غیرقانونی قرار دارند.
+
+این سیاستمدار حزب سوسیال‌دمکرات افزود: «اگر با اجرای اصلاحات قوانین پناهندگی اروپا، وضعیت در سایر بخش‌های مرزی نیز آرام‌تر شود، کنترل‌ها در آن بخش‌ها هم باید پایان یابد.»
+
+
+@dw_farsi
+</div>
+
+## RadioFarda — post 158099
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸رسانه‌های ایران گزارش دادند که با اصلاح مصوبۀ مربوط به تشکیل نهادی به نام «ستاد ویژهٔ راهبری فضای مجازی» از سوی رئیس‌جمهور ایران، پروندۀ شکایت از این ستاد در دیوان عدالت اداری مختومه شد. 🔸احسان چیت‌ساز، معاون وزیر ارتباطات و فناوری ایران، در گفت‌وگو با خبرگزاری…
+</div>
+
+## RadioFarda — post 158098
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_158098_1781016209.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸رسانه‌های ایران گزارش دادند که با اصلاح مصوبۀ مربوط به تشکیل نهادی به نام «ستاد ویژهٔ راهبری فضای مجازی» از سوی رئیس‌جمهور ایران، پروندۀ شکایت از این ستاد در دیوان عدالت اداری مختومه شد.
+
+🔸احسان چیت‌ساز، معاون وزیر ارتباطات و فناوری ایران، در گفت‌وگو با خبرگزاری ایسنا گفت که «با موافقت رئیس‌جمهوری، بندی که ناظر بر اختیارات و نحوه تصمیم‌گیری ستاد بود اصلاح شده و اعتراضات مطروحه بلا موضوع است».
+
+🔸به گفتهٔ او، «هیئت عمومی دیوان عدالت اداری در رأی خود تصریح کرده که با انجام اصلاحات یادشده، ساختار و کارویژه‌های اصلی ستاد دچار تغییر شده و موضوع شکایت اولیه عملاً منتفی شده است».
+
+🔸خبرگزاری فارس، نزدیک به سپاه پاسداران، در این باره گزارش داده که با اصلاح انجام شده «این ستاد صرفاً جنبهٔ مشورتی برای رئیس‌جمهور خواهد داشت و مصوبات آن به‌عنوان پیشنهاد به رئیس‌جمهور ارائه می‌شود».
+
+@RadioFarda
+</div>
+
+## Hranews — post 113492
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+متهم به قتل مامور حفاظت منابع طبیعی اعدام شد
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– حکم یک زندانی که پیشتر به اتهام قتل جنگلبان جواد غلامی، به #اعدام محکوم شده بود، در زندان وکیل آباد مشهد اجرا شد.
+
+ادامه مطلب
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+---
 📅 بروزرسانی: 1405/03/19 18:03
 ---
 

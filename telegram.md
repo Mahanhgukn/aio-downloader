@@ -7,6 +7,250 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/20 00:13
+---
+
+## VahidOOnLine — post 244571
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_244571_1781037801.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایرانیان بریتانیا با تشکیل تجمعی در مقابل پارلمان این کشور در لندن،‌ روز سه‌شنبه خواستار تروریستی اعلام شدن سپاه و مقابله با جمهوری اسلامی شدند. آن‌ها پرچم‌های شیروخورشید و اسرائیل را در تجمع خود حمل کردند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14178
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سخنگوی کمیسیون امنیت ملی مجلس :
+
+محاصره دریایی یک عملیات نظامی است و ما به آن پاسخ داده و باز هم خواهیم داد.
+@withyashar
+</div>
+
+## WithYashar — post 14177
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+الجزیره به نقل از یک مقام ایرانی :
+
+بالگرد آپاچی که منهدم شد به علت پرواز در آسمان سرزمینی ایران منهدم شد و برخلاف ادعا ها بر فراز آب های بین المللی پرواز نمی‌کرد.
+@withyashar
+</div>
+
+## mwarmonitor — post 10549
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨در پی سرنگونی یک بالگرد آمریکایی در تنگه هرمز، دونالد ترامپ رئیس‌جمهور آمریکا و بنیامین نتانیاهو نخست‌وزیر اسرائیل با یکدیگر گفت‌وگو کردند.
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 342774
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NEW: Crowds outside a Texas courthouse erupted in rage moments after a jury convicted Karmelo Anthony of murdering Austin Metcalf, as the scene turned chaotic and led to several physical altercations and at least one person being detained by police.
+
+The same jury that convicted Anthony will now determine his sentence, which could range from 5 to 99 years or life in prison. | @Brooketaylortv
+
+@WillCainShow
+</div>
+
+## pm_afshaa — post 93072
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93072_1781037803.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رضایی، سخنگوی کمیسیون امنیت ملی و سیاست خارجی ایران:
+
+محاصره دریایی یک عملیات جنگیه و ما به آن پاسخ دادیم و پاسخ خواهیم داد، این حق قطعی و غیرقابل انکار ماست.
+
+اگر آمریکا بخواد به سرنگونی یک هلیکوپتر که بخشی از عملیات جنگی در محاصره ما بود واکنش نشون بده، باید پاسخ ما رو قطعی فرض کنه؛ ما به هر عملی با پاسخی سریع و قاطع پاسخ خواهیم داد!
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93071
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93071_1781037804.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رضایی، سخنگوی کمیسیون امنیت ملی مجلس:
+
+دست اون رزمنده‌ای که در تنگه هرمز با سرنگونی هلیکوپتر آمریکایی سیلی دیگری به شیطان زد رو می‌بوسیم و از او به عنوان یک قهرمان تجلیل خواهیم کرد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## Persian_Trend_Official — post 16334
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16334_1781037804.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♨️ به گزارش نیویورک تایمز مقامات آمریکایی باور دارند ایران مایل به تعلیق 15 ساله غنی سازی است.
+
+📌 واکنش ژنرال مایک فلین (از یاران دو آتیشه ترامپ) به این خبر:
+امیدوارم شوخی باشد.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16333
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16333_1781037805.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ نبویان: غنی‌سازی ۹۳ درصدی میتونه برای مصارف صلح‌ آمیز استفاده بشه.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16332
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16332_1781037805.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ ان‌بی‌سی نیوز گزارش می‌دهد که دریاسالار برد کوپر، فرمانده فرماندهی مرکزی ایالات متحده، به تازگی پشت درهای بسته به سناتورهای حامی بودجه پنتاگون توضیحاتی ارائه داده و به خاطر ارائه «جدی، دقیق و کامل» خود، مورد تحسین هر دو حزب قرار گرفته است.
+
+با این حال، سناتورها معتقدند که ایران عمداً به بالگرد آپاچی AH-64 ارتش ایالات متحده حمله کرده و انتقام قریب‌الوقوع خواهد بود.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16331
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ ترامپ در مصاحبه با WSJ:
+
+محاصره باعث شده رژیم «بسیار فقیر» شود و ما آن را تا زمانی که لازم باشد حفظ خواهیم کرد.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16330
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16330_1781037806.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ سخنگوی کمیسیون امنیت ملی مجلس: به هر اقدام آمریکا پاسخ سریع و قاطع خواهیم داد.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Dirty_Kids — post 391508
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391508_1781037806.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 علیرضا بیرانوند: به پیکر سوخته رهبر شهیدمون قسم خوردم که دروازه تیم ملی رو توی جام جهانی، مثل تنگه هرمز بسته نگه دارم!
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391507
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391507_1781037806.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فاصله عزت و نفرت، در مردمی یا حکومتی بودن است.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391506
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391506_1781037807.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سال 2015 توئیتر فارسی
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391505
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391505_1781037807.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+من از ویدئوهای طنز فوتبالی این پسره خیلی خوشم اومده. کاملا در راستای سنت سینمایی باستر کیتون و جکی چانه
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391504
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391504_1781037809.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 دیروز توی مشهد یه دختر خودشو انداخته پایین که خودکشی کنه، اما میفته رو یه پسر بدبخت!
+
+دختره خودش درجا فوت میشه، پسره ام به بیمارستان منتقل شده، یه سریا میگن قطع نخاع شده، یه سریام میگن فوت کرده!
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 126629
+
+<div align="center">
+  <a href="telegram/content/alonews_126629_1781037809.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈مسکو در واکنش به رای شورای امنیت سازمان ملل به بررسی بازگشت تحریم‌ها علیه ایران : ما به شورای امنیت اجازه نخواهیم داد که تحت پوشش کمیته تحریم‌ها، تصمیماتی اتخاذ کند که محدودیت‌هایی را بر کشور‌های عضو اعمال کند
+
+
+🔴 چین: تلاش برای بازگرداندن تحریم‌ها علیه ایران فاقد مبنای شورای امنیت است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/20 00:03
 ---
 

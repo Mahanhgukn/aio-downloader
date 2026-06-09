@@ -7,6 +7,122 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/19 16:52
+---
+
+## WithYashar — post 14119
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نیروهای رضوان حزب الله اعلام کردند بصورت زمینی وارد شهرک های اسرائیلی شدن
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342754
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NEW: Speaker Johnson will meet President Trump at the White House today, Fox News has learned, as the House looks to finally get ICE and CBP funding to the president's desk as soon as today.
+
+Congress also faces a deadline at the end of this week to extend FISA Section 702 spy powers or allow them to lapse.
+</div>
+
+## pm_afshaa — post 93001
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نیروهای رضوان حزب الله اعلام کردند بصورت زمینی وارد شهرک های اسرائیلی شدن
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93000
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♨️
+♨️
+♨️
+♨️
+</div>
+
+## FarsiVOA — post 220115
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220115_1781011368.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسرائیل روز سه‌شنبه، ۱۹ خرداد ۱۴۰۵، مواضع حزب‌الله را در شهر صور در جنوب لبنان هدف‌گیری کرد. پیش از حمله، ارتش اسرائیل برای نخستین‌بار دستور تخلیه تمام شهر صور را صادر کرده بود.
+</div>
+
+## RadioFarda — post 158095
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسرائیل به‌رغم هشدارهای ایران، شهر بندری صور در جنوب لبنان را هدف حمله قرار داد
+
+🔸اسرائیل روز سه‌شنبه ۱۹ خرداد شهر بندری صور در جنوب لبنان را هدف قرار داد که به گفتهٔ وزارت بهداشت این کشور دست‌کم هشت نفر در این حمله کشته شدند.
+
+🔸این حمله پس از آن انجام شد که برای نخستین‌ بار دستور تخلیه کل شهر از سوی اسرائیل صادر شد.
+
+🔸اسرائیل و ایران روز ۱۸ خرداد پس از درخواست دونالد ترامپ، رئیس‌جمهور آمریکا، برای توقف درگیری‌ها، حملات مستقیم به یکدیگر را متوقف کردند. اما تهران اعلام کرد اگر اسرائیل به حمله به متحدش، شبه‌نظامیان حزب‌الله در لبنان، ادامه دهد، درگیری‌ها را از سر خواهد گرفت.
+
+🔸به گفتهٔ وزارت بهداشت و رسانه‌های دولتی لبنان، تلفات روز سه‌شنبه در پی حمله به حاشیهٔ شرقی شهر رخ داد. این یکی از مرگبارترین بمباران‌های اسرائیل علیه صور از زمان آغاز جنگ میان اسرائیل و گروه حزب‌الله در دوم مارس است.
+
+🔸ویدئویی از پیامدهای حمله، که رویترز محل آن را در همان منطقه تأیید کرده، آوار را نشان می‌دهد که در طول یک جاده پراکنده شده است. در کوچه‌ای پر از دود، جرثقیلی در نزدیکی ساختمانی آسیب‌دیده مشغول کار دیده می‌شود.
+
+🔸وزارت بهداشت لبنان اعلام کرد نیروهای امدادی همچنان در میان آوار به‌دنبال یافتن بازماندگان هستند.
+
+🔸گزارش کامل را در وب‌سایت رادیوفردا بخوانید.
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 21919
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21919_1781011369.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ:
+یک یا دو روز آینده شاید به نتیجه‌ای با ایران برسیم
+
+ادعای ترامپ در مورد مذاکرات ایران:
+ما مذاکرات مداومی با ایران داریم و این مذاکرات متوقف نشده است.
+
+ما می‌توانیم حداقل تا یک یا دو روز آینده به ایده‌ای برسیم. فکر می‌کنم اوضاع خوب پیش می‌رود.
+
+@IranianMinds
+</div>
+
+## alonews — post 126527
+
+<div align="center">
+  <a href="telegram/content/alonews_126527_1781011372.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تاثیر معدل پایهٔ یازدهم در کنکور امسال مثبت شد. 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126526
+
+<div align="center">
+  <a href="telegram/content/alonews_126526_1781011372.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تاثیر معدل پایهٔ یازدهم در کنکور امسال مثبت شد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/19 16:42
 ---
 

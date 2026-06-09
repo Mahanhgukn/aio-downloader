@@ -7,6 +7,311 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/19 20:23
+---
+
+## VahidOOnLine — post 244548
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244548_1781024005.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ قیمت نفت روز سه‌شنبه ۱۹ خرداد در پی اظهارات دونالد ترامپ، رئیس‌جمهوری آمریکا، مبنی بر نزدیک بودن توافق صلح با ایران، با افتی حدودا ۵ درصدی مواجه شد و به زیر ۹۰ دلار در هر بشکه سقوط کرد.
+
+در همین راستا، نفت خام برنت به عنوان شاخص بین‌المللی بازار، برای نخستین بار از ۱۴ آوریل به زیر ۹۰ دلار سقوط کرد. همچنین نفت خام وست تگزاس اینترمدیت (WTI) — شاخص بازار ایالات متحده — به محدوده ۸۶ دلار در هر بشکه عقب‌نشینی کرد.
+
+این فروکش کردن التهاب بازار تنها یک روز پس از آن رخ داد که در پی از سرگیری کوتاه‌مدت حملات متقابل جمهوری اسلامی و اسرائیل در میان آتش‌بس شکننده خاورمیانه، بهای نفت جهش شدیدی را تجربه کرده بود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244547
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244547_1781024005.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهوری آمریکا، در شبکه تروث سوشال نوشت جمهوری اسلامی شامگاه دوشنبه یک بالگرد پیشرفته آپاچی ارتش آمریکا را هنگام گشت‌زنی بر فراز تنگه هرمز سرنگون کرده است.
+او گفت دو خلبان این بالگرد سالم و بدون جراحت هستند.
+ترامپ تاکید کرد که «ایالات متحده ناگزیر باید به این حمله پاسخ دهد.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244546
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_244546_1781024006.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️العربیه روز سه‌شنبه ۱۹ (جوزا) خرداد، گزارش داد اعتراضات در شهر هرات علیه بازداشت زنان و دختران به دلیل آنچه طالبان «نقض مقررات پوشش» می‌خواند، با تیراندازی نیروهای طالبان همراه شد و در جریان آن یک کودک کشته و چندین نفر دیگر زخمی شدند.
+
+ویدیوهای منتشرشده در شبکه‌های اجتماعی نشان می‌دهد ساکنان شهرک جبرئیل در شمال‌غرب هرات همزمان با شنیده شدن صدای تیراندازی در خیابان‌ها در حال فرار هستند. در این ویدیوها صدای فریاد معترضان نیز شنیده می‌شود.
+
+مسعود حسینی، سخنگوی پلیس طالبان در هرات، به خبرگزاری دولتی باختر گفت این تجمع «به بهانه مخالفت با حجاب اسلامی» موجب تنش و برهم خوردن نظم عمومی شده است.
+
+این اعتراض‌ها پس از افزایش بازداشت زنان و دختران در هرات شکل گرفت. برخی از ساکنان هرات به دیلی میل گفتند نیروهای طالبان حتی زنانی را بازداشت کرده‌اند که پوشش مورد نظر این گروه، از جمله پوشاندن کامل صورت و بدن، را رعایت کرده بودند.
+
+ریچارد بنت، گزارشگر ویژه سازمان ملل در امور حقوق بشر افغانستان، بازداشت زنان در هرات را «غیرقانونی و غیرقابل قبول» خواند و در اکس نوشت برای سومین روز متوالی ده‌ها زن به دلیل نقض مقررات پوشش طالبان به‌طور خودسرانه بازداشت شده‌اند.
+
+دفتر هیئت معاونت سازمان ملل متحد در افغانستان (یوناما) نیز با ابراز نگرانی از بازداشت زنان در هرات، از طالبان خواست با همه افراد به‌طور برابر رفتار کند. رسانه‌های محلی گزارش داده‌اند که دست‌کم ۲۱ زن و دختر در این ولایت بازداشت شده‌اند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14135
+
+<div align="center">
+  <a href="telegram/content/WithYashar_14135_1781024007.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## WithYashar — post 14134
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ در تروث : «به من همین حالا توسط ارتش بزرگ‌مان اطلاع داده شده است که دیشب ایرانی‌ها یکی از بالگردهای بسیار پیشرفته آپاچی ما را هنگام گشت‌زنی بر فراز تنگه هرمز سرنگون کردند. دو خلبان در این حادثه حضور داشتند و هر دو سالم و بدون جراحت هستند. با این حال،…
+</div>
+
+## mwarmonitor — post 10524
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_10524_1781024007.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴«لحظاتی پیش از سوی ارتش بزرگمان به من اطلاع داده شد که دیشب ایرانی‌ها یکی از هلیکوپترهای آپاچی بسیار پیشرفته ما را در حال گشت‌زنی بر فراز تنگه هرمز سرنگون کرده‌اند. دو خلبان در این حادثه حضور داشتند که هر دو سالم و بدون آسیب‌دیدگی هستند. با این وجود، ایالات متحده بر حسب ضرورت باید به این حمله پاسخ دهد. از توجه شما به این موضوع سپاسگزارم!
+
+رئیس‌جمهور دونالد جی. ترامپ»
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 342764
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342764_1781024008.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+“You are our future.”
+
+Melania Trump congratulated the first Presidential AI Challenge winners at the White House, calling the students “the best of America.”
+
+The contest brought together young innovators using AI to tackle real-world community challenges.
+</div>
+
+## FoxNewsTwitter — post 342763
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342763_1781024010.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH: SPLC Interim CEO Bryan Fair refuses to say if he regrets having Charlie Kirk on the group's hate list:
+
+REP. ISSA: "Will you take back any part of that, or does your hate list stand as your position of your organization as its head today?"
+
+FAIR: “The SPLC will continue to expose hate and extremism."
+
+ISSA: “Okay. We'll take that as the list stands."
+</div>
+
+## pm_afshaa — post 93019
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پست جدید ترامپ: به من همین الان توسط ارتش بزرگ‌مون اطلاع داده شده که دیشب ایرانی‌ها یکی از بالگردهای بسیار پیشرفته آپاچی ما رو هنگام گشت‌زنی بر فراز تنگه هرمز سرنگون کردن. دو خلبان در این حادثه حضور داشتن و هر دو سالم و بدون جراحت هستن. با این حال، آمریکا…
+</div>
+
+## pm_afshaa — post 93018
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_93018_1781024012.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پست جدید ترامپ:
+به من همین الان توسط ارتش بزرگ‌مون اطلاع داده شده که دیشب ایرانی‌ها یکی از بالگردهای بسیار پیشرفته آپاچی ما رو هنگام گشت‌زنی بر فراز تنگه هرمز سرنگون کردن. دو خلبان در این حادثه حضور داشتن و هر دو سالم و بدون جراحت هستن. با این حال، آمریکا ناگزیر است به این حمله پاسخ بده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 341366
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341366_1781024012.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهوری آمریکا، در شبکه تروث سوشال نوشت جمهوری اسلامی شامگاه دوشنبه یک بالگرد پیشرفته آپاچی ارتش آمریکا را هنگام گشت‌زنی بر فراز تنگه هرمز سرنگون کرده است.
+او گفت دو خلبان این بالگرد سالم و بدون جراحت هستند.
+ترامپ تاکید کرد که «ایالات متحده ناگزیر باید به این حمله پاسخ دهد.»
+https://iranintl.com/202606095775
+</div>
+
+## IranIntlTV — post 341365
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341365_1781024013.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻در آستانه شروع جام جهانی ۲۰۲۶، ایران اینترنشنال از مخاطبان خود می‌خواهد آقای گل بزرگترین تورنمنت فوتبال جهان را پیش‌بینی کنند.
+
+🔹این نظرسنجی در دو گروه ۴ نفره به رای مخاطبان گذاشته می‌شود.
+
+🔹برای شرکت در این نظرسنجی، به صفحه اینستاگرام ایران اینترنشنال ورزشی مراجعه کنید؛👇
+https://www.instagram.com/p/DZW5YiVAo58/
+
+@iranintltvsport
+</div>
+
+## FarsiVOA — post 220133
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺ارتش اسرائیل: برای وارد کردن ضربه‌ای سنگین‌تر به جمهوری اسلامی آماده‌ایم
+
+◾️ایال زمیر، رئیس ستاد کل ارتش اسرائیل، می‌گوید نیروهای این کشور در حالت آماده‌باش کامل برای ازسرگیری درگیری نظامی با جمهوری اسلامی قرار دارند و در صورت لزوم آماده‌اند «ضربه سخت و عمیق» دیگری را به رژیم وارد کنند.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/israel-army-chief-warns-iran/8158957.html
+</div>
+
+## Persian_Trend_Official — post 16286
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16286_1781024013.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ در تروث سوشال: ارتش بزرگ ما به من اطلاع داده است که دیشب ایرانی‌ها یکی از هلیکوپترهای آپاچی بسیار پیشرفته ما را هنگام گشت‌زنی بر فراز تنگه هرمز سرنگون کردند.
+
+دو خلبان در این حادثه دخیل بودند که هر دو سالم و بدون آسیب هستند. با این وجود، ایالات متحده باید، بنا به ضرورت، به این حمله پاسخ دهد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16285
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16285_1781024014.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رئیس جمهور امریکا دقایقی پیش اعلام کرد بالگرد آپاچی که شب گذشته در تنگه هرمز سقوط کرده، توسط ایران ساقط شده است.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## RadioFarda — post 158103
+
+<div align="center">
+  <a href="https://t.me/radiofarda/158103" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آلن ایر:‌ توافق احتمالی تهران و واشینگتن نمی‌تواند به فاز دوم برسد
+
+🔸دونالد ترامپ رئیس‌جمهور ایالات متحده همچنان بر این باور است که در روزهای پیش‌رو ممکن است تهران و واشینگتن بتوانند به یک توافق دست یابند. صحبت از احتمال دستیابی به این پیشرفت در حالی است که ایران و اسرائیل روز ۱۷ خرداد، شصت روز پس از برقراری آتش‌بس، برای اولین بار به خاک یکدیگر حمله کردند و برای ساعاتی خاورمیانه را در آستانهٔ یک جنگ تمام عیار قرار دادند. در چنین فضای ملتهبی، شکل‌گیری یک توافق چقدر محتمل و دست‌یافتنی است؟ پاسخ آلن ایر اولین سخنگوی فارسی‌زبان وزارت خارجه آمریکا (در دوران ریاست‌جمهوری باراک اوباما) را بشنوید. آقای ایر هم‌اکنون محقق ارشد دیپلماتیک در موسسه خاورمیانه در واشینگتن است.
+
+@RadioFarda
+</div>
+
+## RadioFarda — post 158102
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_158102_1781024015.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸رئیس‌جمهور ایالات متحده روز سه‌شنبه ۱۹ خرداد تأیید کرد که ایران یک فروند بالگرد بسیار پیشرفتهٔ آپاچی این کشور را سرنگون کرده است.
+
+🔸دونالد ترامپ در پستی در شبکهٔ اجتماعی خود، تروث سوشال، نوشت: «به‌تازگی از سوی نیروهای نظامی بزرگ‌مان مطلع شدم که شب گذشته ایرانی‌ها یکی از بالگردهای بسیار پیشرفتهٔ آپاچی ما را هنگام گشت‌زنی بر فراز تنگهٔ هرمز سرنگون کرده‌اند».
+
+🔸او افزود: «دو خلبان در این مأموریت حضور داشتند که هر دو سالم و بدون جراحت هستند. با این حال، ایالات متحده ناگزیر است به این حمله پاسخ دهد. از توجه شما به این موضوع سپاسگزارم».
+
+@RadioFarda
+</div>
+
+## BBCPersian — post 283260
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻این کامیون حامل مواد آتش‌بازی در بزرگراهی در آمریکا آتش می‌گیرد و با آتش‌بازی که راه می‌اندازد، ترافیک را بند می‌آورد.
+
+این آتش‌سوزی که نزدیک شهر چاتانوگا در ایالت تنسی آمریکا رخ داد یک حادثه بود و باعث توقف رفت و آمد خودروها در هر دو سمت بزرگراه شد. به گفته نیروهای آتش‌نشانی، این رویداد چندین دقیقه ادامه داشت و در نهایت توسط امدادگران مهار شد. در این حادثه به کسی آسیبی نرسیده است.
+
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 391483
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391483_1781024015.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خب خدارو شکر یه نفر از خودم دیوانه تر پیدا کردم :))))))
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391482
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391482_1781024016.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+باورم نمیشه تخم مرغ اول زرده اش درست میشه و از لوله موله ی مرغه رد میشه😭😭😭😭😭😭😭😭😭😭😭😭
+فکر میکردم اول تو پوستس😭😭😭😭😭😭😭😭😭😭😭😭😭😭😭😭😭😭😭😭😭😭😭
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 126567
+
+<div align="center">
+  <a href="telegram/content/alonews_126567_1781024016.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ:
+من همین الان توسط ارتش بزرگمان مطلع شدم که دیشب ایرانی‌ها یکی از هلیکوپترهای پیشرفته آپاچی ما را هنگام گشت‌زنی بر فراز تنگه هرمز سرنگون کردند.
+
+
+🔴دو خلبان درگیر بودند که هر دو سالم و بدون آسیب هستند.
+
+
+🔴با این حال، ایالات متحده باید به این حمله پاسخ دهد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126566
+
+<div align="center">
+  <a href="telegram/content/alonews_126566_1781024016.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ونس: فکر می‌کنم موفق خواهیم شد. اگر این دیپلماسی در نهایت از هم بپاشد، رئیس‌جمهور ابزارهای دیگری در اختیار دارد. اما تا زمانی که این قضیه را به مأموریت اصلی خود گره بزنیم - جلوگیری از داشتن سلاح هسته‌ای توسط ایران - به باتلاق تبدیل نخواهد شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/19 20:13
 ---
 

@@ -7,6 +7,141 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/19 12:33
+---
+
+## WithYashar — post 14106
+
+
+
+
+## WithYashar — post 14105
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سهمیه بلیت تماشاگران ایران در جام جهانی حذف شد
+@withyashar
+</div>
+
+## mwarmonitor — post 10507
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_10507_1780995811.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸تردد در تنگه هرمز همچنان محدود باقی مانده است.
+
+🔹فعالیت عبور و مرور در تنگه هرمز طی بازه ۵ تا ۷ ژوئن همچنان محدود بوده و تنها هشت عبور ثبت‌شده از میان ترافیک تجاری و غیرتجاری مشاهده شده است. این عدد یک مورد کمتر از شمار ثبت‌شده در ۴ ژوئن و ۱۴ مورد کمتر از آخر هفته پیش از آن است که نشان‌دهنده فاصله گرفتن از الگوی عبورهای آخر هفته با شرایط بازتر است.
+
+🔹 تمامی عبورها از مسیر ایرانی انجام شده و تنها دو کشتی دارای پرچم ایران و تحت تحریم عبور کرده‌اند که بیانگر مشارکت ضعیف‌تر بخش تجاری گسترده‌تر است.
+
+🔸حمله اخیر به یک کشتی کانتینربر متعلق به شرکت MSC نیز تصویر شکننده وضعیت عملیاتی در این منطقه را تقویت کرده است. در سایه فضای دیپلماتیک پرتنش‌تر، به نظر می‌رسد تنگه هرمز تنها تحت شرایط محدود و با مدیریت سخت‌گیرانه باز باقی بماند و احتمال بازگشت به جریان‌های پایدار یا افزایشی کاهش یافته است.
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 92986
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سهمیه بلیت تماشاگران ایران در جام جهانی حذف شد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## mamlekate — post 103652
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 محکومیت سه وکیل دادگستری ساکن شیراز به زندان، ممنوعیت خروج از کشور و ابطال گذرنامه
+
+این پرونده در سال ۱۳۹۹ تشکیل شد. دلیل تشکیل پرونده و صدور حکم علیه این سه وکیل: شرکت در نشست‌ها و سمینارهایی درباره حقوق کودکان و زنان، پیگیری تغییر و تصویب قوانین مرتبط با خشونت خانگی از طریق گفت‌وگو با نمایندگان مجلس، شوراها و نامزدهای انتخاباتی، مشارکت در برنامه‌های مرتبط با کارزار «۱۶ روز نارنجی مبارزه با خشونت علیه زنان»، توزیع پیکسل‌های «نه به خشونت علیه زنان» و «نه به ازدواج کودکان» و همچنین مصاحبه درباره وضعیت موکلان و موارد نقض حقوق آنان.
+
+@mamlekate
+</div>
+
+## IranIntlTV — post 341303
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341303_1780995813.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل با صدور دستور تخلیه از ساکنان شهر صور در جنوب لبنان و محله‌های اطراف آن خواست فورا این شهر را ترک کنند.
+
+اشکان صفایی، خبرنگار ایران‌اینترنشنال، گزارش می‌دهد
+
+.
+@iranintltv
+</div>
+
+## IranianMinds — post 21896
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21896_1780995816.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴جی‌ دی ونس :
+ایرانی ها نمی‌خوان این جنگ پیدا کنه چون به نفعشون نیست.
+
+
+@IranianMinds
+</div>
+
+## alonews — post 126467
+
+<div align="center">
+  <a href="telegram/content/alonews_126467_1780995818.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزیر ارتباطات: دنیا دنیای هوش مصنوعی است و ما مانده‌ایم ارتباطمان برقرار باشد یا نباشد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126466
+
+<div align="center">
+  <a href="telegram/content/alonews_126466_1780995819.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ارسالی مخاطبان/تظاهرات در شهر هرات افغانستان ادامه دارد و طالبان در حال کشتار است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126465
+
+<div align="center">
+  <a href="telegram/content/alonews_126465_1780995822.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈شلیک مستقیم نیروهای طالبان به معترضان در شهر هرات
+
+
+🔴طالبان میگوید که اینها مردم نیستند و نیروهای تروریستی هستند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126464
+
+<div align="center">
+  <a href="telegram/content/alonews_126464_1780995825.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 چین: مذاکرات آمریکا و ایران در مرحله‌ای مهم قرار دارد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/19 12:22
 ---
 

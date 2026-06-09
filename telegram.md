@@ -7,6 +7,754 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/20 01:03
+---
+
+## VahidOOnLine — post 244579
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244579_1781040789.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ستاد فرماندهی مرکزی آمریکا، سنتکام، اعلام کرد نیرهایش در آغاز بامداد چهارشنبه به وقت ایران، در واکنش به سرنگونی یک بالگرد آپاچی ارتش آمریکا حمله‌ها علیه جمهوری اسلامی را آغاز کردند. سنتکام گفت این ماموریت پاسخی متناسب به «تجاوز غیرموجه» حکومت ایران است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244578
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244578_1781040790.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️فرماندهی مرکزی ایالات متحده (سنتکام)، سه‌شنبه‌شب، ۱۹ خردادماه، با انتشار بیانیه‌ای اعلام کرد که نیروهای آمریکایی از ساعت ۱۷ امروز به وقت شرق آمریکا (۱۲:۳۰ بامداد چهارشنبه)، حملات نظامی موسوم به «دفاع از خود» را علیه ایران آغاز کرده‌اند. بر اساس این بیانیه، این عملیات نظامی با دستور مستقیم فرمانده کل قوا (رئیس‌جمهوری آمریکا) و در پاسخ به سرنگونی روز گذشته یک هلیکوپتر آپاچی ارتش ایالات متحده صورت گرفته است. سنتکام این ماموریت را یک پاسخ متناسب به آنچه «تجاوز توجیه‌ناپذیر ایران» خوانده، توصیف کرده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14199
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال 14 اسرائیل: ترامپ نتانیاهو رو قبل از آغاز حمله در جریان قرار داد.
+@withyashar
+</div>
+
+## WithYashar — post 14198
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+۹ انفجار بندر عباس
+@withyashar
+</div>
+
+## WithYashar — post 14197
+
+<div align="center">
+  <img src="telegram/content/WithYashar_14197_1781040790.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+@withyashar شکار‌ لحظه کردم
+</div>
+
+## WithYashar — post 14196
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+طبق گزارش ها تاکنون حملات در جنوب ایران متمرکز بوده است.
+
+هم‌اکنون پدافند در جنوب ایران مشغول دفع حمله است
+@withyashar
+</div>
+
+## WithYashar — post 14195
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش آمریکا از شلیک گسترده موشک های کروز به سمت ایران خبر می‌دهد.
+@withyashar
+</div>
+
+## WithYashar — post 14194
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مسیج های زیاد از انفجار‌ در ‌سیریک @withyashar
+</div>
+
+## mwarmonitor — post 10561
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ درباره حملات آمریکا علیه ایران گفت:
+
+🔸«فکر می‌کنم پاسخ دادن بسیار مهم است. آن‌ها یک بالگرد را سرنگون کردند و ما همین حالا در حال پاسخ دادن هستیم. این پاسخی به کاری است که آن‌ها شب گذشته با بالگرد ما انجام دادند و من معتقدم این پاسخ باید بسیار قوی و بسیار قدرتمند باشد، و این دقیقاً همان چیزی است که این عملیات هست.» ABC
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10560
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💥انفجارهایی در شهر میناب در جنوب ایران شنیده شد.
+</div>
+
+## mwarmonitor — post 10559
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کانال ۱۴ اسرائیل: ترامپ، نتانیاهو را در جریان جزئیات حمله اخیر آمریکا به ایران قرار داده است.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10558
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فعال‌سازی سامانه‌های پدافند هوایی در جنوب ایران
+</div>
+
+## pm_afshaa — post 93087
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انفجارهایی در میناب شنیده شده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93086
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93086_1781040791.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کانال 14 اسرائیل: ترامپ نتانیاهو رو قبل از آغاز حمله در جریان قرار داد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93085
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93085_1781040791.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴طبق گزارش‌ها، چند انفجار در جاسک
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93084
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تیتر شبکه خبر صداوسیما:
+حملات موشکی ایران بزودی...
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93083
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93083_1781040792.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴حمله آمریکا با موشک کروز تاماهاوک انجام شده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93082
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93082_1781040792.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سامانه‌های پدافند هوایی در جنوب ایران فعال شدن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93081
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93081_1781040793.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴تمام کشورهای عربی حاشیه خلیج فارس در حالت آماده باش کامل در اومدن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93080
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93080_1781040794.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبرگزاری مهر: شنیده شدن صدای انفجارهایی در محدوده بندر سیریک.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93079
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_93079_1781040794.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سنتکام: از ساعت 5 عصر امروز به وقت شرقی، به دستور رئیس‌جمهور، حملات دفاع از خود رو علیه ایران شروع کردیم. این عملیات در پاسخ به سرنگون کردن هلیکوپتر آپاچی ارتش آمریکا دیروز بوده. این مأموریت، یک پاسخ متناسب به تجاوز بی‌دلیل ایرانی‌ها حساب میشه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5514
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5514_1781040795.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨📢 بر اساس گزارش منابع میدانی، بامداد چهارشنبه ۲۰ خرداد ۱۴۰۵ انفجارهایی مهیب بندرعباس، قشم و سیریک را لزراند.
+
+به نظر می‌رسد انفجارها ناشی از حملات آمریکا به تلافی سرنگونی هلیکوپتر آمریکایی توسط سـ.ـپاه در تنگه هرمز باشد. پدافند در نواحی جنوب ایران فعال شده است.
+
+*عکس آرشیوی
+
+#جنگ #تنگه_هرمز
+@DEJradio
+</div>
+
+## VahidOnline — post 76111
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76111_1781040795.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+☄️ سنتکام: حملات در پاسخ به سرنگونی بالگرد آغاز شد
+
+ترجمه ماشین:
+فرماندهی مرکزی ایالات متحده آمریکا، سنتکام، اعلام کرد نیروهایش امروز ساعت ۵ عصر به وقت شرق آمریکا، به دستور فرمانده کل قوا، حملات دفاع از خود علیه ایران را آغاز کردند. این اقدام در پاسخ به سرنگونی هلیکوپتر آپاچی ارتش آمریکا در روز گذشته انجام شده است. این مأموریت پاسخی متناسب به تجاوز بی‌دلیل ایران است.
+CENTCOM
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 341403
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341403_1781040795.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیلگر ارشد ایران‌اینترنشنال، گفت: «در جمهوری اسلامی فاسد بودن افراد و مقامات مهم نیست، مشروط به آنکه به نظام وفادار باشند. قانون نانوشته نظام این است که فاسد باش، وفادار باش.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 341402
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341402_1781040796.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیلگر ارشد ایران‌اینترنشنال، گفت: «در جمهوری اسلامی فاسد بودن افراد و مقامات مهم نیست، مشروط به آنکه به نظام وفادار باشند. قانون نانوشته نظام این است که فاسد باش، وفادار باش.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 341401
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341401_1781040797.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ستاد فرماندهی مرکزی آمریکا، سنتکام، اعلام کرد نیرهایش در آغاز بامداد چهارشنبه به وقت ایران، در واکنش به سرنگونی یک بالگرد آپاچی ارتش آمریکا حمله‌ها علیه جمهوری اسلامی را آغاز کردند. سنتکام گفت این ماموریت پاسخی متناسب به «تجاوز غیرموجه» حکومت ایران است.
+https://iranintl.com/202606096067
+</div>
+
+## Shin_Persian — post 6798
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6798_1781040798.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Tue, 09 Jun 2026 21:26:55 UTC
+
+2106Z
+5 blasts heard in southern Qeshm island.
+Qeshm Province, #Iran
+
+فارسی
+
+۲۱۰۶ زولو (۰۰:۳۶ به وقت تهران)
+۵ صدای انفجار در جنوب جزیره قشم شنیده شد.
+استان قشم، #Iran
+
+𝕏 · @shin_persian
+</div>
+
+## Iliaen — post 4464
+
+<div align="center">
+  <img src="telegram/content/Iliaen_4464_1781040799.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سنتکام (فرماندهی مرکزی ایالات متحده) با انتشار یک بیانیه، حمله را تایید کرد.
+
+@iliaen
+</div>
+
+## FarsiVOA — post 220168
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220168_1781040799.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ستاد فرماندهی مرکزی ایالات متحده (سنتکام) روز سه‌شنبه اعلام کرد که نیروهای آمریکایی در پاسخ به سرنگونی یک هلی‌کوپتر آپاچی ارتش ایالات متحده که دیروز رخ داد، ساعت ۵ بعد از ظهر به وقت شرق آمریکا، به دستور فرمانده کل قوا، دونالد ترامپ، حملات دفاعی از خود علیه جمهوری اسلامی را آغاز کردند.
+سنتکام گفت این ماموریت، پاسخی متناسب به «تجاوز ناموجه» جمهوری اسلامی است.
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 16357
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16357_1781040799.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ به ABC درباره حملات ایران: فکر می‌کنم پاسخ دادن بسیار مهم است، آن‌ها یک هلیکوپتر را سرنگون کردند و ما همین الان در حال پاسخ دادن هستیم.
+
+این پاسخ به کاری است که آن‌ها دیشب با هلیکوپتر ما انجام دادند،من معتقدم پاسخ باید بسیار قوی و قدرتمند باشد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16356
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16356_1781040800.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هم اکنون تحرکات موشکی شدید سپاه پاسداران در نزدیکی پایگاه موشکی غرب
+</div>
+
+## Persian_Trend_Official — post 16355
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16355_1781040800.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## Persian_Trend_Official — post 16354
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16354_1781040801.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به گزارش کانال 14 اسرائیل، ترامپ پیش از حمله ایالات متحده به ایران، تلفنی با نخست وزیر اسرائیل، نتانیاهو، صحبت کرد تا او را در جریان امور قرار دهد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16353
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حملات ایالات متحده با موشک‌های کروز تاماهاوک انجام شده
+</div>
+
+## Persian_Trend_Official — post 16352
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قالیباف: ما زبان دیپلماسی را ترجیح می‌دهیم، ولی زبان‌ غیردیپلماسی را روان‌تر صحبت می‌کنیم، شما سوار همان اسبی می‌شوید که زین کرده‌اید. ما زبان دیپلماسی را ترجیح می‌دهیم، اما زبان‌های دیگر را بسیار روان‌تر صحبت می‌کنیم. اگر تعهدات خود را بشکنید، ما به همان…
+</div>
+
+## Persian_Trend_Official — post 16351
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16351_1781040801.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## Persian_Trend_Official — post 16350
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال رسمی پرشین ترند pinned «اگر حملات فقط در حد نوار ساحلی بمونه یعنی نمیخوان تنش از کنترل خارج بشه و اتفاق خاصی نمیوفته !»
+</div>
+
+## Persian_Trend_Official — post 16349
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16349_1781040802.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حملات ایالات متحده با موشک‌های کروز تاماهاوک انجام شده
+</div>
+
+## Persian_Trend_Official — post 16348
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انفجارهای شدید در پایگاه نیروی دریایی سپاه در سیریک
+</div>
+
+## Persian_Trend_Official — post 16347
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اگر حملات فقط در حد نوار ساحلی بمونه یعنی نمیخوان تنش از کنترل خارج بشه و اتفاق خاصی نمیوفته !
+</div>
+
+## Persian_Trend_Official — post 16346
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16346_1781040802.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اگر حملات فقط در حد نوار ساحلی بمونه یعنی نمیخوان تنش از کنترل خارج بشه و اتفاق خاصی نمیوفته !
+</div>
+
+## RadioFarda — post 158110
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_158110_1781040803.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸ستاد فرماندهی مرکزی ایالات متحده (سنتکام) اعلام کرد نیروهای این فرماندهی به دستور رئیس‌جمهور آمریکا، از ساعت ۵ بعدازظهر به وقت شرق آمریکا، حملات «دفاع از خود» علیه ایران را آغاز کرده‌اند.
+
+🔸در این بیانیه آمده است که این حملات در واکنش به سرنگونی یک بالگرد تهاجمی آپاچی ارتش آمریکا در روز گذشته انجام شده و «پاسخی متناسب به اقدام تجاوزکارانه و غیرموجه ایران» به شمار می‌رود.
+
+🔸سنتکام جزئیاتی درباره اهداف این حملات یا مناطق مورد هدف منتشر نکرده است.
+
+🔸پیش از این، رسانه‌های ایران از شنیده شدن صدای چند انفجار در محدوده شهرستان سیریک در استان هرمزگان خبر داده بودند.
+
+🔸خبرگزاری مهر به نقل از ساکنان محلی گزارش داد شامگاه سه‌شنبه صدای انفجارهایی در بندر سیریک و روستاهای اطراف شنیده شده است، اما تا زمان انتشار این گزارش هیچ‌یک از نهادهای رسمی نظامی یا انتظامی درباره علت این انفجارها اظهارنظر نکرده‌اند.
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 21981
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ :
+
+به نظر من پاسخ دادن بسیار مهم است. آنها یک هلیکوپتر را ساقط کردند و ما در حال پاسخگویی هستیم.
+
+این پاسخی است به کاری که دیشب با هلیکوپتر ما انجام دادند، و من معتقدم که پاسخ باید بسیار قوی، بسیار قدرتمند باشد، و این چیزی است که این یکی است.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21980
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 صداوسیما :
+
+بد میبینید کصکشا بزودی حمله ی موشکی میکنیم
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21979
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 تمام کشورهای عربی حاشیه خلیج فارس در حالت آماده باش کامل در اومدن.
+
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21978
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 انفجار مجدد در میناب
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21977
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴انفجارهای سنگین در پایگاه نیروی دریایی سپاه در سیریک.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21976
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حداقل شش انفجار از موقعیت نیروی دریایی در سیریک گزارش شده
+
+تایید نشده: پایگاه شهید راهبر در بندرعباس مورد اصابت قرار گرفت
+
+
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21975
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 حمله آمریکا به شهرستان جاسک در هرمزگان
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21974
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21974_1781040803.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 شبکه خبر: بزودی پاسخ قاطع میدیم.
+
+
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21973
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صدای انفجار در جاسک
+
+
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21972
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دیگه جدی جدی زدن و شروع شد @IranianMinds
+</div>
+
+## IranianMinds — post 21971
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حملات امریکا با موشک‌های کروز تاماهاوک انجام شده
+
+
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21970
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سه انفجار در حوالی میناب.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 283272
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283272_1781040803.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+
+احمد دنیامالی، وزیر ورزش ایران، گفته است که اگر در جریان مسابقات جام جهانی «هر اتفاق هنجارشکنی» بیفتد، بازی از جانب ایران متوقف خواهد شد.
+
+بنا به گزارش رسانه‌های داخلی ایران، او در توضیح گفته است: «پرچم یا نشان دیگری جز پرچم ما در ورزشگاه‌های جام جهانی باشد، می‌توانیم بازی را ادامه ندهیم.»
+
+او در ادامه افزوده است: «عمده مسائلی که میزبان کارشکنی می‌کرد، حل شده است، مشکل ویزای سایر نفرات تیم ملی حل می‌شود.»
+
+وزیر ورزش ایران همچنین گفت: «برای بازی با مصر به ما گفته‌اند نگران مسائل حاشیه‌ای نباشید.»
+
+همزمان فیفا اعلام کرده است که پس از لغو سهمیه بلیت‌های مرحله گروهی جام جهانی برای ایران، تنها چند روز مانده به آغاز مسابقات، در حال تلاش برای «به حداکثر رساندن فرصت حضور هواداران ایرانی در بازی‌ها» است.
+
+این تصمیم در حالی اتخاذ شده که سهمیه بلیت‌های اختصاص‌یافته به ایران برای مرحله گروهی جام جهانی لغو شده است و فیفا می‌گوید در تلاش است راهکارهایی برای تسهیل حضور و حمایت هواداران ایرانی در مسابقات پیدا کند.
+بامداد ۲۶ خرداد به وقت ایران در لس‌آ‌نجلس برگزار خواهد شد.
+
+📷Reuters
+
+https://bbc.in/4dYnYIe
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 391511
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391511_1781040804.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 شبکه خبر: بزودی پاسخ قاطع میدیم.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391510
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391510_1781040804.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 سنتکام و آمریکا رسما مسئولیت حمله به ایران و قشم رو به عهده گرفت.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391509
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فوریییی: آمریکا رسماً و شرعا به قشم حمله کرد.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 126649
+
+<div align="center">
+  <a href="telegram/content/alonews_126649_1781040804.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈صداوسیما: حملات موشکی بزودی انجام میشه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126648
+
+<div align="center">
+  <a href="telegram/content/alonews_126648_1781040805.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈علی قلهکی خبرنگار امنیتی :
+بنظر می‌رسد آمریکا در حال آماده‌سازی افکارِ عمومی برایِ «اقدامِ خاصِ نظامی» است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126647
+
+<div align="center">
+  <a href="telegram/content/alonews_126647_1781040805.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈انفجار در میناب
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126646
+
+<div align="center">
+  <a href="telegram/content/alonews_126646_1781040805.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تاکنون 7 انفجار در سیریک
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126645
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📱لطفا توییتر الونیوز رو دنبال کنین 
+🔴پست های انگلیسی در رابطه با جنایت های حکومت به انگلیسی نوشته شده و افراد مهم منشن و هشتگ های مهم قرار داده شده. 
+🔴ریپست کنین. مهمترین کمک این روزها جلوگیری از پروپاگاندا حکومت علیه این قتل عام مردم هستش. خونشون نباید پایمال…
+</div>
+
+## alonews — post 126644
+
+<div align="center">
+  <a href="telegram/content/alonews_126644_1781040805.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢فووووووری/هم اکنون تحرکات موشکی شدید سپاه ماسداران 
+🚨 @AkhbareFouri
+</div>
+
+## alonews — post 126643
+
+<div align="center">
+  <a href="telegram/content/alonews_126643_1781040806.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حملات ایالات متحده با موشک‌های کروز تاماهاوک انجام شده
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126642
+
+<div align="center">
+  <a href="telegram/content/alonews_126642_1781040806.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رسایی: اینترنت رو قطع کنید
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/20 00:53
 ---
 

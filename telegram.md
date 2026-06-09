@@ -7,6 +7,35 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/19 04:52
+---
+
+## VahidOOnLine — post 244456
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_244456_1780968169.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ تصاویر منتشرشده در شبکه‌های اجتماعی، لحظه تکان خوردن شدید یک ساختمان ۳۶ طبقه را در جریان زمین‌لرزه‌ای به بزرگی ۷.۸ در جنوب فیلیپین نشان می‌دهند. مقام‌های این کشور اعلام کردند این زمین‌لرزه دست‌کم ۳۵ کشته برجا گذاشته و سونامی‌های کوچکی را در مناطق جنوبی فیلیپین ایجاد کرده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342740
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342740_1780968171.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"USA! USA! USA!"
+
+Chants erupted throughout Madison Square Garden during Game 3 of the NBA Finals with President Trump in attendance.
+</div>
+
+---
 📅 بروزرسانی: 1405/03/19 04:42
 ---
 

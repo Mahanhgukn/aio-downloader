@@ -7,6 +7,229 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/20 00:24
+---
+
+## VahidOOnLine — post 244574
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244574_1781038449.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️همزمان با افزایش تنش‌ها میان تهران و واشنگتن در پی هدف قرار گرفتن هلیکوپتر آپاچی آمریکا، خبرگزاری تسنیم، وابسته به سپاه پاسداران، سه‌شنبه‌شب، به نقل از یک منبع آگاه نظامی نوشت: «در ۲۴ ساعت گذشته هیچ عملیات نظامی هجومی هوایی در تنگه هرمز انجام نشده است». پیش از این، خبرگزاری سی‌ان‌ان به نقل از دو مقام آمریکایی گزارش داد که هلی‌کوپتر نیروی زمینی ارتش این کشور که در سواحل عمان سقوط کرد، توسط یک پهپاد ایرانی سرنگون شده است. در همین حال، یک منبع آگاه دیگر که از جزئیات حادثه مطلع است، در گفتگو با سی‌ان‌ان تایید کرد که یک پهپاد از نوع «شاهد» به این هلیکوپتر آمریکایی برخورد کرده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244573
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244573_1781038450.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهوری آمریکا، در تماس تلفنی با وال‌استریت ژورنال گفت محاصره دریایی جنوب ایران باعث شده جمهوری اسلامی «بسیار فقیر» شود.
+
+او افزود تا زمانی که لازم باشد این محاصره را ادامه خواهد داد.
+
+وال‌استریت ژورنال نوشت که حادثه سرنگونی بالگرد آپاچی در تنگه هرمز برای ترامپ «کم اهمیت» بوده است.
+این در حالی است که پیش‌تر ترامپ در تروث سوشال تاکید کرد که «ایالات متحده ناگزیر باید به این حمله پاسخ دهد.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244572
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244572_1781038451.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️حمیدرضا حاجی‌بابایی، نائب‌ رئیس مجلس شورای اسلامی، در واکنش به تهدیدهای اخیر دونالد ترامپ اعلام کرد: «دوران شعارهایی که آمریکا برای ایجاد رعب و وحشت مطرح می‌کند تمام شده است و اگر آمریکا کوچک‌ترین حمله نظامی به ایران بکند، تمام انرژی منطقه زیر رگبار موشک‌های ایران قرار خواهد گرفت و واشنگتن تا سال‌ها نفت، گاز و منافع خود را از دست خواهد داد.» حاجی‌بابایی با متهم کردن آمریکا به عبور از خطوط قرمز در طول دوره آتش‌بس، بر لزوم شکستن محاصره اقتصادی تأکید کرد و گفت: «ما از شروع جنگ توسط آمریکا استقبال می‌کنیم، زیرا وضعیت نه جنگ نه صلح، با فشارهای اقتصادی همراه است و به نفع ما نیست. خواسته ما یا پایان جنگ با تمام شروط رهبری است و در صورتی که ترامپ دستور حمله و از سرگیری جنگ را بدهد، نیروهای مسلح تکلیف خود را با آمریکا مشخص می‌کنند، چرا که واشنگتن به خوبی می‌داند جنگ با ایران خسارات جبران‌ناپذیری برایش خواهد داشت.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14183
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صدا و سیما : به جون مادرمون ما هلیکوپتر نزدیم اصلا امروز کلا نبودیم 🤣
+@withyashar
+</div>
+
+## WithYashar — post 14181
+
+<div align="center">
+  <a href="telegram/content/WithYashar_14181_1781038452.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## WithYashar — post 14180
+
+
+
+
+## WithYashar — post 14179
+
+
+
+
+## mwarmonitor — post 10552
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_10552_1781038455.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📌در پی شلیک‌هایی از لبنان، هشدار اولیه در بخش‌هایی از شمال اسرائیل صادر شده است.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10551
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 رسانه‌های اسرائیلی: سامانه‌های راهبردی در «اسرائیل» دستور دریافت کرده‌اند سطح آماده‌باش را در انتظار تشدید احتمالی تنش با ایران افزایش دهند.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10550
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📌بسیاری از اعضای سنای آمریکا گفته‌اند که معتقدند ایران به‌طور عمدی یک بالگرد AH-64 آپاچی متعلق به ارتش ایالات متحده را هدف قرار داده است و انتظار دارند در آینده‌ای نزدیک پاسخ آمریکا داده شود.
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 93073
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93073_1781038456.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رسانه‌های اسرائیل: ترامپ و نتانیاهو دقایقی پیش گفت‌و‌گوی تلفنی کردن!
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5513
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5513_1781038457.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🔸 خبر ۲۱
+سه‌شنبه ۱۹ خرداد ۱۴۰۵
+
+#خبر۲۱
+@DEJradio
+</div>
+
+## DEJradio — post 5512
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5512_1781038460.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺📢 چند منبع غیررسمی وابسته به سـ.ـپاه سه‌شنبه شب ۱۹ خرداد ۱۴۰۵ گزارش دادند نیروهای مسلح جمهوری اسلامی به حالت آماده باش درآمدند.
+پس از اعلام خبر سرنگونی هلیکوپتر آپاچی آمریکا در تنگه هرمز با اصابت پهپاد سـ.ـپاه دونالد ترامپ تهدید کرد این اقدام را تلافی خواهیم کرد.
+
+#تنگه_هرمز #IRGCterrorists
+@DEJradio
+</div>
+
+## IranIntlTV — post 341399
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341399_1781038461.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهوری آمریکا، در تماس تلفنی با وال‌استریت ژورنال گفت محاصره دریایی جنوب ایران باعث شده جمهوری اسلامی «بسیار فقیر» شود.
+
+او افزود تا زمانی که لازم باشد این محاصره را ادامه خواهد داد.
+
+وال‌استریت ژورنال نوشت که حادثه سرنگونی بالگرد آپاچی در تنگه هرمز برای ترامپ «کم اهمیت» بوده است.
+این در حالی است که پیش‌تر ترامپ در تروث سوشال تاکید کرد که «ایالات متحده ناگزیر باید به این حمله پاسخ دهد.»
+https://iranintl.com/202606096669
+</div>
+
+## IranIntlTV — post 341398
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341398_1781038462.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گارد ساحلی هند با انتشار ویدیوهایی از نجات ۲۴ خدمه هندی کشتی M/T Marivex خبر داد؛ کشتی‌ای که هدف شلیک ارتش آمریکا در آب‌های بین‌المللی خلیج عمان قرار گرفت.
+
+در پی این حمله، خدمه کشتی نیازمند کمک شدند و با همکاری مراکز نجات هند و عمان و توسط بالگردهای نیروی دریایی عمان به مکانی امن منتقل شدند.
+
+به گفته سنتکام، روز دوشنبه ۱۸ خرداد، یک جنگنده اف/ای-۱۸ مستقر بر ناو هواپیمابر آبراهام لینکلن، پس از آنکه خدمه این کشتی با پرچم پالائو در حال عبور از آب‌های بین‌المللی دریای عمان به‌سوی ایران بودند و از اجرای دستورات نیروهای آمریکایی خودداری کردند، یک مهمات هدایت‌شونده دقیق را به بخش‌های موتورخانه و سامانه هدایت کشتی شلیک کرد.
+@iranintltv
+</div>
+
+## Shin_Persian — post 6793
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Tue, 09 Jun 2026 20:51:38 UTC
+
+Jet activity over Basrah, #Iraq 🇮🇶
+
+فارسی
+
+فعالیت جت‌ها بر فراز بصره، #Iraq 🇮🇶
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 220164
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺واکنش‌ها در کنگره به حمله جمهوری اسلامی به هلی‌کوپتر آمریکایی؛ پت فالون خواستار واکنش ایالات متحده شد
+
+
+▪️سناتور جمهوری‌خواه تد کروز روز سه‌شنبه ۱۹ خرداد با اشاره به عملیات نجات خدمه هلی‌کوپتر آپاچی سرنگون‌شده توسط جمهوری اسلامی در دریای عمان، از «نوآوری‌های دریایی» ایالات متحده تجلیل کرد. این سناتور ایالت تگزاس با انتشار پستی در شبکه اجتماعی ایکس نوشت رژیم ایران یک هلی‌کوپتر آمریکایی را با دو خدمه آن سرنگون کرد. این دو سرباز در «یک ماموریت بی‌نظیر» توسط یک شناور سطحی بدون سرنشین از «شرکت فناوری‌های سارونیک» مستقر در آستین (واقع در ایالت تگزاس) نجات یافتند.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8159033.html
+@FarsiVOA
+</div>
+
+## alonews — post 126631
+
+<div align="center">
+  <a href="telegram/content/alonews_126631_1781038463.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢فوووووووووری/پرواز شدید جنگنده‌های آمریکایی در مرز ایران 
+🚨 @AkhbareFouri
+</div>
+
+## alonews — post 126630
+
+<div align="center">
+  <a href="telegram/content/alonews_126630_1781038464.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈شبکه خبر به نقل از منبع آگاه نظامی: هیچ عملیات نظامی هجومی هوایی در تنگه هرمز در ۲۴ ساعت گذشته انجام نشده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/20 00:13
 ---
 

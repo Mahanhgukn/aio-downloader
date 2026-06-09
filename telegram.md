@@ -7,6 +7,241 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/20 00:34
+---
+
+## VahidOOnLine — post 244575
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ورود یک سامانه ناپایدار جوی به آذربایجان شرقی، سبب وقوع بارش‌های سنگین باران، ریزش تگرگ و رعدوبرق‌های پیاپی در ارتفاعات سونگون ورزقان شد. بر اساس گزارش‌های محلی، شدت فعالیت این سامانه و ریزش تگرگ در برخی ارتفاعات این منطقه به حدی بوده است که سطح زمین در مدت زمانی کوتاه کاملا سفیدپوش شد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14187
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مسیج های زیاد از انفجار‌ در ‌سیریک
+@withyashar
+</div>
+
+## WithYashar — post 14186
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨🚨🚨🚨🚨🚨🚨
+</div>
+
+## WithYashar — post 14185
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ان بی سی : فرمانده سنتکام کلی اطلاعات به اعضای دو حزب ارائه داده که همه قانع شدن حمله ایران به هلیکوپتر اپاچی کاملا عمدی بوده و باید تلافی کنن
+@withyashar
+این اولین باره که دموکرات ها تایید میکنن حمله به ایرانو
+</div>
+
+## WithYashar — post 14184
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اتاق جنگ با شما : صداهای مشکوک اطراف اصفهان🚨
+@withyashar
+</div>
+
+## mwarmonitor — post 10553
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📌در پی شلیک‌هایی از لبنان، هشدار اولیه در بخش‌هایی از شمال اسرائیل صادر شده است. @mwarmonitor
+</div>
+
+## pm_afshaa — post 93075
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93075_1781039081.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ان‌بی‌سی نیوز:
+تو یک جلسه محرمانه بین برد کوپر، فرمانده سنتکام و سناتورها، چند سناتور گفتن به نظرشون ایران عمداً بالگرد آپاچی ارتش آمریکا رو هدف قرار داده و انتظار دارن آمریکا تو آینده نزدیک به این ماجرا پاسخ نظامی بده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93074
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93074_1781039082.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴این وسط حزب‌الله به کریات شیمونا اسرائیل حمله موشکی کرد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## VahidOnline — post 76109
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76109_1781039083.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری تسنیم، وابسته به سپاه پاسداران، به نقل از یک منبع آگاه نظامی نوشت: «در ۲۴ ساعت گذشته هیچ عملیات نظامی هجومی هوایی در تنگه هرمز انجام نشده است».
+@VahidOOnLine
+پیش‌تر:
+معاون وزیر خارجه جمهوری اسلامی ایران، روز سه‌شنبه، ۱۹ خردادماه، در گفتگو با «الجزیره» اعلام کرد که هلیکوپتر آپاچی ارتش ایالات متحده که روز گذشته در تنگه هرمز سقوط کرد، به طور عمدی توسط ایران هدف قرار نگرفته است.
+این مقام رسمی با تاکید بر اینکه ایران پشت این حمله نبوده، در عین حال هشدار داد که به دلیل شرایط به شدت ملتهب و متشنج منطقه، ممکن است بروز چنین حوادثی در این فضا «عمدی» تلقی و تعبیر شود.
+همزمان، دونالد ترامپ، رئیس‌جمهوری ایالات متحده، در گفتگوی تلفنی روز سه‌شنبه با روزنامه «وال‌استریت ژورنال» با کوچک جلوه دادن حادثه سقوط هلیکوپتر آپاچی گفت این اتفاق «مسئله چندان مهمی نبود» و تأکید کرد که «حال خلبان خوب است».
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 76107
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رئیس‌جمهوری ایالات متحده، در گفتگوی تلفنی روز سه‌شنبه با روزنامه «وال‌استریت ژورنال» با اشاره به اثرات شدید تحریم‌ها اعلام کرد که محاصره دریایی بنادر ایران باعث شده این کشور «بسیار فقیر» شود و واشنگتن این محاصره را تا هر زمان که لازم باشد حفظ خواهد کرد.
+ترامپ همچنین با کوچک جلوه دادن حادثه سقوط اخیر هلیکوپتر آپاچی آمریکا گفت این اتفاق «مسئله چندان مهمی نبود» و تأکید کرد که «حال خلبان خوب است».
+بر اساس گزارش سنتکام، سرنشینان این آپاچی پیش از نجات، دو ساعت را در تاریکی شب روی آب سپری کردند و یک مقام ارشد آمریکایی فرار آن‌ها از این سانحه را معجزه‌ای همچون «دست خدا» توصیف کرده است.
+@VahidOOnLine
+وال‌استریت ژورنال نوشت که حادثه سرنگونی بالگرد آپاچی در تنگه هرمز برای ترامپ «کم اهمیت» بوده است.
+این در حالی است که پیش‌تر ترامپ در تروث سوشال تاکید کرد که «ایالات متحده ناگزیر باید به این حمله پاسخ دهد.»
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 341400
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341400_1781039084.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻خبرگزاری رویترز به نقل از وزارت امنیت داخلی آمریکا روز سه‌شنبه گزارش داد که تیم فوتبال ایران که هم‌اکنون در تیخوانا مکزیک تمرین می‌کند، می‌تواند یک روز پیش از هر یک از سه مسابقه‌اش در جام جهانی۲۰۲۶ وارد خاک ایالات متحده شود.
+
+🔹پیش‌تر ابوالفضل پسندیده، سفیر جمهوری اسلامی در مکزیک، گفته بود که تیم ایران باید در همان روز مسابقه وارد آمریکا شود و همان روز نیز خاک این کشور را ترک کند. این اظهارات ابهام‌هایی درباره ورود و سفر تیم ملی و تاثیر احتمالی آن بر عملکرد تیم ایجاد کرده بود.
+
+🔹یک سخنگوی وزارت امنیت داخلی آمریکا گفت این ادعا که ایران مجبور خواهد بود در همان روز بازی وارد شود، درست نیست.
+
+🔹این سخنگو در بیانیه‌ای گفت: «این اظهارات نادرست است. به لطف سخاوت رئیس‌جمهور ترامپ، تیم ایران خواهد توانست یک روز پیش از مسابقات خود وارد شود.»
+
+🔹از سوی دیگر سخنگوی فدراسیون فوتبال امشب درباره حضور تیم ملی در آمریکا گفت: «تیم ملی براساس برنامه فیفا، با پرواز چارتر به آمریکا می‌رود. یک روز قبل بازی مقابل نیوزیلند تیم به محل می‌رود و در دو بازی بعد، دو روز قبل مسابقه در محل مسابقات حضور پیدا خواهد کرد.»
+
+@iranintltvsport
+</div>
+
+## FarsiVOA — post 220166
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️از نگرانی درباره قطع دوباره اینترنت در سایه فشار اقتصادی بر خانوارها و تنش‌های منطقه‌ای تا حکم اعدام علیرضا پیغمبری.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220165
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220165_1781039085.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️بی‌خانمانی در ایران، رفاه در لبنان؛ گفت‌وگو با مهدی کوهستانی‌نژاد
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 16338
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16338_1781039087.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در پی رصد حملات موشکی از لبنان، آژیرهای خطر در شمال اسرائیل فعال شد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16337
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16337_1781039088.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ابراهیم رضایی، سخنگوی کمیسیون امنیت ملی و سیاست خارجی: محاصره دریایی یک عملیات جنگی است، ما به آن پاسخ داده‌ایم و پاسخ خواهیم داد، این حق قطعی و مسلم ماست.
+
+اگر آمریکا بخواهد به سرنگونی بالگردی که بخشی از عملیات جنگی در محاصره ما بود واکنش نشان دهد، باید فرض کنیم که پاسخ ما قطعی است. ما به هر اقدامی با پاسخی سریع و قاطع پاسخ خواهیم داد.
+
+ما دست رزمنده ای را که با سرنگونی بالگرد آمریکایی در تنگه هرمز سیلی دیگری به شیطان زد (مانند شهید نادر مهدوی) می‌بوسیم و او را به عنوان یک قهرمان تجلیل خواهیم کرد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16336
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16336_1781039088.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صداوسیما از نقل منبع آگاه نظامی: هیچ عملیات نظامی هجومی هوایی در تنگه هرمز در 24 ساعت گذشته انجام نشده است.
+
+در صورت شرارت مجدد دشمن به بهانه سقوط یک بالگرد نظامی، با پاسخ قاطع روبرو خواهد شد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 21966
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21966_1781039089.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+زیرنویس شبکه‌ خبر:
+
+
+@IranianMinds
+</div>
+
+## alonews — post 126633
+
+<div align="center">
+  <a href="telegram/content/alonews_126633_1781039090.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حزب الله به شمال اسرائیل حمله کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126632
+
+<div align="center">
+  <a href="telegram/content/alonews_126632_1781039090.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈زیرنویس شبکه خبر
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/20 00:24
 ---
 

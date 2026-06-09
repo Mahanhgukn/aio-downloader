@@ -7,6 +7,270 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/20 00:53
+---
+
+## VahidOOnLine — post 244577
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244577_1781040187.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️خبرگزاری مهر به نقل از منابع محلی و ساکنان بندر سیریک در هرمزگان، سه‌شنبه‌شب، ۱۹ خردادماه، از شنیده شدن صدای چند انفجار در محدوده این شهرستان خبر دادند. بر اساس گزارش‌های منتشرشده، هنوز ماهیت و علت دقیق وقوع این صداها مشخص نشده است و تا این لحظه، هیچ‌یک از نهادهای رسمی، نظامی و انتظامی درباره این حادثه اظهارنظر یا توضیحی ارائه نکرده‌‌اند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244576
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244576_1781040188.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️العربیه، سه‌شنبه‌شب، ۱۹ خردادماه، به نقل از «منابع اسرائیلی» گزارش داد که دونالد ترامپ، رئیس جمهوری آمریکا و بنیامین نتانیاهو، نخست‌وزیر اسرائیل، درباره ایران و لبنان به صورت تلفنی گفتگو کردند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14193
+
+<div align="center">
+  <img src="telegram/content/WithYashar_14193_1781040189.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فوری : نیروهای سنتکام به دستور فرمانده کل، از ساعت ۵ عصر به وقت آمریکا، در پاسخ به ساقط شدن بالگرد آپاچی ارتش «حملات دفاعی» علیه ایران شروع کردن و این یه واکنش متقابل و متناسب به حمله ایران بوده.
+@withyashar
+</div>
+
+## WithYashar — post 14192
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨🚨🚨🚨🚨🚨🚨🚨
+</div>
+
+## WithYashar — post 14191
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش‌های غیر رسمی از هدف قرار گرفتن پایگاه شهید راهبر در میناب
+@withyashar
+</div>
+
+## mwarmonitor — post 10557
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💥تا این لحظه صدای ۴ انفجار شنیده شده است.
+</div>
+
+## mwarmonitor — post 10556
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💥تا این لحظه صدای ۴ انفجار شنیده شده است.
+</div>
+
+## pm_afshaa — post 93078
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93078_1781040189.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴طبق گزارشات، آمریکا به قشم حمله کرد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## VahidOnline — post 76110
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیام‌های دریافتی از ساعت ۰۰:۳۰
+
+صدای چندتا انفجار بزرگ پشت سرهم شهرستان سیریک
+
+وحید جون سیریک صدای انفجار اومد
+
+وحید بندرعباس صدای انفجار میاد
+
+چهارتا انفجار سیریک هرمزگان سه تای آخری کناره های ساحل
+
+وحید بندرعباس صدای انفجار اومد الان
+
+صدای سه تا انفجار شدید از سیریک
+
+📡 @VahidOnline
+</div>
+
+## Shin_Persian — post 6797
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Tue, 09 Jun 2026 21:18:54 UTC
+
+U.S. Central Command announces self-defense strikes against Iran, launched at 5 p.m. ET, in response to the downing of a U.S. Apache helicopter. The mission is a proportional response to Iranian aggression.
+
+Source: @CENTCOM
+https://x.com/CENTCOM/status/2064457103134343170
+
+فارسی
+
+فرماندهی مرکزی ایالات متحده (سنتکام) حملات دفاع از خود علیه ایران را که در ساعت ۵ بعد از ظهر به وقت منطقه زمانی شرقی در پاسخ به سرنگونی یک هلیکوپتر آپاچی آمریکایی آغاز شد، اعلام می‌کند. این مأموریت پاسخی متناسب به تجاوزات ایران است.
+
+منبع: @CENTCOM
+https://x.com/CENTCOM/status/2064457103134343170
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6796
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Tue, 09 Jun 2026 21:17:33 UTC
+
+U.S. Central Command says it launched self-defense strikes on Iran at 5 p.m. ET, responding to yesterday's downing of a U.S. Apache helicopter. The mission is a proportional response to unjustified Iranian aggression.
+
+فارسی
+
+ستاد فرماندهی مرکزی ایالات متحده (سنتکام/CENTCOM) اعلام کرد که در ساعت ۱۷:۰۰ به وقت منطقه زمانی شرقی (۲۲۰۰ زولو (۰۱:۳۰ به وقت تهران))، حملاتی را در قالب دفاع از خود علیه ایران آغاز کرده است؛ این اقدام در پاسخ به سرنگونی یک بالگرد آپاچی آمریکایی در روز گذشته صورت گرفت. این مأموریت، پاسخی متناسب به تجاوزات غیرموجه ایران است.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6795
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+U.S. Central Command ✓ @CENTCOM
+Tue, 09 Jun 2026 21:17:15 UTC
+
+U.S. Central Command (CENTCOM) forces began launching self-defense strikes against Iran, at 5 p.m. ET today at the Commander in Chief’s direction, in response to yesterday’s downing of a U.S. Army Apache helicopter. The mission is a proportional response to unjustified Iranian aggression.
+
+فارسی
+
+نیروهای ستاد فرماندهی مرکزی ایالات متحده (سنتکام) از ساعت ۵ عصر به وقت منطقه زمانی شرقی امروز، به دستور فرمانده کل قوا، حملات دفاع از خود را علیه ایران در پاسخ به سرنگونی روز گذشته یک هلیکوپتر آپاچی ارتش ایالات متحده آغاز کردند. این ماموریت پاسخی متناسب به تجاوزات غیرموجه ایران است.
+
+𝕏 · @shin_persian
+</div>
+
+## Iliaen — post 4463
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بامداد چهارشنبه؛ چند نقطه در جنوب هرمزگان (محدوده‌ی سیریک) و یک نقطه در اطراف بندرعباس هدف اصابت موشک قرار گرفت.
+
+“معمولاً ایالات متحده در جنوب ایران عملیات انجام می‌دهد.”
+
+@iliaen
+</div>
+
+## FarsiVOA — post 220167
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️نگاه کاربران شبکه‌های اجتماعی به جنگ، خاموشی دیجیتال و فشار معیشتی
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 16345
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سنتکام اعلام کرد که در واکنش به سرنگونی یک بالگرد AH-64 آپاچی در حال انجام حملاتی علیه ایران است. 📝 Amir 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16344
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16344_1781040190.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سنتکام اعلام کرد که در واکنش به سرنگونی یک بالگرد AH-64 آپاچی در حال انجام حملاتی علیه ایران است.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16343
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16343_1781040190.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اگر اتفاقات درست حسابی باشه دوباره لایو رو شروع میکنیم
+</div>
+
+## Persian_Trend_Official — post 16342
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لایو ... ⏳
+</div>
+
+## IranianMinds — post 21969
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دیگه جدی جدی زدن و شروع شد
+
+
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21968
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری/فرماندهی مرکزی ایالات متحده (سنتکام):
+نیروهای سنتکام، از ساعت ۵ بعدازظهر امروز به وقت شرق آمریکا، با دستور فرمانده کل قوا، حملات دفاعی-تهاجمی علیه ایران را آغاز کردند. این حملات در پاسخ به سرنگونی یک فروند بالگرد ارتش آمریکا در روز گذشته انجام می‌شود.
+
+ماموریت اعلام‌شده، پاسخی متناسب با تجاوز غیرقابل‌توجیه ایران است.
+
+
+@IranianMinds
+</div>
+
+## alonews — post 126641
+
+<div align="center">
+  <a href="telegram/content/alonews_126641_1781040191.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوووووووووووووووووووووووری
+</div>
+
+## alonews — post 126640
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوووووووووووووووووووووووری
+</div>
+
+## alonews — post 126639
+
+<div align="center">
+  <a href="telegram/content/alonews_126639_1781040191.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈صدای ۴انفجار در محدوده بندرعباس
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/20 00:45
 ---
 

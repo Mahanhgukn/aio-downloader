@@ -7,6 +7,152 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/19 16:03
+---
+
+## pm_afshaa — post 92997
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92997_1781008381.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴دونالد ترامپ: تنگه هرمز بلافاصله بعد از امضای توافق باز خواهد شد، که ممکنه در دو یا سه روز آینده باشه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92996
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92996_1781008382.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴شلیک مستقیم نیروهای طالبان به مردم معترض در شهر هرات :
+
++ طالبان میگه که اینا مردم نیستن و نیروهای تروریستی هستن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5505
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ علت سقوط بالگرد آپاچی در خلیج فارس هنوز روشن نیست
+
+سنتکام گزارش داد علت سقوط بالگرد آپاچی آمریکا که روز سه‌شنبه در نزدیکی سواحل عمان رخ داد، هنوز روشن نیست.
+ستاد فرماندهی مرکزی ارتش آمریکا اعلام کرد دو سرنشین این بالگرد که هنگام گشت‌زنی سقوط کرد، نجات یافته‌اند و وضعیت جسمانی آن‌ها پایدار است.
+پیش‌تر گزارش‌هایی از احتمال هدف گرفته شدن این بالگرد منتشر شده بود. سنتکام عصر سه‌شنبه گفت علت سانحه همچنان در دست بررسی است.
+
+#خبر #دژ #سقوط
+@DEJradio
+</div>
+
+## IranIntlTV — post 341328
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341328_1781008383.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک مقام ارشد کابینه امنیتی اسرائیل به وب‌سایت خبری وای‌نت گفت که این کشور به ارتش دستور داده «معادله‌ای را که در قبال حزب‌الله تعیین کرده حفظ کند.» او افزود: «هر زمان آتشی به سمت جوامع ما شلیک شود، ما ضاحیه را هدف قرار خواهیم داد و سپس خواهیم دید در ایران چه اتفاقی می‌افتد.»
+
+به نوشته وای‌نت، با وجود تهدیدهای جمهوری اسلامی، مقام‌های ارشد کابینه امنیتی اسرائیل در نشست تاکید کردند سیاست پاسخ این کشور در لبنان تغییر نخواهد کرد و هرگونه شلیک حزب‌الله به سوی شهرهای شمال اسرائیل با حمله به منطقه ضاحیه در بیروت پاسخ داده می‌شود.
+
+اعضای این کابینه گفتند هرگونه شلیک با هدف عبور از مرز به داخل اسرائیل به حمله ارتش اسرائیل به ضاحیه منجر خواهد شد، حتی اگر تهران نسبت به چنین اقدامی هشدار داده باشد.
+https://iranintl.com/202606097983
+</div>
+
+## Persian_Trend_Official — post 16269
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وضعیت فعلی صور !
+</div>
+
+## Persian_Trend_Official — post 16268
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16268_1781008383.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 اسرائیل از کشته شدن فرمانده یک سلول حماس در خان‌یونس خبر داد
+
+ارتش اسرائیل اعلام کرد مقر پلیس دریایی حماس در منطقه خان‌یونس را هدف قرار داده است. به ادعای تل‌آویو، این مرکز توسط شاخه نظامی حماس برای برنامه‌ریزی و اجرای عملیات علیه اسرائیل مورد استفاده قرار می‌گرفت.
+
+بر اساس بیانیه ارتش اسرائیل، در این حمله چندین عضو حماس از جمله «اسماعیل اللحام» فرمانده یک سلول در شاخه نظامی این گروه کشته شده‌اند.
+
+اسرائیل همچنین مدعی شد طی هفته گذشته سه انبار تسلیحاتی حماس در جنوب نوار غزه را منهدم کرده است. به گفته ارتش اسرائیل، نیروهایی که قصد انتقال تسلیحات از این مراکز را داشتند نیز هدف قرار گرفته‌اند و انفجارهای ثانویه پس از حملات، وجود مهمات در این انبارها را تأیید کرده است.
+
+تل‌آویو مدعی است این مراکز بخشی از تلاش حماس برای بازسازی توان نظامی خود پس از آتش‌بس بوده‌اند.
+
+
+👺Phantom
+
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 21918
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نسخه کامل سخنرانی در نشست امنیتی دریای سیاه (با زیرنویس فارسی)
+
+اودسا - اوکراین
+شنبه ۹ خرداد ۲۵۸۵/۱۴۰۵
+
+@OfficialRezaPahlavi
+</div>
+
+## Dirty_Kids — post 391456
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391456_1781008385.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+با اختلاف قشنگ‌ترین کلیپی که برای تیم ملی ساختن
+
+دست به دست کنید برسه به بازیکنان تیم ملی تا روحیه بگیرن 😂
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 126509
+
+<div align="center">
+  <a href="telegram/content/alonews_126509_1781008385.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈زبان ترکی به سوپر اپلیکیشن بله اضافه شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126508
+
+<div align="center">
+  <a href="telegram/content/alonews_126508_1781008386.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزیر خارجه بریتانیا: با عراقچی صحبت کردم و به او گفتم که از سرگیری درگیری به نفع هیچ‌کس نیست
+
+
+🔴 از اعلام توقف حملات متقابل ایران و اسرائیل استقبال می‌کنیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/19 15:52
 ---
 

@@ -7,6 +7,281 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/20 02:02
+---
+
+## WithYashar — post 14237
+
+<div align="center">
+  <a href="telegram/content/WithYashar_14237_1781044376.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مشاهده پهپادهای انتحاری‌ ایرانی در آسمان عراق
+@withyashar
+</div>
+
+## WithYashar — post 14236
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پولیتیکو به نقل از یک مقام ارشد در کاخ سفید: هیچ تغییری در شرایط بوجود نیامده و آتش بس کماکان ادامه دارد
+@withyashar
+</div>
+
+## WithYashar — post 14235
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ولی یه حمله شکی توش‌نیست حمله شما به دایرکت اتاق جنگ 😭🤣❤️‍🩹🙌🏾
+</div>
+
+## WithYashar — post 14234
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هم اکنون خاورمیانه: حملات آمریکا به ایران حملات اسرائیل به لبنان حملات پاکستان به افغانستان حملات ترکیه به عراق حملات ایران به بحرین و کویت @withyashar
+</div>
+
+## mwarmonitor — post 10571
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📌مایک جانسون، رئیس مجلس نمایندگان آمریکا، می‌گوید که او همین حالا از حملات علیه ایران مطلع شده و این حملات «ماهیت دفاعی» داشته‌اند.
+
+🔸جانسون گفت که او امروز زودتر در اتاق وضعیت (Situation Room) همراه ترامپ، ونس، روبیو، هگست و دیگران بوده است؛ جایی که موضوع ایران مورد بحث قرار گرفته بود. – Punchbowl
+
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10570
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴بر اساس ارزیابی‌های فعلی، اسرائیل هایوم گزارش می‌دهد که ایران در پاسخ به حملات آمریکا به این کشور، به کشورهای خلیج فارس حمله خواهد کرد.
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 93131
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93131_1781044377.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴اسرائیل هیوم:
+بر اساس ارزیابی‌های فعلی، جمهوری اسلامی در پاسخ به حملات آمریکا، به کشورهای خلیج فارس حمله خواهد کرد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93130
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93130_1781044378.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴جسی واترز، مجری فاکس نیوز:
+به نظر میاد یه پیشنهاد جدید رسیده و از واشنگتن خبر میرسه که آمریکایی‌ها فعلاً از این پیشنهاد و روند مذاکرات راضی هستن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93129
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+راحت تو تلگرام جنگ ۱۰ برابرِ حقیقته
+</div>
+
+## VahidOnline — post 76114
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76114_1781044378.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک مقام آمریکایی به سی‌ان‌ان گفت که حملات جدید سنتکام با قصد هشدار دادن به جمهوری اسلامی است.
+
+او گفت ایالات متحده معتقد است که این حملات مانع مذاکرات برای پایان دادن به جنگ نخواهد شد.
+@VahidHeadline
+
+📡 @VahidOnline
+</div>
+
+## FarsiVOA — post 220176
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220176_1781044379.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ساعاتی قبل از آغاز حملات نظامی سنتکام به مواضع جمهوری اسلامی در روز چهارشنبه به وقت تهران، عباس عراقچی، وزیر امور خارجه جمهوری اسلامی، هر چند به‌طور مستقیم به سرنگونی هلی‌کوپتر آپاچی آمریکایی اشاره نکرد، اما در یک پست کنایه‌آمیز در شبکه‌های اجتماعی به این حادثه اشاره کرد و از نیروهای خارجی خواست که منطقه را «برای کاهش خطر» ترک کنند.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220175
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220175_1781044379.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️یک مقام آمریکایی به سی‌ان‌ان گفت که حملات جدید سنتکام با قصد هشدار دادن به جمهوری اسلامی است.
+
+او گفت ایالات متحده معتقد است که این حملات مانع مذاکرات برای پایان دادن به جنگ نخواهد شد.
+
+ستاد فرماندهی مرکزی آمریکا، این حملات را «پاسخی متناسب به تجاوز ناموجه» جمهوری اسلامی توصیف کرد و گفت این حملات به دستور رئیس‌جمهوری آمریکا آغاز شد.
+@FarsiVOA
+</div>
+
+## DW_Farsi — post 125742
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125742_1781044379.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 سنتکام: آمریکا حملاتی دفاعی علیه ایران انجام داد
+
+فرماندهی مرکزی ایالات متحده (سنتکام) اعلام کرد، نیروهای آمریکایی در واکنش به حمله ایران به یک بالگرد ارتش آمریکا، حملات موسوم به "دفاع از خود" را آغاز کرده‌اند.
+
+به گفته سنتکام، این حملات از ساعت ۵ بعدازظهر به وقت شرق آمریکا (ET) آغاز شده است.
+
+در پی سرنگونی یک فروند بالگرد نظامی ایالات متحده در جریان منازعه با ایران، دونالد ترامپ از اقدام تلافی‌جویانه واشنگتن خبر داده بود.
+
+ترامپ روز سه‌شنبه، ۹ ژوئن طی پیام در شبکه اجتماعی تروث سوشال اعلام کرده بود، به او گزارش شده است، "ایرانی‌ها شب گذشته یکی از هلی‌کوپترهای بسیار پیشرفته آپاچی ما را در حال گشت‌زنی در تنگه هرمز سرنگون کرده‌اند".
+
+رئیس‌جمهور آمریکا گفته بود، با وجود اینکه خلبانان این پرواز آسیبی ندیده‌اند اما ایالات متحده "به ناچار باید به این حمله پاسخ دهد".
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 16395
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16395_1781044380.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ وضعیت امشب خاورمیانه:
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16394
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16394_1781044381.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ علی قلهکی: آمریکا امشب حداقل به ۳ شهر جنوبِ ایران، به تلافیِ «سقوط آپاچیِ» اش بر فراز تنگه هرمز (به استعداد لااقل ۱۵ اصابت)، حمله کرده است. قاعدتاً دیگر آتش‌بس نقض شده است؛ ایران لازم است پاسخِ هم‌سطحی را به این اقدام بدهد. برآوردم این است که سنگین‌ترین پاسخِ ایران _پس از آتش بسِ اخیر_ به آمریکا داده خواهد شد!
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 22009
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 مایک جانسون، رئیس مجلس نمایندگان آمریکا :
+
+حملات ما ماهیت دفاعی داشت فقط و آتش بس نقض نشده و برقراره.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 283277
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻 چه نقاطی مورد حمله هوایی آمریکا قرار گرفته است؟
+
+سنتکام ساعت آغاز حمله خود در واکنش به ساقط شدن بالگرد آپاچی ارتش آمریکا را ۵ عصر به وقت واشنگتن در شرق ایالات متحده اعلام کرده است یعنی حدود ۳۰ دقیقه بامداد به وقت تهران.
+
+در یک ساعت گذشته خبرگزاری‌های داخل ایران شنیدن صدای انفجار یا هدف قرار گرفتن این نقاط را در پی این حملات آمریکا گزارش کرده اند:
+
+خبرگزاری فارس: صدای چند انفجار در مناطق شرقی هرمزگان از جمله در کوهستک و سیریک و میناب
+
+خبرگزاری تسنیم از صدای ۶ انفجار در سیریک، جزیره قشم و میناب خبر داده است
+
+گزارشی از هم هدف قرار گرفتن نقاطی در جاسک و کوه مبارک در شرق استان هرمزگان منتشر شده است.
+
+https://bbc.in/3S256Q0
+@BBCPersian
+</div>
+
+## BBCPersian — post 283276
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻 تسنیم: ایران به تجاوز آمریکا پاسخ خواهد داد
+
+خبرگزاری تسنیم نزدیک به سپاه پاسداران ضمن تایید هدف قرار گرفتن نقاطی در جنوب ایران طی حملات نظامی آمریکا در دقایق گذشته، بدون اشاره به نام مقام یا نهاد رسمی نوشته است: «ایران همچنان که ساعاتی پیش نیز هشدار داده، پاسخ قطعی به تجاوز آمریکا که به بهانه سقوط هلیکوپتر آپاچی انجام می‌شود، خواهد داد.»
+
+https://bbc.in/4vyPXE9
+@BBCPersian
+</div>
+
+## BBCPersian — post 283275
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283275_1781044382.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻دونالد ترامپ، رئیس‌جمهور آمریکا، گفته است که پاسخ دادن ایالات متحده به سرنگونی هلی‌کوپتر «بسیار مهم» است.
+
+خبرنگار شبکه تلویزیونی ای‌بی‌سی گفته در حال مصاحبه تلفنی با آقای ترامپ بود که سنتکام انجام عملیات علیه ایران را اعلام کرد و رئیس‌جمهور آمریکا به او گفته: «آنها یک هلیکوپتر را سرنگون کردند و ما همین الان در حال پاسخ دادن هستیم.»
+
+او افزود: «این پاسخ به کاری است که آنها دیشب با هلی‌کوپتر ما انجام دادند و من معتقدم که این پاسخ باید بسیار قوی و قدرتمند باشد و این پاسخ هم همینگونه است.»
+📷Reuters
+https://bbc.in/4ot0zlN
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 391533
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391533_1781044382.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وضعیت الان در خاورمیانه:
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391532
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+میگن ترکیه هم به شمال عراق حمله کرده عربستان هم به یمن
+یعنی یه خاوری میانه همست
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 126672
+
+<div align="center">
+  <a href="telegram/content/alonews_126672_1781044383.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کاخ سفید: ما معتقدیم توافق با ایران بسیار نزدیک است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/20 01:53
 ---
 

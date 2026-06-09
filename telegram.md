@@ -7,6 +7,338 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/20 03:02
+---
+
+## VahidOOnLine — post 244596
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244596_1781047962.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️جی‌دی ونس، معاون رئیس‌جمهوری آمریکا به العربیه گفت که فکر می‌کند آمریکا به توافق با ایران خیلی نزدیک است و این توافق می‌تواند هفته دیگر انجام شود یا ماه‌های دیگر. او گفت این توافق برای اقتصاد آمریکا خوب است و برنامه هسته‌ای ایران را نیز برای طولانی‌ مدت مدیریت می‌کند. او در پاسخ به مجری که از او پرسید آیا توافق قبل از انتخابات میان‌دوره‌ای آمریکا (نوامبر) ممکن است، گفت: کاملا.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244595
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244595_1781047963.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پولیتیکو به نقل از یک مقام کاخ سفید گزارش داد دونالد ترامپ، رییس‌جمهوری آمریکا، معتقد است با وجود موج جدید حملات تلافی‌جویانه آمریکا به اهدافی در جنوب ایران، توافق با جمهوری اسلامی نزدیک است.
+ارتش آمریکا در بامداد چهارشنبه اعلام کرد در پاسخ به اقدام جمهوری اسلامی در سرنگون کردن یک بالگرد آمریکایی، دور جدیدی از حمله‌ها را علیه حکومت ایران انجام داده است. رسانه‌های آمریکایی به نقل از یک مقام ایالات‌متحده گزارش دادند در این حمله‌ها سامانه‌های پدافند هوایی و راداری جمهوری اسلامی از جمله اهداف بوده‌اند.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14251
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش انفجار در قشم
+@withyashar
+</div>
+
+## WithYashar — post 14250
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال 12 اسرائیل: در موج دوم حمله‌ها به ایران، آمریکا داره پدافندهای هوایی و رادارها رو هم هدف حمله قرار میده.
+@withyashar
+</div>
+
+## WithYashar — post 14249
+
+<div align="center">
+  <img src="telegram/content/WithYashar_14249_1781047963.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فاکس نیوز : بر اساس اعلام مقامات نیروی دریایی آمریکا، نزدیک به ۲۰ هزار ملوان و تفنگدار دریایی آمریکایی در حال حاضر در دریا و مستقر بر روی دو ناو هواپیمابر «یواس‌اس آبراهام لینکلن» و «یواس‌اس جرج اچ. دابلیو. بوش» هستند؛ به‌همراه ۱۸ ناوشکن مجهز به موشک‌های هدایت‌شونده، یگان اعزامی سی‌ویکم تفنگداران دریایی، و بیش از دوازده اسکادران هوایی.
+این تجهیزات و نیروها در مناطق مختلفی از جمله شرق مدیترانه، دریای سرخ، شمال دریای عرب و دریای عرب پراکنده شده‌اند؛ جایی که نیروهای آمریکایی در حال کمک به دفاع از اسرائیل، مقابله با تهدیدات حوثی‌ها، انجام عملیات مرتبط با ایران، و حمایت از امنیت دریانوردی در اطراف تنگه هرمز هستند.
+این نیروی دریایی بخشی از حدود ۵۰ هزار نیروی نظامی آمریکاست که در حال حاضر در سراسر خاورمیانه مستقر هستند.
+@withyashar
+</div>
+
+## pm_afshaa — post 93158
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این نوع حمله‌های اخیر اسرائیل و امشبِ آمریکا فقط خبر از جنگ بزرگ‌تر در آینده میده. از اول آتش‌بس تا الان ۹۰ درصد سامانه‌های پدافند دفاعی و راداری زدن
+</div>
+
+## pm_afshaa — post 93157
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این نوع حمله‌های اخیر اسرائیل و امشبِ آمریکا فقط خبر از جنگ بزرگ‌تر در آینده میده.
+
+از اول آتش‌بس تا الان ۹۰ درصد سامانه‌های پدافند دفاعی و راداری زدن
+</div>
+
+## pm_afshaa — post 93156
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+موج دوم حملات به قشم و بندرعباس 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93155
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+موج دوم حملات به قشم و بندرعباس
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93154
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش‌هایی از انفجار در قشم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93153
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93153_1781047964.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴باراک راوید، خبرنگار آکسیوس: دفاع هوایی و رادارها اهداف حمله هستن. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93152
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93152_1781047964.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴باراک راوید، خبرنگار آکسیوس: دفاع هوایی و رادارها اهداف حمله هستن. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## mamlekate — post 103655
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 آمریکا در واکنش به سرنگونی هلیکوپتر آپاچی جنوب ایران را هدف قرار داد؛ سپاه به اهدافی در منطقه حمله کرد
+
+@mamlekate
+</div>
+
+## IranIntlTV — post 341422
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341422_1781047965.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سمیرا، مادر جاویدنام سودا اکرمی‌فرد: ما آگاهانه رفتیم بیرون...
+
+«یک ایران صدای شما را می‌شنود»
+
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+
+از تلویزیون ایران‌اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+
+https://youtu.be/YTeRZTbJT3s
+@iranintltv
+</div>
+
+## IranIntlTV — post 341421
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341421_1781047967.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سجاد از شیراز: بچه‌های میناب رو کی کشت؟ هلیکوپتری رو هم که زدند، نوش جون جمهوری اسلامی!
+
+«یک ایران صدای شما را می‌شنود»
+
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+
+از تلویزیون ایران‌اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+
+https://youtu.be/YTeRZTbJT3s
+@iranintltv
+</div>
+
+## IranIntlTV — post 341420
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341420_1781047968.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جمهوری اسلامی؛ استاد عادی‌سازی بحراناز «چرا گران شد؟» تا «چقدر گران شد؟»
+
+در جمهوری اسلامی، بسیاری از بحران‌ها به‌جای حل شدن، به وضعیت عادی تبدیل شده‌اند. امروز کمتر کسی می‌پرسد چرا تورم وجود دارد؛ سؤال این است که قیمت‌ها چقدر گران‌تر شده‌اند. کمتر کسی از قطعی برق، فیلترینگ یا کمبودها تعجب می‌کند؛ مردم فقط یاد گرفته‌اند چگونه با آن‌ها کنار بیایند.
+
+از گرانی گوشت و مسکن گرفته تا خاموشی‌ها، مهاجرت و محدودیت‌های اینترنت، بسیاری از مشکلاتی که روزی بحران تلقی می‌شدند، امروز به بخشی از زندگی روزمره تبدیل شده‌اند.
+
+کامبیز حسینی در این مونولوگ از «برنامه» به پدیده عادی‌سازی بحران در جمهوری اسلامی و پیامدهای آن برای جامعه ایران می‌پردازد.
+
+«یک ایران صدای شما را می‌شنود»
+
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+
+https://youtu.be/YTeRZTbJT3s
+@iranintltv
+</div>
+
+## FarsiVOA — post 220184
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️تشکل «دانشجویان پیشرو» همزمان با بازگشت دسترسی به اینترنت پس از سه ماه محدودیت، با انتقاد از سیاست‌های حکومت بر تداوم فعالیت‌های مدنی و ادامه مسیر «زن، زندگی، آزادی» تأکید کرد.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220183
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220183_1781047970.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️سرکوب در ایران؛ احضار سینماگران منتقد به دادسرای فرهنگ و رسانه؛ گفت‌وگو با محمود امیری‌مقدم
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220182
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺دادگاهی در آمریکا «حاجی نجیب‌الله» یک فرمانده پیشین طالبان را به ۴۲ سال زندان محکوم کرد
+
+▪️دادگاهی در نیویورک یک فرمانده پیشین طالبان را به جرم گروگان‌گیری و حمایت مالی از اقدامات تروریستی منجر به مرگ، به ۴۲ سال زندان محکوم شد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8159064.html
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 16408
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16408_1781047970.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بیانیه سخنگوی قرارگاه خاتم الانبیا به زودی
+
+📝 Nick
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16407
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16407_1781047971.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+باراک راوید به نقل از چند منبع امریکایی، هدف دور جدید حملات آمریکا را سیستم های راداری و پدافندی اعلام کرد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16406
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فاکس نیوز به نقل از یک مقام آمریکایی مدعی ادامه حملات آمریکا به برخی مناطق جنوبی ایران شد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## BBCPersian — post 283283
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻شنیده شدن مجدد صداهای انفجار در جاسک
+
+خبرگزاری صداوسیما گزارش کرده که لحظاتی پیش مجددا صدای انفجار در محدوده شهرستان جاسک در استان هرمزگان شنیده شده است.
+
+پیش‌تر حملات به بندر جاسک و کوه مبارک تایید شده بود و این دومین موج از صداهای انفجار از آغازین ساعات بامداد چهارشنبه ۲۰ خرداد ماه است.
+
+گزارش‌هایی از موج دوم حملات هوایی آمریکا منتشر شده اما سنتکام که مدیریت جنگ با ایران را در منطقه در دست دارد هنوز اطلاعیه جدیدی در این باره منتشر نکرده است.
+
+در همین حال خبرگزاری‌های رسمی در ایران با انتشار تصاویر ویدیویی مشابهی از مشاهده پهپادهای انتحاری ایران در آسمان عراق خبر می‌دهند.
+
+خبرگزاری فارس نزدیک به سپاه پاسداران به همراه انتشار این تصاویر نوشته: «پهپادها در آسمان عراق درحال رفتن به‌سمت اهداف خود هستند.»
+
+https://bbc.in/3Q6UZcc
+@BBCPersian
+</div>
+
+## BBCPersian — post 283282
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻رئیس مجلس نمایندگان آمریکا: حمله محدود و متناسب بود
+
+مایک جانسون، رئیس مجلس نمایندگان کنگره آمریکا به شبکه فاکس نیوز گفته هنگام آغاز عملیات نظامی ارتش این کشور در واکنش به ساقط شدن یک بالگرد آپاچی آمریکا، در اتاق بحران کاخ سفید حضور داشته و شاهد مدیریت این عملیات بوده است.
+
+آقای جانسون گفته از نظر او این عملیات «محدود و متناسب» بوده و طی آن رادارها و مقرهای فرماندهی و موشکی هدف قرار گرفته است.
+
+https://bbc.in/3Q6UZcc
+@BBCPersian
+</div>
+
+## BBCPersian — post 283281
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻ایران می‌گوید دو مخزن آب در سیریک هدف قرار گرفته است
+
+خبرگزاری های رسمی ایران می‌گویند در جریان حملات بامداد چهارشنبه آمریکا به هیچ بندر تجاری در جزیره قشم آسیب وارد نشده اما دو مخزن آب در سیریک هدف قرار گرفته است.
+
+فرماندار شهرستان میناب در جنوب ایران گفته است: «تا این لحظه حمله‌ای به شهر (میناب) گزارش نشده است.»
+
+خبرگزاری مهر بر همین اساس نوشته است انفجارهای شنیده شده در یک ساعت گذشته «مربوط به نوار ساحلی و نه خود شهرستان (میناب) بوده است.»
+
+
+https://bbc.in/3Q6UZcc
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 391543
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آکسیوس: موج دوم حملات آمریکا به جنوب ایران آغاز شده.
+</div>
+
+---
 📅 بروزرسانی: 1405/03/20 02:53
 ---
 

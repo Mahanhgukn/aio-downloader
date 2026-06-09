@@ -7,6 +7,212 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/19 16:42
+---
+
+## DEJradio — post 5506
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5506_1781010764.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🔸 اشکان خطیبی؛ روی صحنه برای روایت درد ایران
+
+گزارش: آنوشا کرات
+
+#اشکان_خطیبی #کانادا
+@DEJradio
+</div>
+
+## IranIntlTV — post 341334
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341334_1781010766.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اطلاعات رسیده به ایران‌اینترنشنال حاکی است فرزانه ساسانی‌پور، ۴۲ ساله و مادر دو فرزند، در جریان اعتراضات دی‌ماه در کوه‌چنار استان فارس، هنگام کمک به مجروحان، با شلیک گلوله ماموران حکومتی جان باخته است.
+
+جزییات بیشتر با فرنوش فرجی، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 341333
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341333_1781010768.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مسعود پزشکیان همزمان با روز جهانی محیط‌زیست بر ضرورت حفاظت از آن به عنوان یک مسئولیت همگانی تاکید کرد. این اظهارات با واکنش گسترده کاربران شبکه‌های اجتماعی همراه شد.
+
+آیه دریس، عضو تحریریه ایران‌اینترنشنال، از واکنش کاربران می‌گوید
+@iranintltv
+</div>
+
+## FarsiVOA — post 220114
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220114_1781010769.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرماندهی مرکزی ایالات متحده، سنتکام، اعلام کرد دریاسالار برد کوپر، فرمانده این نهاد، روز دوشنبه ۱‍۸ خرداد در واشنگتن درباره اولویت‌های عملیاتی نظامی آمریکا در خاورمیانه به کمیته فرعی دفاع کمیته تخصیص بودجه مجلس نمایندگان گزارش داده است.
+
+به گفته سنتکام، او همچنین قرار است روز سه‌شنبه ۱۹ خرداد به اعضای کمیته مربوطه در سنای آمریکا نیز گزارش ارائه دهد.
+
+این نشست‌ها پس از جلسات علنی ماه گذشته با کمیته‌های نیروهای مسلح کنگره برگزار می‌شود.
+
+@FarsiVOA
+</div>
+
+## Dirty_Kids — post 391459
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391459_1781010770.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کادوی "ساشا سبحانی" به دوست دخترش!
+
+پسر سفیر سابق ایران در ونزوئلا در حالی که سوار بر یک قایق تفریحی در موناکو است، به دوست دخترش یک ساعت طلای « اودمار پیگه» به ​​ارزش ده‌ها هزار دلار هدیه می‌دهد!
+
+این در حالی که یه ایرانی درآمد روزانه اش ۳ دلار است!
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391458
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391458_1781010772.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+توی هند ایدز به شدت افزایش یافته و دو برابر شده! حالا علتش چیه؟
+
+رابطه جنسی آقایون🏳‍🌈 با همدیگه به شدت افزایش یافته و ۲ برابر شده.
+توی سراسر جهان آمار گی به شدت زیاد شده و پسرا جدیدا با رفیقاشون نیازشون رو برطرف میکنن!
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391457
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391457_1781010772.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آخوند داره سقوط میکنه، اما این جنده‌های مستقل و سانتیمانتال دهاتی نمی‌ذارن.
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 126525
+
+<div align="center">
+  <a href="telegram/content/alonews_126525_1781010773.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خان میرزا بلاگر ایرانی در حمله آمریکا به عراق کشته شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126524
+
+<div align="center">
+  <a href="telegram/content/alonews_126524_1781010773.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚫
+🏆 به دنیای هیجان‌انگیز فوتبال خوش اومدی!
+
+
+⭐️اینجا قراره باهم لحظه‌به‌لحظه‌ی جام جهانی رو زندگی کنیم؛
+از بازی‌های حساس و نتایج داغ گرفته تا حاشیه‌ها، کری‌خونی‌ها و اتفاقاتی که همه درباره‌ش حرف میزنن! 
+🔥
+🔥
+
+
+✅ پوشش کامل مسابقات
+
+💀ترول تیم‌ها و بازیکن‌ها
+
+🎥ویدیوها و لحظه‌های فان فوتبالی
+
+📊آمار، ترکیب‌ها و اخبار فوری
+
+🌍حواشی جذاب از سراسر جام جهانی
+
+
+📢اینجا فقط یک کانال خبری نیست؛
+یک جمع فوتبالیه برای کسایی که فوتبال رو با هیجان، شوخی و احساس واقعی دنبال میکنن 
+📛
+💟
+
+
+🆘
+🔞 آماده باش چون قراره جام جهانی رو متفاوت تجربه کنیم!
+
+
+⚡ @Vaarzesh_Plus
+
+⚡ @Vaarzesh_Plus
+</div>
+
+## alonews — post 126523
+
+<div align="center">
+  <a href="telegram/content/alonews_126523_1781010773.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / اسکای نیوز: ایران یه پیش‌نویس جدید برای آمریکا فرستاده و گزارش‌های اولیه نشون می‌ده طرف آمریکایی اون رو قابل قبول می‌دونه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126522
+
+<div align="center">
+  <a href="telegram/content/alonews_126522_1781010773.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حزب‌الله ادعا می‌کند که با حمله پهپادی به ساختمانی در تلات الصلعة در شهر قنطرة در جنوب لبنان، یک نیروی اسرائیلی را هدف قرار داده است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126521
+
+<div align="center">
+  <a href="telegram/content/alonews_126521_1781010774.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈یک حمله هوایی اسرائیل به شهر عین بعال در منطقه صور در جنوب لبنان هدف قرار گرفت
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126519
+
+<div align="center">
+  <a href="telegram/content/alonews_126519_1781010774.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترکیه و عربستان برای بازسازی خط آهن مشهور حجاز به توافق رسیده‌اند
+
+
+🔴قرار است این مسیر ریلی به عمان و بنادر اقیانوسی نیز متصل شود تا به گونه‌ای برای دور زدن تنگه هرمز هم مورد استفاده قرار گیرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/19 16:33
 ---
 

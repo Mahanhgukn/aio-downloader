@@ -7,6 +7,77 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/19 09:33
+---
+
+## RadioFarda — post 158078
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_158078_1780984986.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸روزنامه نیویورک تایمز به نقل از دو منبع آگاه گزارش داد که یک بالگرد تهاجمی آپاچی ارتش آمریکا روز دوشنبه ۱۸ خرداد در نزدیکی تنگه هرمز سقوط کرد، اما دو سرنشین آن به سلامت نجات یافتند.
+
+🔸بر اساس این گزارش، هنوز مشخص نیست که این بالگرد بر اثر آتش نیروهای ایرانی سرنگون شده، دچار نقص فنی شده یا با مشکل دیگری روبه‌رو بوده است.
+
+🔸پس از انتشار این گزارش، دونالد ترامپ، رئیس‌جمهور آمریکا نیز این خبر را تأیید و اعلام کرد ایالات متحده امروز گزارشی درباره این حادثه منتشر خواهد کرد.
+
+@RadioFarda
+</div>
+
+## alonews — post 126426
+
+<div align="center">
+  <a href="telegram/content/alonews_126426_1780984987.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈معاون رئیس جمهور امریکا، با تأکید بر اولویت منافع ملی ایالات متحده، اعلام کرد: واشنگتن به دنبال دستیابی به یک حل و فصل پایدار و طولانی‌مدت در موضوع هسته‌ای ایران است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126425
+
+<div align="center">
+  <a href="telegram/content/alonews_126425_1780984987.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 چندین حمله اسرائیلی در جنوب لبنان، در مناطق اطراف صور گزارش شده است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126424
+
+<div align="center">
+  <a href="telegram/content/alonews_126424_1780984989.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈منابع لبنانی از دو حمله جنگنده‌های اسرائیلی به شهر النبطیه در جنوب لبنان خبر دادند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126423
+
+<div align="center">
+  <a href="telegram/content/alonews_126423_1780984990.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نیویورک تایمز به نقل از منابعی:
+یک فروند بالگرد نظامی آمریکا دیروز دوشنبه در نزدیکی تنگه هرمز سقوط کرد و خدمه آن به سلامت نجات یافتند.
+
+
+🔴هنوز مشخص نیست که آیا این بالگرد توسط آتش (پدافندی)‌ ایران سرنگون شده یا دچار نقص فنی شده است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/19 09:22
 ---
 

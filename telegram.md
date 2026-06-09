@@ -7,6 +7,110 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/20 02:33
+---
+
+## WithYashar — post 14244
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فارس جوگیر شد و گزارش کرد :
+
+گروه هکری حنظله: مختصات تمام نیروهای نظامی تروریستی آمریکا در کشورهای خلیج‌فارس به سپاه پاسداران انقلاب اسلامی منتقل شد.
+
+به‌زودی به پهپادهای شاهد-۱۳۶ «خوش‌آمد» خواهید گفت.
+
+شما بازی را شروع کردید؛ ما تعیین می‌کنیم چگونه پایان یابد.
+@withyashar
+</div>
+
+## pm_afshaa — post 93140
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93140_1781046206.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نیویورک تایمز: حملات هوایی آمریکا به پایگاه‌های نظامی و دریایی، تأسیسات راداری و باتری‌های موشکی در 5 مکان در سواحل جنوبی ایران، از جمله موارد زیر، هدف قرار گرفتن: پایگاه‌های دریایی در سیریک و جاسک و سایت‌های دفاع هوایی در بندرعباس باتری‌های موشکی در قشم.…
+</div>
+
+## FarsiVOA — post 220178
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220178_1781046207.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️عباس عراقچی، وزیر خارجه جمهوری اسلامی، دقایقی قبل در شبکه اجتماعی ایکس، نوشت که نیروهای جمهوری اسلامی «هیچ حمله‌ای و تهدیدی را بی‌پاسخ نمی‌گذارند.» جمهوری اسلامی بارها در واکنش به حملات نیروهای اسرائيلی و آمریکایی، همسایگان ایران را هدف قرار داده است.
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 16401
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16401_1781046207.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇰🇷🇰🇵 همین مونده امشب کیم جونگ اون به کره جنوبی اعلام جنگ کنه. 🗿
+
+📝 Nick
+</div>
+
+## Persian_Trend_Official — post 16400
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌⭕️ فارس:
+
+🔴 گروه هکری حنظله: مختصات تمام نیروهای نظامی تروریستی آمریکا در کشورهای خلیج‌فارس به سپاه پاسداران انقلاب اسلامی منتقل شد.
+
+🔹به‌زودی به پهپادهای شاهد-۱۳۶ «خوش‌آمد» خواهید گفت.
+
+🔹شما بازی را شروع کردید؛ ما تعیین می‌کنیم چگونه پایان یابد.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 22013
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+با هر ی دونه موشک مدت زمان حضور رهبر در یخچال ۱۰۰ روز‌ تمدید میشه.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22012
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 سی بی اس نیوز :
+
+اهداف حملات آمریکا در ایران شامل سایت‌های راداری بوده است.
+
+این حملات در چارچوب پاسخ نظامی واشنگتن به تنش‌های اخیر انجام شده است.
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 391540
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عراقچی آمریکا رو تهدید کرده سفت
+میگه اگه میخوای سالم بمونی اینجارو ترک کن :)))
+آقای ترامپ ببین به کجا رسوندی کارو که عراقچی که زیپشو نمیتونه ببنده هم تهدیدت میکنه :))))
+</div>
+
+## Dirty_Kids — post 391539
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تخلیه فوری اسکله جاسک
+</div>
+
+---
 📅 بروزرسانی: 1405/03/20 02:23
 ---
 

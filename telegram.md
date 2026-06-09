@@ -7,6 +7,336 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/20 01:42
+---
+
+## VahidOOnLine — post 244588
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244588_1781043171.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فاکس نیوز به نقل از یک مقام آمریکایی گزارش داد که حملات آمریکا به جمهوری اسلامی ادامه دارد و اهداف شامل سامانه‌های پدافند هوایی و رادار است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244587
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244587_1781043171.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️همزمان با آغاز حملات ارتش ایالات متحده علیه ایران در پاسخ به سرنگونی هلیکوپتر آپاچی آمریکا، رسانه‌های داخلی از حملات به قشم، سیریک، جاسک، کوه مبارک، بندرعباس و میناب در جنوب ایران خبر می‌دهند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14228
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هم اکنون حملات ترکیه به شمال عراق
+@withyashar
+</div>
+
+## WithYashar — post 14227
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اتاق جنگ با یاشار : خدای من و شما شاهد است که هیچ ردبولی رو بیهوده حروم نکردم 🤣✌🏾
+@withyashar
+</div>
+
+## WithYashar — post 14226
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مقام ارشد آمریکایی به باراک راوید خبرنگار آکسیوس: عملیات ادامه داره و آماده‌ایم برای چندین حمله دیگه.
+@withyashar
+</div>
+
+## WithYashar — post 14225
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش انفجار در اهواز. @withyashar
+</div>
+
+## FoxNewsTwitter — post 342777
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342777_1781043172.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: The airstrikes against Iran are "ongoing," a U.S. official says. @JenGriffinFNC reports.
+</div>
+
+## pm_afshaa — post 93122
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93122_1781043173.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴صداوسیما: برخی کانال‌ها (فارس) از حمله به نقطه‌ای در میناب خبر دادن که پیکیری خبرنگار ما از فرماندار میناب نشون میده تا این لحظه حمله‌ای به شهر گزارش نشده!
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93121
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سپاه هنوز نزده اخبار انفجار در بحرین کسشره
+</div>
+
+## pm_afshaa — post 93120
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سپاه هنوز نزده اخبار انفجار در بحرین کسشره
+</div>
+
+## pm_afshaa — post 93119
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴یک مقام ارشد آمریکایی به باراک راوید خبرنگار آکسیوس: عملیات ادامه داره و آماده‌ایم برای چندین حمله دیگه. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93118
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴یک مقام ارشد آمریکایی به باراک راوید خبرنگار آکسیوس: عملیات ادامه داره و آماده‌ایم برای چندین حمله دیگه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## VahidOnline — post 76113
+
+<div align="center">
+  <a href="telegram/content/VahidOnline_76113_1781043174.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فاکس نیوز به نقل از یک مقام آمریکایی گزارش داد که حملات آمریکا به جمهوری اسلامی ادامه دارد و اهداف شامل سامانه‌های پدافند هوایی و رادار است.
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## kianmeli1 — post 87827
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏⁧🔴فوری⁩
+
+‏برخی رسانەهای عربی از فعالیت سامانەهای پدافندی در کویت و بحرین خبر میدهند
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87826
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری
+
+یک مقام ارشد آمریکایی: عملیات ادامه دارد.
+آماده یک سری حملات بیشتر هستیم./اکسیوس
+
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 341411
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/341411" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی سیاست با مراد ویسی: قانون نانوشته جمهوری‌اسلامی: فاسد باش اما وفادار باش
+@iranintlTV
+</div>
+
+## IranIntlTV — post 341410
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341410_1781043174.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فاکس نیوز به نقل از یک مقام آمریکایی گزارش داد که حملات آمریکا به جمهوری اسلامی ادامه دارد و اهداف شامل سامانه‌های پدافند هوایی و رادار است.
+https://iranintl.com/202606099826
+</div>
+
+## FarsiVOA — post 220172
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220172_1781043175.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️یک مقام آمریکایی به فاکس نیوز گفت: حملات هوایی علیه جمهوری اسلامی «ادامه دارد» و اهداف شامل پدافند هوایی و تأسیسات راداری است.
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 16387
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16387_1781043175.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ شبکه 14 اسرائیل: علیرغم حملات به ایران | ترامپ متقاعد شده است: "توافق حاصل خواهد شد"؛ مقام آمریکایی به سی‌ان‌ان می‌گوید: "ما انتظار نداریم که این حملات مذاکرات را خراب کند"
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## RadioFarda — post 158111
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_158111_1781043175.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸دونالد ترامپ در واکنش به حملات تازه آمریکا علیه ایران گفت: «فکر می‌کنم پاسخ دادن بسیار مهم است. آن‌ها یک بالگرد ما را سرنگون کردند و ما همین حالا در حال پاسخ دادن هستیم.»
+
+🔸رئیس‌جمهور آمریکا در گفت‌وگو با شبکه خبری ای‌بی‌سی، افزود: «من همیشه در طول زندگی‌ام به پاسخ قاطع اعتقاد داشته‌ام. ما توافقی بسیار خوب داشتیم و احتمالاً همچنان خواهیم داشت.»
+
+🔸او ادامه داد: «این حمله پاسخی به کاری است که دیشب با بالگرد ما کردند و معتقدم این پاسخ باید بسیار قوی و قدرتمند باشد، و همین حمله نیز چنین ویژگی‌ای دارد.»
+
+🔸ترامپ این اظهارات را همزمان با اعلام آغاز حملات «دفاعی» آمریکا علیه ایران از سوی فرماندهی مرکزی ارتش آمریکا، سنتکام، بیان کرد.
+
+🔸خبرنگار اکسیوس به نقل از یک مقام آمریکایی نوشته است که نیروهای آمریکایی به چندین سامانه پدافند هوایی و راداری ایران در اطراف تنگه هرمز حمله کردند.
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 22005
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22005_1781043176.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بسم الله الرحمن الرحیم
+​«وَسَیَعْلَمُ الَّذِینَ ظَلَمُوا أَیَّ مُنْقَلَبٍ یَنْقَلِبُونَ»
+(و آنان که ظلم کردند به‌زودی خواهند دانست که به چه کیفرگاهی بازمی‌گردند)
+​بیانیه‌ی اضطراری شماره ۲ قرارگاه مرکزی و خون‌خواهی بیکینی باتم
+​امت مقاومت و ملت شریفِ کفِ دریا!
+​در پی اقدام تروریستی، ترسو و بزدلانه‌ی سپاه پاسداران در ترورِ ناجوانمردانه و مظلومانه‌ی مالک مخلص و سرمایه‌دارِ حریم ولایت دریایی، «شهید والامقام حاج آقای خرچنگ» (اعلی الله مقامه الشریف) که در راه صیانت از مرزهای اقتصادی و فرمول سرّی همبرگر به فیض عظمای شهادت نائل آمد؛ قرارگاه مرکزی بیکینی باتم دیگر خویشتن‌داری را جایز نمی‌داند.
+​لذا به فرمان مطاع فرماندهی کل قوا، رزمندگان جان‌برکف اقیانوس، عملیات سهمگین و کوبنده‌ی «انتقام سخت / لبیک یا خرچنگ» را با رمز مقدس «یا کفگیر رسول‌الله» علیه مواضع و پادگان‌های سپاه در سواحل و عمق خاک ایران آغاز نمودند.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22004
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22004_1781043177.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هشدار تخلیه سپاه برای بیکینی باتم
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22003
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ:
+
+من معتقدم باید با قدرت پاسخ داد؛ این همیشه روش منه. اما در عین حال، یک توافق خیلی خوب با ایران روی میز هست و من مطمئنم که این توافق پابرجا می‌مونه و اجرا می‌شه.
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 391528
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391528_1781043177.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وضعیت ایرانیا وقتی اتک میزنه امریکا:
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391527
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 هم اکنون وضعیت خاورمیانه، همزمان:
+
+_ حمله آمریکا به اهداف جمهوری اسلامی
+_ حمله پاکستان به افغانستان
+_ حمله اسرائیل به لبنان
+_ حمله ایران به کشور های منطقه
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 126668
+
+<div align="center">
+  <a href="telegram/content/alonews_126668_1781043178.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈هم اکنون خاورمیانه:
+
+
+🔴حملات آمریکا به ایران
+
+🔴حملات اسرائیل به لبنان
+
+🔴حملات پاکستان به افغانستان
+
+🔴حملات ترکیه به عراق
+
+🔴حملات ایران به بحرین و کویت و امارات
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126667
+
+<div align="center">
+  <a href="telegram/content/alonews_126667_1781043178.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈هم اکنون حملات ترکیه به شمال عراق
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126666
+
+<div align="center">
+  <a href="telegram/content/alonews_126666_1781043178.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈دیده شدن پهباد شاهد سپاه در آسمان عراق
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/20 01:33
 ---
 

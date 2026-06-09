@@ -7,6 +7,230 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/19 23:33
+---
+
+## VahidOOnLine — post 244568
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244568_1781035393.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رضا دالمن، دانشجوی کارشناسی ارشد مهندسی کامپیوتر دانشگاه صنعتی شریف، با حکم شورای انضباطی این دانشگاه به اخراج و محرومیت چهار ساله از تحصیل در تمامی دانشگاه‌های کشور محکوم شد.
+
+سایت هرانا، به نقل از انجمن اسلامی دانشجویان دانشگاه صنعتی شریف گزارش داد این حکم پس از تایید در شورای تجدیدنظر دانشگاه، برای اجرا به وزارت علوم ارسال شده است.
+
+بر اساس این حکم، دالمن، ورودی سال ۱۴۰۲ مقطع کارشناسی ارشد مهندسی کامپیوتر، به اخراج از دانشگاه و محرومیت از تحصیل در همه دانشگاه‌ها به مدت چهار سال محکوم شده است.
+
+دادبان پیش‌تر نوشته بود رضا دالمن، دانشجوی ۲۴ ساله دانشگاه صنعتی شریف، شب سال نو ۱۴۰۵ با اتهام آویختن عروسک موش به درخت بازداشت شد.
+
+به نوشته هرانا، دالمن ۲۸ اسفند ۱۴۰۴ به دست نیروهای امنیتی بازداشت شد و حدود یک ماه بعد با تودیع وثیقه آزاد شد.
+
+روزنامه فرهیختگان نیز بدون نام بردن کامل از او، از تایید حکم اخراج «ر.د» در شورای تجدیدنظر دانشگاه شریف خبر داد و او را به «برهم‌زدن نظم»، «تخریب اموال عمومی» و «فحاشی و هتاکی به رهبر شهید انقلاب» متهم کرد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14168
+
+
+
+
+## WithYashar — post 14167
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+معاون وزیر امور خارجه رژیم جمهوری اسلامی با ترس به الجزیره گفت: ایران پشت حمله به یک هلیکوپتر آپاچی آمریکایی در تنگه هرمز نیست.
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342772
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342772_1781035394.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: Karmelo Anthony has been found guilty in the murder of Austin Metcalf.
+
+Anthony admitted to stabbing Metcalf but claimed he acted in self-defense.
+
+The verdict follows days of emotional testimony from student athletes, police officers, forensic experts, and coaches who described the confrontation that ended with Metcalf's death on April 2, 2025.
+
+More than 100 protesters — split between supporters of Metcalf and Anthony — packed the area outside the courthouse ahead of the verdict. Tensions flared and the two sides clashed before the jury's decision was read.
+</div>
+
+## pm_afshaa — post 93065
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93065_1781035394.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴معاون وزیر خارجه جمهوری اسلامی به الجزیره:
+
+هیچ هدفگیری عمدی از سوی ایران علیه بالگرد آمریکایی در تنگه هرمز صورت نگرفته؛ این احتمال وجود داره که چنین حوادثی به دلیل فضای پرتنش در تنگه هرمز به صورت غیرعمد رخ بده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93064
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93064_1781035395.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وقوع 3 انفجار در نجف عراق.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 341395
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/341395" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی ‌‌‏﻿﻿۲۴ با فرداد فرحزاد: ترامپ: به سرنگونی هلیکوپتر توسط جمهوری اسلامی پاسخ می‌دهیم
+@iranintlTV
+</div>
+
+## IranIntlTV — post 341394
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341394_1781035396.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رضا دالمن، دانشجوی کارشناسی ارشد مهندسی کامپیوتر دانشگاه صنعتی شریف، با حکم شورای انضباطی این دانشگاه به اخراج و محرومیت چهار ساله از تحصیل در تمامی دانشگاه‌های کشور محکوم شد.
+
+سایت هرانا، به نقل از انجمن اسلامی دانشجویان دانشگاه صنعتی شریف گزارش داد این حکم پس از تایید در شورای تجدیدنظر دانشگاه، برای اجرا به وزارت علوم ارسال شده است.
+
+بر اساس این حکم، دالمن، ورودی سال ۱۴۰۲ مقطع کارشناسی ارشد مهندسی کامپیوتر، به اخراج از دانشگاه و محرومیت از تحصیل در همه دانشگاه‌ها به مدت چهار سال محکوم شده است.
+
+دادبان پیش‌تر نوشته بود رضا دالمن، دانشجوی ۲۴ ساله دانشگاه صنعتی شریف، شب سال نو ۱۴۰۵ با اتهام آویختن عروسک موش به درخت بازداشت شد.
+
+به نوشته هرانا، دالمن ۲۸ اسفند ۱۴۰۴ به دست نیروهای امنیتی بازداشت شد و حدود یک ماه بعد با تودیع وثیقه آزاد شد.
+
+روزنامه فرهیختگان نیز بدون نام بردن کامل از او، از تایید حکم اخراج «ر.د» در شورای تجدیدنظر دانشگاه شریف خبر داد و او را به «برهم‌زدن نظم»، «تخریب اموال عمومی» و «فحاشی و هتاکی به رهبر شهید انقلاب» متهم کرد.
+https://iranintl.com/202606099963
+</div>
+
+## FarsiVOA — post 220163
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220163_1781035396.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️بررسی پرونده اتمی جمهوری اسلامی در آژانس و قطعنامه شورای حکام؛ گفت‌وگو با مهران مصطفوی
+@FarsiVOA
+</div>
+
+## DW_Farsi — post 125741
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎥تجمع ایرانیان مقابل "سازمان ملل" در بن در اعتراض به اعدام‌ها
+
+جمعی از ایرانیان مقیم آلمان روز دوشنبه ۱۸ خرداد (۸ ژوئن) به فراخوان "اتحاد کلن در همبستگی با مردم ایران" مقابل ساختمان سازمان ملل در شهر بن تجمع کردند و خواستار اقدام فوری جامعه جهانی برای توقف اعدام‌ها در ایران شدند.
+
+برگزارکنندگان در این تجمع، نامه‌ای به همراه فهرستی از زندانیان در معرض خطر اعدام را برای ارائه به شورای حقوق بشر سازمان ملل آماده کرده بودند. در این ویدیو، فعالان و شرکت‌کنندگان از اهداف این تجمع و تأثیر اعدام‌ها بر زندانیان و خانواده‌های آنان می‌گویند.
+
+
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 16325
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16325_1781035398.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شنیده شدن صدای 3 انفجار در نجف عراق
+</div>
+
+## Persian_Trend_Official — post 16324
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16324_1781035398.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فعالیت جنگنده ها در آسمان کردستان عراق
+</div>
+
+## Persian_Trend_Official — post 16323
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16323_1781035399.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اربیل عراق زیر آتش سنگین
+
+جنگنده های آمریکایی‌ها در تلاش برای رهگیری پرتابه های ایرانی هستند.
+
+همزمان جنگنده های ارتش در حال گشت زنی در مرزایران هستند.
+</div>
+
+## Persian_Trend_Official — post 16322
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16322_1781035401.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فعالیت حداقل 9 سوخترسان ایالات متحده در نزدیکی سواحل ایران و منطقه
+</div>
+
+## Persian_Trend_Official — post 16321
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تهران در حال حاضر شاهد اختلالات گسترده در GPS و جعل سیگنال‌های ناوبری (Spoofing) است.
+</div>
+
+## BBCPersian — post 283270
+
+<div align="center">
+  <a href="telegram/content/BBCPersian_283270_1781035401.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آخرین خبرهای مهم روز سه‌شنبه ۱۹ خرداد ماه ۱۴۰۵ از تلویزیون بی‌بی‌سی فارسی
+
+https://bbc.in/42XnQmy
+https://bbc.in/3WtLd3k
+@BBCPersian
+</div>
+
+## alonews — post 126617
+
+<div align="center">
+  <a href="telegram/content/alonews_126617_1781035403.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈هشدار فرانسه در شورای حکام: جمهوری اسلامی ایران مقدار بسیار زیادی انباشت اورانیوم غنی شده در اختیار دارد و مشخص نیست چیکارش کرده و کجاست، همکاری فوری جمهوری اسلامی با آژانس بین‌المللی انرژی اتمی ضروری است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126616
+
+<div align="center">
+  <a href="telegram/content/alonews_126616_1781035403.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈روزنامه نیویورک پست گزارش داد که هزینه بالگردهای مدل AH-64 «آپاچی» بیش از ۳۵ میلیون دلار برای هر فروند است و ادعا کرد که این بالگردها در سراسر دریای عمان و تنگه برای اعمال محاصره به عملیات مشغول هستند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/19 23:23
 ---
 

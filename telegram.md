@@ -7,6 +7,165 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/20 02:42
+---
+
+## VahidOOnLine — post 244592
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244592_1781046775.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️صداوسیما در گزارشی اعلام کرد که پایگاه دریایی سیریک، پایگاه دریایی جاسک، موقعیت پدافند هوایی بندرعباس، پدافند موشکی ساحلی میناب و پدافند موشکی ساحلی قشم و بندر قشم هدف حمله بوده‌اند. هنوز مقامات رسمی و نظامی جمهوری اسلامی در این زمینه اظهارنظری نکرده‌اند اما مقامات آمریکایی گفته‌اند که سامانه‌های پدافندی و رادارها در اطراف تنگه هرمز هدف حمله بوده‌اند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14247
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/boost/withyashar
+</div>
+
+## WithYashar — post 14246
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/boost/withyashar
+</div>
+
+## WithYashar — post 14245
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دو دقیقه پیش سه انفجار از اسکله جاسک
+@withyashar
+</div>
+
+## mwarmonitor — post 10574
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_10574_1781046776.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نگاهی به حضور گسترده نظامی آمریکا در خاورمیانه در حال حاضر
+
+🔸بر اساس گفته‌های مقامات نیروی دریایی آمریکا، حدود ۲۰ هزار ملوان و تفنگدار دریایی آمریکایی در حال حاضر در دریا و بر روی دو ناو هواپیمابر — USS Abraham Lincoln و USS George H.W. Bush — مستقر هستند، همراه با ۱۸ ناوشکن مجهز به موشک هدایت‌شونده، واحد ۳۱ اعزامی تفنگداران دریایی، و بیش از یک دوجین اسکادران هوایی.
+
+🔸این تجهیزات در مناطق مدیترانه شرقی، دریای سرخ، شمال اقیانوس هند و دریای عرب پراکنده شده‌اند؛ جایی که نیروهای آمریکایی در حال کمک به دفاع از اسرائیل، مقابله با تهدیدات حوثی‌ها، انجام عملیات مرتبط با ایران و حمایت از امنیت دریایی در اطراف تنگه هرمز هستند.
+
+🔸این نیروی دریایی بخشی از حدود ۵۰ هزار نیروی آمریکایی است که در حال حاضر در سراسر خاورمیانه مستقر هستند. Fox news
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 342779
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342779_1781046777.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NEW: Here's a look at the massive U.S. military presence now spread across the Middle East.
+
+According to U.S. Navy officials, nearly 20,000 American sailors and Marines are currently at sea aboard two aircraft carriers — USS Abraham Lincoln and USS George H.W. Bush — along with 18 guided-missile destroyers, the 31st Marine Expeditionary Unit, and more than a dozen air squadrons.
+
+The assets are spread across the Eastern Mediterranean, Red Sea, North Arabian Sea, and Arabian Sea, where U.S. forces are helping defend Israel, counter Houthi threats, conduct operations involving Iran, and support maritime security in and around the Strait of Hormuz.
+
+The naval force is part of roughly 50,000 U.S. troops currently deployed throughout the Middle East.
+</div>
+
+## pm_afshaa — post 93145
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93145_1781046777.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مستندی از حمله به ایران
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93144
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93144_1781046778.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴آماج‌نیوز افغانستان: لحظات پیش جنگنده‌های پاکستانی اهدافی رو در ولایت‌های خوست، پکتیکا و کنر بمباران کردن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93143
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_93143_1781046779.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سپاه دستور تخلیه فوری صادر کرد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93142
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♨️
+♨️
+♨️
+♨️
+</div>
+
+## pm_afshaa — post 93141
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انفجار مجدد در جاسک
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## FarsiVOA — post 220180
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️پرزیدنت ترامپ: حکومت ایران بالگرد آپاچی ما را در تنگه هرمز سرنگون کرد و ما ناگزیریم پاسخ بدیم
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220179
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️اختلاف فرانسه و آلمان بر سر پروژه رزمی پیشرفته اروپا
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 16403
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اینم 1 ترابایت برای اون کسایی که گفتن روی نتشون کار نمیکنه 🔥 vless://fc2be12b-e815-4db1-baaf-4d836d5c5ff8@static.94.219.109.65.clients.your-server.de:8080?encryption=mlkem768x25519plus.native.0rtt.-a3SjR5SwelNsnaxLHT2CuOAJuBDnrzPTw88l3eTVUw&security=none…
+</div>
+
+---
 📅 بروزرسانی: 1405/03/20 02:33
 ---
 

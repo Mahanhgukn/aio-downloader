@@ -7,6 +7,85 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/19 16:13
+---
+
+## WithYashar — post 14118
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ستون دود همین الان تهران محدوده ولنجک @withyashar
+</div>
+
+## pm_afshaa — post 92998
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92998_1781008995.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ:
+اگر بریم و بمباران کنیم که اگر بخوایم خیلی آسون میتونیم این کار رو انجام بدیم.
+
+اما تنگه برای ماه‌ها باز نخواهد بود. اگر بمباران کنیم، افراد زیادی کشته خواهند شد. چه کسی میخواد این کار رو بکنه؟ من نمیخوام.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 341329
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341329_1781008996.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند کاسب با ارسال پیامی به ایران اینترنشنال از تجمعات حکومتی و اختلال در کسب و کار خود گلایه می‌کند. پیام او با هوش مصنوعی خوانده شده است.
+</div>
+
+## FarsiVOA — post 220113
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220113_1781008998.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسرائیل روز سه‌شنبه، ۱۹ خرداد ۱۴۰۵، مواضع حزب‌الله را در شهر تاریخی و بندری صور در جنوب لبنان هدف حمله قرار داد. این حمله پس از آن انجام شد که ارتش اسرائیل برای نخستین‌بار دستور تخلیه تمام شهر صور، از جمله محله مسیحی‌نشین شمال‌غربی آن، را صادر کرد.
+</div>
+
+## alonews — post 126512
+
+<div align="center">
+  <a href="telegram/content/alonews_126512_1781009001.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رویترز مدعی شد، یک شناور سطحی بدون سرنشین نیروی دریایی ایالات متحده (USV) که توسط گروه ویژه ۵۹ اداره می‌شود، پس از سقوط یک بالگرد تهاجمی AH-64 آپاچی ارتش ایالات متحده در تنگه هرمز، به نجات دو خدمه کمک کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126511
+
+<div align="center">
+  <a href="telegram/content/alonews_126511_1781009001.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈به گفته اسرائیل ارتش، یک فرد مسلح که از لبنان به خاک اسرائیل نفوذ کرده و در منطقه رامیم ریج به سمت نیروهای اسرائیلی آتش گشوده بود، به ضرب گلوله کشته شد.
+
+
+
+
+🔴ارتش اسرائیل می‌گوید در این حادثه هیچ مجروحی نداشته است و نیروها در حال بررسی منطقه برای یافتن مهاجمان احتمالی دیگر هستند. یک پهپاد نیروی هوایی اسرائیل نیز برای کمک به جستجوها به منطقه اعزام شده است.
+
+
+🔴به ساکنان جوامع مرزی میسگاو آم، مارگالیوت و منارا در منطقه جلیله پنهندل دستور داده شده است که تا اطلاع ثانوی در خانه‌های خود بمانند و یک بزرگراه در نزدیکی آن به روی ترافیک بسته شده است.
+
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/19 16:03
 ---
 

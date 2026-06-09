@@ -7,6 +7,229 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/19 19:33
+---
+
+## kianmeli1 — post 87819
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴استالین پس از یک جلسه، پیپ محبوبش را گم می‌کند.
+او به سازمان اطلاعات (کا.گ.ب) دستور می‌دهد تا هیئت گرجیِ حاضر در جلسه را بازجویی کنند.
+استالین چند ساعت بعد، پیپش را در کشوی میزش پیدا می‌کند.
+او از مامور اطلاعاتی می‌خواهد تا هیئت را آزاد کند.
+مامور در پاسخ می‌گوید که نیمی از هیئت به سرقت پیپ اعتراف کرده و عده‌ای هم زیر شکنجه جان باخته‌اند
+
+…
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 341360
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341360_1781021026.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به رغم وعده ترامپ درباره امضای قریب‌الوقوع توافق با تهران، مخالفت‌ها با هرگونه معامله با آمریکا در ساختار جمهوری اسلامی شدت گرفته. شماری از نمایندگان مجلس و روحانیون می‌گویند اجازه نخواهند داد توافقی نظیر صلح امام دوم شیعیان بر مجتبی خامنه‌ای تحمیل شود.
+
+گزارشی از مجتبا پورمحسن
+@iranintltv
+</div>
+
+## IranIntlTV — post 341359
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341359_1781021027.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرماندهی مرکزی ایالات متحده، سنتکام، اعلام کرد دریاسالار برد کوپر در یک نشست محرمانه، اولویت‌های عملیاتی نظامی آمریکا در خاورمیانه را به کمیته تخصیص بودجه مجلس نمایندگان گزارش می‌دهد.
+
+مرضیه حسینی، خبرنگار ایران‌اینترنشنال، گزارش می‌دهد
+@iranintltv
+</div>
+
+## DW_Farsi — post 125732
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125732_1781021029.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶هشدار درباره "شوک دوم قیمت نفت به دلیل انسداد تنگه هرمز"
+
+مارکوس کامیت، مدیرعامل غول شیمیایی آلمان (BASF)، با اشاره به پیامدهای گسترده جنگ خاورمیانه، وضعیت فعلی صنعت شیمیایی را "یک دوران تاریخی سخت» توصیف کرد، اما در عین حال بازگشت به گاز ارزان روسیه را هم به طور کامل رد کرد.
+
+کامیت در جریان سخنرانی خود در "کلوپ بین‌المللی روزنامه‌نگاران اقتصادی فرانکفورت" (ICFW) هشدار داد که ذخایر استراتژیک نفت رو به اتمام است. به گفته او، اگر تنگه هرمز به زودی بازگشایی نشود، در نیمه دوم سال جاری میلادی شاهد یک شوک قیمتی شدید در بازار نفت و مشتقات آن خواهیم بود.
+
+به گفته او، با ادامه انسداد تنگه هرمز دنیا تنها ۳ درصد از گاز خود را از دست می‌دهد، ولی این رقم در مورد نفت به ۲۰درصد می‌رسد.
+
+او افزود که با توجه به تمرکز پالایشگاه‌ها در خاورمیانه، سهم این منطقه در تأمین سوخت‌ها و مواد اولیه شیمیایی جهان حدود ۴۰ درصد است.
+
+
+@dw_farsi
+</div>
+
+## DW_Farsi — post 125731
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125731_1781021029.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶ارتش اسرائیل از کشته شدن دو فرمانده جهاد اسلامی در غزه خبر داد
+
+ارتش اسرائیل (IDF) اعلام کرد، در جریان حملات روز دوشنبه هشتم ژوئن به نوار غزه، دو تن از نیروهای کلیدی گروه فلسطینی جهاد اسلامی را از پای درآورده است.
+
+در این حملات ایاد محمد عبدالعزیز نوفل و احمد عبدالحمید حمد معروف کشته شده‌اند. بنا بر بیانیه ارتش، نوفل از فرماندهان یگان ویژه "نخبه" در سازمان جهاد اسلامی بوده است و معروف فرمانده یکی از سلو‌ل‌های عملیاتی جهاد اسلامی و مسئول اجرای حملات راکتی متعدد علیه خاک اسرائیل را بر عهده داشته است.
+
+در بیانیه ارتش اسرائیل همچنین آمده است که این دو نفر "در حال برنامه‌ریزی برای اجرای حملات تروریستی قریب‌الوقوع علیه نیروهای ارتش بودند و این حمله با هدف رفع این تهدید انجام شده است".
+
+ارتش اسرائیل همچنین مدعی شده است که "پیش از انجام حمله، اقداماتی نظیر استفاده از تسلیحات دقیق و نظارت هوایی برای کاهش آسیب به غیرنظامیان صورت گرفته بود".
+
+
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 16276
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16276_1781021030.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انتقال بخشی از پول های بلوک شده ایران به تهران؟
+
+به گزارش خبرگزاری کان، 3 میلیارد دلار از دارایی‌های ایران با پروازی از ابوظبی به تهران منتقل شد، در ازای اینکه ایران حملات خود به اسرائیل و اسرائیل حملات خود به لبنان را متوقف کند!
+
+طبق گزارش‌ها، یک پیام آمریکایی همراه با انتقال پول شامل تضمینی مبنی بر توقف حملات اسرائیل در لبنان بود. تبادل پیام‌ها توسط یک هیئت قطری انجام شد و هواپیمای حامل این دارایی‌ها در تهران فرود آمد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16275
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16275_1781021030.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسکای نیوز عربی به از نقل یک مقام ناشناس: ایران پیش‌ نویس پیشنهاد آتش‌بس را به ایالات متحده ارسال کرده است که طبق گزارش‌ها اکنون توسط دولت ترامپ در دست بررسی است.
+
+طبق این گزارش، ظاهراً متن اولیه این پیشنهاد برای دولت قابل قبول است. این اظهارات پس از اظهارات قبلی دونالد ترامپ، رئیس جمهور ایالات متحده، مبنی بر اینکه مذاکرات در مراحل پایانی خود است، مطرح شده است.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16274
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانفینگ اختصاصی پرشین ترند 🔥
+
+
+vless://18e1f2ac-97be-4a69-ba79-98110922fa86@static.94.219.109.65.clients.your-server.de:80?encryption=mlkem768x25519plus.native.0rtt.m-Y48LUIznnBJOxeDFCEz5ErtgUGACi0URoC85QYKjCS0IavaoNqkBR7S2tJ3kRVGYGnGIphFkMO8yinHNCfbxWGKfFzIiYAx3ZqGNUZwukgmZZFaTeFegZYo1K22WWQfgQM-aNX5mR6oVQqIWefxnxOLNeHE8bKW-nF4DSU7Ottl4ZNSJXE0Klrm_BFOvV3mvGHYWOPRBZAjiJTEvtQ3JxfNPOsNRmz8Gi0p8pW5QBxRgAuccHJbTJpSAQGLRsSwHSBgMgpdfwk5AN2AQnMRGUVGIcosFFFxQRYksDOWIQSmIITmbeEAUYalxQ2dsDHSnWEr6GB67yyzkIH1ry5IxADQxastLhWYYF30zxGwRtKCMKUWOhLe-YVFmrPE5tIrGR4OCYW0KIKF0MmEYCvGUCcaTsIDsdaCOeTOYhrXWaf4LxHMBOiIGdZGGJ2D_rGE_l8fHI0B6NLcqlzfyasccSRwaFrG9UoHxKoA5iyvQckXQQQual_baAF1reSdqYVx7QpvRMSBuN0XkSeR9eklIq9bAAzuKNIn2e9r5zBpMVK_5WInKe9KsGNItoR5CwIqtCZ3MQ3MMcGw_RZroaS2YkBM0dCq4ZLS7mbnhcMapxJngk-zJR4HYTPOtIkgDFtArYXWLJvYYtMM4ALfrN4Q6pCaeptCvpmEEUkfLQz_ARFT2iDpIemSsTOmMg9OcYDCPBwhwoofVY-bqloe4ppmvE9uTlj-aKcO_cK6JIy59Ej7fB8oYhiqPOK9yiN7uQf9cgWlTvEuBYtONcuitdtbhBvy6FMHfsl7qeBB-gOXZtMyWS8FhdA1ATEGWe0Gck2i4OIGqNa-ECisFhUzlKbQcKuSMg4XUZcMMkRq2dQpTFaXLYcHAwDAhqTRjlBiXcStmqIxThGUhOgYmaLRGC1omS3KXhaQDEA1nGC4MGJ_3qVLvu0DYeglZQAncZ9D4sV_XCn2fWxorV-CEIjwcTP6WkOFoSindmQgeUvxCygiAFA2LjBiTgEQ3gcj8wVzRSHpawJrVWAZtRZ4OwBtWCjAlaqurkhcdcqwmw8EzoVwEB3sQit8gA7rmAUaMJ211ZhT5XP0XJB0yVM_NCwqHusB8g6pJrDqGWAnXeWXsylnmsNKXw2GatXp2Bt7kswh4ApBySiVhxYnKU3Zdc3T4KNN1MQPESdWeer-VV3roJb9dsLzHBN0PGIHeo2ncnLA5jHSVOSTCgb6dwz-jx18GdWOFgeFxMbh1OsW7RwOOE405EqgUsbXCgbyTQzsQxVmuG-l_RYYSa9bwaivHskiuRXn7YmtLxOQCAQmFi-QyhMWyJ8LIY1MUZVjSNWJKUsTowsvXYOsxIYB7o_PwYDCSiTsoqGniYXM-KP2owqyLK26NdMEXV90KRmXgYWZjrNkQUSRMQk1dooc0cWQ6h_0GGuNxDBMhSOxJmjN_i7FBWDZRJCcGEBDReRQCR6K5gxiFFNK4GXwIZwbkkQgKo7PXqwrvO6QfNJmKK1bBMTD5B6zszAbHVwdOld3OkLQIaS_OMRyZIQob0umyJxVSxnQ9vuKf8m7WFwYQR5cN_ofIxF3_A&security=tls&sni=static.94.219.109.65.clients.your-server.de&fp=chrome&alpn=h2&insecure=0&allowInsecure=0&ech=AH7%2BDQB6AAAgACDhzNpyCrd4WVyZc2rBattZ%2BhHqD0Cq6govFyMbABhkYgAkAAEAAQABAAIAAQADAAIAAQACAAIAAgADAAMAAQADAAIAAwADACtzdGF0aWMuOTQuMjE5LjEwOS42NS5jbGllbnRzLnlvdXItc2VydmVyLmRlAAA%3D&type=xhttp&host=static.94.219.109.65.clients.your-server.de&path=%2Fnews&mode=auto&extra=%7B%22scMaxEachPostBytes%22%3A%221000000%22%2C%22xPaddingBytes%22%3A%22100-1000%22%7D#PersanTrend%F0%9F%94%A5-1024.00GB%F0%9F%93%8A
+
+
+تایم: نامحدود 🔥
+حجم: 1 ترابایت 🔥
+</div>
+
+## Dirty_Kids — post 391476
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391476_1781021031.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فهم گاو
+Vs
+فهم مسلمان
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391475
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391475_1781021031.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تربیت آخوندی:
+
+اینا میان به ما میگن فحاش 😂
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391474
+
+<div align="center">
+  <a href="https://t.me/Dirty_Kids/391474" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ریتزوبت تنها سایت بین المللی میباشد ، که به صورت هفتگی پرومو کد دریافت میکنید ✅
+
+♦️ آموزش شارژ حساب با کریپتو
+♦️ آموزش شارژ حساب ریالی در ریتزوبت
+
+🔵ریتزوبت برندی با لایسنس معتبر در صنعت شرطبندی و پیشبینی مسابقات ورزشی و کازینویی 👇
+#پیشبینی
+https://t.me/+LB508WZyIr8xNmY0
+</div>
+
+## Dirty_Kids — post 391473
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391473_1781021032.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🏆تنها 2️⃣ روز تا آغاز بازی های جام جهانی باقی مانده …
+
+
+⚽️ آماده ی این رقابت های حساس هستی ؟؟
+
+ریتزوبت ، سایت بین المللی با لایسنس معتبر آماده خدمت رسانی به کاربران ایران زمین 
+🦁
+
+
+⚡️امکان شارژ و برداشت کریپتو و ریلای
+
+⚡️شرطبندی بدون سقف برداشت
+
+⚡️پروموکد تا سقف 100 میلیون برای کاربران
+
+همین حالا وارد خانواده ی ریتزوبت شوید 
+👇
+👇
+
+
+🛸 لینک ورود به سایت 👉
+
+
+🌐 کانال تلگرامی 
+3️⃣
+2️⃣
+1️⃣
+G19
+https://t.me/+LB508WZyIr8xNmY0
+</div>
+
+## alonews — post 126560
+
+<div align="center">
+  <a href="telegram/content/alonews_126560_1781021033.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈گفتگوی وزرای امور خارجه مصر و عربستان درباره تلاش‌ها برای کاهش تنش در منطقه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/19 19:23
 ---
 

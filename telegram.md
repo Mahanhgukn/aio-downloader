@@ -7,6 +7,275 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/19 23:53
+---
+
+## WithYashar — post 14173
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جی‌دی ونس، معاون رئیس‌جمهور آمریکا، اعلام کرد واشنگتن به دستیابی به توافق با ایران نزدیک شده است.
+ونس گفت:
+«ممکن است این توافق هفته آینده حاصل شود، یا شاید چند ماه دیگر.»
+@withyashar
+</div>
+
+## WithYashar — post 14172
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ به وال استریت ژورنال: حادثه هلیکوپتر آپاچی موضوع جدی نیست و خلبان حالش خوب است!
+
+ترامپ: به زودی پایان جنگ و پیروزی آمریکا بر ایران را اعلام میکنم امسال جام جهانی خوبی خواهیم داشت.
+
+ترامپ: محاصره ایران رو به شدت فقیر میکنه و تا زمانی که نیاز باشه ادامه داره.
+@withyashar
+🚨«این خبر ‌وال استریت ژورنال مال قبل از پست تهدید ترامپ در تروث است»
+</div>
+
+## WithYashar — post 14171
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرنگار: شما گفتید آمریکا باید به سرنگونی آپاچی پاسخ دهد، آیا هنوز هم این نظر را دارید؟
+
+ترامپ: من مجبور نیستم کاری انجام دهم، ما همه کارت‌ها را در دست داریم. مجبور نیستم این کار را بکنم اما ببینید، احتمالاً این کار را خواهیم کرد، باشه؟
+@withyashar
+</div>
+
+## WithYashar — post 14170
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨🚨🚨ترامپ درباره ایران به ABC:
+
+یک نفر باید همه آن زیرساخت‌ها را بسازد، پل‌های جدید، فلان چیز جدید، نیروگاه‌های جدید... آنها از یک تریلیون دلار صحبت می‌کنند، احتمالاً بیشتر...
+@withyashar
+</div>
+
+## mwarmonitor — post 10546
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رسانه‌های اسرائیلی: شلیک یک موشک از یمن رصد شد. @mwarmonitor
+</div>
+
+## pm_afshaa — post 93070
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93070_1781036592.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴جی‌دی ونس، معاون ترامپ:
+آمریکا به توافق با ایران نزدیک شده، ممکنه این توافق همین هفته نهایی بشه، یا شاید هم چند ماه دیگه طول بکشه.‌
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93069
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93069_1781036593.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴العربیه: ایران به واسطه‌ها اعلام کرده حادثه پیش اومده برای هلیکوپتر آمریکا عمدی نبوده و علاقه مند به مسیر دیپلوماسی است.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93068
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93068_1781036594.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ به وال استریت ژورنال: حادثه هلیکوپتر آپاچی موضوع جدی نیست و خلبان حالش خوبه! 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93067
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93067_1781036594.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: محاصره ایران رو به شدت فقیر میکنه و تا زمانی که نیاز باشه ادامه داره.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 341396
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341396_1781036595.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بن سبطی، پژوهشگر ایران و اسرائیل، درباره تاثیر حملات جمهوری اسلامی در معادلات اسرائیل در لبنان گفت: «بین حزب‌الله و اسرائیل انقدر دشمنی زیاد است که هیچ گروهی از بیرون نمی‌تواند تنش‌های بین آنها را خاموش کند.»
+@iranintltv
+</div>
+
+## Persian_Trend_Official — post 16329
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16329_1781036597.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌ها از شلیک یک موشک بالستیک توسط انصارالله یمن به سمت اسرائیل خبر می‌دهند.
+
+
+👺Phantom
+
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16328
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16328_1781036598.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حمله راکتی حزب‌الله به شمال اسرائیل
+
+
+👺Phantom
+
+
+📌@persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 21963
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21963_1781036598.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ : موضوع سقوط بالگرد اپاچی چیزه خیلی مهمی نیست و خلبانانمون هم سالمن. @IranianMinds
+</div>
+
+## IranianMinds — post 21962
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21962_1781036599.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 جی‌دی ونس :
+
+توافق ممکنه همین هفته با ایران انجام بشه ، یا شایدم ماه ها طول بکشه دقیق نمیدونیم.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21961
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21961_1781036601.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 جی‌دی ونس، معاون ترامپ :
+
+آمریکا و ایران به توافق نزدیک شده‌اند.
+
+این توافق ممکن است هفته آینده یا حتی چند ماه دیگر نهایی شود.
+
+هنوز کارهایی برای انجام دادن باقی مانده، اما پیشرفت قابل توجهی حاصل شده است.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 283271
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻انتقاد ایران از آمریکا و سه کشور اروپایی بابت تنظیم پیش‌نویس قطعنامه‌ تازه در شورای حکام آژانس
+
+ایران از آمریکا، بریتانیا، فرانسه و آلمان بابت تنظیم پیش‌نویس قطعنامه‌ تاز‌ای در شورای حکام آژانس بین المللی انرژی اتمی به تندی انتقاد کرده است.
+
+کاظم غریب ‌آبادی، معاون وزارت خارجه ایران، با اشاره به حملات اسرائیل و آمریکا به تاسیسات هسته‌ای ایران، در ایکس نوشته است که این پیش‌نویس «تلاشی خطرناک برای پاک‌سازی و سفیدشویی مسئولیت متجاوزان و جنایتکاران است.»
+
+معاون وزیر خارجه ایران نوشت که حملات اسرائیل و آمریکا «فعالیت‌های راستی‌آزمایی را متوقف و بازرسان آژانس را به دلایل ایمنی از ایران خارج کرد. اکنون آمریکا می‌خواهد آثار حمله غیرقانونی خود را به پرونده‌ای علیه جمهوری اسلامی ایران تبدیل کند.»
+
+نشست فصلی شورای حکام آژانس قرار است هفته آینده در وین برگزار شود و از جمله موضوع برنامه اتمی ایران را بررسی کند.
+
+این اولین نشست آژانس پس از جنگ ۴۰ روزه اخیر است که در یک آتش‌بس شکننده قرار دارد.
+
+در گزارشی که رافائل گروسی، مدیرکل آژانس به شورای حکام داده و بخش‌هایی از آن به رسانه‌ها درز کرده، آژانس بار دیگر از ایران خواسته که وضعیت نامعلوم ذخایر اورانیوم غنی‌شده را روشن کند.
+
+https://bbc.in/4xi5EkZ
+@BBCPersian
+</div>
+
+## alonews — post 126626
+
+<div align="center">
+  <a href="telegram/content/alonews_126626_1781036603.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تصاویر چندین انفجار در نجف عراق
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126625
+
+<div align="center">
+  <a href="telegram/content/alonews_126625_1781036603.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈جی‌دی ونس: به توافق با ایران نزدیک هستیم؛ شاید هفته آینده، شاید چند ماه دیگر...!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126624
+
+<div align="center">
+  <a href="telegram/content/alonews_126624_1781036603.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 ترامپ به واشنگتن پست گفت که محاصره باعث شده ایران «بسیار فقیر» شود و گفت آن را تا زمانی که لازم باشد در جای خود نگه خواهد داشت.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126623
+
+<div align="center">
+  <a href="telegram/content/alonews_126623_1781036603.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈دونالد ترامپ در گفتگو با وال‌استریت ژورنال، درباره حادثه سقوط بالگرد آپاچی گفت که "مسئله خیلی مهمی نیست" و افزود که خلبان حالش خوب است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126622
+
+<div align="center">
+  <a href="telegram/content/alonews_126622_1781036604.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری /شلیک موشک از خاک یمن به سمت اسرائیل 
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/19 23:43
 ---
 

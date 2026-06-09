@@ -7,6 +7,23 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/19 06:02
+---
+
+## FoxNewsTwitter — post 342748
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342748_1780972357.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"This is a guy who is a self-described communist."
+
+Sen. Ted Cruz breaks down the problems with Democratic Senate candidate Graham Platner as the Maine politician's scandals mount. https://twitter.com/seanhannity/status/2064163395247448185#m
+</div>
+
+---
 📅 بروزرسانی: 1405/03/19 05:52
 ---
 

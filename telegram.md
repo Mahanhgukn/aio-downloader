@@ -7,6 +7,100 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/19 16:33
+---
+
+## FoxNewsTwitter — post 342753
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342753_1781010196.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+DHS has approved a plan allowing states to verify voter citizenship through federal databases while also monitoring mail-in ballot activity for potential signs of fraud, advancing a central pillar of President Donald Trump’s election integrity agenda.
+
+The initiative, expected to launch later this month, would give election officials access to federal citizenship records and allow voter rolls to be checked against immigration and government databases.
+
+DHS also plans to work with USPS to track absentee and mail ballot flows, flag unusual patterns, and generate investigative leads. The move advances a major piece of President Trump's election integrity agenda.
+</div>
+
+## IranIntlTV — post 341332
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341332_1781010196.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حزب‌الله لبنان سه‌شنبه ۱۹ خرداد در بیانیه‌ای از آنچه «موضع شرافتمندانه جمهوری اسلامی در کنار لبنان» خواند، قدردانی کرد و اعلام کرد این موضع شایسته تشکر است، نه انکار و اهانت‌های عمدی در پاسخ به فشارهای خارجی.
+
+در این بیانیه آمده است حمایت جمهوری اسلامی از «حقوق مشروع» حزب‌الله و پذیرش هزینه‌های مالی و سیاسی آن نشان می‌دهد جمهوری اسلامی پشتیبان لبنان است، نه برعکس. حزب‌الله همچنین تاکید کرد جمهوری اسلامی همواره خیرخواه لبنان بوده و در حمایت از مقاومت برای آزادسازی سرزمین و بازسازی مناطق آسیب‌دیده نقش داشته است.
+
+حزب‌الله اتهام‌های مطرح‌شده از سوی برخی نهادهای حاکمیتی لبنان علیه نقش جمهوری اسلامی را «بی‌اساس» و «مردود» توصیف کرد و اعلام کرد حمله به جمهوری اسلامی، از جمله در بیانیه مشترک با اسرائیل و دولت آمریکا، صف‌بندی‌ای محکوم و به سود دشمن است.
+حزب‌الله در پایان اعلام کرد وفاداری و شجاعت جمهوری اسلامی را ارج می‌نهد و تا تحقق حقوق خود به مقاومت ادامه خواهد داد، حتی اگر هزینه‌ها سنگین باشد.
+
+https://iranintl.com/202606099050
+</div>
+
+## RadioFarda — post 158094
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸اعتراضات مردمی در شهر هرات افغانستان روز سه‌شنبه برخورد خشونت‌آمیز طالبان را در پی داشت.
+
+🔸این اعتراضات در واکنش به بازداشت زنان و دختران از سوی نیروهای امر به معروف طالبان برگزار شد.
+
+🔸معترضان شعارهایی مبنی بر حق تحصیل، کار و آزادی سر می‌دادند.
+
+🔸گزارش‌ها حاکی است که در پی تیراندازی مستقیم نیروهای طالبان به معترضان، چند نفر زخمی شده‌اند.
+
+🔸ریچارد بنت، گزارشگر ویژه سازمان ملل متحد، نگرانی خود را از استفاده بیش از حد فشار علیه معترضان ابراز کرد و از مقامات طالبان خواست تا در این ارتباط پاسخگو باشند.
+
+🔸اکثر زنانی که از سوی نیروهای امر به معروف طالبان بازداشت شده‌اند، حجاب کامل دارند و ماسک بر صورت اما ظاهرا این نوع پوشش برای طالبان قابل قبول نیست.
+
+🔸طالبان از زمان قدرت‌گیری دوباره محدودیت‌های زیادی علیه زنان وضع کرده‌اند از جمله منع تحصیل و کار زنان در بیرون از خانه.
+
+@RadioFarda
+</div>
+
+## Hranews — post 113489
+
+<div align="center">
+  <img src="telegram/content/Hranews_113489_1781010197.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نرگس عسگری، مدیر مرکز اورژانس ۱۱۵ و مدیر حوادث دانشگاه علوم پزشکی استان چهارمحال و بختیاری اعلام کرد که از مجموع ۱۰۰ دستگاه آمبولانس موجود در ناوگان اورژانس این استان، حدود ۸۰٪ فرسوده هستند و میانگین عمر این خودروها به ۱۶ سال رسیده است، به طوری که به‌صورت مستمر بین ۱۰ تا ۱۵ دستگاه #آمبولانس اورژانس استان به دلیل فرسودگی و نیاز به تعمیرات در تعمیرگاه قرار دارند و از چرخه خدمت‌رسانی خارج می‌شوند. امری که امکان قرار دادن آمبولانس رزرو را در پایگاه‌های اورژانس ناممکن کرده است.
+
+عسگری همچنین با اشاره به کمبود نیروی انسانی در پایگاه‌های اورژانس این استان افزود: براساس استانداردها، هر پایگاه #اورژانس باید ۹.۲ نفر نیرو فعالیت داشته باشد، اما در حال حاضر میانگین نیروی انسانی در پایگاه‌های استان حدود هفت نفر است.
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## alonews — post 126518
+
+<div align="center">
+  <a href="telegram/content/alonews_126518_1781010197.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزارت دفاع ایالات متحده ۴ شرکت چینی، علی‌بابا (پلتفرم تجارت الکترونیک)، بایدو (گوگل چین)، بی‌وای‌دی (تولیدکننده خودرو) و نیو (تولیدکننده خودرو) را به فهرستی از شرکت‌هایی که گمان می‌رود با ارتش چین همکاری می‌کنند، اضافه کرده است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126517
+
+<div align="center">
+  <a href="telegram/content/alonews_126517_1781010198.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈دیوان عدالت اداری شکایت برخی مسولین تندرو بر علیه رئیس جمهور جهت تشکیل ستاد راهبردی فضای مجازی و آزادسازی اینترنت توسط وزارت ارتباطات رو رد کرد و به نفع دولت و ستاد راهبردی فضای مجازی رای داد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/19 16:22
 ---
 

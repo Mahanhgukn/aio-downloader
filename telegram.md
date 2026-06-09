@@ -7,6 +7,53 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/19 04:12
+---
+
+## VahidOOnLine — post 244453
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️به گزارش رویترز، در پی بالا گرفتن تنش‌های سیاسی میان تهران و واشنگتن، کاروان تیم ملی فوتبال ایران در میان تدابیر ویژه امنیتی و اسکورت گارد ملی مکزیک، روز دوشنبه، هتل محل اقامت خود در شهر تیخوانای مکزیک را به مقصد استادیوم «کالینته» ترک کرد. درحالی‌که فدراسیون فوتبال ایران در آخرین لحظات به دلیل ابهامات امنیتی و برای به حداقل رساندن حضور بازیکنان در خاک آمریکا، مجبور به انتخاب مکزیک به عنوان محل اردوی اصلی خود شد، واشنگتن با وجود صدور دیرهنگام ویزای بازیکنان، از ورود ۱۵ نفر از اعضای کاروان ۷۰ نفره ایران از جمله «کادر اداری کلیدی» ممانعت به عمل آورد. اقدامی که اعتراض شدید فدراسیون فوتبال جمهوری اسلامی را در پی داشت.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342739
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342739_1780965757.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+President Trump arrives at Madison Square Garden for Game 3 of the NBA Finals.
+
+The president was seen entering his suite ahead of the Knicks-Spurs matchup alongside EPA Administrator Lee Zeldin, Transportation Secretary Sean Duffy and granddaughter Kai Trump.
+
+With the Knicks looking to take a commanding 3-0 series lead, the atmosphere inside MSG is electric as celebrities, cabinet officials, and die-hard fans pack the arena for one of the biggest nights in New York sports in decades.
+</div>
+
+## BBCPersian — post 283223
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283223_1780965759.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمدباقر قالیباف، رئیس مجلس شورای اسلامی ایران در پیامی صوتی که روز دوشنبه منتشر شد به حملات نظامی یکشنبه شب اشاره کرده و آن را تلویحا ضروری و موفقیت‌آمیز ارزیابی کرده است.
+
+آقای قالیباف در این پیام صوتی که خبرگزاری ایرنا متن آن را منتشر کرده گفته است: «اگر دیپلماسی را صرفا گفت و گو در اتاق های دربسته و لبخندهای دیپلماتیک بدانیم، از همان ابتدا شکست می‌خوریم و اگر صرفا به عملیات‌های نظامی و جنگ تکیه کنیم نمی‌توانیم از حقوق خود به طور کامل دفاع کنیم.»
+
+آقای قالیباف که سرپرستی هیئت مذاکره‌کننده ایران با آمریکا را بر عهده دارد،‌ گفت که از نظر او: «ماجرای لبنان نشان می‌دهد میدان دیپلماسی کنار میدان نظامی می‌تواند اسرائیل و دشمنان را کنار بزند. نه دیپلماسی مانع عملیات نظامی است و نه عملیات نظامی مانع دیپلماسی است.»
+
+او گفت: «یک بار با تهدید به حمله و قطع مذاکره، جلوی حمله اسرائیل به بیروت را می‌گیریم و بار دیگر با حمله نشان می‌دهیم ترسی از قطع مذاکرات نداریم و نتیجه این می‌شود که آنها مجبور می‌شوند عقب‌نشینی کنند و ما حق خود را تثبیت می‌کنیم.»
+
+📷Hamed Malekpour - ICANA News Agency via Getty Images
+@BBCPersian
+</div>
+
+---
 📅 بروزرسانی: 1405/03/19 04:02
 ---
 

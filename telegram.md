@@ -7,6 +7,315 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/20 02:53
+---
+
+## VahidOOnLine — post 244594
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244594_1781047394.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️عباس عراقچی، وزیر امور خارجه جمهوری اسلامی، در واکنش به حملات نظامی ایالات متحده، با انتشار پیامی در اکس نوشت: «ایالات متحده تصمیم گرفت عزم و اراده ما را آزمایش کند، اما نیروهای مسلح قدرتمند ما هیچ حمله یا تهدیدی را بی‌پاسخ نخواهند گذاشت.» وزیر خارجه جمهوری اسلامی گفت: «اگر می‌خواهید در امان باشید، منطقه ما را ترک کنید. تاریخ خلیج فارس فصل‌های بسیاری درباره سرنوشت شوم بیگانگان دارد.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244593
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️پس از حملات موشکی روز یکشنبه ایران به اسرائیل و پاسخ متقابل اسرائیل به نقاط مختلف ایران، مصطفی خوش‌چشم، کارشناس صداوسیما، در برنامه‌ای در تاریخ دوشنبه ۱۸ خردادماه گفت آمریکا خردخرد به رادارها و دکل‌ها در جزایر جنوبی ایران حمله می‌کند؛ «این‌ها پیش‌درآمد جنگ است». او با اشاره به حملات موشکی روز یکشنبه ایران به اسرائیل و پاسخ متقابل اسرائیل به نقاط مختلف ایران، تاکید کرد که واشنگتن اکنون در میان لایه مذاکرات، دو جزیره راهبردی سیریک و قشم را در دو دهانه تنگه هرمز هدف قرار داده و به رادارها، دکل‌های مخابراتی و سیستم‌های پدافندی ضربه می‌زند. این کارشناس هشدار داد که ترامپ می‌خواهد زیر خط تنش و بدون دادن هزینه، آستانه تحمل ایران را بسنجد تا در نهایت با کور کردن پدافند کشور، برگ برنده تهران در کنترل منطقه را از بین ببرد و با باز کردن کامل تنگه هرمز، مسیر را برای عبور آزادانه ناوگان بزرگ کشتی‌ها هموار کند.
+تنش‌های نظامی در منطقه پس از حملات موشکی و تبادل آتش میان ایران و اسرائیل افزایش یافت.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14248
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دو دقیقه پیش سه انفجار از اسکله جاسک @withyashar
+</div>
+
+## mwarmonitor — post 10576
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴موج دوم حملات آمریکا به ایران در حال انجام است، یک مقام ارشد آمریکایی به کانال ۱۲ اسرائیل گفته است.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10575
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴صدای انفجار و فعال‌سازی سامانه‌های پدافند هوایی در جاسک
+</div>
+
+## pm_afshaa — post 93151
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93151_1781047395.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴آکسیوس: موج دوم حملات آمریکا به جنوب ایران آغاز شده. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93150
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93150_1781047396.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴آکسیوس: موج دوم حملات آمریکا به جنوب ایران آغاز شده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93149
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93149_1781047396.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کانال 12 اسرائیل:
+به گفته یک مقام ارشد آمریکایی، موج دوم حملات آمریکا به ایران الان در جریانه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93148
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴منابع آمریکایی به آکسیوس: آماده چندین دور حمله باشید
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93147
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سه انفجار در جاسک رخ داده. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93146
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انفجار مجدد در جاسک 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 341419
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341419_1781047397.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پولیتیکو به نقل از یک مقام کاخ سفید گزارش داد دونالد ترامپ، رییس‌جمهوری آمریکا، معتقد است با وجود موج جدید حملات تلافی‌جویانه آمریکا به اهدافی در جنوب ایران، توافق با جمهوری اسلامی نزدیک است.
+ارتش آمریکا در بامداد چهارشنبه اعلام کرد در پاسخ به اقدام جمهوری اسلامی در سرنگون کردن یک بالگرد آمریکایی، دور جدیدی از حمله‌ها را علیه حکومت ایران انجام داده است. رسانه‌های آمریکایی به نقل از یک مقام ایالات‌متحده گزارش دادند در این حمله‌ها سامانه‌های پدافند هوایی و راداری جمهوری اسلامی از جمله اهداف بوده‌اند.
+
+https://iranintl.com/202606097878
+</div>
+
+## IranIntlTV — post 341418
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341418_1781047398.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آزاد از شیراز: برای پیدا کردن سیگنال اینترنت، گوشه‌ و کنار خانه را گشتم
+
+«یک ایران صدای شما را می‌شنود»
+
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+
+از تلویزیون ایران‌اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+
+https://youtu.be/YTeRZTbJT3s
+@iranintltv
+</div>
+
+## IranIntlTV — post 341417
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341417_1781047400.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شایان از رضوانشهر: در راه انزلی، گیر ایست بازرسی افتادم. نقاب می‌زنند و مردم را می‌ترسانند
+
+«یک ایران صدای شما را می‌شنود»
+
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+
+از تلویزیون ایران‌اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+
+https://youtu.be/YTeRZTbJT3s
+@iranintltv
+</div>
+
+## IranIntlTV — post 341416
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341416_1781047402.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شایان از رضوانشهر: در راه انزلی، گیر ایست بازرسی افتادم. نقاب می‌زنند و مردم را می‌ترسانند
+
+«یک ایران صدای شما را می‌شنود»
+
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+
+از تلویزیون ایران‌اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+
+https://youtu.be/YTeRZTbJT3s
+@iranintltv
+</div>
+
+## Shin_Persian — post 6804
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Tue, 09 Jun 2026 23:17:07 UTC
+
+2nd attack on Jask, Hormozgan Province, #Iran
+
+فارسی
+
+دومین حمله به جاسک، استان هرمزگان، #Iran_
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 220181
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️محکومیت سه وکیل دادگستری در شیراز به سه سال زندان
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 16405
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مهر: دقایقی پیش، صدای انفجارهایی مجدد در محدوده شهرستان جاسک از سوی منابع محلی و ساکنان و روستاهای اطراف گزارش شده است. 📝 Amir 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16404
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مهر: دقایقی پیش، صدای انفجارهایی مجدد در محدوده شهرستان جاسک از سوی منابع محلی و ساکنان و روستاهای اطراف گزارش شده است.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 22015
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 کانال ۱۲ اسرائیل :
+
+امریکا حملات جدیدی رو الان در‌ جنوب ایران انجام داد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22014
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 خبرگزاری مهر :
+
+چند انفجار جدید در جاسک رخ داد.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 283279
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در پی حملات تلافی‌جویانه آمریکا به مناطقی در جنوب ایران،‌ عباس عراقچی، وزیر خارجه ایران در پیامی در شبکه ایکس بار دیگر از نیروهای آمریکایی خواست که برای در امان ماندن منطقه را ترک کنند.
+
+او در پیام خود نوشت: «به رغم شکست‌هایش در میدان نبرد، ایالات متحده تصمیم گرفت عزم ما را بیازماید. نیروهای مسلح قدرتمند ما هیچ حمله یا تهدیدی را بی‌پاسخ نخواهند گذاشت. اگر می‌خواهید در امان باشید،‌ منطقه ما را ترک کنید.»
+
+او افزود: «تاریخ خلیج فارس فصل‌های زیادی در مورد سرنوشت شوم بیگانگان متجاوز دارد.»
+
+او پیش از حملات هم در پیامی در شبکه ایکس هشدار داده بود که تا زمانی که نیروهای آمریکایی در منطقه هستند خطر آنها را تهدید می‌کند.
+
+📷EPA/Shutterstock
+
+از لینک ⬇️ تازه‌ترین تحولات را در سایت بی‌بی‌سی فارسی دنبال کنید.
+https://bbc.in/3Q6UZcc
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 391542
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏به خاطر جام جهانی آتش‌بس داد، جنگ جهانی شد! 👀
+
+از توجه شما به این موضوع سپاسگزارم
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391541
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391541_1781047404.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 امشب چه خبره، موزیک جدید و رسمی تتلو منتشر شد.
+
+به اسم رفتم که رفتم.
+
+
+🎥 لینک یوتیوب
+
+
+✈️ دانلود از تلگرام
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/03/20 02:42
 ---
 

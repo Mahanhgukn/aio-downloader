@@ -7,6 +7,229 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/19 17:03
+---
+
+## pm_afshaa — post 93003
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93003_1781011987.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴بروجردی، عضو کمیسیون امنیت ملی مجلس: ترامپ به دلیل جام جهانی به دنبال توافق مقطعیه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93002
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93002_1781011988.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴العربیه: پاکستان با همه طرف‌ها برای دستیابی به تفاهم در همین هفته در تماسه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 341337
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341337_1781011988.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کریم خان، دادستان ارشد دیوان بین‌المللی کیفری از مقام خود تعلیق شد. قرار است کشورهای عضو این نهاد قضایی به زودی درباره برکناری کامل او رأی‌گیری کنند. تحقیق هجده ماهه این نهاد اتهام آزار جنسی کریم خان را ثابت کرده است. یک کارمند زن دیوان بین‌المللی کیفری کریم خان را متهم کرده که در سفرهای کاری به زور در تخت کنار او خوابیده و او را آزار جنسی داده داست. کریم خان این اتهامات را رد کرده است.
+@iranintltv
+</div>
+
+## IranIntlTV — post 341336
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341336_1781011990.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آرش آزرمی، دبیر بخش اقتصادی ایران‌اینترنشنال، با اشاره به محاصره دریایی بنادر ایران و کاهش چشمگیر فروش نفت جمهوری اسلامی گفت بخش عمده صادرات کنونی نفت به چین از ذخایر شناور پیش از محاصره تامین می‌شود. به گفته او، ارائه تخفیف‌های بیشتر و کاهش تولید نفت، فشار بر صنعت نفت ایران را افزایش داده است.
+@iranintltv
+</div>
+
+## Shin_Persian — post 6777
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6777_1781011991.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet: Behzad💚☫❤ @Lajbaz2233 Mon, 08 Jun 2026 15:06:25 UTC خونه ی ما همیشه پرسروصداست ولی وقتی داداشمون رویت میشه، سکوت وحشتناکی بر خونه حاکم میشه😂 ↩️ Quoted tweet — see the post below for the reply. English Our house is always noisy, but whenever…
+</div>
+
+## Shin_Persian — post 6776
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6776_1781011992.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+Behzad💚☫❤ @Lajbaz2233
+Mon, 08 Jun 2026 15:06:25 UTC
+
+خونه ی ما همیشه پرسروصداست ولی وقتی داداشمون رویت میشه، سکوت وحشتناکی بر خونه حاکم میشه😂
+
+↩️ Quoted tweet — see the post below for the reply.
+
+English
+
+Our house is always noisy, but whenever my brother makes an appearance, a terrifying silence dominates the home. 😂
+
+𝕏 · @shin_persian
+</div>
+
+## ManotoTV — post 105980
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105980_1781011993.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+متیو مک‌کانهی می‌گوید زندگی آسان نیست و قرار هم نیست منصفانه باشد؛ سؤال مهم این است که هرکدام از ما «موفقیت» را برای خودمان چطور تعریف می‌کنیم.
+
+موفقیت شاید پول باشد، شاید خانواده‌ای سالم، رابطه‌ای آرام، کمک به دیگران، یا این‌که دنیا را کمی بهتر از چیزی که تحویل گرفتیم، ترک کنیم.
+
+اما هرچه هست، نباید به قیمت از دست دادن شخصیت و آرامش درونی‌مان تمام شود.
+
+پیام او ساده است:
+
+خودت را تعریف کن.
+
+چیزهایی را که تو را از مسیرت دور می‌کنند کنار بگذار.
+
+و هر روز، مراقب چیزهایی باش که واقعاً برایت مهم‌اند.
+
+تو نویسنده کتاب زندگی خودت هستی.
+</div>
+
+## ManotoTV — post 105979
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105979_1781011994.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در ویدئوی ارسالی به منوتو از پالایشگاه نفت پارس، یکی از کارکنان این مجموعه خواستار رسیدگی به وضعیت معیشتی کارگران شد. او در این ویدئو با خطاب قرار دادن رئیس اتحادیه، از او خواست به مشکلات و نیازهای قشر ضعیف رسیدگی کند.
+</div>
+
+## ManotoTV — post 105978
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105978_1781011996.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هما میرافشار شاعر و ترانه سرا
+در برنامه ویژه تلویزیون ملی به مناسبت ۴ آبان، سالروز تولد محمدرضاشاه پهلوی
+</div>
+
+## FarsiVOA — post 220116
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺گوترش خواستار توقف فوری حملات در خاورمیانه شد
+
+◾️آنتونیو گوترش، دبیرکل سازمان ملل متحد، با ابراز نگرانی عمیق از تشدید دوباره تنش‌ها در خاورمیانه، خواستار توقف فوری همه حملات و رعایت کامل آتش‌بس‌ها در لبنان، ایران، و غزه شد.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/guterres-urges-immediate-halt-to-attacks/8158914.html
+</div>
+
+## Hranews — post 113490
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قوه قضاییه: اموال بیش از ۲۰۰ نفر توقیف شد
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– سخنگوی قوه قضائیه از شناسایی و توقیف بیش از ۲۰۰ مورد از اموال افرادی خبر داد که به گفته او در ارتباط با «همکاری با دشمن» و اقدام علیه امنیت کشور تحت تعقیب قرار دارند.
+
+ادامه مطلب
+
+#توقیف_اموال
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## manototv — post 105980
+
+<div align="center">
+  <a href="telegram/content/manototv_105980_1781011997.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+متیو مک‌کانهی می‌گوید زندگی آسان نیست و قرار هم نیست منصفانه باشد؛ سؤال مهم این است که هرکدام از ما «موفقیت» را برای خودمان چطور تعریف می‌کنیم.
+
+موفقیت شاید پول باشد، شاید خانواده‌ای سالم، رابطه‌ای آرام، کمک به دیگران، یا این‌که دنیا را کمی بهتر از چیزی که تحویل گرفتیم، ترک کنیم.
+
+اما هرچه هست، نباید به قیمت از دست دادن شخصیت و آرامش درونی‌مان تمام شود.
+
+پیام او ساده است:
+
+خودت را تعریف کن.
+
+چیزهایی را که تو را از مسیرت دور می‌کنند کنار بگذار.
+
+و هر روز، مراقب چیزهایی باش که واقعاً برایت مهم‌اند.
+
+تو نویسنده کتاب زندگی خودت هستی.
+</div>
+
+## manototv — post 105979
+
+<div align="center">
+  <a href="telegram/content/manototv_105979_1781011999.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در ویدئوی ارسالی به منوتو از پالایشگاه نفت پارس، یکی از کارکنان این مجموعه خواستار رسیدگی به وضعیت معیشتی کارگران شد. او در این ویدئو با خطاب قرار دادن رئیس اتحادیه، از او خواست به مشکلات و نیازهای قشر ضعیف رسیدگی کند.
+</div>
+
+## manototv — post 105978
+
+<div align="center">
+  <a href="telegram/content/manototv_105978_1781012001.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هما میرافشار شاعر و ترانه سرا
+در برنامه ویژه تلویزیون ملی به مناسبت ۴ آبان، سالروز تولد محمدرضاشاه پهلوی
+</div>
+
+## alonews — post 126529
+
+<div align="center">
+  <a href="telegram/content/alonews_126529_1781012002.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈شلیک مستقیم نیروهای طالبان به معترضان در شهر هرات 
+🔴طالبان میگوید که اینها مردم نیستند و نیروهای تروریستی هستند 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126528
+
+<div align="center">
+  <img src="telegram/content/alonews_126528_1781012003.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هلیا خانم ایران
+۵ قلو زایید
+
+[@AloTweet]
+</div>
+
+---
 📅 بروزرسانی: 1405/03/19 16:52
 ---
 

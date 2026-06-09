@@ -7,6 +7,243 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/19 20:13
+---
+
+## WithYashar — post 14133
+
+<div align="center">
+  <img src="telegram/content/WithYashar_14133_1781023405.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ در تروث : «به من همین حالا توسط ارتش بزرگ‌مان اطلاع داده شده است که دیشب ایرانی‌ها یکی از بالگردهای بسیار پیشرفته آپاچی ما را هنگام گشت‌زنی بر فراز تنگه هرمز سرنگون کردند. دو خلبان در این حادثه حضور داشتند و هر دو سالم و بدون جراحت هستند. با این حال، ایالات متحده ناگزیر است به این حمله پاسخ دهد. از توجه شما به این موضوع سپاسگزارم!
+@withyashar
+</div>
+
+## WithYashar — post 14132
+
+
+
+
+## pm_afshaa — post 93017
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93017_1781023406.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴آکسیوس به نقل از مقامات آمریکایی: ما در حال بررسی هستیم که آیا شلیک موشک از سوی ایران باعث سقوط بالگرد آپاچی در نزدیکی تنگه هرمز در روز دوشنبه شده یا خیر. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93016
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فووووری
+</div>
+
+## pm_afshaa — post 93015
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93015_1781023406.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴جی‌دی ونس معاون ترامپ:
+جنگ ایران به باتلاق تبدیل نخواهد شد و یک سال دیگر به تاریخ خواهد پیوست.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## VahidOnline — post 76102
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76102_1781023407.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+☄️ ترامپ: ایران هلیکپوتر آمریکا را سرنگون کرده بود
+
+ترجمه ماشین:
+به‌تازگی از سوی ارتش بزرگمان به من اطلاع داده شد که دیشب ایرانی‌ها یکی از بالگردهای آپاچی بسیار پیشرفته ما را هنگام گشت‌زنی بر فراز تنگه هرمز سرنگون کرده‌اند. دو خلبان در این حادثه حضور داشتند که هر دو سالم و بدون آسیب هستند. با این حال، ایالات متحده ناگزیر است به این حمله پاسخ دهد.
+
+از توجه شما به این موضوع سپاسگزارم!
+
+رئیس‌جمهور دونالد جی. ترامپ
+realDonaldTrump
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 341364
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341364_1781023407.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تیتراول با نیوشا صارمی، سه‌شنبه ۱۹ خرداد
+@iranintltv
+</div>
+
+## Shin_Persian — post 6787
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6787_1781023408.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn Tue, 09 Jun 2026 16:40:55 UTC POTUS: "I have just been informed by our Great Military that last night the Iranians shot down one of our highly sophisticated Apache Helicopters while patrolling over the Strait of Hormuz. There were two…
+</div>
+
+## Shin_Persian — post 6786
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Tue, 09 Jun 2026 16:40:55 UTC
+
+POTUS:
+"I have just been informed by our Great Military that last night the Iranians shot down one of our highly sophisticated Apache Helicopters while patrolling over the Strait of Hormuz. There were two pilots involved, both are safe and uninjured. Nevertheless, the United States must, of necessity, respond to this attack. Thank you for your attention to this matter! President DONALD J. TRUMP"
+
+فارسی
+
+رئیس‌جمهور ایالات متحده (POTUS):
+«هم‌اکنون از سوی ارتش بزرگمان مطلع شدم که شب گذشته ایرانی‌ها یکی از بالگردهای بسیار پیشرفته آپاچی ما را در حین گشت‌زنی بر فراز تنگه هرمز سرنگون کردند. دو خلبان در این واقعه حضور داشتند که هر دو سالم و بدون جراحت هستند. با این وجود، ایالات متحده بنا بر ضرورت، باید به این حمله پاسخ دهد. از توجه شما به این موضوع سپاسگزارم! رئیس‌جمهور دونالد جی. ترامپ»
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 220132
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220132_1781023409.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل با انتشار تصاویری از تسلیحات کشف‌شده متعلق به حزب‌الله اعلام کرد در روزهای اخیر، نیروهای تیپ گولانی چند انبار تسلیحات متعلق به سازمان تروریستی حزب‌الله را در ساختمان‌های غیرنظامی در مناطق زوطر الغربیه و زوطر الشرقیه در جنوب لبنان شناسایی کردند.
+
+تسلیحات کشف‌شده در این انبارها شامل «کلاشنیکف، موشک‌ها و پرتابگرهای ضد زره، خشاب‌ها، نارنجک‌ها، دستگاه‌های ارتباطی، پهپادها و تجهیزات رزمی دیگر» بود.
+
+بنابر بیانیه ارتش اسرائیل در یکی از این انبارها در یک ساختمان غیرنظامی، ده‌ها نوع تسلیحات در کنار یک گهواره نوزاد شناسایی شد.
+
+ارتش اسرائیل همچنین اعلام کرد از آغاز فعالیت نیروهای تیپ گولانی در شمال رود لیتانی، بیش از ۴۰ تروریست از حزب‌الله حذف شده‌اند.
+</div>
+
+## Persian_Trend_Official — post 16284
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16284_1781023411.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قالیباف: ما زبان دیپلماسی را ترجیح می‌دهیم، ولی زبان‌ غیردیپلماسی را روان‌تر صحبت می‌کنیم، شما سوار همان اسبی می‌شوید که زین کرده‌اید.
+
+ما زبان دیپلماسی را ترجیح می‌دهیم، اما زبان‌های دیگر را بسیار روان‌تر صحبت می‌کنیم.
+
+اگر تعهدات خود را بشکنید، ما به همان زبان که خودمان بهتر بلدیم، روی می‌آوریم. شما سوار همان اسبی می‌شوید که زین کرده‌اید!
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16280
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16280_1781023411.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل اعلام کرد که در مناطق شمال رودخانه لیتانی در جنوب لبنان، در روزهای اخیر چندین انبار سلاح حزب‌الله را شناسایی کرده‌ است.
+
+ارتش اسرائیل افزود که این نیروها سلاح گرم، موشک‌های ضد زره و پرتابگرها، پهپادها و سایر تجهیزات نظامی را ضبط کرده‌اند.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## RadioFarda — post 158101
+
+<div align="center">
+  <a href="https://t.me/radiofarda/158101" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📻بشنوید: ایستگاه ۱۹ با رادیوفردا، ۱۹ خرداد ۱۴۰۵
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 21929
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21929_1781023412.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴اکانت اسرائیل به فارسی:
+
+ایال زمیر، رییس ستاد ارتش اسرائیل، در بازدید از رزمایش‌های آموزشی فرماندهان در شمال کشور، گفت: تلاش تهران برای تعیین معادلات جدید و تغییر واقعیت موجود شکست خواهد خورد و حمله‌ای که به جمهوری اسلامی انجام دادیم، مقدمه‌ای برای ضربه‌ای بسیار بزرگ‌تر و سنگین‌تر بود.
+ارتش اسرائیل آمادگی و آماده‌باش کامل خود را برای ازسرگیری درگیری با جمهوری اسلامی حفظ کرده و همچنان حفظ خواهد کرد.
+به عملیات خود ادامه خواهیم داد و آسیب به سازمان تروریستی حزب‌الله را عمیق‌تر خواهیم کرد.
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 391480
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391480_1781023413.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ژانر این روزای اینستا فارسی:
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391479
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391479_1781023413.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این که چیزی نیست ‌‎یارو با دانشگاه شاه،بورسیه شاه،پاسپورت شاه و کلی دورچین شاهنشاهی تهش انقلاب کرده
+از این مادرجندگی های سطحی تعجب نمیکنیم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391478
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391478_1781023413.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این حکومتیا ریختن روهم واسه خودشون سریال ترکیه‌ای راه انداختن
+
+الیکا ناصری و جی‌جی :)))
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 126564
+
+<div align="center">
+  <a href="telegram/content/alonews_126564_1781023414.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 جنگنده‌های اسرائیلی حملات هوایی خود را در سراسر جنوب لبنان ادامه می‌دهند.
+
+
+🔴 عکس از ارتفاعات الریحان و فیلم‌ها از سجود است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/19 20:03
 ---
 

@@ -7,6 +7,23 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/19 05:42
+---
+
+## FoxNewsTwitter — post 342747
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342747_1780971157.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+President Trump chats with NBA Commissioner Adam Silver during Game 3 of the NBA Finals at Madison Square Garden.
+
+Also in attendance was Nassau County Executive Bruce Blakeman, who is currently running for governor of New York as a Republican challenger to Gov. Kathy Hochul.
+</div>
+
+---
 📅 بروزرسانی: 1405/03/19 05:33
 ---
 

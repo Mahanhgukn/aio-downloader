@@ -7,6 +7,273 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/19 15:52
+---
+
+## WithYashar — post 14117
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: تنگه هرمز بلافاصله پس از امضا باز خواهد شد، که ممکن است در دو یا سه روز آینده باشد
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342752
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342752_1781007769.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+President Donald Trump reacts to the packed New York crowd's response during his appearance at the Knicks game last night, describing the atmosphere inside Madison Square Garden as highly energetic.
+
+"I thought it was amazing, actually, even when they had the camera on me. I thought that it was very good... I think, mostly cheers. It was loud and it was enthusiastic."
+</div>
+
+## pm_afshaa — post 92995
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نسخه کامل سخنرانی در نشست امنیتی دریای سیاه (با زیرنویس فارسی)
+
+اودسا - اوکراین
+شنبه ۹ خرداد ۲۵۸۵/۱۴۰۵
+
+@OfficialRezaPahlavi
+</div>
+
+## IranIntlTV — post 341327
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341327_1781007771.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻امیر صدیقی، رییس فدراسیون ووشو، روایت خود را از حواشی مسابقات انتخابی تیم ملی زنان و اتفاقات رخ‌داده در دفتر کارش تشریح کرد.
+
+🔹به گفته او، پس از شکست و حذف سهیلا منصوریان، دو خواهر دیگر او، الهه و شهربانو منصوریان، وارد دفتر ریاست فدراسیون شدند. صدیقی گفت: «الهه و شهربانو منصوریان با هتک حرمت، فریاد، استفاده از الفاظ ناشایست و پس از شکستن دوربین مداربسته و قفل در اتاق ریاست، وارد اتاق من شدند و به من حمله فیزیکی کردند. این دو خواهر با هتک حرمت به تصاویر کشته‌شدگان جنگ ایران و عراق، قاب عکس روح‌الله خمینی و قاب وان‌یکاد، پس از حمله فیزیکی، چاقویی را که به گفته من از قبل همراه خود داشتند، در دست گرفتند. آن‌ها پس از آنکه موفق نشدند سناریوی خود را عملی کنند، الهه منصوریان اقدام به خودزنی کرد و شروع به فریاد زدن کرد.»
+
+🔹رییس فدراسیون ووشو با تاکید بر پیگیری قضایی این پرونده افزود: «توهین لفظی و تهدید کارکنان فدراسیون به هیچ وجه قابل اغماض نیست. فدراسیون ووشو موضوع را از طریق مراجع قانونی و قضایی پیگیری خواهد کرد. دیگر دوران بزن‌دررو تمام شده است.»
+
+🔹جزییات بیشتر را در سایت بخوانید
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 341326
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/341326" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی اخبار نیم‌روزی | سه‌شنبه ۱۹ خرداد
+@iranintlTV
+</div>
+
+## Shin_Persian — post 6775
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6775_1781007772.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet: Shin ✓ @hey_itsmyturn Tue, 09 Jun 2026 12:17:55 UTC @AbujomaaGaza Al Mabrouk. Question is was she able to read the documents before signing them? ↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید. فارسی @AbujomaaGaza المبروک. سوال این…
+</div>
+
+## Shin_Persian — post 6774
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+Shin ✓ @hey_itsmyturn
+Tue, 09 Jun 2026 12:17:55 UTC
+
+@AbujomaaGaza Al Mabrouk.
+Question is was she able to read the documents before signing them?
+
+↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
+
+فارسی
+
+@AbujomaaGaza المبروک.
+سوال این است که آیا او توانست پیش از امضای اسناد آن‌ها را مطالعه کند؟
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6773
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6773_1781007772.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+I'm this close to click on "Reply"
+</div>
+
+## FarsiVOA — post 220112
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺حمله اسرائیل به مواضع حزب‌الله در شهر صور لبنان؛ منابع لبنانی می‌گویند دست‌کم هشت تن کشته شدند
+
+◾️اسرائیل روز سه‌شنبه، ۱۹ خرداد ۱۴۰۵، مواضع حزب‌الله را در شهر تاریخی و بندری صور در جنوب لبنان هدف حمله قرار داد؛ حمله‌ای که به گفته وزارت بهداشت لبنان دست‌کم هشت کشته بر جای گذاشت.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/israel-strikes-hesbollah-lebanon-tyre/8158905.html
+</div>
+
+## DW_Farsi — post 125721
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📸 از پروفسور نرتس تا ناگلزمان؛ سرمربیان تیم ملی آلمان از دریچه دوربین
+
+🔺 گزارشی از شهرام احدی
+
+در طی نه دهه گذشته ۱۲ سرمربی هدایت تیم ملی فوتبال آلمان را برعهده داشته‌اند. یولیان ناگلزمان از سپتامبر ۲۰۲۳ تا کنون سرمربی آلمان است. او هدایت ملی‌پوشان این کشور در مسابقات جام جهانی ۲۰۲۶ را بر عهده دارد.
+
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 16267
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16267_1781007772.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ: تنگه هرمز بلافاصله پس از امضا، که می‌تواند ظرف دو یا سه روز باشد، باز خواهد شد.
+
+من به نتانیاهو گفتم: کاری را که درست است انجام بده، اما می‌خواهم هر چه سریع‌تر متوقف شوی. زیرا آنها باید متوقف شوند. این موضوع به لبنان مربوط می‌شد و باید متوقف شود. ما می‌خواهیم این کار تمام شود.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 21914
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21914_1781007774.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴حملات هوایی ارتش اسرائیل به صیدا/ جنوب لبنان
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21913
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21913_1781007775.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴حملات اسرائیل به صور.
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 391455
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391455_1781007776.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+​​پاسخ فرزاد فخری زاده به خزعبلات این بازیگر درجه چندم که جوانان ایرانی را ملامت می‌کند
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391454
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391454_1781007778.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جنگ کله گنجشکی
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391453
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391453_1781007778.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امروز یه کامیون ناراحت دیدم :(
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391452
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391452_1781007779.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جاستین ترودو چقد هوله، کم مونده بود تا ارنج دستشو بکنه تو کون کیتی‌ پری
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391451
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391451_1781007780.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+- یکی‌شون میگه عاغا یخچال نداشته
+- یکی‌شون میگه عاغا از دید تو یخچال پنیر نیست
+
+وقتی همه‌چیشون دروغه، از این سوتی‌ها زیاد میدن :)))))
+سرنوشت عاغاشون کلا به یخچال گره خورده
+
+
+@Dirty_Kids 👻
+</div>
+
+## officialrezapahlavi — post 1840
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نسخه کامل سخنرانی در نشست امنیتی دریای سیاه (با زیرنویس فارسی)
+
+اودسا - اوکراین
+شنبه ۹ خرداد ۲۵۸۵/۱۴۰۵
+
+@OfficialRezaPahlavi
+</div>
+
+## alonews — post 126504
+
+<div align="center">
+  <a href="telegram/content/alonews_126504_1781007782.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈جنگنده‌های اسرائیلی امروز چندین حمله هوایی به صیدا در جنوب لبنان انجام دادند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126503
+
+<div align="center">
+  <a href="telegram/content/alonews_126503_1781007783.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: تنگه هرمز بلافاصله پس از امضا باز خواهد شد، که ممکن است در دو یا سه روز آینده باشد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/19 15:43
 ---
 

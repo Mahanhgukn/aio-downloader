@@ -7,6 +7,70 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/19 09:22
+---
+
+## WithYashar — post 14093
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پنتاگون شرکت‌های BYD، Alibaba و Baidu را به فهرست شرکت‌های متهم به همکاری با ارتش چین اضافه کرد.
+@withyashar
+</div>
+
+## WithYashar — post 14092
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نیویورک تایمز: یک فروند بالگرد نظامی آمریکا دیروز دوشنبه در نزدیکی تنگه هرمز سقوط کرد و خدمه آن به سلامت نجات یافتند.
+هنوز مشخص نیست که آیا این بالگرد توسط آتش‌ ایران سرنگون شده یا دچار نقص فنی شده است.
+@withyashar
+</div>
+
+## IranIntlTV — post 341283
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/341283" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی اخبار بامدادی | سه‌شنبه ۱۹ خرداد
+@iranintlTV
+</div>
+
+## DW_Farsi — post 125708
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125708_1780984375.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 ارتش اسرائیل یک پهپاد حوثی‌های یمن را رهگیری کرد
+
+ارتش اسرائیل بامداد روز سه‌شنبه ۱۹ خرداد (۹ ژوئن) اعلام کرد که یک پهپاد که از یمن به سمت اسرائیل پرواز کرده بود را در آسمان جنوب این کشور رهگیری و سرنگون کرده است.
+
+طبق داده‌های ارتش اسرائیل این حادثه در حریم هوایی شهر ایلات، واقع در ساحل دریای سرخ اتفاق افتاده و هیچ‌گونه تلفات یا زخمی گزارش نشده است.
+
+شبه‌نظامیان حوثی یمن که مورد حمایت و هم‌پیمان ایران هستند، روز دوشنبه مسئولیت حمله‌ به اسرائیل با چندین موشک را بر عهده گرفتند.
+
+این نخستین حمله مستقیم حوثی‌ها به اسرائیل از اوایل آوریل سال جاری، یعنی تقریبا از زمان آغاز آتش‌بس در جنگ ایران بود.
+
+حمله حوثی‌های یمن در پی حمله موشکی ایران به اسرائیل و واکنش اسرائیل به این حمله صورت گرفته است.
+
+@dw_farsi
+</div>
+
+## alonews — post 126422
+
+<div align="center">
+  <a href="telegram/content/alonews_126422_1780984376.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈زمین‌لرزه ۵ ریشتری سرگز هرمزگان را لرزاند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/19 09:12
 ---
 

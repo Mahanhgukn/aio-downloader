@@ -7,6 +7,35 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/19 04:02
+---
+
+## VahidOOnLine — post 244452
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244452_1780965161.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ابراهیم عزیزی، رئیس کمیسیون امنیت ملی و سیاست خارجی مجلس، در گفتگو با سی‌ان‌ان گفت در مذاکرات میان تهران و واشنگتن هیچ گفتگویی درباره اورانیوم، مواد غنی‌سازی‌شده، فرآیند غنی‌سازی و مسائل هسته‌ای در جریان نیست.
+
+اظهارات رئیس کمیسیون امنیت ملی مجلس در حالی مطرح می‌شود که مقام‌های آمریکایی و جمهوری اسلامی در هفته‌های اخیر بارها درباره روند مذاکرات و موضوعات مورد بحث میان دو طرف مواضع متفاوتی مطرح کرده‌اند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342738
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342738_1780965161.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+VP Vance slams Gov. Tim Walz over rampant fraud in his state: "Clearly people weren't taking fraud seriously ... We're gonna prosecute it, we have to." https://twitter.com/JesseBWatters/status/2064139945405497564#m
+</div>
+
+---
 📅 بروزرسانی: 1405/03/19 03:52
 ---
 

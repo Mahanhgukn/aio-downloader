@@ -7,6 +7,304 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/19 23:23
+---
+
+## WithYashar — post 14166
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پست جدید از آخرین وضعیت و اتفاقات پیش رو کارهای اداریش را انجام بدید. کلیک کنید.💥💥😁 https://www.instagram.com/reel/DZYFeVJS_V2/?igsh=MWNobm81Z282cWtmZQ==
+</div>
+
+## WithYashar — post 14165
+
+<div align="center">
+  <a href="telegram/content/WithYashar_14165_1781034788.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اتاق جنگ با یاشار : اختلال GPS
+@withyashar
+</div>
+
+## mwarmonitor — post 10543
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💥صدای انفجار در نجف شنیده شد.
+</div>
+
+## FoxNewsTwitter — post 342771
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342771_1781034790.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: A jury has found Karmelo Anthony guilty in the murder of 17-year-old Austin Metcalf.
+
+Anthony admitted to stabbing Metcalf but claimed he acted in self-defense.
+
+Witnesses testified that Metcalf and other student-athletes repeatedly asked Anthony to leave a Memorial High School team tent during a rain delay at the track meet.
+
+Students said Anthony responded with threats and became increasingly confrontational before a brief physical altercation ended when Metcalf was stabbed in the chest. | @TheStoryFNC @marthamaccallum
+</div>
+
+## pm_afshaa — post 93063
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93063_1781034792.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ به ای‌بی‌سی: حمله اسرائیل به ایران غیر ضروری بود ولی خب من درک میکنم که چرا نتانیاهو این تصمیم رو‌ گرفت.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93062
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴یک هواپیمای سوخت‌رسان آمریکایی در شیراز مشاهده شد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93061
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♨️
+♨️
+♨️
+</div>
+
+## pm_afshaa — post 93060
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴منابع اطلاعاتی در آمریکا: ما حرکات موشکی در غرب ایران را شناسایی می‌کنیم، ممکن است نیاز باشد در زمان بسیار کوتاه اقدام کنیم
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 341393
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341393_1781034793.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ گفت به او اطلاع داده شده است که جمهوری اسلامی یکی از بالگردهای بسیار پیشرفته آپاچی را در حالی که بر فراز تنگه هرمز در حال گشت‌زنی بود، سرنگون کرده است.
+
+ارزیابی شهیر شهیدثالث، تحلیلگر روابط بین‌الملل و مسائل ایران و فرزین ندیمی، پژوهشگر ارشد امور دفاعی و امنیتی
+@iranintltv
+</div>
+
+## Shin_Persian — post 6792
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Tue, 09 Jun 2026 19:51:40 UTC
+
+3 explosions heard in Najaf, #Iraq 🇮🇶
+
+فارسی
+
+۳ انفجار در نجف، #Iraq شنیده شد 🇮🇶
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6791
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Tue, 09 Jun 2026 19:43:13 UTC
+
+The Islamic Regime is completely ready to intercept any incoming missile or bomb with their buildings without any hesitation.
+
+فارسی
+
+رژیم اسلامی کاملاً آماده است تا بدون هیچ تردیدی هر موشک یا بمب ورودی را با ساختمان‌های خود رهگیری کند.
+
+𝕏 · @shin_persian
+</div>
+
+## Persian_Trend_Official — post 16320
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شنیده شدن صدای 3 انفجار در نجف عراق
+</div>
+
+## Persian_Trend_Official — post 16319
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16319_1781034796.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## Persian_Trend_Official — post 16318
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16318_1781034797.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شورای امنیت رأی‌گیری درباره قطعنامه 1737 را پیش برد و با 11 رأی موافق، بررسی بازگشت تحریم‌ها علیه جمهوری اسلامی ایران را تصویب کرد.
+
+
+👺Phantom
+
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Dirty_Kids — post 391503
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391503_1781034798.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏اگه آدرنالین تون اومده پایین و نیاز به هیجان و استرس دارین سرتونو درد نیارین برید اینو ببینین.
+پر از هیجان و تنش درباره عملیات سرقت و زندانی کردن گروگان ها داخل یه بانک کوچیک! باور کنین این سریال بهترین انتخابتون خواهد بود.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391502
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391502_1781034798.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیش‌بینی جالب یه پیج خارجی از نتایج جا‌م‌جهانی :)))
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391501
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391501_1781034800.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 جواب مراد ویسی به اینکه مجتبی کجاست😂
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391500
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فرودگاه‌های تهران تخلیه شد
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Hranews — post 113506
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محکومیت احمد سرپرست و ایوب پوررضازاده پایان یافت
+
+
+❗️
+❗️
+❗️
+❗️
+❗️ – دوران محکومیت احمد (یوحنا) سرپرست و ایوب (فرزین) پوررضازاده، دو نوکیش مسیحی که بخشی از آن را در قالب طرح «رأی باز» سپری کرده بودند، به پایان رسید.
+
+ادامه مطلب
+
+#احمد_سرپرست
+#یوحنا_سرپرست
+#ایوب_پوررضازاده
+#فرزین_پوررضازاده
+
+↘️
+@hranews_bot تماس ✉️ -  @Hranews  کانال هرانا 🆑
+</div>
+
+## alonews — post 126615
+
+<div align="center">
+  <a href="telegram/content/alonews_126615_1781034800.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈گزارش ها از شنیده شدن صدای 3 انفجار در نجف عراق
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126614
+
+<div align="center">
+  <a href="telegram/content/alonews_126614_1781034801.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈معاون وزیر خارجه ایران به الجزیره:
+ایران پشت حمله به بالگرد آمریکایی آپاچی در بالای تنگه هرمز نیست.
+
+
+🔴این احتمال وجود دارد که چنین حوادثی به دلیل فضای پرتنش در تنگه هرمز به صورت غیرعمد رخ دهند.
+
+
+🔴هیچ هدفگیری عمدی از سوی ایران علیه بالگرد آمریکایی در بالای تنگه هرمز صورت نگرفته است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126613
+
+<div align="center">
+  <a href="telegram/content/alonews_126613_1781034801.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ به ABC : حمله اخیر اسرائیل به ایران لازم نبود، ولی انگیزه‌های اسرائیل رو می‌فهمم
+
+
+🔴به نتانیاهو گفتم کاری نکنه که به مذاکرات با ایران ضربه بزنه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126612
+
+<div align="center">
+  <a href="telegram/content/alonews_126612_1781034801.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 رویترز: تردد کشتی‌ها در تنگه هرمز
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/19 23:13
 ---
 

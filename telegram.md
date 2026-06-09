@@ -7,6 +7,273 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/19 23:13
+---
+
+## VahidOOnLine — post 244567
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+زهیر امیرخانی، ۳۴ ساله، شامگاه ۱۸ دی در بلوار طاق‌بستان در حالی که با دوربین مشغول فیلم‌برداری از اعتراضات بود، هدف گلوله نیروهای حکومتی قرار گرفت.
+او در لحظه تصویربرداری شعار می‌داد: «بترسید، بترسید، ما همه با هم هستیم.»
+
+زهیر پس از این حادثه به بیمارستان منتقل شد و حدود یک هفته بعد بر اثر شدت جراحات جان باخت.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14164
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شورای امنیت رأی‌گیری درباره قطعنامه ۱۷۳۷ را پیش برد و با ۱۱ رأی موافق، بررسی بازگشت تحریم‌ها علیه جمهوری اسلامی ایران را تصویب کرد.
+
+بریتانیا از فعال شدن تمام تحریم علیه  ایران استقبال کرد.
+@withyashar
+</div>
+
+## WithYashar — post 14163
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پست جدید از آخرین وضعیت و اتفاقات پیش رو کارهای اداریش را انجام بدید. کلیک کنید.💥💥😁 https://www.instagram.com/reel/DZYFeVJS_V2/?igsh=MWNobm81Z282cWtmZQ==
+</div>
+
+## WithYashar — post 14162
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرنگار یدیعوت آحارونوت: حملات آمریکا جوری خواهد بود هیچکس حتی فکرشو نمیکنه
+@withyashar
+</div>
+
+## mwarmonitor — post 10542
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸 معاون وزیر خارجه ایران: ایران پشت حمله‌ای که بالگرد آپاچی آمریکایی بر فراز تنگه هرمز هدف آن قرار گرفت، نیست.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10541
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_10541_1781034214.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚠️الگو پروازی مهم ⚠️
+
+✈️دو تانکر از ترسیرا (Terceira) برخاسته‌اند. از علامت تماس REACH قبلاً برای مأموریت‌های بمباران استفاده شده است. تانکرهای مستقر در ترسیرا در حملات ۲۸ فوریه هم استفاده شده بودند و مطمئنم دفعات بی‌شمار دیگری هم
+
+‼️با توجه به آخرین اظهارات ترامپ، فکر می‌کنم این یک عملیات فعال است. اگر همین‌طور باشد، به‌زودی متوجه خواهیم شد.
+
+Boeing KC-46A Pegasus، دو فروند
+
+RCH054 - 22-46101
+RCH055 - 19-46109
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 93058
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴العربیه به نقل از یه مقام آمریکایی :
+شواهد و نشونه‌ها نشون می‌ده که ایران بالگرد رو عمداً هدف قرار داده بوده
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93057
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+𝗚𝗔𝗣 𝗕𝗨𝗭𝗭𝗭 | گَـپ بــاز
+
+https://t.me/+pZzIzgv3t0gwMDZk
+</div>
+
+## pm_afshaa — post 93056
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+افزایش آماده‌باش در اسرائیل
+
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93055
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارزیابی در اسرائیل: ترامپ ظرف چند ساعت به ایران حمله خواهد کرد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93053
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93053_1781034215.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴شورای امنیت رأی‌گیری درباره قطعنامه 1737 رو پیش برد و با 11 رأی موافق، بررسی بازگشت تحریم‌ها علیه ایران رو تصویب کرد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 341392
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+زهیر امیرخانی، ۳۴ ساله، شامگاه ۱۸ دی در بلوار طاق‌بستان در حالی که با دوربین مشغول فیلم‌برداری از اعتراضات بود، هدف گلوله نیروهای حکومتی قرار گرفت.
+او در لحظه تصویربرداری شعار می‌داد: «بترسید، بترسید، ما همه با هم هستیم.»
+
+زهیر پس از این حادثه به بیمارستان منتقل شد و حدود یک هفته بعد بر اثر شدت جراحات جان باخت.
+</div>
+
+## DW_Farsi — post 125740
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125740_1781034216.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶واکنش عراقچی به تهدید ترامپ: نیروهای نظامی بیگانه از مجاورت ایران خارج شوند
+
+عباس عراقچی، وزیر خارجه ایران، با اعلام این که نیروهای نظامی بیگانه مستقر در مجاورت قلمرو ایران «به دلیل خطاهای انسانی خود، حوادث صرف یا خطر قرار گرفتن در تبادل آتش، در معرض ریسک و خطرات مداوم هستند» از آن‌ها خواست که منطقه را ترک کنند.
+
+او در پستی در شبکه اجتماعی ایکس (X) ضمن "بیرون دانستن تنگه هرمز از محدوده آب‌های بین‌المللی"، نوشت: «برای کاهش این خطرات، بهترین راهکار این است که آن‌ها [نیروهای نظامی خارجی] منطقه را ترک کنند.»
+
+این اظهارات در پی بیانیه دونالد ترامپ، رئیس‌جمهور آمریکا مطرح می‌شود که ایران را مسئول سرنگونی یک بالگرد آپاچی آمریکایی دانست که شبانه در حال گشت‌زنی در تنگه هرمز بود. او تأکید کرد که واشنگتن باید به این اقدام پاسخ دهد.
+
+
+@dw_farsi
+</div>
+
+## DW_Farsi — post 125739
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125739_1781034217.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶شکایت علیه ستاد ساماندهی فضای مجازی ایران رد شد
+
+به دنبال شکایت برخی از اعضای حقیقی شورای عالی فضای مجازی ایران برای ابطال سند تأسیس "ستاد ویژه ساماندهی و راهبری فضای مجازی کشور"، دیوان عدالت اداری با توجه به اصلاحات صورت‌گرفته در متن این سند، شکایت مطروحه را رد کرد. این سند پیش‌تر در تاریخ ۲۲ اردیبهشت ۱۴۰۵ به تصویب رئیس‌جمهور ایران رسیده بود.
+
+احسان چیت‌ساز، معاون سیاستگذاری و برنامه‌ریزی توسعه فاوا و اقتصاد دیجیتال، با اعلام این خبر و اشاره به دادنامه مورخ ۱۹ خرداد ۱۴۰۵ گفت: «تعدادی از اعضای حقیقی شورای عالی فضای مجازی با ثبت دادخواستی در دیوان عدالت اداری، خواهان ابطال مصوبه ایجاد این ستاد شده بودند.»
+
+چیت‌ساز ادامه داد: «اما در فرآیند رسیدگی قضایی، مشخص شد که با موافقت رئیس‌جمهور، بندهای مربوط به اختیارات کلیدی و مکانیزم تصمیم‌گیری این ستاد دستخوش تغییر و اصلاح شده و به این ترتیب، زمینه اعتراض شاکیان از بین رفته است.»
+
+
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 16315
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://youtube.com/live/pqbVLiZh3kg?feature=share
+</div>
+
+## IranianMinds — post 21957
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#طنز
+
+فوری ترامپ : همین الان در پی تنش های زیاد در خاورمیانه و حمله به یکی از آپاچی ها بلافاصله به خودم تماس گرفتم و گفتم نباید پاسخ بدم . ما بسیار زیاد به توافق نزدیک هستیم .
+</div>
+
+## IranianMinds — post 21956
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21956_1781034218.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عادی ترین طرفدار جمهوری اسلامی:
+
+ببینید بخندید فقط به این یزید 😂😂😂😂
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21955
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پوشش لحظه ای جنگ ایران و امریکا در چنل زیر 👇👇
+
+https://t.me/+5ujuUVutlmw2OTE0
+</div>
+
+## BBCPersian — post 283269
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283269_1781034219.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عباس عراقچی، وزیر خارجه ایران، در پستی در شبکه ایکس نوشت: «نیروهای خارجی که در نزدیکی قلمرو ما حضور دارند، همواره در معرض خطر ناشی از اشتباهات انسانی خودشان، حوادث ساده و ناخواسته، یا حتی گرفتار شدن در آتش متقابل قرار دارند.»
+
+او در ادامه افزود: «برای کاهش این خطرات، بهترین راه‌حل این است که آن‌ها منطقه را ترک کنند.»
+
+وزیر امور خارجه ایران افزود: «ما ترجیح می‌دهیم با زبان دیپلماسی سخن بگوییم، اما به زبان‌های دیگری نیز مسلط هستیم.»
+
+ساعتی پیش از او محمد باقر قالیباف، رئیس مجلس ایران هم در پیام مشابهی نوشت: «ما زبان دیپلماسی را ترجیح می‌دهیم، اما به زبان‌های دیگری بسیار مسلط‌تر سخن می‌گوییم.»
+
+پیشتر دونالد ترامپ، در پستی در تروث‌سوشال نوشته بود که مطلع شده که یک بالگرد آپاچی آمریکا از سوی ایران هدف قرار گرفته است.
+
+او اضافه کرد که دو خلبان در این بالگرد حضور داشتند که هر دو در سلامت کامل هستند و آسیبی ندیده‌اند. ولی تاکید کرد: «با این حال، آمریکا ناگزیر است به این حمله پاسخ دهد.»
+
+📷EPA/Shutterstock
+https://bbc.in/4xi5EkZ
+
+@BBCPersian
+</div>
+
+## alonews — post 126611
+
+<div align="center">
+  <a href="telegram/content/alonews_126611_1781034220.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈داده‌های کشتیرانی: صادرات سوخت جت عربستان سعودی به اروپا از سطح پیش از بسته شدن تنگه هرمز فراتر رفت
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126610
+
+<div align="center">
+  <a href="telegram/content/alonews_126610_1781034220.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نیروی هوایی آمریکا هم‌اکنون هفت فروند هواپیمای سوخت‌رسان را در منطقه خاورمیانه به پرواز درآورده است.
+
+
+🔴 از این تعداد، شش فروند در مجاورت خلیج فارس در حال انجام عملیات پروازی هستند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/19 23:02
 ---
 

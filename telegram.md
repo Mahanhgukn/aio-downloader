@@ -7,6 +7,238 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/19 15:33
+---
+
+## WithYashar — post 14116
+
+<div align="center">
+  <img src="telegram/content/WithYashar_14116_1781006597.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ستون دود همین الان تهران محدوده ولنجک
+@withyashar
+</div>
+
+## WithYashar — post 14115
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨شبکه 14 اسرائیل
+«کابینه اسرائیل تصمیم گرفته است در پاسخ موشک‌ها یا پهپادهای حزب‌الله که شمال اسرائیل را هدف قرار دهند حمله متقابل به بیروت را در دستور کار قرار دهد.»
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342751
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342751_1781006597.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NEW: President Trump is still pushing for a deal with Iran even as Israel continues launching strikes.
+
+Trump says he expects to know where negotiations stand “in a matter of days,” while his team works to cool tensions before the conflict escalates further.
+
+VP Vance says the Iranians are "putting some real things on the table" and don’t want war either, calling it a “home-run win for the American people” if the U.S. can get a deal across the finish line.
+
+@aishahhasnie has the latest. | @foxandfriends @kilmeade
+
+Stop scrolling for updates and turn on live alerts. Get FOX One and get the facts.
+
+https://www.fox.com/stream/fox-news?cmpid=org=fn::ag=owned_other::mc=organicsocial%5B%E2%80%A6%5DWITTER::cmp=100_o2_th4::cont=m2_tp1::add=03_17_00_05_13_00_02_A
+</div>
+
+## FoxNewsTwitter — post 342750
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342750_1781006599.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NEW: Two U.S. soldiers are safe after a dramatic rescue operation off the coast of Oman.
+
+CENTCOM says the crew members were recovered roughly two hours after their AH-64 Apache helicopter went down while patrolling regional waters.
+
+American military forces, including U.S. Naval Forces Central Command, the 82nd Airborne Division, and U.S. 5th Fleet assets, helped bring both soldiers to safety.
+</div>
+
+## pm_afshaa — post 92994
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92994_1781006600.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبرگزاری سی‌ان‌ان: از شروع جنگ تا الان ترامپ به طور دقیق 37 بار گفته توافق با ایران نزدیکه، ولی هنوز توافق نشده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 341323
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341323_1781006600.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻زهرا علیزاده، بازیکن تیم ملی فوتبال زنان ایران و باشگاه گل‌گهر سیرجان، با انتشار پستی در اینستاگرام از دنیای فوتبال خداحافظی کرد و نوشت: «بدرود مستطیل سبز.»
+
+🔹علیزاده پیش‌تر و در جریان انقلاب ملی ایرانیان، با انتشار پیامی در شبکه‌های اجتماعی از تیم ملی فوتبال زنان کناره‌گیری کرده بود. او در آن زمان نوشته بود: «این خداحافظی نه از عشق به تیم ملی، بلکه از سر دلی پر از درد و نگرانی برای مردمی است که شایسته بهترین‌ها هستند. امیدوارم روزی برسد که همه ما به پیروزی دست پیدا کنیم؛ نه فقط در زمین فوتبال، بلکه در زندگی روزمره. تا روزی که ایران دوباره سرزنده و شاداب باشد، من در کنار مردمم خواهم ایستاد.»
+
+🔹پس از انتشار این موضع‌گیری، فدراسیون فوتبال کناره‌گیری او و همچنین کوثر کمالی را تکذیب و آن را شایعه توصیف کرد.
+
+🔹همزمان، ایران‌اینترنشنال به نقل از منابع خود گزارش داده بود که فشار نهادهای امنیتی بر برخی فوتبالیست‌های زن برای خودداری از اظهارنظر درباره اعتراضات افزایش یافته است.
+
+🔹جزییات بیشتر را در سایت بخوانید
+
+@iranintltvsport
+</div>
+
+## FarsiVOA — post 220110
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220110_1781006601.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اتحادیه اروپا در حال آماده‌سازی بیست‌ویکمین بسته تحریمی علیه روسیه است که بر اساس آن شبکه بانکی و مسیرهای رمزارزی مسکو را هدف می‌گیرد.
+
+رویترز به نقل از یک منبع دیپلماتیک اتحادیه اروپا گزارش داد این بسته قرار است روز چهارشنبه ارائه شود و هدف آن افزایش فشار مالی بر روسیه و بالا بردن احتمال بحران در نظام بانکی این کشور است. بروکسل امیدوار است این فشار مسکو را به مذاکره برای پایان جنگ اوکراین نزدیک‌تر کند.
+
+بر اساس این گزارش، ممکن است تا ۹۰ بانک روسی در فهرست تحریم‌ها قرار گیرند که بزرگ‌ترین فهرست‌گذاری بانکی اتحادیه اروپا در یک مرحله است.
+
+در صورت تصویب، شمار بانک‌های تحریم‌شده روسیه به بیش از ۱۰۰ بانک می‌رسد؛ بانک‌هایی که بیش از نیمی از وام‌دهندگان روسیه با ارتباطات بین‌المللی را شامل می‌شوند.
+
+تحریم‌های تازه شامل مسدودسازی دارایی‌ها و ممنوعیت معاملات خواهد بود. کمیسیون اروپا نیز هم‌زمان پیشنهاد می‌کند تراکنش با ۳۵ بانک و حدود دوازده پلتفرم رمزارزی که به دور زدن تحریم‌های غرب کمک می‌کنند، ممنوع شود؛ از جمله شبکه‌هایی که در کشورهای ثالث فعالیت دارند.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220109
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺پیش‌نویس مشترک آمریکا و سه کشور اروپایی در آژانس؛ حفظ مسیر فشار بر جمهوری اسلامی
+
+◾️پیش‌نویس قطعنامه شورای حکام آژانس بین‌المللی انرژی اتمی درباره جمهوری اسلامی، پس از اصلاح، به متن مشترک آمریکا و سه کشور اروپایی تبدیل شده است.
+
+◾️این پیش‌نویس اگرچه ارجاع فوری پرونده جمهوری اسلامی به شورای امنیت را کنار گذاشته، اما مسیر فشار سیاسی و حقوقی بر تهران را از پرونده پادمان‌ها باز نگه می‌دارد.
+
+◾️گزارش شده فشار اولیه آمریکا برای ارجاع فوری پرونده جمهوری اسلامی به شورای امنیت سازمان ملل، به‌عنوان بخشی از مصالحه با سه کشور اروپایی، از متن حذف شده است.
+
+◾️با این حال، متن پیش‌نویس هشدار می‌دهد شورای حکام آماده است درباره «زمان‌بندی و محتوای» گزارشی برای بررسی در شورای امنیت، تصمیم بگیرد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8158904.html
+</div>
+
+## DW_Farsi — post 125718
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125718_1781006601.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 مراسم تشییع و تدفین خامنه‌ای "پس از دهه اول محرم" برگزار می‌شود
+
+"ستاد بزرگداشت علی خامنه‌ای" در اطلاعیه شماره ۲ اعلام کرد مراسم "وداع، تشییع و تدفین" او و اعضای خانواده‌اش پس از پایان دهه اول محرم برگزار خواهد شد.
+
+در این اطلاعیه، گمانه‌زنی‌ها و شایعات منتشرشده درباره زمان و جزئیات مراسم در رسانه‌های داخلی و خارجی "فاقد اعتبار" خوانده شده و زمان برگزاری مراسم و جزئیات آن در زمان مناسب از سوی ستاد اعلام خواهد شد.
+
+این اطلاعیه در حالی منتشر شده که با گذشت بیش از ۱۰۰ روز از کشته‌شدن علی خامنه‌ای، همچنان اظهارات متفاوتی درباره زمان برگزاری مراسم تشییع و تدفین او مطرح می‌شود.
+
+پیش‌تر علیرضا نادعلی، سخنگوی شورای شهر تهران از تمدید مجوز استفاده رایگان از مترو و اتوبوس‌های تندرو تا پایان دهه اول محرم خبر داده و دلیل این تصمیم را هم‌زمانی آن با برگزاری مراسم تشییع علی خامنه‌ای عنوان کرده بود.
+
+او گفته بود این مصوبه در شورای شهر تهران به تصویب رسیده است.
+
+@dw_farsi
+</div>
+
+## BBCPersian — post 283256
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻سنتکام: بالگرد آپاچی «در حال گشت‌زنی» نزدیک سواحل عمان سقوط کرد
+
+فرماندهی مرکزی ایالات متحده آمریکا (سنتکام) در مورد سقوط بالگرد آپاچی بیانیه‌ای صادر کرد.
+
+در این بیانیه آمده است: «در ساعت ۷:۳۳ دیروز عصر به وقت شرق آمریکا پس از سقوط یک فروند بالگرد تهاجمی (ای‌اچ-۶۴ آپاچی) متعلق به ارتش آمریکا در نزدیکی سواحل عمان، نیروهای آمریکایی دو خلبان آن را نجات دادند.»
+
+سنتکام در این پیام در شبکه ایکس گفت که این بالگرد در حال «گشت‌زنی در آب‌های منطقه» بود که دچار حادثه شد.
+
+بر اساس بیانیه سنتکام، «عملیات جست‌وجو و نجات با موفقیت انجام شد و این دو نظامی پس از حدود دو ساعت از آب نجات داده شدند. همچنین وضعیت جسمانی هر دو نفر پایدار گزارش شده است.»
+
+سنتکام گفت علت در دست بررسی بوده و تحقیقات دامه دارد.
+
+جزئیات بیشتری منتشر نشده است.
+
+پیش‌تر دونالد ترامپ با تایید این حادثه گفت که دو خلبان بالگرد در سلامت هستند.
+
+@BBCPersian
+</div>
+
+## Hranews — post 113487
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پایان مرگبار یک درگیری خانوادگی؛ پدر ۷۵ ساله قربانی اسیدپاشی پسرش شد
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– یک مرد ۷۵ ساله که حدود ۱۲ روز پیش در پی یک درگیری با پسرش دچار سوختگی شدید با اسید دست‌ساز شده بود، در یکی از بیمارستان‌های تهران جان خود را از دست داد. متهم بازداشت شده و بررسی وضعیت سلامت روانی او در دستور کار قرار گرفته است.
+
+ادامه مطلب
+
+#اسیدپاشی
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## alonews — post 126501
+
+<div align="center">
+  <a href="telegram/content/alonews_126501_1781006602.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خبرنگار الجزیره: حمله هوایی اسرائیل به شهر نبطیه الفوقا در جنوب لبنان
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126500
+
+<div align="center">
+  <a href="telegram/content/alonews_126500_1781006602.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پاریس: ورود بتسالل اسموتریچ، وزیر دارایی اسرائیل، و ۴ نفر از رهبران سازمان‌های شهرک‌نشینان و ۲۱ شهرک‌نشین به فرانسه ممنوع اعلام شد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126499
+
+<div align="center">
+  <a href="telegram/content/alonews_126499_1781006602.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ارتش اسرائیل مدعی شد دو فرمانده ارشد وابسته به جنبش جهاد اسلامی فلسطین را در حمله‌ای هوایی در جنوب غزه هدف قرار داده و عملیات موفقیت آمیز بوده است.
+
+
+🔴در این حمله «ایاد محمد عبدالعزیز نفل»، از فرماندهان نیروهای نخبه جهاد اسلامی، و «احمد معروف»، رئیس یک هسته عملیاتی مسئول اجرای حملات راکتی علیه اسرائیل، ترور شدند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/19 15:23
 ---
 

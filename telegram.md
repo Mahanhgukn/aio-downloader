@@ -7,6 +7,100 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/19 09:42
+---
+
+## IranIntlTV — post 341285
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341285_1780985561.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حسین آقایی، عضو تحریریه ایران‌اینترنشنال با اشاره به راهبردهای جمهوری اسلامی در برابر آمریکا و اسرائیل گفت: تهران در کوتاه‌مدت به‌دنبال فرسایشی کردن مذاکرات و کاهش قدرت بازدارندگی اورشلیم و واشینگتن در منطقه است. در بلندمدت نیز تلاش می‌کند با خرید زمان و عبور از دوره دولت ترامپ، در شرایطی مساعدتر بمب اتمی بسازد.
+@iranintltv
+</div>
+
+## IranIntlTV — post 341284
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341284_1780985563.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻تا دو روز مانده به جام جهانی ۲۰۲۶، تیم فوتبال ایران، پرحاشیه‌ترین تیم ملی در جام بیست و سوم بوده است. بماند که در همین روزها، سوئیس و انگلیس هم با حاشیه‌های عجیبی روبرو شده‌اند.
+
+🔹علیرضا مدیری، خبرنگار ایران اینترنشنال گزارش می‌دهد.
+
+@iranintltvsport
+</div>
+
+## FarsiVOA — post 220091
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220091_1780985565.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رئیس‌جمهوری آمریکا، اعلام کرد که مذاکرات با جمهوری اسلامی همچنان ادامه دارد و ممکن است در روزهای آینده «ایده‌ای» در این زمینه مورد تفاهم قرار گیرد. او با این حال تأکید کرد که سلاح هسته‌ای همچنان برای جمهوری اسلامی ممنوع خواهد بود.
+
+آقای ترامپ شامگاه دوشنبه به خبرنگاران گفت: «ما در حال مذاکرات با ایران هستیم و این مذاکرات متوقف نشده است. ما می‌توانیم حداقل تا یک یا دو روز آینده به ایده‌ای برسیم، اما فکر می‌کنم اوضاع خوب پیش می‌رود.»
+
+با این حال، او تاکید کرد که محاصره دریایی علیه جمهوری اسلامی «همچنان ۱۰۰ درصد پابرجاست.»
+
+پرزیدنت ترامپ پیش از سوار شدن به هواپیمای ایر فورس وان گفت: «هیچ چیز از محاصره ما عبور نمی‌کند. نه نفتی، نه درآمدی، نه هیچ چیز دیگری. هیچ چیز از محاصره عبور نمی‌کند.»
+
+رئیس‌جمهوری آمریکا تاکید کرد: «ما در مراحل پایانی چیزی هستیم که یک توافق بسیار، بسیار خوب خواهد بود؛ توافقی که به هیچ شکل و صورتی اجازه دستیابی به سلاح هسته‌ای را (برای ایران) نخواهد داد.»
+
+او همچنین گفت: «این تنگه بلافاصله باز خواهد شد. به محض امضای توافق، فوراً باز می‌شود.»
+@FarsiVOA
+</div>
+
+## IranianMinds — post 21892
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21892_1780985566.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روح ‌و و روان ما؛ جایی در تاریخ جا ماند ...
+
+@IranianMinds
+</div>
+
+## alonews — post 126429
+
+<div align="center">
+  <a href="telegram/content/alonews_126429_1780985566.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 غریب‌آبادی، معاون عراقچی: شورای اتحادیه اروپا در یک اقدام مزورانه، به اصطلاح تحریم هایی را علیه برخی افراد و نهادهای ایرانی در ارتباط با تنگه هرمز تصویب کرد. هیچ ارزشی برای تحریم‌های اتحادیه اروپا قائل نیستیم.
+﻿
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126428
+
+<div align="center">
+  <a href="telegram/content/alonews_126428_1780985566.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رئیس پارلمان لبنان: ما خواستار آتش‌بس کامل هستیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126427
+
+<div align="center">
+  <a href="telegram/content/alonews_126427_1780985567.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نماینده ایران در سازمان ملل: هنوز به متن نهایی برای توافق دست نیافته‌ایم/ ایران و آمریکا در حال پیگیری و تبادل دیدگاه‌ها و نظرات جهت رسیدن به این متن هستند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/19 09:33
 ---
 

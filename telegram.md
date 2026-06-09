@@ -7,6 +7,309 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/19 21:03
+---
+
+## VahidOOnLine — post 244553
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244553_1781026431.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️محمدباقر قالیباف، رئیس مجلس شورای اسلامی و رئیس هیئت مذاکره‌کننده ایران با آمریکا، سه‌شنبه شب ۱۹ خردادماه در پیامی در شبکه اجتماعی اکس تاکید کرد جمهوری اسلامی ترجیح می‌دهد اختلافات از مسیر دیپلماسی حل‌وفصل شود، اما در صورت نقض تعهدات از سوی طرف مقابل، واکنش متناسب نشان خواهد داد.
+
+قالیباف نوشت: «ما زبان دیپلماسی را ترجیح می‌دهیم، اما به زبان‌های دیگری بسیار روان‌تر سخن می‌گوییم. اگر به تعهدات خود پایبند نمانید، به زبانی که بهتر از همه بلدیم با شما صحبت خواهیم کرد.»
+
+رئیس مجلس شورای اسلامی در ادامه این پیام افزود: «بر اسبی سوار شده‌اید که خودتان زینش کرده‌اید.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244552
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244552_1781026432.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ دونالد ترامپ، رئیس‌جمهوری آمریکا، در پیامی در شبکه اجتماعی «تروث سوشال» اعلام کرد که بالگرد آپاچی ارتش ایالات متحده که دوشنبه‌شب در محدوده تنگه هرمز در دریای عمان سقوط کرده بود، از سوی نیروهای نظامی جمهوری اسلامی هدف قرار گرفته است.
+
+ترامپ نوشت دو خلبان این هلی‌کوپتر سالم هستند و هیچ آسیبی ندیده‌اند، اما ایالات متحده «ناگزیر» باید به این حمله پاسخ دهد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14142
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرنگار فاکس‌نیوز در کاخ سفید:
+🚨🚨🚨🚨🚨🚨🚨🚨🚨
+«رئیس جمهور ترامپ احتمالاً در شرف دستور دادن به یک انفجار بزرگ در ایران است...
+
+هیچ سرباز آمریکایی در اینجا کشته نشد، اما به نظر می‌رسد که ایران واقعاً، واقعاً سخت تلاش می‌کرد تا سربازان آمریکایی را بکشد، زیرا آنها یک هلیکوپتر آپاچی را سرنگون کردند.»
+@withyashar
+</div>
+
+## WithYashar — post 14141
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سی ان ان : یک پهپاد شاهد ایران یک بالگرد آپاچی ۶۴ آمریکا را سرنگون کرده است.
+
+قیمت پهپاد شاهد بدون رنگ : ۲۰،۰۰۰دلار
+قیمت هلیکوپتر آپاچی ای اچ -۶۴ مدل سال : ۳۱ میلیون دلار
+@withyashar
+</div>
+
+## WithYashar — post 14140
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+منبع عراقی : یک موشک روسی اوگلا-اس به یک هدف هوایی که قصد عبور از تنگه هرمز را داشت، اصابت کرد.
+@withyashar
+</div>
+
+## WithYashar — post 14139
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نیویورک تایمز: ترامپ از اینکه نمی‌تونه مستقیم با آیت‌الله خامنه‌ای صحبت کنه خیلی ناراحته و حسابی ناامید شده
+این خبر فیکه داره پخش میشه !حتی ترجمه عنوان هم چیز دیگست
+خبر اصلی :
+https://www.nytimes.com/2026/06/09/world/middleeast/us-iran-talks-war.html?utm_source=perplexity
+@withyashar
+</div>
+
+## mwarmonitor — post 10529
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨شلیک موشک‌های رهگیر بر فراز نهاریا شمال اسرائیل بدون فعال شدن آژیرهای هشدار.
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 342766
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342766_1781026432.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+The Iranian regime may have just crossed President Trump’s red line.
+
+Trump previously said the U.S. would be forced to restart its hot war against Iran if the Islamic Republic killed any American troops – and even though there have been no reported fatalities, the president is vowing revenge out of “necessity” over a U.S. helicopter shot down by the regime, @pdoocy reports.
+
+@AmericaRpts
+@johnrobertsFox
+</div>
+
+## pm_afshaa — post 93026
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93026_1781026434.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رسانه‌های اسرائیل:
+هشدار نتانیاهو به کابینه؛ ممکنه مجبور بشیم با ایرانی‌ها به‌تنهایی و بدون حمایت آمریکا برخورد کنیم، با تمام هزینه‌های ناشی از اون.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93025
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قالیباف:اگر حملات به لبنان متوقف نشود،
+ما نیز باز خواهیم گشت
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## VahidOnline — post 76105
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76105_1781026435.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک مقام آمریکایی به اکسیوس گفت تحقیقات نشان داده است که یک پهپاد ایرانی به بالگرد برخورد کرده و باعث سقوط آن شده است.
+این مقام آمریکایی گفت تحقیقات هنوز مشخص نکرده که آیا این برخورد عمدی بوده است یا نه.
+axios
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 341371
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341371_1781026435.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻احمد دنیامالی، وزیر ورزش دولت جمهوری اسلامی در واکنش به احتمال نمایش پرچم شیر و خورشید در بازی‌های تیم ملی در جام جهانی گفت: «ما اعلام کردیم که اگر پرچمی جز پرچم جمهوری اسلامی در ورزشگاه ببینیم و شعارهای هنجارشکنانه مشاهده کنیم، سرپرست تیم مسئولیت دارد بازی را متوقف کند. مجموعه امنیتی برگزار کننده باید شرایط بازی را برای تیم ما مهیا کند، تا این موضوع حل نشده، می‌توانیم بازی را ادامه ندهیم.»
+
+🔹او درباره رژه روز افتخار هم‌جنس‌گرایان همزمان با بازی ایران و مصر در سیاتل گفت: «به ما گفته‌اند که نگرانی این موضوع را نداشته باشید، این چیزها استاندارد است و قواعدی است که ملزم به رعایت هستند.»
+
+🔹پیش‌تر، علیرضا دبیر، رییس فدراسیون کشتی در این باره گفته بود: «ما همیشه مسابقات جهانی می‌رویم، روی این موضوع (ورود پرچمی غیر از پرچم جمهوری اسلامی) حساسم، سریع برخورد می کنیم، با لگد بیرونشان می‌کنم.»
+
+@iranintltvsport
+</div>
+
+## DW_Farsi — post 125735
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶صدور حکم اعدام برای علیرضا پیغمبری، بازداشت‌شده تظاهرات دی‌ماه
+
+شعبه ۲۳ دادگاه انقلاب تهران، علیرضا پیغمبری، جوان ۲۶ ساله‌ای را که در جریان اعتراضات سراسری دی‌ماه سال گذشته بازداشت شده بود، به اتهام "محاربه" به اعدام محکوم کرد.
+
+او در حال حاضر در زندان تهران بزرگ به‌سر می‌برد و پرونده‌اش برای بررسی نهایی به شعبه ۹ دیوان عالی کشور ارجاع داده شده است.
+
+به گزارش هرانا، علیرضا پیغمبری در تاریخ ۱۹ دی‌ماه ۱۴۰۴ و در جریان تجمعات اعتراضی توسط مأموران امنیتی بازداشت و سپس در اسفندماه همان سال با تودیع وثیقه به صورت موقت آزاد شد.
+
+فرآیند رسیدگی به پرونده او از اردیبهشت‌ماه سال جاری در دادگاه انقلاب آغاز شد و پس از برگزاری دومین جلسه دادگاه در اوایل خردادماه، پیغمبری در همان محل دادگاه مجددا بازداشت و به زندان تهران بزرگ منتقل شد.
+
+
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 16291
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16291_1781026437.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری CNN گزارش می‌دهد که پهپاد اصابت کرده به بالگرد آپاچی امریکا در تنگه هرمز از نوع شاهد بوده.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 21942
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21942_1781026437.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴تو عراق یه رستوران به نام "کص صمد" باز شده؛
+
+ملت همیشه در صحنه هم انقدر واسشون کامنت گذاشتن که آخر سر مديريت رستوران کص صمد مجبور شد این کامنت رو بذاره :
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21941
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانفیگاش با سرعت خیلی بالایی وصله و هیچ تبلیغات و هزینه ای هم نداره
+روزانه بهتون نیم گیگ کانفیگ پر سرعت میده
+</div>
+
+## IranianMinds — post 21940
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21940_1781026439.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😳 هنوزم واسه کانفیگ هزینه میکنی؟
+
+🍸 با داییجون رایگان وصل شو
+
+
+🎁 کاملا رایگان بدون نیاز به رفرال یا هزینه ای
+
+
+🌟 به محض استارت کردن ربات کانفیگت واست ارسال میشه
+
+
+🎁 @Daeijoonbot | استارت کن و کانفیگ رایگان بگیر 
+🌟
+</div>
+
+## IranianMinds — post 21939
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21939_1781026440.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اکانت اسرائیل به فارسی:
+
+😂😂😂😂😂
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 391485
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391485_1781026440.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+باراک‌راوید قحبه [که منو بلاک کرده] به نقل از یک مقام ارشد آمریکایی نوشته که تحقیقات مشخص کرده که یک پهپاد روافض قحبه به هلیکوپتر برخورد کرده و باعث سقوطش شده. این مقام ارشد گفته که تحقیقات هنوز تعیین نکرده‌ که آیا این برخورد عمدی بوده یا خیر.
+
+نه خب چه عمدی. پهپاده ولگرد بوده و تو آسمون خدا به این بزرگی صاف رفته خورده تو هلی‌کوپتر آپاچی آمریکایی.
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 126576
+
+<div align="center">
+  <a href="telegram/content/alonews_126576_1781026441.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ادعای نیویورک تایمز: خطوط کلی توافق اولیه بین آمریکا و ایران تا حد زیادی مشخص است
+
+
+🔴مفاد کلیدی مورد بحث شامل بازگرداندن کشتیرانی عادی از طریق تنگه هرمز، کاهش محدودیت‌ها بر کشتی‌های ایرانی، مذاکرات آینده درباره ذخایر اورانیوم با غنای بالای ایران، کاهش تحریم‌ها و آزادسازی برخی از دارایی‌های بلوکه‌شده ایران است.
+
+
+🔴 ترامپ مکرراً مواضع مذاکراتی را که قبلاً توسط فرستادگانش مورد بحث قرار گرفته بود، تغییر داد، از جمله اضافه کردن شرایط جدید مربوط به برنامه هسته‌ای ایران و دارایی‌های بلوکه‌شده.
+
+
+🔴میانجی‌گران می‌گویند هر دو طرف همچنان برای دستیابی به حداقل یک توافق اولیه تحت فشار هستند، زیرا عدم اطمینان مداوم همچنان بر ثبات منطقه‌ای و بازارهای جهانی انرژی تأثیر می‌گذارد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126575
+
+<div align="center">
+  <a href="telegram/content/alonews_126575_1781026441.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / سی ان‌ان یک پهپاد شاهد ایرانی یک هلیکوپتر آپاچی آمریکایی را سرنگون کرده بود.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126574
+
+<div align="center">
+  <a href="telegram/content/alonews_126574_1781026441.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈شرکت کشتیرانی سی‌ام‌ای سی‌جی‌ام (CMA CGM): هزینه دور زدن تنگه هرمز در سال ۲۰۲۶ به ۳۰۰ میلیون دلار رسیده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/19 20:53
 ---
 

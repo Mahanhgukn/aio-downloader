@@ -7,6 +7,331 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/20 02:23
+---
+
+## VahidOOnLine — post 244591
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244591_1781045587.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هم‌زمان با حمله‌های جدید آمریکا به جمهوری اسلامی، عراقچی در ایکس نوشت: «با وجود شکست‌هایش در میدان نبرد، آمریکا تصمیم گرفت عزم ما را بیازماید. نیروهای مسلح قدرتمند ما هیچ حمله یا تهدیدی را بی‌پاسخ نخواهند گذاشت. اگر می‌خواهید در امان باشید، منطقه ما را ترک کنید.»
+او افزود: «تاریخ خلیج فارس فصل‌های بسیاری درباره سرنوشت‌های وخیم بیگانگان مداخله‌گر دارد.»
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14243
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نیویورک تایمز گزارش می‌دهد که حملات هوایی آمریکا به پایگاه‌های نظامی و دریایی، تأسیسات راداری و باتری‌های موشکی در پنج مکان در سواحل جنوبی ایران، از جمله موارد زیر، هدف قرار گرفته‌اند:
+
+پایگاه‌های دریایی در سیریک و جاسک
+سایت‌های دفاع هوایی در بندرعباس
+باتری‌های موشکی در قشم۶
+
+برخلاف گزارش صداوسیما مخزن آبی در سیریک هدف نگرفته است و مانند مدرسه میناب رو به دروغ آورند!
+@withyashar
+</div>
+
+## WithYashar — post 14242
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جنگ امیر تتلو و زندان
+
+امیر تتلو از پشت تلفن زندان موزیک ضبط کرده و همین الان پخش کرده
+
+https://youtu.be/ixhpdO88-IY?si=dmb7e06_W8ShLkkA
+
+@withyashar
+</div>
+
+## pm_afshaa — post 93139
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93139_1781045588.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نیویورک تایمز:
+حملات هوایی آمریکا به پایگاه‌های نظامی و دریایی، تأسیسات راداری و باتری‌های موشکی در 5 مکان در سواحل جنوبی ایران، از جمله موارد زیر، هدف قرار گرفتن:
+
+پایگاه‌های دریایی در سیریک و جاسک و سایت‌های دفاع هوایی در بندرعباس باتری‌های موشکی در قشم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93138
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تتلو از تو زندان با تماس تلفنی از زندان آهنگ خونده و ضبط و پخش کرده
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93137
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93137_1781045589.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴توییت عباس عراقچی:
+
+آمریکا با وجود شکست‌هاش تو میدون نبرد، تصمیم گرفت دوباره عزم ما رو آزمایش کنه. نیروهای مسلح قدرتمند ما هیچ حمله یا تهدیدی رو بی‌پاسخ نخواهند گذاشت.
+
+اگه میخواید در امان باشید، منطقه ما رو ترک کنید. تاریخِ خلیج فارس فصل‌های زیادی در مورد سرنوشت شوم بیگانگان متجاوز داره.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5524
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ سایت‌های نظامی اطراف تنگهٔ هرمز هدف حملهٔ آمریکا قرار گرفت
+
+دو منبع آمریکایی به شبکهٔ سی‌ان‌ان گفتند موج نخست حملات سنتکام، مواضع و تاسیسات نظامی جمهوری اسلامی در اطراف تنگه هرمز را هدف قرار داده است.
+یکی از این منابع در بامداد چهارشنبه به شبکهٔ آمریکایی گفت که انتظار می‌رود حملات بیشتری نیز در ادامه انجام شود.
+
+#خبر #دژ #تنگه_هرمز #جنگ
+@DEJradio
+</div>
+
+## VahidOnline — post 76117
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+موج حملات آمریکا «فروکش کرده است»
+
+رسانه‌های ایران از «فروکش کردن» موج حملات آمریکا خبر دادند که می‌تواند نشانه‌ای از «مقطعی و محدود» بودن این حملات، تلقی شود. چنانچه سنتکام آنها را «متناسب» خوانده بود.
+
+خبرگزاری تسنیم همچنین تصاویری ویدیویی منتشر کرده و مدعی شده که یک پهپاد شاهد ایران در آسمان عراق مشاهده شده و آژیرهای خطر در کویت و بحرین که میزبان پایگاه‌های نظامی آمریکا هستند به صدا در آمده است
+
+اما هنوز جزییات رسمی در این باره از سوی رسانه‌های بین‌المللی مخابره نشده است.
+@VahidHeadline
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 76116
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرنگار صدا و سیما در سیریک: در پی حمله امشب آمریکا به سیریک، ۲ مخزن آب بخش بمانی مورد اصابت قرار گرفته و آب آشامیدنی این بخش قطع شده است.
+
+"خبرگزاری صداوسیما" در خبر دیگری نوشته: هیچ بندر تجاری در جزیره قشم هدف قرار نگرفته است. در پی شنیده شدن ۶ انفجار در قشم برخی کانال های خبری از حمله به یک بندر تجاری در قشم خبر داده بودند.
+
+📡 @VahidOnline
+</div>
+
+## kianmeli1 — post 87829
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴دو مخازن آب آشامیدنی سیریک توسط موشک های امریکایی منهدم شده اند آب شهری قطع شده است
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 341415
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/341415" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی جمهوری اسلامی؛ استاد عادی‌سازی بحراناز «چرا گران شد؟» تا «چقدر گران شد؟»
+@iranintlTV
+</div>
+
+## IranIntlTV — post 341414
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341414_1781045590.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هم‌زمان با حمله‌های جدید آمریکا به جمهوری اسلامی، عراقچی در ایکس نوشت: «با وجود شکست‌هایش در میدان نبرد، آمریکا تصمیم گرفت عزم ما را بیازماید. نیروهای مسلح قدرتمند ما هیچ حمله یا تهدیدی را بی‌پاسخ نخواهند گذاشت. اگر می‌خواهید در امان باشید، منطقه ما را ترک کنید.»
+او افزود: «تاریخ خلیج فارس فصل‌های بسیاری درباره سرنوشت‌های وخیم بیگانگان مداخله‌گر دارد.»
+
+https://iranintl.com/202606092272
+</div>
+
+## Shin_Persian — post 6803
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Tue, 09 Jun 2026 22:46:44 UTC
+
+2241Z
+AA activity in Hamedan
+Hamedan Province, #Iran
+
+فارسی
+
+۲۲۴۱ زولو (۰۲:۱۱ به وقت تهران)
+فعالیت پدافند هوایی در همدان
+استان همدان، #Iran
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 220177
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺رئيس مجلس نمایندگان آمریکا: حملات امشب به جمهوری اسلامی «متناسب و محدود» است
+
+▪️مایک جانسون، رئيس مجلس نمایندگان آمریکا، عصر سه‌‌شنبه به وقت واشنگتن گفت حملات ایالات متحده در واکنش به سرنگونی هلی‌کوپتر آپاچی آمریکایی توسط جمهوری اسلامی، «هدفمند» است.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8159053.html
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 16399
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ صدا و سیما مدعی مورد اصابت قرار گرفتن دو مخزن آب در بخش بمانی شهرستان سیریک شده است.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16398
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16398_1781045591.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ روسیه بعد از هدف قرار گرفتن خط لوله گاز اصلیش توسط اوکراین
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 22011
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 صداوسیما :
+
+آمریکا به دو مخزن آب در سیریک حمله کرده.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 283278
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️موج حملات آمریکا «فروکش کرده است»
+
+رسانه‌های ایران از «فروکش کردن» موج حملات آمریکا خبر دادند که می‌تواند نشانه‌ای از «مقطعی و محدود» بودن این حملات، تلقی شود. چنانچه سنتکام آنها را «متناسب» خوانده بود.
+
+خبرگزاری صدا و سیما از آرام شدن اوضاع در مناطق ساحلی جنوب ایران از جمله بندرعباس، قشم، سیریک، جاسک و کوه مبارک خبر داده است.
+
+خبرگزاری تسنیم همچنین تصاویری ویدیویی منتشر کرده و مدعی شده که یک پهپاد شاهد ایران در آسمان عراق مشاهده شده و آژیرهای خطر در کویت و بحرین که میزبان پایگاه‌های نظامی آمریکا هستند به صدا در آمده است
+
+اما هنوز جزییات رسمی در این باره از سوی رسانه‌های بین‌المللی مخابره نشده است.
+
+https://bbc.in/3S256Q0
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 391538
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آپدیت شد؛
+
+- جنگ 12 روزه
+- جنگ 12 ساعته
+- جنگ 12 دقیقه
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391537
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391537_1781045593.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به زودی باید اینجوری دیت بزارید:
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 126678
+
+<div align="center">
+  <img src="telegram/content/alonews_126678_1781045595.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🌐نامحدود فقط 90 تومن 😍
+فقط ۵۰ نفر اول ❤️
+
+✅با سابقه ۵ سال فعالیت مداوم
+🛡حتی بدون قطعی تو دوران جنگ
+
+بقیه هنوز VPN حجمی میفروشن
+اونم با قیمتای نجومی 🚀
+
+ما چی؟ 💯💥 VPN نامحدود واقعی فقط 90 تومن🏷️
+
+✅این آفر فقط برای ۵۰ نفر اوله رفقا ✅
+
+💥بدون محدودیت حجم⬇️⬇️⬇️
+@NetAazaadBot
+@NetAazaadBot
+</div>
+
+## alonews — post 126677
+
+<div align="center">
+  <a href="telegram/content/alonews_126677_1781045596.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈هم اکنون حملات اوکراین به روسیه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126676
+
+<div align="center">
+  <a href="telegram/content/alonews_126676_1781045597.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈دو مخزن آب در بخش بمانی شهرستان سیریک در جنوب ایران هدف حملات هوایی آمریکا قرار گرفتند و طبق گزارش صدا و سیما، آب آشامیدنی در این بخش اکنون قطع شده است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/20 02:13
 ---
 

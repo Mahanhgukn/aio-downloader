@@ -7,6 +7,243 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/20 03:23
+---
+
+## WithYashar — post 14253
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هم اکنون انفجار سنگین سیریک و اطراف را لرزاند
+@withyashar
+</div>
+
+## WithYashar — post 14252
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حملات جدید به بندر عباس و سیریک
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342780
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342780_1781049202.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+RT @SpecialReport: 🚨BREAKING: Direct military engagement has resumed in the Middle East tonight. Following a brief exchange that brought down an American chopper, CENTCOM is executing what the White House calls "proportional" strikes on Iranian ports. While President Trump signals he still wants a peace deal more than a widespread war, top allies warn that Tehran is simply playing for time. @pdoocy has the exclusive diplomatic updates live from the White House Lawn.
+</div>
+
+## pm_afshaa — post 93169
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93169_1781049203.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴حملات آمریکا در جنوب کشور از جمله سیریک، قشم و بندرعباس شدید گزارش شده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93168
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+از خرم اباد یه اکیپ پهپاد بلند شدن
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93167
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انفجار مجدد در بندرعباس و قشم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93166
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دوباره انفجار در سیریک گزارش شده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93165
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تو کانال زاپاسمون حتما جوین شین همین الان
+
+👇
+👇
+
+https://t.me/pmtvzapas
+https://t.me/pmtvzapas
+</div>
+
+## pm_afshaa — post 93164
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سخنگوی ارتش جمهوری اسلامی: تمام پایگاه‌های آمریکایی در منطقه را تخلیه کنید
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## VahidOnline — post 76118
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76118_1781049204.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری مهر به نقل از منابع محلی و ساکنان روستاهای اطراف، از شنیده شدن مجدد صدای چندین انفجار در محدوده شهرستان جاسک خبر داد. پیش‌تر حملات نظامی به بندر جاسک و کوه مبارک توسط منابع آگاه تایید شده بود و این حادثه، دومین موج از صداهای انفجار در این منطقه از آغازین ساعات بامداد چهارشنبه به شمار می‌رود.
+@VahidOOnLine
+من هم حدود ساعت ۲:۳۰ چند پیام از جاسک دریافت کرده بودم.
+خبرنگار آکسیوس هم به نقل از مقام آمریکایی گفته یک موج حمله دیگه انجام شده.
+📡 @VahidOnline
+</div>
+
+## Shin_Persian — post 6805
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Tue, 09 Jun 2026 23:43:44 UTC
+
+IRGC trucks hiding in Pouneh tunnel, Lorestan Province, #Iran
+
+فارسی
+
+کامیون‌های سپاه پاسداران انقلاب اسلامی (IRGC) پنهان شده در تونل پونه، استان لرستان، #Iran
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 220187
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺سی‌بی‌اس از قول «مقامات آگاه» می‌گوید هلی‌کوپتر آپاچی آمریکا مورد اصابت یک پهپاد شاهد قرار گرفته بود
+
+▪️شبکه آمریکایی سی‌بی‌اس به نقل از «دو منبع آگاه» گزارش داد که یک پهپاد مسلح ایرانی موسوم به «شاهد» به هلی‌کوپتر آپاچی آمریکایی که روز دوشنبه در دریا در سواحل عمان سقوط کرد، اصابت کرد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8159073.html
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 16411
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16411_1781049205.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک فروند هواپیمای P-8 پوسایدن از بحرین برخواسته و در حال گشت زنی در شرق عربستان است.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 22020
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 خبرگزاری فارس :
+
+اسرائیل از شرایط الان سواستفاده کرده و رفته به بیروت حمله کرده.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22019
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 انفجار مهیب در سیریک
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22018
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ارتش جمهوری اسلامی :
+
+تمام پایگاه های آمریکایی رو تخلیه کنید آبگرمکن هامونو داریم آماده میکنیم.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22017
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فعالیت جنگنده های آمریکا در جنوب عراق
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 391546
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391546_1781049206.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فارس‌نیوز میگه اسرائیل از حمله آمریکا به جنوب سوءاستفاده کرده و داره ضاحیه رو میزنه.😂😂😂😂😂😂😂😂😂😂😂😂😂😂😂😂😂😂😂😂😂
+خوب که چی؟ الان تو میخوای چه گوهی بخوری؟
+
+دارن ایران رو میزنه به فکر لبنانن
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391545
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صابرین‌نیوز، وابسته به سازمان اطلاعات سپاه، هم‌اکنون از وقوع انفجارهای تازه در قشم و بندرعباس ‌و همچنین حملات پهپادی در همدان خبر داده است.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391544
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صداوسیما خبر داد که دقایقی قبل بازهم چند انفجار جدید در بندر جاسک رخ داده است. همزمان آکسیوس و کانال ۱۲ اسرائیل به نقل از مقام ارشد آمریکایی اعلام کردند که «موج دوم حملات به سامانه‌های پدافندی و راداری ایران در حال انجام است.»
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/03/20 03:12
 ---
 

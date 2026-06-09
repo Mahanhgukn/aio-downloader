@@ -7,6 +7,261 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/19 23:02
+---
+
+## VahidOOnLine — post 244566
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244566_1781033578.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عبدالرحیم سلیمانی اردستانی، روحانی عضو مجمع مدرسین و محققین حوزه علمیه قم، استاد دانشگاه مفید و پژوهشگر دینی محبوس در زندان قم، با حکم دادگاه ویژه روحانیت به شش سال حبس، پرداخت جزای نقدی و خلع لباس روحانیت محکوم شد.
+
+سایت انصاف‌نیوز، سه‌شنبه ۱۹ خرداد به نقل از مجتبی لطفی، از مسئولان دفتر آیت‌الله حسینعلی منتظری، گزارش داد حکم سلیمانی اردستانی صادر شده و او گفته است قصد اعتراض به این حکم را ندارد، مگر آنکه دادگاه به‌صورت علنی برگزار شود.
+
+به گفته لطفی، سلیمانی اردستانی در ارتباط با تمامی هشت اتهام مطرح‌شده علیه خود محکوم شده است.
+
+از مناظره جنجالی تا بازداشت و محکومیت
+
+سلیمانی اردستانی ۹ خرداد در نامه‌ای از زندان اعلام کرده بود با اتهام‌هایی از جمله «تشویش اذهان عمومی»، «توهین به مقدسات»، «توهین به رهبری» در ارتباط با علی و مجتبی خامنه‌ای، «تجمع در اعتراض به حصر میرحسین موسوی» و «اجتماع و تبانی علیه امنیت داخلی» روبه‌رو است.
+
+ادامه این گزارش را در وبسایت ایران‌اینترنشنال بخوانید
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14161
+
+
+
+
+## WithYashar — post 14160
+
+
+
+
+## pm_afshaa — post 93052
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_93052_1781033579.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسمون ایران کلییر شد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93051
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سپاه پاسداران لیست ترور منتشر کرد : 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93050
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_93050_1781033580.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سپاه پاسداران لیست ترور منتشر کرد :
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93049
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+احتمالا اسرائیل و آمریکا باهم حمله میکنن
+</div>
+
+## IranIntlTV — post 341391
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341391_1781033581.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند با ارسال پیامی به ایران اینترنشنال از شرایط بد اقتصادی و درد باقی‌مانده از سرکوب انقلاب ملی در دی‌ماه روایت می‌کند. پیام او با هوش مصنوعی خوانده شده است.
+</div>
+
+## IranIntlTV — post 341390
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341390_1781033584.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عبدالرحیم سلیمانی اردستانی، روحانی عضو مجمع مدرسین و محققین حوزه علمیه قم، استاد دانشگاه مفید و پژوهشگر دینی محبوس در زندان قم، با حکم دادگاه ویژه روحانیت به شش سال حبس، پرداخت جزای نقدی و خلع لباس روحانیت محکوم شد.
+
+سایت انصاف‌نیوز، سه‌شنبه ۱۹ خرداد به نقل از مجتبی لطفی، از مسئولان دفتر آیت‌الله حسینعلی منتظری، گزارش داد حکم سلیمانی اردستانی صادر شده و او گفته است قصد اعتراض به این حکم را ندارد، مگر آنکه دادگاه به‌صورت علنی برگزار شود.
+
+به گفته لطفی، سلیمانی اردستانی در ارتباط با تمامی هشت اتهام مطرح‌شده علیه خود محکوم شده است.
+
+
+ادامه این گزارش را در وبسایت ایران‌اینترنشنال بخوانید
+https://iranintl.com/202606091391
+</div>
+
+## IranIntlTV — post 341389
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/341389" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی چشم‌انداز: پروژه دفن خامنه‌ای، تبعات حذف ناگهانی دیکتاتور ایران
+@iranintlTV
+</div>
+
+## Persian_Trend_Official — post 16313
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16313_1781033585.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شنیده شدن چندین صدای انفجار در کردستان عراق
+
+برخی از کانال های محلی خبر از حمله موشکی پهپادی سپاه پاسداران به مواضع گروهک های کرد میدهند، منابع رسمی تا به این لحظه در مورد صداهای انفجار اظهار نظری نکردند.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 21953
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴متکی نماینده تهران:
+
+قوه قضاییه، حکم اعدام ترامپ و نتانیاهو را صادر کند😂
+
+@IranianMinds
+</div>
+
+## Hranews — post 113505
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عبدالعزیز عمرزهی در زاهدان بازداشت شد
+
+
+❗️
+❗️
+❗️
+❗️
+❗️ – مولوی عبدالعزیز عمرزهی، روحانی اهل سنت و مدرس سابق دارالعلوم مکی زاهدان، شامگاه امروز سه‌شنبه ۱۹ خردادماه، توسط نیروهای امنیتی در زاهدان #بازداشت و به مکانی نامعلوم منتقل شد.
+
+ادامه مطلب
+
+#عبدالعزیز_عمرزهی
+
+↘️
+@hranews_bot تماس ✉️ -  @Hranews  کانال هرانا 🆑
+</div>
+
+## alonews — post 126609
+
+<div align="center">
+  <a href="telegram/content/alonews_126609_1781033586.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈طبق گزارش ها تهران در حال حاضر شاهد اختلالات گسترده در GPS و خطای سیگنال‌های ناوبری (Spoofing) است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126608
+
+<div align="center">
+  <a href="telegram/content/alonews_126608_1781033586.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فوری/ سپاه لیست ترور منتشر کرد
+
+
+✅ @AloNews
+</div>
+
+## alonews — post 126607
+
+<div align="center">
+  <a href="telegram/content/alonews_126607_1781033586.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / شورای امنیت رأی‌گیری درباره قطعنامه ۱۷۳۷ را پیش برد و با ۱۱ رأی موافق، بررسی بازگشت تحریم‌ها علیه جمهوری اسلامی ایران را تصویب کرد
+
+
+🔴 بریتانیا از فعال شدن تمام تحریم علیه ایران استقبال کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126606
+
+<div align="center">
+  <a href="telegram/content/alonews_126606_1781033587.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کانال ۱۴ اسرائیل: احمد وحیدی فرمانده کل سپاه پاسداران گفته تا جمهوری اسلامی پول نقد دریافت نکنه هیچگونه توافقی امضا نخواهد شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126605
+
+<div align="center">
+  <a href="telegram/content/alonews_126605_1781033587.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فارس به نقل از منبعی مدعی شد: پیشنهاد جدیدی از سوی ایران برای آمریکا ارسال نشده است.
+
+
+🔴اسکای‌نیوز امروز در خبری اعلام کرد که تهران پیش‌نویس جدیدی برای طرح صلح به واشنگتن ارسال کرده و گزارش‌های اولیه نشان می‌دهد که طرف آمریکایی آن را «قابل قبول» می‌داند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126604
+
+<div align="center">
+  <a href="telegram/content/alonews_126604_1781033587.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خبرنگار فاکس‌نیوز در کاخ سفید:
+«رئیس جمهور ترامپ احتمالاً در شرف دستور دادن به یک انفجار بزرگ در ایران است... هیچ سرباز آمریکایی در اینجا کشته نشد، اما به نظر می‌رسد که ایران واقعاً، واقعاً سخت تلاش می‌کرد تا سربازان آمریکایی را بکشد، زیرا آنها یک هلیکوپتر آپاچی را سرنگون کردند.»
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126603
+
+<div align="center">
+  <a href="telegram/content/alonews_126603_1781033589.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حداقل 4 پهپاد کامیکازه شاهد-136 سپاه به یکی از مقرهای حزب دمکرات کردستان حمله کردند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/19 22:53
 ---
 

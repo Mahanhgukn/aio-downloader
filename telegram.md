@@ -7,6 +7,147 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/19 09:52
+---
+
+## WithYashar — post 14094
+
+<div align="center">
+  <a href="telegram/content/WithYashar_14094_1780986169.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ان‌بی‌سی نیوز : وقتی رئیس جمهور ترامپ در بازی سوم فینال NBA هنگام پخش سرود ملی روی جایگاه تماشاگران در مدیسون اسکوئر گاردن ظاهر شد، توسط جمعیت (BOOE) هو شد.
+@withyashar
+</div>
+
+## IranIntlTV — post 341288
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341288_1780986172.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شی جین‌پینگ، رییس‌جمهوری چین، سفر خود به کره شمالی را نقطه عطفی در روابط دو کشور توصیف کرد و آن را آغاز مرحله‌ای تازه از همکاری میان پکن و پیونگ‌یانگ دانست.
+
+گفت‌وگو با توماج طاهباز، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 341287
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341287_1780986174.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اتحادیه اروپا فرماندهی نیروی دریایی سپاه پاسداران در هرمزگان و دو فرد مرتبط با اقدامات جمهوری اسلامی در تنگه هرمز را در فهرست تحریم‌های خود قرار داد.
+
+لی‌لی نیکفر، خبرنگار ایران‌اینترنشنال، گزارش می‌دهد
+@iranintltv
+</div>
+
+## IranIntlTV — post 341286
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341286_1780986176.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حسین شریعتمداری، نماینده رهبر جمهوری اسلامی در روزنامه کیهان، در واکنش به گزارش رویترز درباره بررسی آمریکا برای اختصاص دارایی‌های بلوکه‌شده جمهوری اسلامی به کشورهای منطقه جهت جبران خسارات، هشدار داد در صورت اجرای چنین تصمیمی، تهران پاسخ متقابل خواهد داد.
+
+او سه‌شنبه ۱۹ خرداد در یادداشتی در روزنامه کیهان نوشت اگر آمریکا «دست به این حماقت بزند»، جمهوری اسلامی پایگاه‌های نظامی و مراکز اقتصادی آمریکا را در هر نقطه جهان هدف مشروع موشک‌ها و پهپادهای خود خواهد دانست.
+
+شریعتمداری افزود کشتی‌ها و شناورهای حامل نفت و کالا متعلق به کشورهای دریافت‌کننده دارایی‌های مسدودشده ایران نیز به عنوان بازپس‌گیری دارایی‌ها مصادره خواهند شد.
+
+او در ادامه نوشت دونالد ترامپ می‌داند که نه آمریکا و نه «کشورک‌های عربی همپیمان آمریکا» توان مقابله با این اقدام تلافی‌جویانه را ندارند.
+
+شریعتمداری در پایان نوشت: «حالا باید به آمریکا گفت: بگرد تا بگردیم.»
+https://iranintl.com/202606090727
+</div>
+
+## RadioFarda — post 158079
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_158079_1780986176.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸جی‌دی ونس، معاون رئیس‌جمهور آمریکا، می‌گوید با آن‌که ایالات متحده و اسرائیل «منافع مشترک زیادی دارند»، اما در برخی موارد نیز منافع‌شان «از هم فاصله می‌گیرد».
+
+🔸ونس در گفت‌و‌گو با فاکس‌نیوز گفت در حالی که اسرائیل در قبال ایران، «آشکارا اهداف خاص خود را دارد، هدف اصلی ایالات متحده در قبال ایران این است که اطمینان حاصل کند ایران به سلاح هسته‌ای دست پیدا نکند.»
+
+🔸او همچنین افزود که آمریکا طی یک سال و نیم گذشته، «فضای لازم» برای دستیابی به یک توافق بلندمدت بر سر پروندهٔ هسته‌ای ایران را ایجاد کرده است.
+
+🔸در یک سال و نیم گذشته، چند دور مذاکرات مستقیم و غیرمستقیم بین ایران و آمریکا شکل گرفت که دو دور آن با جنگ به بن‌بست خورد. مذاکرات جاری میان ایران و آمریکا نیز پس از جنگ ۴۰ روزه آغاز شده اما هنوز به نتیجه مشخصی نرسیده است.
+
+🔸معاون دونالد ترامپ در این باره افزود: «اسرائیل ممکن است از این موضوع خوشش بیاید یا نیاید، اما در نهایت ما معتقدیم که این به نفع ایالات متحده آمریکاست.»
+
+
+@RadioFarda
+</div>
+
+## alonews — post 126434
+
+<div align="center">
+  <a href="telegram/content/alonews_126434_1780986177.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تصویر جلد نشریه آلمانی اشپیگل:
+ترامپ، خراب‌کننده‌ی جام‌جهانی
+چگونه دونالد ترامپ از جام جهانی فوتبال سوءاستفاده می‌کند!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126433
+
+<div align="center">
+  <a href="telegram/content/alonews_126433_1780986178.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ذخیره هسته‌ای فرانسه از ۲۹۰ کلاهک در سال ۲۰۲۵ به ۳۷۰ کلاهک در سال ۲۰۲۶ افزایش یافته است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126432
+
+<div align="center">
+  <a href="telegram/content/alonews_126432_1780986178.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پزشکیان: همه ما در قبال حفاظت از محیط زیست مسئولیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126431
+
+<div align="center">
+  <a href="telegram/content/alonews_126431_1780986179.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 ترامپ: آمریکا ظرف دو هفته آینده «پیروزی کامل» بر ایران را اعلام خواهد کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126430
+
+<div align="center">
+  <a href="telegram/content/alonews_126430_1780986182.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خبرنگار: آیا از نتانیاهو خواستید که علیه ایران تلافی نکند؟
+
+
+🔴ترامپ: "نه. من گفتم کاری را که درست است انجام دهید، اما می‌خواهم هر چه سریع‌تر دست از این کار بردارید. چون آنها باید دست از این کار بردارند، این به لبنان مربوط می‌شود و باید دست از این کار بردارند، ما می‌خواهیم این کار تمام شود."
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/19 09:42
 ---
 

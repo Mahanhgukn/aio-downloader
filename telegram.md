@@ -7,6 +7,161 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/20 00:03
+---
+
+## VahidOOnLine — post 244570
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244570_1781037193.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️معاون وزیر خارجه جمهوری اسلامی ایران، روز سه‌شنبه، ۱۹ خردادماه، در گفتگو با «الجزیره» اعلام کرد که هلیکوپتر آپاچی ارتش ایالات متحده که روز گذشته در تنگه هرمز سقوط کرد، به طور عمدی توسط ایران هدف قرار نگرفته است. این مقام رسمی با تاکید بر اینکه ایران پشت این حمله نبوده، در عین حال هشدار داد که به دلیل شرایط به شدت ملتهب و متشنج منطقه، ممکن است بروز چنین حوادثی در این فضا «عمدی» تلقی و تعبیر شود.
+همزمان، دونالد ترامپ، رئیس‌جمهوری ایالات متحده، در گفتگوی تلفنی روز سه‌شنبه با روزنامه «وال‌استریت ژورنال» با کوچک جلوه دادن حادثه سقوط هلیکوپتر آپاچی گفت این اتفاق «مسئله چندان مهمی نبود» و تأکید کرد که «حال خلبان خوب است».
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244569
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244569_1781037194.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس‌جمهوری ایالات متحده، در گفتگوی تلفنی روز سه‌شنبه با روزنامه «وال‌استریت ژورنال» با اشاره به اثرات شدید تحریم‌ها اعلام کرد که محاصره دریایی بنادر ایران باعث شده این کشور «بسیار فقیر» شود و واشنگتن این محاصره را تا هر زمان که لازم باشد حفظ خواهد کرد. ترامپ همچنین با کوچک جلوه دادن حادثه سقوط اخیر هلیکوپتر آپاچی آمریکا گفت این اتفاق «مسئله چندان مهمی نبود» و تأکید کرد که «حال خلبان خوب است». بر اساس گزارش سنتکام، سرنشینان این آپاچی پیش از نجات، دو ساعت را در تاریکی شب روی آب سپری کردند و یک مقام ارشد آمریکایی فرار آن‌ها از این سانحه را معجزه‌ای همچون «دست خدا» توصیف کرده است. حادثه‌ای که بار دیگر خطرات تقابل جاری میان دو کشور در منطقه، از جمله هدف قرار گرفتن پهپادها و هواپیماهای آمریکایی توسط ایران را به تصویر می‌کشد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14176
+
+<div align="center">
+  <a href="telegram/content/WithYashar_14176_1781037194.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## WithYashar — post 14175
+
+<div align="center">
+  <a href="telegram/content/WithYashar_14175_1781037196.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## WithYashar — post 14174
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سخنگوی کمیسیون امنیت ملی مجلس تروریستی ج.ا :
+
+دست آن رزمنده‌ای که در تنگه هرمز با سرنگونی هلیکوپتر آمریکایی (همچون شهید نادر مهدوی) سیلی دیگری به شیطان زد را می‌بوسیم، از او به عنوان یک قهرمان تجلیل خواهیم کرد.
+@withyashar
+</div>
+
+## mwarmonitor — post 10548
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_10548_1781037198.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴برخی منابع غیررسمی ایرانی ادعا می‌کنند که بالگرد آپاچی آمریکایی توسط یک موشک زمین‌به‌هوا از نوع «Kowsar-222» سرنگون شده است؛ موشکی که گفته می‌شود از یک قایق تندرو ایرانی شلیک شده، در جریان درگیری بین این قایق‌ها و بالگردهای آپاچی.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10547
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸 معاون وزیر خارجه ایران: ایران پشت حمله‌ای که بالگرد آپاچی آمریکایی بر فراز تنگه هرمز هدف آن قرار گرفت، نیست. @mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 342773
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: Karmelo Anthony broke down in tears after the verdict was read, crying and shaking as his defense attorney comforted him, @Brooketaylortv reports.
+
+Anthony could now face up to life in prison.
+
+During the sentencing phase, Anthony's mother pleaded with the jury for mercy, describing him as her firstborn son and expressing her deep love for him through tears.
+
+Prosecutors cross-examained her by asking whether she could still maintain a relationship with her son if he were behind bars — unlike the Metcalf family.
+
+The same jury will now decide how long Anthony remains in prison. | @WillCainShow
+</div>
+
+## IranIntlTV — post 341397
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341397_1781037199.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایرانیان بریتانیا با تشکیل تجمعی در مقابل پارلمان این کشور در لندن،‌ روز سه‌شنبه خواستار تروریستی اعلام شدن سپاه و مقابله با جمهوری اسلامی شدند. آن‌ها پرچم‌های شیروخورشید و اسرائیل را در تجمع خود حمل کردند.
+</div>
+
+## IranianMinds — post 21965
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21965_1781037200.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ابراهیم رضایی سخنگوی‌ کمیسیون امنیت ملی مجلس :
+
+هرکی که بالگرد آمریکایی رو سرنگون کرده قهرمانه !
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21964
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ :
+
+جام جهانی خیلی خوبی خواهیم داشت و بزودی پایان جنگ و پیروزیمون بر ایران رو هم اعلام میکنم.
+
+@IranianMinds
+</div>
+
+## alonews — post 126628
+
+<div align="center">
+  <a href="telegram/content/alonews_126628_1781037201.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سخنگوی کمیسیون امنیت ملی مجلس: به هر اقدام آمریکا پاسخ سریع و قاطع خواهیم داد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126627
+
+<div align="center">
+  <a href="telegram/content/alonews_126627_1781037201.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 وزیر خارجه انگلیس: خواستار مذاکرات موفق ایران و آمریکا هستیم
+
+
+🔴 می‌خواهیم شاهد پایان سریع و موفقیت‌آمیز مذاکرات بین ایران و آمریکا باشیم.
+
+
+🔴 تجارت جهانی از طریق تنگه هرمز باید به سرعت از سر گرفته شود.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/19 23:53
 ---
 

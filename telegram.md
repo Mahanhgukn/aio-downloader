@@ -7,6 +7,150 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/19 23:43
+---
+
+## WithYashar — post 14169
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+منابع آمریکایی و اسرائیلی ادعا می‌کنند که اقدام نظامی قریب‌الوقوع آمریکا علیه ایران ظرف چند ساعت آینده انجام خواهد شد و آن را حرکتی بزرگ با دامنه نامحدود می‌نامند.
+@withyashar
+</div>
+
+## mwarmonitor — post 10545
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رسانه‌های اسرائیلی: شلیک یک موشک از یمن رصد شد.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10544
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴«لحظاتی پیش از سوی ارتش بزرگمان به من اطلاع داده شد که دیشب ایرانی‌ها یکی از هلیکوپترهای آپاچی بسیار پیشرفته ما را در حال گشت‌زنی بر فراز تنگه هرمز سرنگون کرده‌اند. دو خلبان در این حادثه حضور داشتند که هر دو سالم و بدون آسیب‌دیدگی هستند. با این وجود، ایالات…
+</div>
+
+## pm_afshaa — post 93066
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93066_1781036017.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ به وال استریت ژورنال:
+حادثه هلیکوپتر آپاچی موضوع جدی نیست و خلبان حالش خوبه!
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## Persian_Trend_Official — post 16327
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16327_1781036018.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هم اکنون 9 سوخت‌رسان در آسمان منطقه 📝 Nick 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16326
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16326_1781036019.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هم اکنون 9 سوخت‌رسان در آسمان منطقه
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 21960
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ : موضوع سقوط بالگرد اپاچی چیزه خیلی مهمی نیست و خلبانانمون هم سالمن. @IranianMinds
+</div>
+
+## IranianMinds — post 21959
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21959_1781036019.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ :
+
+موضوع سقوط بالگرد اپاچی چیزه خیلی مهمی نیست و خلبانانمون هم سالمن.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21958
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پیت هگست، وزیر جنگ آمریکا هم پست ترامپ رو در صفحه خودش منتشر کرد. @IranianMinds
+</div>
+
+## alonews — post 126621
+
+<div align="center">
+  <a href="telegram/content/alonews_126621_1781036020.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری/ خبرنگار: شما گفتید آمریکا باید به سرنگونی آپاچی پاسخ دهد، آیا هنوز هم این نظر را دارید؟
+
+
+🔴 ترامپ: من مجبور نیستم کاری انجام دهم، ما همه کارت‌ها را در دست داریم. مجبور نیستم این کار را بکنم اما ببینید، احتمالاً این کار را خواهیم کرد، باشه؟
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126620
+
+<div align="center">
+  <a href="telegram/content/alonews_126620_1781036020.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ درباره ایران به ABC: یک نفر باید همه آن زیرساخت‌ها را بسازد، پل‌های جدید، فلان چیز جدید، نیروگاه‌های جدید... آنها از یک تریلیون دلار صحبت می‌کنند، احتمالاً بیشتر...
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126619
+
+<div align="center">
+  <a href="telegram/content/alonews_126619_1781036021.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: به زودی پایان جنگ و پیروزی آمریکا بر ایران را اعلام میکنم امسال جام جهانی خوبی خواهیم داشت
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126618
+
+<div align="center">
+  <a href="telegram/content/alonews_126618_1781036021.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری /شلیک موشک از خاک یمن به سمت اسرائیل
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/19 23:33
 ---
 

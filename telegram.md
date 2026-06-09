@@ -7,6 +7,218 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/19 22:32
+---
+
+## WithYashar — post 14154
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آمادگی نیروهای مسلح برای پاسخ به هرگونه شرارت و تجاوزی
+
+سخنگوی کمیسیون امنیت ملی:
+نیروهای مسلح در اوج آمادگی‌های رزمی و دفاعی قرار دارند و الحمدالله آسیب‌ها رفع شده است.
+
+نیروهای مسلح آماده‌اند تا در بالاترین سطح به هرگونه شرارت و تجاوزی پاسخ دهند.
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342769
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342769_1781031763.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NASA just revealed the 4 astronauts who will lead its next giant leap back to the Moon.
+
+The 2027 Artemis III mission will be commanded by Randy Bresnik, with ESA astronaut Luca Parmitano serving as pilot and astronauts Frank Rubio and Andre Douglas joining as mission specialists.
+
+Unlike earlier plans, Artemis III is now expected to test docking and rendezvous operations between NASA’s Orion spacecraft and commercial lunar landers from SpaceX and Blue Origin in Earth orbit before future lunar landing missions.
+
+NASA says the mission will be a critical proving ground for the technology needed to return astronauts to the lunar surface.
+</div>
+
+## FoxNewsTwitter — post 342768
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342768_1781031764.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH LIVE: Andrew Giuliani outlines top US priorities for hosting the 2026 FIFA World Cup https://twitter.com/i/broadcasts/1kJzDDpgAoaKv
+</div>
+
+## pm_afshaa — post 93044
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93044_1781031764.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴متکی، نماینده تهران: قوه قضاییه حکم اعدام ترامپ و نتانیاهو رو صادر کنه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93043
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93043_1781031765.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴توییت عباس عراقچی: نیروهای خارجی در مجاورت قلمرو ما به دلیل خطاهای انسانی خود، تصادفات ساده یا احتمال گرفتار شدن در آتش متقاطع، همواره در معرض خطر هستن. برای کاهش خطر، بهتره اینجارو ترک کنید. ما زبان دیپلماسی رو ترجیح میدیم اما زبان‌های دیگر رو هم صحبت…
+</div>
+
+## pm_afshaa — post 93042
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93042_1781031766.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴یک مقام ارشد ایرانی به الجزیره:
+ایران به هر حمله آمریکا علیه خود،
+به‌طور قاطع و فوری پاسخ خواهد داد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## FarsiVOA — post 220160
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جسیکا میر، فضانورد ناسا، ویدیویی تایم‌لپس از شفق قطبی جنوبی منتشر کرد که از فضاپیمای دراگون اسپیس‌ایکس ثبت شده است.
+
+او گفت این شفق قطبی در پی یک رویداد خورشیدی اخیر شکل گرفته و برخلاف نمونه‌های قبلی که دیده بود، مستقیما در زیر ایستگاه فضایی حرکت می‌کرد و نمایشی چشمگیر به وجود آورده بود.
+
+جسیکا میر این پدیده را شگفت‌انگیز و از نظر احساسی تاثیرگذار توصیف کرد.
+
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 16310
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+الجزیره از نقل یک مقام ایرانی: بالگرد آپاچی آمریکایی بر فراز آب‌های بین‌المللی پرواز نمی‌کرد.
+
+ایران به هرگونه حملهٔ آمریکا که متوجه این کشور شود، با قدرت و به‌صورت فوری پاسخ خواهد داد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 21948
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21948_1781031766.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پیت هگست، وزیر جنگ آمریکا هم پست ترامپ رو در صفحه خودش منتشر کرد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21947
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فعالیت جت‌های جنگنده بر فراز بخش‌های جنوبی سوریه نیز گزارش شده است.
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 391499
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391499_1781031766.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مختصر و مفید:
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 126598
+
+<div align="center">
+  <a href="telegram/content/alonews_126598_1781031768.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈گزارش ها از پرواز جنگنده های آمریکایی / اسرائیلی برفراز سوریه!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126597
+
+<div align="center">
+  <a href="telegram/content/alonews_126597_1781031768.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢فوووووووری/حمله شروع شد؟ هم اکنون هشدار در پایگاه‌های آمریکایی 
+🚨 @AkhbareFouri
+</div>
+
+## alonews — post 126596
+
+<div align="center">
+  <a href="telegram/content/alonews_126596_1781031769.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فعالیت حداقل 9 سوخت رسان ایالات متحده در خاورمیانه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126595
+
+<div align="center">
+  <a href="telegram/content/alonews_126595_1781031769.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری/فعالیت پرتعداد جنگنده های آمریکایی در آسمان عراق گزارش میشود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126594
+
+<div align="center">
+  <a href="telegram/content/alonews_126594_1781031769.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 نیویورک تایمز : مشخص نیست که آیا مذاکرات با ایران پس از تعهد ترامپ به پاسخ به سرنگونی بالگرد، از سر گرفته خواهد شد یا نه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126593
+
+<div align="center">
+  <a href="telegram/content/alonews_126593_1781031769.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: من همین الان توسط ارتش بزرگمان مطلع شدم که دیشب ایرانی‌ها یکی از هلیکوپترهای پیشرفته آپاچی ما را هنگام گشت‌زنی بر فراز تنگه هرمز سرنگون کردند. 
+🔴دو خلبان درگیر بودند که هر دو سالم و بدون آسیب هستند. 
+🔴با این حال، ایالات متحده باید به این حمله پاسخ…
+</div>
+
+---
 📅 بروزرسانی: 1405/03/19 22:22
 ---
 

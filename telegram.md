@@ -7,6 +7,336 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/19 19:23
+---
+
+## VahidOOnLine — post 244542
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244542_1781020406.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بر اساس گزارش‌های رسیده به ایران‌اینترنشنال، اشرف محمدی نجف‌آبادی، فعال محیط زیست، ۳۰ بهمن‌ماه هنگام بازگشت از مراسم چهلم جاویدنام محمد محمدی در نجف‌آباد بازداشت شد.
+
+او پیش‌تر نیز در جریان خیزش مهسا بازداشت شده و چند ماه در زندان بود.
+
+بنا بر این گزارش اشرف محمدی هم‌اکنون در بند زنان زندان اصفهان وضعیت جسمی نامناسب داشته و نیاز فوری به رسیدگی پزشکی دارد.
+
+بر اساس این گزارش، برادر اشرف محمدی نیز در جنگ ایران و عراق کشته شده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244541
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244541_1781020407.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به گزارش الجزیره، حمله هوایی اسرائیل به روستایی در شهرستان جزین در جنوب لبنان گزارش شده است.
+
+به گزارش العربیه، شش حمله پهپادی اسرائیل به منطقه‌ای در شهر صیدا در جنوب لبنان انجام شده است.
+
+پیش‌تر ‌ ایال زمیر، رییس ستاد ارتش اسرائیل، گفت: به عملیات خود ادامه خواهیم داد و آسیب به سازمان تروریستی حزب‌الله را عمیق‌تر خواهیم کرد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14128
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آغاز حملات جدید اسرائیل به صور در‌جنوب لبنان
+@withyashar
+</div>
+
+## mwarmonitor — post 10519
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_10519_1781020407.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴تفنگداران دریایی آمریکا از یگان اعزامی ۳۱ تفنگداران (31st MEU) سوار بر بالگرد UH-1Y Venom روی عرشه ناو USS Tripoli (LHA-7) شدند تا هم‌زمان با عبور از آب‌های منطقه‌ای، تمرین‌های تک‌تیراندازی هوایی و پشتیبانی نزدیک هوایی را انجام دهند.
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 342762
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342762_1781020408.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+EXCLUSIVE: Noncitizens in New Jersey were on the voter rolls for years — and some even cast ballots before asking to be removed, according to documents obtained through public records requests.
+
+Records reviewed by the NJGOP and RNC show multiple noncitizens seeking citizenship told election officials they were unknowingly registered to vote, with several pointing to the DMV as the source.
+
+Most had no voting history, but county records show at least some voted in elections before being removed from the rolls.
+
+The records were uncovered after Republicans requested voter roll data from all 21 New Jersey counties and are drawing renewed attention to how noncitizens were registered and what safeguards could be put in place to catch the errors sooner.
+</div>
+
+## VahidOnline — post 76100
+
+<div align="center">
+  <a href="telegram/content/VahidOnline_76100_1781020409.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+طالبان به تجمع مدافعان حقوق زنان و مخالفان حجاب در غرب افغانستان حمله کرد
+AngelaGhayour_
+
+مقام‌های امنیتی افغانستان روز سه‌شنبه ۱۹ خرداد تظاهراتی که در حمایت از حقوق زنان را در ولایت غربی هرات برگزار شده را متفرق کرد.
+
+این اعتراض پس از آن آغاز شد که پلیس امر به معروف طالبان گروهی از زنان را به اتهام نقض قوانین اجباری پوشش بازداشت کرده بود.
+
+به گزارش خبرگزاری رویترز، شاهدان گفتند که در جریان حمله طالبان یک نفر کشته شده، چندین نفر دیگر زخمی شده‌اند و ده‌ها نفر از جمله زنان و دختران بازداشت شده‌اند.
+
+..
+
+به گزارش رویترز، هرات که مدت‌ها به‌عنوان یکی از پویاترین شهرهای اجتماعی و فرهنگی افغانستان شناخته می‌شد، دستخوش تغییرات قابل توجهی شده است.
+...
+شاهدان گفتند اعتراض‌ها زمانی آغاز شد که مأموران امر به معروف تلاش کردند زنانی را که با الزامات پوشش اجباری مخالفت می‌کردند بازداشت کنند.
+
+برخی از ساکنان گفتند مأموران حتی زنانی را هدف قرار دادند که از پیش نیز پوشش مورد نظر، شامل پوشاندن کامل صورت و بدن، را رعایت کرده بودند.
+@VahidAfLine
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 341358
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341358_1781020409.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بر اساس گزارش‌های رسیده به ایران‌اینترنشنال، اشرف محمدی نجف‌آبادی، فعال محیط زیست، ۳۰ بهمن‌ماه هنگام بازگشت از مراسم چهلم جاویدنام محمد محمدی در نجف‌آباد بازداشت شد.
+
+او پیش‌تر نیز در جریان خیزش مهسا بازداشت شده و چند ماه در زندان بود.
+
+بنا بر این گزارش اشرف محمدی هم‌اکنون در بند زنان زندان اصفهان وضعیت جسمی نامناسب داشته و نیاز فوری به رسیدگی پزشکی دارد.
+
+بر اساس این گزارش، برادر اشرف محمدی نیز در جنگ ایران و عراق کشته شده است.
+https://iranintl.com/202606093144
+</div>
+
+## IranIntlTV — post 341357
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341357_1781020410.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به گزارش الجزیره، حمله هوایی اسرائیل به روستایی در شهرستان جزین در جنوب لبنان گزارش شده است.
+
+به گزارش العربیه، شش حمله پهپادی اسرائیل به منطقه‌ای در شهر صیدا در جنوب لبنان انجام شده است.
+
+پیش‌تر ‌ ایال زمیر، رییس ستاد ارتش اسرائیل، گفت: به عملیات خود ادامه خواهیم داد و آسیب به سازمان تروریستی حزب‌الله را عمیق‌تر خواهیم کرد.
+https://iranintl.com/202606094400
+</div>
+
+## FarsiVOA — post 220128
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220128_1781020411.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خانواده سلطنتی بریتانیا تصویری از دیدار ولودیمیر زلنسکی، رئیس‌جمهوری اوکراین، با شاه چارلز سوم منتشر کرد.
+
+بر اساس این پست، زلنسکی دوشنبه ۱۸ خرداد در قلعه ویندزور با پادشاه بریتانیا دیدار کرده است.
+
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220127
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چرا با درگذشت مرجان ساتراپی، هنرمند، گروهایی از اپوزیسیون و هوداران حکومت همزمان او را به سیاه‌نمایی از ایران متهم کردند. مانا نیستانی و سرور کسمایی در میدان پاسخ می‌دهند.
+</div>
+
+## DW_Farsi — post 125730
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶افزایش مصرف مواد مخدر در اروپا؛ مافیا نوجوانان را جذب می‌کند
+
+بازار مواد مخدر در اروپا همچنان در حال گسترش است. جدیدترین گزارش آژانس مواد مخدر اروپا ضمن هشدار نسبت به ظهور مواد مخدر پیشرفته و صنعتی، فاش کرد که شبکه‌های جنایی به شکل فزاینده‌ای از جوانان و نوجوانان برای تجارت مواد مخدر استفاده می‌کنند.
+
+این گزارش که در لیسبون منتشر شده، بر پایه داده‌های ۲۷ کشور عضو اتحادیه اروپا به همراه نروژ و ترکیه تنظیم شده است. لورین نولان، مدیر اجرایی آژانس مواد مخدر اروپا (EUDA)، اعلام کرد که بازار مواد مخدر با "سرعتی سرسام‌آور" در حال توسعه است.
+
+به گفته او، تنوع مواد موجود در خیابان‌های اروپا به شدت غیرقابل پیش‌بینی شده است؛ امری که باعث می‌شود مصرف‌کنندگان "بدون آنکه بدانند، موادی بسیار قوی مصرف کنند."
+
+این گزارش همچنین نشان می‌دهد که مصرف هم‌زمان چند نوع ماده مخدر توسط مبتلایان، عوارض مرگبار را به شدت افزایش داده است.
+
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 16273
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16273_1781020411.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرتیپ علیرضا الهامی، فرمانده نیروی پدافند هوایی ارتش: ارتش جمهوری اسلامی ایران برای تامین امنیت مردم بر اساس تصمیمات انجام وظیفه خواهد کرد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16272
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16272_1781020412.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بن گویر، وزیر امنیت ملی اسرائیل: سلاح برای غیرنظامیان. همیشه، همیشه، سلاح‌ها جان انسان‌ها را نجات می‌دهند.
+
+من به شهروندان و ساکنان می‌گویم: خودتان را مسلح کنید. این باعث نجات جان انسان‌ها می‌شود.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 21928
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21928_1781020414.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کاهش قیمت نفت به ۹۱ دلار
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21927
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21927_1781020414.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هلیا خانوم‌ و 5 قلو هاش؛ جای پیروز اون وسط‌ خیلی خالیه...
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21926
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21926_1781020415.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 تاثیر معدل یازدهم مثبت شد
+
+عظیمی راد: بالاخره تلاش‌ها نتیجه داد و تأثیر قطعی معدل در پایه یازدهم، برای کنکور ۱۴۰۵ مثبت شد!
+
+تلاش‌ها برای مثبت شدن پایه یازدهم برای تمام سال‌ها ادامه خواهد داشت.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21925
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🟢 خفن‌ ترین و جذابترین بونوس های واقعی و بدون قیدو شرط فقط در سایت جهانی رومابت با درگاه #ریالی
+
+🇪🇺 https://trentivo6402.bar
+</div>
+
+## IranianMinds — post 21924
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21924_1781020415.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️۲ روز مونده به جام جهانی
+
+
+🏟️ پیشنهاد میکنم توی سایت رومابت عضو بشین و بونوس های بی قیدو شرطش رو ببینید،
+
+
+💖 با بونوس ها میتونید بدون ریسک پیشبینی کنید.
+
+
+🎁20% بونوس برای شارژ با رمز ارز
+
+💰 10% کش بک روی تیم محبوبت
+
+💰   100% بونوس خوشامدگویی
+
+🎁 20% کش بک بازی های کازینویی و انفجار
+
+🔥   همراه با درگاه‌ #ریالی
+#RomaBet
+
+📣‌ #بدون_احراز_هویت
+
+
+1️⃣
+2️⃣
+3️⃣
+4️⃣   
+1️⃣
+2️⃣
+3️⃣
+4️⃣
+
+
+⛔در صورت فیلتر بودن از طریق VPN غیر از سرور انگلیس ( سرور 
+🇺🇸 
+🇩🇪 
+🇨🇦
+🇫🇮
+🇹🇷
+👇
+👇 )
+
+
+🇪🇺 https://trentivo6402.bar
+
+
+✅کانال تلگرامی #رومابت 19
+👇
+
+
+🔵 @Romabet_official
+</div>
+
+## alonews — post 126559
+
+<div align="center">
+  <a href="telegram/content/alonews_126559_1781020416.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فعالیت‌های پروازی فرودگاه کرمانشاه از سر گرفته شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126558
+
+<div align="center">
+  <a href="telegram/content/alonews_126558_1781020416.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈العربیه : حزب‌الله اعلام کرد دولت لبنان باید «روابط خود با ایران را اصلاح کند».
+
+
+🔴 حزب‌الله همچنین تأکید کرد اتهام‌زنی‌های دولت علیه ایران «برخلاف منافع لبنان» است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/19 19:13
 ---
 

@@ -7,6 +7,645 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/20 01:33
+---
+
+## VahidOOnLine — post 244586
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244586_1781042591.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های ایران از ادامه صداهای انفجار در نقاط مختلف هرمزگان خبر دادند. طبق این گزارش‌ها، نقاطی در جاسک و کوه مبارکه هدف پرتابه‌های متخاصم قرار گرفته است. فارس نیز گزارش داد صدای چند انفجار در مناطق شرقی هرمزگان، از جمله کوهستک، سیریک و میناب شنیده شده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244585
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244585_1781042591.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️همزمان با آغاز حملات ارتش ایالات متحده علیه ایران در پاسخ به سرنگونی هلیکوپتر آپاچی آمریکا، خبرگزاری مهر گزارش داد: «نقاطی در جاسک و کوه مبارکه مورد اصابت پرتابه دشمن قرار گرفته است». پیش از این نیز صداهای انفجار در نقاط مختلف هرمزگان و قشم نیز گزارش شده بود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14224
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک مقام آمریکایی به سی‌ان‌ان:
+حملات جدید به منزله یک شلیک هشدارآمیز به ایران است و ایالات متحده معتقد است این حملات مانع مذاکرات برای پایان دادن به جنگ نخواهد شد.
+@withyashar
+</div>
+
+## WithYashar — post 14223
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سید مجید موسی : ‏و ما النصر الا من عند الله العزیز الحکیم
+@withyashar 🤣
+</div>
+
+## WithYashar — post 14222
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش انفجار در بحرین
+@withyashar
+</div>
+
+## WithYashar — post 14221
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هم اکنون بمباران مواضع حکومت طالبان افغانستان توسط F16 های ارتش پاکستان
+@withyashar
+</div>
+
+## WithYashar — post 14220
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ به ای‌بی‌سی نیوز:
+من به پاسخ قوی اعتقاد دارم و این رویکرد من است. ما توافق بسیار خوبی با ایران داریم و فکر می‌کنم همینطور هم خواهد ماند.
+@withyashar
+یاشار : زبانم قاسمه کتلته
+</div>
+
+## WithYashar — post 14219
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک مقام آمریکایی به فاکس نیوز گفت: حملات هوایی علیه ایران «ادامه دارد» و اهداف شامل پدافند هوایی و تأسیسات راداری است.
+@withyashar
+</div>
+
+## WithYashar — post 14218
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش ها از شلیک موشک‌های سپاه از کرمانشاه
+@withyashar
+</div>
+
+## WithYashar — post 14217
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اتاق جنگ با یاشار : امریکا و اسراییل به طور هماهنگ و گازانبری به ایران و لبنان حمله کرده اند
+@withyashar
+</div>
+
+## mwarmonitor — post 10568
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_10568_1781042592.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✈️در حال حاضر ۶ فروند هواپیمای سوخت‌رسان نیروی هوایی آمریکا در منطقه خلیج فعال هستند، همراه با یک هواپیمای گشت دریایی P-8A Poseidon نیروی دریایی آمریکا که بر فراز خلیج فارس، بین امارات متحده عربی و قطر در حال عملیات است.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10567
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سی‌ان‌ان به نقل از یک مقام آمریکایی: حملات آمریکا با هدف ارسال پیام هشدار به ایران انجام می‌شود.
+
+🔴سی‌ان‌ان به نقل از یک مقام آمریکایی: ما معتقدیم که حملات آمریکا روند مذاکرات برای پایان دادن به جنگ با ایران را مختل نخواهد کرد.
+
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10566
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴یک مقام آمریکایی به فاکس گفت: حملات هوایی علیه ایران «در حال انجام است» و اهداف شامل سامانه‌های پدافند هوایی و تأسیسات راداری می‌شود.
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 342776
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342776_1781042592.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: Republicans’ sweeping immigration enforcement and border security package cleared the House, ending a months-long standoff with Democrats over funding Trump's immigration crackdown agenda.
+
+The $70 billion measure passed 214-212 along party lines and now heads to the president's desk for signature.
+</div>
+
+## pm_afshaa — post 93116
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93116_1781042594.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴یک مقام آمریکایی به سی‌ان‌ان: حملات به عنوان یک شلیک هشدار به ایران بوده و انتظار نمیره تلاش‌ها برای مذاکره برای پایان دادن به درگیری رو از مسیر خارج کنه. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93115
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93115_1781042594.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴یک مقام آمریکایی به سی‌ان‌ان:
+حملات به عنوان یک شلیک هشدار به ایران بوده و انتظار نمیره تلاش‌ها برای مذاکره برای پایان دادن به درگیری رو از مسیر خارج کنه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93114
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هم‌اکنون وضعیت خاورمیانه :
+
+- حمله آمریکا به اهداف جمهوری اسلامی
+- حمله پاکستان به افغانستان
+- حمله اسرائیل به لبنان
+- حمله ایران به کشورهای منطقه
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93113
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴طبق گزارش فاکس نیوز و آکسیوس، حملات هنوز ادامه داره.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93112
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93112_1781042595.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴آسمان کشورهای خاورمیانه بسته اعلام شد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93111
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شما فعلا پستارو شِیر کنید خستگی کم شه بوس❤️
+</div>
+
+## pm_afshaa — post 93110
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+۳ تا جنگ همزمان اخه
+</div>
+
+## pm_afshaa — post 93109
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+راحت باشید بگید جنگ جهانی شده دیگه
+</div>
+
+## pm_afshaa — post 93108
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+۳ تا جنگ همزمان اخه
+</div>
+
+## pm_afshaa — post 93107
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93107_1781042595.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فاکس نیوز: از جمله اهداف حملات آمریکایی‌ها در ایران، سامانه های پدافند هوایی و تاسیسات راداری است.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5519
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ خبرگزاری‌های حکومتی جمهوری اسلامی از شنیده شدن صدای دستکم شش انفجار در جزیرهٔ قشم خبر دادند
+
+#خبر_فوری
+@DEJradio
+</div>
+
+## DEJradio — post 5518
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ خبرنگار صداو‌سیمای جمهوری اسلامی در جاسک گزارش داد دو ناحیه در جاسک و کوه مبارکه مورد اصابت پرتابهٔ نیروهای خارجی قرار گرفته است.
+
+#خبر_فوری
+@DEJradio
+</div>
+
+## DEJradio — post 5517
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️
+⭕️ رسانه‌های حکومتی در ایران خبر دادند، حملات نظامی آمریکا به نواحی جنوبی کشور، توسط نیروهای مسلح نظام پاسخ داده می‌شود
+
+#خبر_فوری
+@DEJradio
+</div>
+
+## kianmeli1 — post 87825
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری-روابط عمومی سپاه
+
+منتظر شب خونین برای ترامپ باشید
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87824
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری-قطر حریم هوایی خود را بست.
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 341409
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341409_1781042596.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهوری آمریکا، گفت جمهوری اسلامی مسئول سقوط یک فروند بالگرد تهاجمی آپاچی ارتش آمریکا بوده و تاکید کرد واشینگتن ناگزیر به پاسخ خواهد بود.
+
+جزییات بیشتر با نیلوفر منصوری، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 341408
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341408_1781042598.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های ایران از ادامه صداهای انفجار در نقاط مختلف هرمزگان خبر دادند. طبق این گزارش‌ها، نقاطی در جاسک و کوه مبارکه هدف پرتابه‌های متخاصم قرار گرفته است. فارس نیز گزارش داد صدای چند انفجار در مناطق شرقی هرمزگان، از جمله کوهستک، سیریک و میناب شنیده شده است.
+https://iranintl.com/202606095852
+</div>
+
+## FarsiVOA — post 220171
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220171_1781042598.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️خبرگزاری حکومتی تسنیم، نزدیک به سپاه پاسداران، می‌گوید صدای شش انفجار در سیریک، جزیره قشم و میناب شنیده شده است.
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 16385
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نیروی هوایی پاکستان حملات هوایی را
+در ولایت‌های خوست و پکتیکا افغانستان انجام داده است!
+</div>
+
+## Persian_Trend_Official — post 16384
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16384_1781042599.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هم اکنون وضعیت خاورمیانه، همزمان:
+
+_ حمله آمریکا به اهداف جمهوری اسلامی
+_ حمله پاکستان به افغانستان
+_ حمله اسرائیل به لبنان
+_ حمله ایران به کشور های منطقه
+</div>
+
+## Persian_Trend_Official — post 16383
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16383_1781042599.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انفجار در بحرین..
+</div>
+
+## Persian_Trend_Official — post 16381
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ خبرگذاری صداوصیما: دو نقطه در جاسک و کوه مبارکه مورد اصابت پرتابه دشمن قرار گرفته است. 📝 Nick 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16380
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16380_1781042599.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ ایسنا:
+
+تروریست‌های سنتکام از حمله تلافی جویانه به بهانه سقوط هلیکوپتر آمریکایی در تنگه هرمز خبر دادند. ترامپ تروریست هم در گفت وگو با ABC تایید کرد!
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16379
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مقام آمریکایی به فاکس نیوز:
+حملات هوایی علیه ایران "ادامه دارد"
+و اهداف شامل پدافند هوایی و تأسیسات راداری است!
+</div>
+
+## Persian_Trend_Official — post 16378
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16378_1781042600.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## Persian_Trend_Official — post 16377
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16377_1781042600.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ خبرگذاری صداوصیما: دو نقطه در جاسک و کوه مبارکه مورد اصابت پرتابه دشمن قرار گرفته است.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 22001
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 کل موشک هایی که سپاه شلیک کرده بود حتی به بیابون های نزدیک پایگاه های آمریکاییم نرسیدن
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22000
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 یک مقام آمریکایی به سی ان ان :
+
+حملات جدید ما فقط یک هشداره و مانع مذاکرات نمیشه
+آتش بس هنوز برقراره
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21999
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21999_1781042601.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فوری بیکینی باتم تخلیه شد
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21998
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 یک مقام آمریکایی به فاکس نیوز :
+
+حملات هوایی به ایران "در جریان است" و اهداف شامل پدافند هوایی و تاسیسات راداری است.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21997
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+همین الان
+
+پاکستان داره افغانستان رو میزنه
+اسرائیل لبنان رو میزنه
+و امریکا جمهوری اسلامی رو
+
+به خاورمیانه خوش امدید
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 283274
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️خبرگزاری صدا و سیما هدف قرار گرفتن چند نقطه در جنوب ایران را تایید کرد
+
+خبرگزاری صدا و سیما به نقل از خبرنگاران میدانی خود نوشته است که حملات جدید آمریکا چند نقطه در سیریک، قشم، جاسک و کوه‌های مبارکه هدف قرار گرفته است.
+
+صدا و سیما هدف قرار گرفتن بندرعباس را تایید نکرده است.
+https://bbc.in/4uqahXu
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 391526
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فاکس نیوز به نقل از یک مقام آمریکایی:
+
+حملات هوایی علیه ایران ادامه دارد و اهداف شامل پدافند هوایی و تأسیسات راداری است.
+</div>
+
+## Dirty_Kids — post 391525
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شلیک موشک از کرمانشاه
+</div>
+
+## Dirty_Kids — post 391524
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏🚨 گزارش‌ها از هدف قرار گرفتن پایگاه شهید راهبر در بندرعباس حکایت دارند.
+</div>
+
+## Dirty_Kids — post 391523
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یه زمانی الکی میگفتند اف ۳۵ زدیم و جشن میگرفتند ، الان که آمریکا میگه آپاچی ما رو زدید میگن ما نزدیم. همینقدر بی خایه و رجزخوان.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391522
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: کروکی حادثه را دیدم. متأسفانه هلیکوپتر آپاچی ما از پشت به پهپاد آنان زده است و مقصر خلبان هلیکوپتر ما بوده. انتقام منتفی است.
+
+#املاکی
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391521
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ:
+فردا چهارشنبس احتمالا جمهوری اسلامی برگه توافق رو امضا کنه و قیمت نفتم پایین بیاد
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391520
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391520_1781042601.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فوری: سپاه برای بیکینی باتم هشدار تخلیه صادر کرد.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391519
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 پاکستان که قرار بود میانجیگری کنه، همزمان با حمله آمریکا به ایران، به افغانستان حمله کرد :))
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 126665
+
+<div align="center">
+  <a href="telegram/content/alonews_126665_1781042602.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈یک مقام آمریکایی به سی‌ان‌ان:
+حملات جدید به منزله یک شلیک هشدارآمیز به ایران است و ایالات متحده معتقد است این حملات مانع مذاکرات برای پایان دادن به جنگ نخواهد شد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126664
+
+<div align="center">
+  <a href="telegram/content/alonews_126664_1781042602.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رسایی: اینترنت قطع کنید
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126663
+
+<div align="center">
+  <a href="telegram/content/alonews_126663_1781042602.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوووووووووری/گزارش انفجار در بحرین
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126662
+
+<div align="center">
+  <a href="telegram/content/alonews_126662_1781042602.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری/به بیروت هم حمله شد 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126661
+
+<div align="center">
+  <a href="telegram/content/alonews_126661_1781042602.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✅ سید مجید موسوی : ‏و ما النصر الا من عند الله العزیز الحکیم 
+✅ @AkhbareFouri
+</div>
+
+## alonews — post 126660
+
+<div align="center">
+  <a href="telegram/content/alonews_126660_1781042603.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فاکس نیوز: از جمله اهداف حملات آمریکایی‌ها در ایران، سامانه های پدافند هوایی و تاسیسات راداری است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/20 01:22
 ---
 

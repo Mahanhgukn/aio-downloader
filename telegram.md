@@ -7,6 +7,128 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/19 13:02
+---
+
+## pm_afshaa — post 92987
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یوتیوب قراره رفع فیلتر شه
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 341306
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341306_1780997574.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ گفت: پیروزی کامل آمریکا بر جمهوری اسلامی ظرف دو هفته آینده اعلام خواهد شد.
+
+مرتضی کاظمیان، عضو تحریریه ایران‌اینترنشنال، با اشاره به اظهارات اخیر ترامپ گفت: «حتی در صورت دستیابی تهران و واشینگتن به توافق، موضوعاتی مانند برنامه غنی‌سازی اورانیوم، موشک‌های بالستیک و حضور نیروهای نیابتی جمهوری اسلامی در منطقه همچنان از محورهای اصلی اختلاف و نگرانی برای اسرائیل باقی خواهد ماند.»
+
+@iranintltv
+</div>
+
+## FarsiVOA — post 220099
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺قبرس از ترکیه برای «اخلال در پرواز وزیران دفاع اروپا» شکایت می‌کند
+
+◾️دولت قبرس اعلام کرد که پس از دریافت گزارش‌ها از ایجاد اختلال در پرواز هواپیماهای حامل وزیران دفاع کشورهای اروپایی در مسیر سفر به نیکوزیا، شکایت رسمی علیه ترکیه را به نهادهای اتحادیه اروپا ارائه خواهد کرد.
+
+◾️این حوادث هنگام سفر وزیران دفاع یونان، فرانسه و هلند برای شرکت در نشست امنیتی غیررسمی اتحادیه اروپا رخ داد و دولت قبرس پس از دریافت توضیحات از سوی این سه وزیر، وقوع این حوادث را تأیید کرد.
+
+◾️قبرس و یونان می‌گویند این اختلال‌ها از سوی کنترل‌کنندگان ترافیک هوایی این فرودگاه در بخش شمالی قبرس ایجاد شده است.
+
+◾️بر این اساس، در مورد پرواز وزیر دفاع یونان، دو جنگنده اف-۱۶ ترکیه در منطقه به پرواز درآمدند.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8158896.html
+</div>
+
+## IranianMinds — post 21898
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21898_1780997576.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 بیانیه رسمی فیفا :
+
+دیدار ایران و مصر قطعا دیدار افتخار همجنسگرایان خواهد بود و به هیچ عنوان این رویداد لغو نخواهد شد.
+
+کاپیتان های هردو تیم باید بازوبند رنگین کمونی🏳‍🌈 ببندن
+
+@IranianMinds
+</div>
+
+## Hranews — post 113482
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اموال ۱۳ شهروند در زرین‌دشت توقیف شد
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– رئیس کل دادگستری استان فارس از تشکیل پرونده قضایی برای بیش از ۲۰ نفر در ارتباط با یک کانال تلگرامی در شهرستان زرین‌دشت خبر داد. به گفته وی، تاکنون اموال ۱۳ نفر از متهمان این پرونده توقیف شده است.
+
+ادامه مطلب
+
+#تشکیل_پرونده #توقیف_اموال
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## alonews — post 126475
+
+<div align="center">
+  <a href="telegram/content/alonews_126475_1780997577.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 ترامپ به بی‌بی‌سی: اگر به نتانیاهو بگویم کاری انجام دهد، او انجام می‌دهد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126474
+
+<div align="center">
+  <a href="telegram/content/alonews_126474_1780997577.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تنکرترکرز: نفت‌کشی که در ۱۵ مایل دریایی سواحل عمان دچار آتش‌سوزی شد، با شلیک جنگنده F-18 آمریکا از کار افتاده است؛ موضوعی که سنتکام نیز در بیانیه‌ای به آن اشاره کرده است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126473
+
+<div align="center">
+  <a href="telegram/content/alonews_126473_1780997577.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 سخنگوی دولت: ایران و لبنان نه نیروهای نیابتی یکدیگر هستند، نه برای هم می‌جنگند، بلکه دشمنی مشترک دارند
+
+
+🔴 تیم دیپلماسی ما متشکل از افرادی است که به شدت به میدان آگاهی دارند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/19 12:52
 ---
 

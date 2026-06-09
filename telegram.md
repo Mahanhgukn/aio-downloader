@@ -7,6 +7,164 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/19 13:22
+---
+
+## IranIntlTV — post 341309
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🗣روایت شما از بحران اقتصادی پس از جنگ و آتش‌بس - سه‌شنبه ۱۹ خرداد
+
+🔹امروز ۳ تا بستنی خریدم شد ۲۵۰ تومان، گرانی تا کی؟
+
+🔹یک گوشی اقتصادی سامسونگ که خریده بودم ۷ تومان، الان شده ۳۵ تومان. دقیقا ۵ برابر.
+
+🔹قبض‌های آب و برق و گاز انقدر زیاد شدن که دیگه توانایی پرداختشون رو نداریم. بیکاری و بی‌پولی واقعا اذیت می‌کنه.
+
+🔹ماشین ۲۰۷‌ام رو دی‌ماه فروختم یک میلیارد تومان، الان نمی‌تونم با همون پول کوییک یا تیبا بخرم.
+
+🔹با گذشت ۳ ماه از سال ۱۴۰۵، حقوق بازنشستگان و مستمری‌بگیران سازمان تامین اجتماعی مثل پارسال هست. ۱۶ میلیون تومان، پول ۳ کیسه برنج هندی و یک روغن می‌شه. بچه‌ها و نوه‌هامون میان خونمون، شرمنده می‌شیم.
+
+🔹من یک نوجوان تک‌فرزند ۱۶ ساله هستم که در این وضعیت مملکت و گرونی خجالت می‌کشم پدر و مادرم برای من خرج کنن، چون کم آوردن.
+
+🔹همسرم ۴۰ میلیون حقوق می‌گیره، اما به آخر ماه نمی‌رسه. قیمت عسل شده کیلویی یک میلیون تومان. مرغ و گوشت رو هم که اصلا نمی‌شه سراغشون رفت.
+
+🔹من یک بلاگر با پیج شناخته‌شده در اینستاگرام هستم. انقدر اوضاع درآمد خراب شده که برای شهریه دخترم مجبور شدم گوشی خودم رو بفروشم، گوشی‌ که مدت‌ها باهاش کسب درآمد می‌کردم. پیامم به بلاگرهایی که دارن عادی‌سازی می‌کنن اینه که از دی‌ماه دیگه هیچ چیز عادی نیست.
+
+🔹من ۱۷ سالمه و از بچگی رویای مزدا ۳ داشتم. امروز قیمت صفرش به حدود ۹ میلیارد تومان رسیده؛ خودرویی که در بسیاری از کشورها اقتصادی محسوب می‌شه. یک جوان بدون پشتوانه مالی باید چند سال کار کنه تا به چنین ماشینی برسه؟
+</div>
+
+## Shin_Persian — post 6768
+
+<div align="center">
+  <a href="telegram/content/Shin_Persian_6768_1780998758.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Emanuel (Mannie) Fabian ✓ @manniefabian
+Tue, 09 Jun 2026 09:45:25 UTC
+
+Lebanese media reports Israeli strikes in the coastal city of Tyre a short while ago.
+
+Earlier, the IDF issued an evacuation warning for the entire city and its outskirts, including a Christian neighborhood that until now had not faced such orders.
+
+فارسی
+
+رسانه‌های لبنانی از حملات اسرائیل به شهر ساحلی صور در لحظاتی پیش خبر می‌دهند.
+
+پیش از این، ارتش دفاعی اسرائیل هشدار تخلیه‌ای برای کل شهر و حومه آن صادر کرده بود، از جمله یک محله مسیحی‌نشین که تا کنون با چنین دستوراتی مواجه نشده بود.
+
+𝕏 · @shin_persian
+</div>
+
+## Persian_Trend_Official — post 16252
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روابط عمومی ارتش، از کشته شدن یکی از پرسنل واحد پدافندی خود به نام "سید بهمن حسینی" در حملات صبح دیروز اسرائیل خبر داد. 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16251
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16251_1780998759.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📹 یوتیوب رفع فیلتر می‌شود
+
+مصطفی پوردهقان، نماینده مجلس:
+وزیر ارتباطات در کمیسیون قول دادند که فضا را به شرایط عادی برگردانند و بعد از رفع فیلتر واتساپ، رفع فیلتر یوتیوب هم در دستور کار بود.
+
+
+
+👺Phantom
+
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## RadioFarda — post 158088
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_158088_1780998759.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸 خبرگزاری تسنیم، نزدیک به سپاه پاسداران، از تشییع جنازه دو نفر از نیروهای پدافند هوایی ارتش که روز دوشنبه درحملات اسرائیل به ایران کشته شدند، خبر داد.
+
+🔸نام این دو نفر، بهمن حسینی و علیرضا عبیری اعلام شده است.
+
+🔸تسنیم در خبر تشییع جنازه این دو نظامی تأیید کرده که هر دو از اعضای نیروی پدافند هوایی ارتش جمهوری اسلامی ایران بودند که روز دوشنبه در حین «انجام مأموریت» کشته شدند.
+
+🔸جمهوری اسلامی به‌طور معمول اخبار مربوط به تلفات نیروهای نظامی خود را که در جریان حملات اسرائیل یا آمریکا به ایران کشته شده‌اند، اعلام نمی‌کند.
+
+🔸روز دوشنبه، رئیس اورژانس استان تهران اعلام کرده بود که در حملات اسرائیل به این استان کسی مصدوم نشده است.
+
+
+@RadioFarda
+</div>
+
+## alonews — post 126481
+
+<div align="center">
+  <a href="telegram/content/alonews_126481_1780998760.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈آخرین قیمت نفت ۹۲.۱۹ دلار
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126480
+
+<div align="center">
+  <a href="telegram/content/alonews_126480_1780998760.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نیروهای اسرائیلی در یک بازرسی نزدیک اورشلیم، هشت عرب از یهودیه و سامریه را که در دیوار دوجداره یک خودروی تجاری پنهان شده بودند، کشف کردند. راننده تلاش کرد فرار کند، اما پس از تعقیبی کوتاه دستگیر شد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126479
+
+<div align="center">
+  <a href="telegram/content/alonews_126479_1780998760.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 به گزارش تسنیم دو عضو از یگان‌های پدافند هوایی روز گذشته در حمله اسرائیل کشته شدند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126478
+
+<div align="center">
+  <a href="telegram/content/alonews_126478_1780998760.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈زلنسکی، رئیس جمهور اوکراین :
+- روسیه جنگ رو نمی‌بازه، ولی هر روز داره کم‌کم ابتکار عمل رو از دست می‌ده
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126477
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈جهت رزرو تبلیغات فوتبالی ویژه جام جهانی و vpn در الونیوز به اینجا مراجعه کنید
+⬇️
+
+https://t.me/ads_alonews
+https://t.me/ads_alonews
+</div>
+
+---
 📅 بروزرسانی: 1405/03/19 13:13
 ---
 

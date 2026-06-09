@@ -7,6 +7,30 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/19 07:52
+---
+
+## IranIntlTV — post 341274
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341274_1780978965.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آنتونی آلبانیزی، نخست‌وزیر استرالیا، تاکید کرد: «جمهوری اسلامی نباید اجازه دسترسی به سلاح هسته‌ای داشته باشد. این موضع ما بوده است و همچنان خواهد بود.» او با هشدار درباره پیامدهای «ویرانگر» وضعیت کنونی برای اقتصاد جهانی، خواستار یک برنامه روشن برای خروج از این شرایط شد.
+https://iranintl.com/202606092899
+</div>
+
+## IranIntlTV — post 341273
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341273_1780978965.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرخط خبرهای سه‌شنبه ۱۹ خرداد
+@iranintltv
+</div>
+
+---
 📅 بروزرسانی: 1405/03/19 07:42
 ---
 

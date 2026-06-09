@@ -7,6 +7,174 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/19 17:13
+---
+
+## WithYashar — post 14120
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسکای نیوز عربی:
+ایران یه پیش‌نویس جدید برای آمریکا فرستاده و گزارش‌های اولیه نشون میده دولت ترامپ اون رو تا حدودی قابل قبول میدونه.
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342755
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342755_1781012588.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+A wild bear caused chaos in Japan after sprinting through a shopping center and triggering a multi-day hunt that forced 94 schools to close.
+
+Officials in Utsunomiya, north of Tokyo, captured the bear Tuesday after it was tranquilized, dragged by its limbs, and loaded onto a truck as police stood nearby.
+
+The city had urged residents to stay inside at night and keep doors and windows locked after multiple sightings since Saturday.
+</div>
+
+## pm_afshaa — post 93006
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93006_1781012590.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴با تصمیم شورای معین شورای‌عالی انقلاب فرهنگی، تاثیر معدل پایهٔ یازدهم تو کنکور امسال مثبت شد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93005
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93005_1781012591.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نیویورک‌تایمز: یک بالگرد تهاجمی آپاچی ارتش آمریکا در نزدیکی تنگه هرمز سقوط کرد. علت حادثه هنوز مشخص نیست و در حال بررسیه؛ از جمله اینکه آیا بالگرد هدف قرار گرفته، دچار نقص فنی شده یا با مشکل دیگری مواجه بوده. خدمه بالگرد نجات پیدا کردن. 
+💧 Rainbet.com the…
+</div>
+
+## pm_afshaa — post 93004
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93004_1781012592.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴اسکای نیوز عربی:
+ایران یه پیش‌نویس جدید برای آمریکا فرستاده و گزارش‌های اولیه نشون میده دولت ترامپ اون رو تا حدودی قابل قبول میدونه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 341340
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341340_1781012593.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻زهران ممدانی، شهردار نیویورک، از سیاست‌های مهاجرتی دولت دونالد ترامپ، رییس‌جمهوری آمریکا، در آستانه جام جهانی ۲۰۲۶ انتقاد کرد و هشدار داد که محدودیت‌های اعمال‌شده برای ورود برخی افراد و هیات‌های ورزشی با اهداف و فلسفه این رقابت‌ها همخوانی ندارد.
+
+🔹ممدانی با اشاره به مشکلات صدور ویزا برای برخی کشورهای حاضر در جام جهانی، نسبت به رد درخواست ویزای خبرنگاران، مربیان و اعضای برخی تیم‌های ملی ابراز نگرانی کرد و گفت: «این موضوع کاملا برخلاف فلسفه و هدف این مسابقات است. اگر حتی نتوانیم اجازه دهیم بازیکنان، تیم‌ها و خبرنگارانی که این رقابت‌ها را پوشش می‌دهند وارد کشور شوند، باید درباره تعهد خود به روح واقعی این تورنمنت پرسش‌های جدی مطرح کنیم.»
+
+🔹شهردار نیویورک این اظهارات را در جریان معرفی برنامه پخش رایگان دیدار فینال جام جهانی در پارک مرکزی نیویورک مطرح کرد. بر اساس این برنامه، دیدار فینال ۱۹ ژوئیه روی نمایشگرهای بزرگ در بخش «گریت لاون» سنترال پارک برای بیش از ۵۰ هزار نفر پخش خواهد شد و بلیت‌های این رویداد از طریق قرعه‌کشی در اختیار علاقه‌مندان قرار می‌گیرد.
+
+
+🔹جزییات بیشتر را در سایت بخوانید
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 341339
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341339_1781012594.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند در پیامی به ایران اینترنشنال تصویری از بنر حکومتی مقام‌های کشته‌شده جمهوری اسلامی در جنگ‌ اخیر را نشان می‌دهد و می‌گوید با دیدن آن امیدوار شده است.
+</div>
+
+## IranIntlTV — post 341338
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341338_1781012596.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایوت کوپر، وزیر خارجه بریتانیا، سه‌شنبه ۱۹ خرداد در جلسه پارلمان این کشور گفت لندن خواهان آن است که گفت‌وگوهای آمریکا و جمهوری اسلامی هرچه سریع‌تر به نتیجه برسد و توافقی حاصل شود که تنگه هرمز را به طور کامل و بدون عوارض باز کند.
+
+او با اشاره به حملات اخیر اسرائیل و جمهوری اسلامی افزود در ۴۸ ساعت گذشته بر ضرورت کاهش فوری تنش تاکید شده، زیرا بازگشت به درگیری به نفع هیچ‌کس نیست.
+
+وزیر خارجه بریتانیا همچنین گفت آزادی کشتیرانی برای همه کشورها اهمیت دارد و بریتانیا همراه با فرانسه و دیگر کشورها آماده است پس از دستیابی به توافق، در یک ماموریت دریایی چندجانبه برای پاکسازی مین‌ها و تضمین امنیت کشتیرانی در تنگه هرمز مشارکت کند.
+https://iranintl.com/202606095585
+</div>
+
+## Shin_Persian — post 6778
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6778_1781012596.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Tue, 09 Jun 2026 13:36:13 UTC
+
+Jet activity over Baghdad #Iraq 🇮🇶
+
+فارسی
+
+فعالیت جنگنده‌ها بر فراز بغداد #Iraq 🇮🇶
+
+𝕏 · @shin_persian
+</div>
+
+## RadioFarda — post 158096
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جی‌دی ونس: منافع آمریکا و اسرائیل در برخی موارد از هم فاصله می‌گیرد
+
+🔸معاون رئیس‌جمهور آمریکا می‌گوید با آن‌که ایالات متحده و اسرائیل «منافع مشترک زیادی دارند»، اما در برخی موارد نیز منافع‌شان «از هم فاصله می‌گیرد».
+
+🔸جی‌دی ونس در گفت‌و‌گو با شبکهٔ فاکس‌نیوز که دوشنبه شب ۱۸ خرداد پخش شد، گفت در حالی که اسرائیل در قبال ایران، «آشکارا اهداف خود را دارد، هدف اصلی ایالات متحده در قبال ایران این است که اطمینان حاصل کند ایران به سلاح هسته‌ای دست پیدا نکند».
+
+🔸او همچنین افزود که آمریکا طی یک سال و نیم گذشته، «فضای لازم» را برای دستیابی به یک توافق بلندمدت بر سر پروندهٔ هسته‌ای ایران ایجاد کرده است.
+
+🔸ایران و آمریکا در یک سال و نیم گذشته چندین دور مذاکرات مستقیم و غیرمستقیم انجام داده‌اند که دو دور آن با جنگ به بن‌بست خورد. مذاکرات جاری میان ایران و آمریکا نیز پس از جنگ ۴۰ روزه آغاز شده اما هنوز به نتیجه مشخصی نرسیده است.
+
+🔸معاون دونالد ترامپ در این باره افزود: «اسرائیل ممکن است از این موضوع خوشش بیاید یا نیاید، اما در نهایت ما معتقدیم که این به نفع ایالات متحده آمریکاست و و آن را دنبال خواهیم کرد».
+
+🔸این اظهارات پس از آن بیان می‌شود که با وجود درخواست رئیس‌جمهور آمریکا از نخست‌وزیر اسرائیل، این کشور بعد از حمله موشکی ایران، به تهران پاسخ مشابهی داد.
+
+🔸دونالد ترامپ پس از درخواست از دو کشور برای توقف حملات به خاک یکدیگر، در گفت‌وگو با شبکه ۱۲ اسرائيل گفت: «به بی‌بی گفتم بهتر است مراقب کارهايی که انجام می‌دهی باشی، چون ممکن است خيلی زود در برابر ايران تنها بمانی».
+
+🔸پاسخ موشکی اسرائیل به ایران و درخواست ترامپ برای توقف حملات، باعث طرح نظرات مختلف در فضای سیاسی و رسانه‌ای اسرائیل شده است و برخی از رقبای سیاسی بنیامین نتانیاهو از او به شدت انتقاد کرده‌اند.
+
+🔸گزارش کامل را در وب‌سایت رادیوفردا بخوانید.
+
+@RadioFarda
+</div>
+
+## alonews — post 126530
+
+<div align="center">
+  <a href="telegram/content/alonews_126530_1781012597.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈آکسیوس به نقل از مقامات آمریکایی:
+
+
+🔴ما در حال بررسی این موضوع هستیم که آیا شلیک گلوله از سوی ایران باعث سقوط بالگرد آپاچی در نزدیکی تنگه هرمز در روز دوشنبه شده است یا خیر.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/19 17:03
 ---
 

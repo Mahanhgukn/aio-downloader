@@ -7,6 +7,270 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/19 19:03
+---
+
+## FoxNewsTwitter — post 342761
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342761_1781019204.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+“I know firsthand why Graham Platner shouldn’t be a U.S. senator.”
+
+Democrat Graham Platner’s former political director skewering the candidate and the campaign that she once worked for just hours before polls close in Maine.
+
+Genevieve McDonald issuing a warning to voters about what she says is hiding behind the curtains of his campaign.
+
+Writing in The Washington Post, she says Platner is “not someone who would be good for Maine or for the country,” accusing him of a pattern of dishonesty as new allegations continue to surface about past abuse and his Nazi tattoo.
+</div>
+
+## pm_afshaa — post 93013
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93013_1781019205.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سفارت ایران در تونس خطاب به ترامپ:
+اگه توافق میخوای، این کارو بکن
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5510
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5510_1781019205.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺📢 موشک‌پرانی سپاه و حملات متقابل اسرائیل
+
+*یوسف ریاضی‌پور، پژوهشگر نظامی
+
+#موشکپرانی #IRGCterrorists
+@DEJradio
+</div>
+
+## IranIntlTV — post 341356
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341356_1781019207.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند در ویدیویی به ایران اینترنشنال از گرانی میوه‌ها روایت می‌کند و می‌گوید قیمت یک کیسه دارای مقدار کمی از چند میوه برای او بیش از یک میلیون و ۱۰۰ هزار تومان تمام شده است.
+</div>
+
+## IranIntlTV — post 341355
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+«۲۴ با #فرداد _فرحزاد»؛ دوشنبه تا جمعه ساعت ۲۲:۰۰ تهران
+
+اخبار فوری، گزارش‌ و گفت‌وگوهای عمیق از ایران و جهان
+
+در جریان بمانید!
+@iranintltv
+</div>
+
+## IranIntlTV — post 341354
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341354_1781019208.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دو روز مانده به آغاز جام جهانی، برخورد ماموران مرزی آمریکا با اعضای برخی کاروان‌های ورزشی خبرساز شده است؛ موضوعی که احتمال تکرار آن برای کاروان تیم ملی ایران و اعضای فدراسیون فوتبال را به یکی از نگرانی‌های پیش از مسابقات تبدیل کرده است.
+
+علیرضا مدیری، خبرنگار ایران‌اینترنشنال، از لس‌آنجلس گزارش می‌دهد
+@iranintltv
+</div>
+
+## Shin_Persian — post 6781
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6781_1781019210.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet: محمدباقر قالیباف | MB Ghalibaf @mb_ghalibaf Tue, 09 Jun 2026 13:30:48 UTC صد روز از جهاد ملتی که برای حفظ ایرانِ جان قیام کرد می‌گذرد. درود خدا بر شما که پشت ایران را گرم کردید، دشمن را ناامید ساختید و کشور را از دهان گرگ‌های درّنده‌ای…
+</div>
+
+## Shin_Persian — post 6780
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+محمدباقر قالیباف | MB Ghalibaf @mb_ghalibaf
+Tue, 09 Jun 2026 13:30:48 UTC
+
+صد روز از جهاد ملتی که برای حفظ ایرانِ جان قیام کرد می‌گذرد.
+
+درود خدا بر شما که پشت ایران را گرم کردید، دشمن را ناامید ساختید و کشور را از دهان گرگ‌های درّنده‌ای که برای تسلیم کردن ایران اسلامی دندان تیز کرده بودند، بیرون کشیدید.
+
+پاینده ایران و زنده باد مقاومت ملت بزرگ ایران
+
+↩️ Quoted tweet — see the post below for the reply.
+
+English
+
+One hundred days have passed since the jihad of a nation that rose up to preserve the beloved soul of Iran.
+
+God's peace be upon you, who have emboldened Iran, driven the enemy to despair, and pulled the country from the jaws of the predatory wolves who had sharpened their teeth to force Islamic Iran into surrender.
+
+Long live Iran, and long live the resistance of the great nation of Iran.
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 220126
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺جی‌دی ونس: به‌رغم طولانی شدن مذاکرات سرانجام آمریکا موفق خواهد بود
+
+◾️جی‌دی ونس، معاون رئیس جمهوری آمریکا، روز دوشنبه ۱۸ خرداد در مصاحبه‌ای تلفنی گفت: «اطمینان دارم که جنگ [رژیم] ایران که در صد و دومین روز خود است به باتلاق تبدیل نخواهد شد.»
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/jd-vance-us-vice-president-war-with-iran-quagmire/8158934.html
+</div>
+
+## FarsiVOA — post 220125
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220125_1781019210.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یکی از مخاطبان صدای آمریکا ویدیویی از آثار حملات اسرائیل در روز دوشنبه ۱۸ خرداد در کرج ارسال کرده و می‌گوید «رژیم بهتر است به مردم ایران کمک کند و نه به حزب‌الله.»
+
+دور دیگر تبادل آتش میان اسرائیل و جمهوری اسلامی روز یکشنبه ۱۷ خرداد آغاز شد و تا دوشنبه ادامه یافت.
+</div>
+
+## FarsiVOA — post 220124
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220124_1781019212.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در میدان پرسیدیم: کدام طرف آتش‌بس میان جمهوری اسلامی،‌ اسرائیل و آمریکا را نقض کرد و چرا جمهوری اسلامی امنیت مردم ایران را فدای حزب‌الله لبنان می‌كند؟
+</div>
+
+## FarsiVOA — post 220123
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺چهار معترض بازداشت‌شده در خطر اعدام؛ جمهوری اسلامی چهار زندانی دیگر را به مرگ محکوم کرد
+
+◾️گزارش‌های نهادهای حقوق بشری از صدور حکم اعدام برای چهار تن از بازداشت‌شدگان اعتراضات سراسری دی ۱۴۰۴ در تهران و یزد حکایت دارد؛ احکامی که با اتهام «محاربه» صادر شده‌اند و نگرانی‌ها درباره استفاده جمهوری اسلامی از مجازات مرگ علیه معترضان را افزایش داده‌اند.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/four-iranian-protesters-face-execution/8158932.html
+</div>
+
+## DW_Farsi — post 125728
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶آیا تهران توان فرامنطقه‌ای کردن جنگ را دارد؟
+
+گزارشی از نیلوفر غلامی
+
+تهدید سپاه پاسداران مبنی بر کشیده شدن جنگ به "فراتر از منطقه "در صورت حمله دوباره به ایران، یکی از مهم‌ترین پیام‌های جمهوری اسلامی در هفته‌های اخیر بوده است. سران حکومت ایران در سال‌های گذشته بارها هشدار داده‌اند که هرگونه درگیری مستقیم با تهران می‌تواند پیامدهایی فراتر از مرزهای ایران و حتی خاورمیانه داشته باشد.
+
+اما این تهدید دقیقاً به چه معناست و جمهوری اسلامی از چه ابزارها و سناریوهایی برای گسترش دامنه جنگ سخن می‌گوید؟
+بابک رضایی دریاکناری، دانشیار روابط بین‌الملل در دانشگاه لیدن در هلند، به دویچه وله فارسی می‌گوید که بیانیه سپاه را نباید یک نقشه عملیاتی دقیق فرض کرد.
+
+او می‌افزاید: «من فکر می‌کنم این یک پیام است نه برنامه مشخص بر خلاف بستن تنگه هرمز یا حمله به پایگاه‌های آمریکا در منطقه. جمهوری اسلامی در حقیقت به دنبال یک سیگنال پرهزینه است و می‌خواهد بگوید که هزینه حملات بعدی یا تشدید جنگ در منطقه خلیج فارس باقی نمی‌ماند و جاهای دیگر را هم می‌تواند درگیر کند؛ مثلا تنگه باب‌المندب را.»
+
+
+@dw_farsi
+</div>
+
+## IranianMinds — post 21923
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 سی‌ان‌ان:
+
+ترامپ تا الان دست‌کم ۳۷ بار به‌صورت علنی مدعی شده که توافق با جمهوری اسلامی نزدیکه یا تهران به‌شدت به‌دنبال رسیدن به توافقه.
+
+@IranianMinds
+</div>
+
+## Hranews — post 113496
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+زرند؛ یک کارگر شاغل در معدن زغال‌سنگ گلتوت جان باخت
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– یک کارگر شاغل در معدن زغال‌سنگ «گلتوت» از توابع شهرستان زرند حین انجام کار دچار حادثه شد و جان خود را از دست داد.
+
+ادامه مطلب
+
+#کارگران
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## alonews — post 126552
+
+<div align="center">
+  <a href="telegram/content/alonews_126552_1781019213.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نیروهای اسرائیلی در حال انجام تخریب‌ها در بیت لاهیا، نوار غزه هستند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126551
+
+<div align="center">
+  <a href="telegram/content/alonews_126551_1781019215.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈زلنسکی: روسیه درک می‌کند که اگر ۶۰۰+ پهپاد و موشک وجود داشته باشد، آن‌ها این جنگ را دقیقاً همان‌طور که ما احساس می‌کنیم، احساس خواهند کرد، اما آن‌ها این را در خانه خود احساس خواهند کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126550
+
+<div align="center">
+  <a href="telegram/content/alonews_126550_1781019215.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈زلنسکی: همان‌طور که شریک امروز در طول جلسه ما گفت، اروپا بدون اوکراین نمی‌تواند از خود محافظت کند. و این بدان معناست که اوکراین باید در ناتو باشد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126549
+
+<div align="center">
+  <a href="telegram/content/alonews_126549_1781019217.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزیر انرژی آمریکا: تردد کشتی‌ها از تنگه هرمز به‌طور چشمگیری افزایش یافته است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/19 18:53
 ---
 

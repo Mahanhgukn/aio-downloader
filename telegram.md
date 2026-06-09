@@ -7,6 +7,265 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/19 18:53
+---
+
+## VahidOOnLine — post 244537
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244537_1781018638.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+منابع امنیتی به العربیه گفتند حزب‌الله لبنان در پی افزایش تلفات و از دست دادن شمار زیادی از نیروها و فرماندهان باتجربه خود، از افراد زیر ۱۸ سال و نیروهای جوان‌تر در جبهه‌های جنوب لبنان استفاده می‌کند و برای جبران کمبود نیرو، به متحدان خود نیز متکی شده است.
+
+با گذشت ۱۰۰ روز از آغاز حملات دوباره اسرائیل به جنوب لبنان، تلفات انسانی و خسارت‌های اقتصادی ناشی از این جنگ همچنان رو به افزایش است؛ آن هم در شرایطی که پس از آغاز مذاکرات مستقیم لبنان و اسرائیل با میانجیگری آمریکا، آتش‌بس اعلام شده بود.
+
+بر اساس گزارش سه‌شنبه ۱۹ خرداد العربیه، شمار کشته‌شدگان درگیری‌های اسرائیل و حزب‌الله لبنان از ۱۱ اسفند ۱۴۰۴ تاکنون به سه هزار و ۶۳۷ نفر و شمار زخمی‌ها به ۱۱ هزار و ۱۸۸ نفر رسیده است.
+
+ادامه این گزارش را در وبسایت ایران‌اینترنشنال بخوانید
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244536
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244536_1781018639.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جلال دهقانی فیروزآبادی، دبیر شورای راهبردی روابط خارجی جمهوری اسلامی، گفت: «ما و حزب‌الله متحد هستیم و متحدان از یکدیگر دفاع می‌کنند؛ اگر حزب‌الله نبود، لبنان نیز نبود و امنیت لبنان برای ما اهمیتی حیاتی دارد.»
+
+او افزود : مردم و موشک «دو بال تضمین منافع ملی» هستند.
+
+دهقانی فیروزآبادی اضافه کرد: «جلوگیری از تکرار تجاوز، با قدرت و بازدارندگی حاصل می‌شود، نه صرفا تفاهم و توافق.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342760
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342760_1781018640.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH LIVE: First Lady Melania Trump celebrates young AI pioneers at White House https://twitter.com/i/broadcasts/1jGXggXjPXjKZ
+</div>
+
+## FoxNewsTwitter — post 342759
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342759_1781018640.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Are Taylor Swift and Travis Kelce really getting married at Madison Square Garden this year?
+
+Our sponsor Kalshi’s prediction market shows:
+
+—Yes: 51%
+—No: 49%
+
+@foxandfriends
+</div>
+
+## FoxNewsTwitter — post 342758
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342758_1781018641.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Dr. Alveda King tearing into the Southern Poverty Law Center during a hearing accusing the organization of fueling racial division in the United States while claiming to fight it.
+
+The niece of Dr. Martin Luther King Jr. pointing to allegations referenced in a federal superseding indictment that she says raise serious questions about the group's conduct.
+
+“My family legacy reflects the very truth that America is strongest when we recognize our common humanity... That is why I am troubled by the conduct and messaging of organizations that claim to fight hatred, while profiteering from division.”
+</div>
+
+## IranIntlTV — post 341353
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341353_1781018643.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سال‌هاست مقام‌های جمهوری اسلامی از ناعادلانه بودن کنکور و ضرورت اصلاح آن سخن می‌گویند، اما اجرای یکی از بزرگ‌ترین تغییرات در نظام پذیرش دانشگاه‌ها اکنون با موجی از اعتراض دانش‌آموزان در شهرهای مختلف ایران روبه‌رو شده است.
+
+معترضان می‌گویند اعمال تاثیر قطعی ۶۰ درصدی معدل عادلانه نیست. در پی روزها اعتراض، شورای معین شورای عالی انقلاب فرهنگی اعلام کرده است تاثیر معدل پایه یازدهم «مثبت» خواهد شد؛ تصمیمی که جزئیات آن هنوز روشن نیست.
+
+مهدی بیگی، عضو تحریریه ایران‌اینترنشنال، در «پیوست» به این موضوع می‌پردازد
+@iranintltv
+</div>
+
+## IranIntlTV — post 341352
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341352_1781018645.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+منابع امنیتی به العربیه گفتند حزب‌الله لبنان در پی افزایش تلفات و از دست دادن شمار زیادی از نیروها و فرماندهان باتجربه خود، از افراد زیر ۱۸ سال و نیروهای جوان‌تر در جبهه‌های جنوب لبنان استفاده می‌کند و برای جبران کمبود نیرو، به متحدان خود نیز متکی شده است.
+
+با گذشت ۱۰۰ روز از آغاز حملات دوباره اسرائیل به جنوب لبنان، تلفات انسانی و خسارت‌های اقتصادی ناشی از این جنگ همچنان رو به افزایش است؛ آن هم در شرایطی که پس از آغاز مذاکرات مستقیم لبنان و اسرائیل با میانجیگری آمریکا، آتش‌بس اعلام شده بود.
+
+بر اساس گزارش سه‌شنبه ۱۹ خرداد العربیه، شمار کشته‌شدگان درگیری‌های اسرائیل و حزب‌الله لبنان از ۱۱ اسفند ۱۴۰۴ تاکنون به سه هزار و ۶۳۷ نفر و شمار زخمی‌ها به ۱۱ هزار و ۱۸۸ نفر رسیده است.
+
+ادامه این گزارش را در وبسایت ایران‌اینترنشنال بخوانید
+https://iranintl.com/202606098484
+</div>
+
+## IranIntlTV — post 341351
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341351_1781018645.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جلال دهقانی فیروزآبادی، دبیر شورای راهبردی روابط خارجی جمهوری اسلامی، گفت: «ما و حزب‌الله متحد هستیم و متحدان از یکدیگر دفاع می‌کنند؛ اگر حزب‌الله نبود، لبنان نیز نبود و امنیت لبنان برای ما اهمیتی حیاتی دارد.»
+
+او افزود : مردم و موشک «دو بال تضمین منافع ملی» هستند.
+
+دهقانی فیروزآبادی اضافه کرد: «جلوگیری از تکرار تجاوز، با قدرت و بازدارندگی حاصل می‌شود، نه صرفا تفاهم و توافق.»
+https://iranintl.com/202606098195
+</div>
+
+## Shin_Persian — post 6779
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6779_1781018646.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Tue, 09 Jun 2026 15:20:27 UTC
+
+Earlier:
+Jet activity over western Tehran
+
+فارسی
+
+پیش‌تر:
+فعالیت جنگنده‌ها بر فراز غرب تهران
+
+𝕏 · @shin_persian
+</div>
+
+## DW_Farsi — post 125727
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶ایران قطعنامه پیشنهادی آمریکا در آژانس اتمی را "مضحک" خواند
+
+نمایندگی دائم ایران در وین، هم‌زمان با آغاز نشست فصلی شورای حکام ۳۵ کشوری آژانس، واکنش خود به ارائه پیش‌نویس قطعنامه از سوی آمریکا و سه کشور اروپایی را به صورت عمومی در شبکه اجتماعی ایکس (X) منتشر کرد.
+
+بیانیه این نمایندگی، ایالات متحده را به ریختن "اشک تمساح" برای وضعیت پادمانی متهم کرده است؛ وضعیتی که به گفته ایران، اقدام نظامی خود آمریکا در وهله اول عامل ایجاد آن بوده است.
+
+نشست این هفته شورای حکام به دلیل در جریان بودن هم‌زمان مذاکرات تمدید آتش‌بس میان واشنگتن و تهران (که در نهایت می‌تواند پرونده هسته‌ای را نیز شامل شود)، بار معنایی و حساسیت ویژه‌ای پیدا کرده است.
+
+نمایندگی جمهوری اسلامی ایران در بیانیه خود می‌گوید که بازرسان نمی‌توانند وضعیت اورانیوم غنی‌شده و زیرساخت‌های هسته‌ای ایران را راستی‌آزمایی کنند، "نه به این دلیل که ایران ازهمکاری خودداری کرده است،" بلکه از این رو که "آن سایت‌ها دیگر به هیچ شکل قابل راستی‌آزمایی، وجود خارجی ندارند"
+
+
+@dw_farsi
+</div>
+
+## IranianMinds — post 21922
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21922_1781018646.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بازرسی بدنی حریف ایران روی باند فرودگاه سیاتل
+
+تصویری از کوین دی بروینه،‌هافبک بلژیک که پس از ورود کاروان این کشور روی همان باند فرودگاه مورد بازرسی قرار گرفت.
+
+@IranianMinds
+</div>
+
+## Hranews — post 113495
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+احضار ۴ سینماگر به دادسرای فرهنگ و رسانه
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– تهمینه میلانی، محسن امیریوسفی، مصطفی کیایی و محسن کیایی، چهار تن از فعالان حوزه سینما، از بابت اتهام «همکاری با دول متخاصم علیه جمهوری اسلامی» به دادسرای فرهنگ و رسانه احضار شدند.
+
+ادامه مطلب
+
+#تهمینه_میلانی #محسن_امیریوسفی
+#مصطفی_کیایی #محسن_کیایی
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## alonews — post 126548
+
+<div align="center">
+  <a href="telegram/content/alonews_126548_1781018647.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پست جدید حساب رسمی کاخ سفید در X
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126547
+
+<div align="center">
+  <a href="telegram/content/alonews_126547_1781018647.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 بیانیه رسمی فیفا : دیدار ایران و مصر قطعا دیدار افتخار همجنسگرایان خواهد بود و به هیچ عنوان این رویداد لغو نخواهد شد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126546
+
+<div align="center">
+  <a href="telegram/content/alonews_126546_1781018647.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزیر دفاع بلغارستان: ما دیگر به اوکراین سلاح ارسال نمیکنیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126545
+
+<div align="center">
+  <a href="telegram/content/alonews_126545_1781018648.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حمله هوایی اسرائیل به جنوب لبنان
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126544
+
+<div align="center">
+  <a href="telegram/content/alonews_126544_1781018648.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سخنگوی جنبش حماس: گذار به مرحله دوم توافق آتش‌بس، منوط به توانایی میانجی‌ها، کشورهای ضامن و «شورای صلح» است که بتوانند اسرائیل را به توقف نقض توافق و پذیرش این توافقات ملزم کنند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/19 18:44
 ---
 

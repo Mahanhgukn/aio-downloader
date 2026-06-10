@@ -7,6 +7,238 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/20 20:24
+---
+
+## VahidOOnLine — post 244732
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244732_1781110477.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حسینعلی حاجی‌دلیگانی، نایب‌رییس کمیسیون اصل ۹۰ مجلس، در واکنش به تصویب قطعنامه آژانس بین‌المللی انرژی اتمی درباره برنامه هسته‌ای جمهوری اسلامی گفت هر کشوری که در شورای حکام به متن پیشنهادی آمریکا رای مثبت یا ممتنع داده از نظر جمهوری اسلامی «کشور متخاصم» شناخته می‌شود.
+
+او ادامه داد: «رافائل گروسی تحت تاثیر لابی‌های قدرت‌های جهانی به ابزاری برای اجرای سیاست‌های آمریکا تبدیل شده است.»
+
+او افزود: «آمریکا پس از بمباران تاسیسات هسته‌ای به‌دنبال یافتن و خارج کردن مواد غنی‌شده است.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14350
+
+<div align="center">
+  <img src="telegram/content/WithYashar_14350_1781110477.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تهران داره از همه جاش دود میزنه بیرون.
+@withyashar
+</div>
+
+## mwarmonitor — post 10629
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_10629_1781110478.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 صدای انفجاری نامشخص و مشاهده ستون‌های دود در منطقه اروندکنار
+
+@mwarmonitor
+</div>
+
+## VahidOnline — post 76151
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تصاویر دریافتی از ستون دود سیاه و غلیظ حوالی مرکز #تهران
+منابع حکومتی نوشته‌اند: "یک انبار کالا حوالی میدان قیام در منطقه ۱۲ تهران دچار #آتش‌سوزی شده است."
+چهارشنبه ۲۰ خرداد
+Vahid
+
+📡 @VahidOnline
+</div>
+
+## kianmeli1 — post 87872
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87872_1781110478.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری-آتش سوزی وسیع خیابان قیام تهران
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87871
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری-رسانه های امریکایی
+
+حمله به ایران وسیع خواهد بود و بدتر از قبل
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87870
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴هر گاه حمله ای قرار بوده انجام بدن ٫ قبلش جایی آتیش می گرفت
+
+امشب در خیابان قیام تهران انبار کالا اتش گرفته است
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 341533
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341533_1781110479.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حسینعلی حاجی‌دلیگانی، نایب‌رییس کمیسیون اصل ۹۰ مجلس، در واکنش به تصویب قطعنامه آژانس بین‌المللی انرژی اتمی درباره برنامه هسته‌ای جمهوری اسلامی گفت هر کشوری که در شورای حکام به متن پیشنهادی آمریکا رای مثبت یا ممتنع داده از نظر جمهوری اسلامی «کشور متخاصم» شناخته می‌شود.
+
+او ادامه داد: «رافائل گروسی تحت تاثیر لابی‌های قدرت‌های جهانی به ابزاری برای اجرای سیاست‌های آمریکا تبدیل شده است.»
+
+او افزود: «آمریکا پس از بمباران تاسیسات هسته‌ای به‌دنبال یافتن و خارج کردن مواد غنی‌شده است.»
+https://iranintl.com/202606105180
+</div>
+
+## Persian_Trend_Official — post 16500
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16500_1781110479.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پزشکیان: زیرساخت‌های حیاتی، شریان‌های زندگی مردم‌اند.
+
+رئیس‌جمهور در شبکه اجتماعی ایکس نوشت: زیرساخت‌های حیاتی، شریان‌های زندگی مردم‌اند. تهدید به هدف قرار دادن آنها از شبکه‌های حمل و نقل تا صنعت برق و آب نه نمایش قدرت بلکه نشانه استیصال در برابر اراده یک ملت است.
+
+ایران با تکیه بر دانش و توان متخصصان، وحدت ملی و همبستگی، در برابر هر فشار و تهدیدی استوار خواهد ماند.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## RadioFarda — post 158154
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_158154_1781110480.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸دونالد ترامپ، رئیس‌جمهور آمریکا، روز چهارشنبه فاش کرد که ایالات متحده در حال خارج کردن نفت از ایران بوده است.
+
+🔸او در جریان رویدادی در کاخ سفید در گفت‌وگو با خبرنگاران گفت: «من امروز برای نخستین بار این موضوع را اعلام می‌کنم، اما ما هر شب میلیون‌ها بشکه نفت را خارج کرده‌ایم؛ میلیون‌ها بشکه در هر شب.»
+
+🔸ترامپ افزود که ایران «تازه متوجه این موضوع شده است. حالا که فهمیده‌اند، می‌توانم آن را بگویم. برای من خیلی سخت بود که چیزی نگویم. واقعاً دلم می‌خواست این را زودتر بگویم.»
+
+🔸او ادامه داد: «میلیون‌ها بشکه نفت خارج شده و به همین دلیل قیمت نفت به جای ۲۵۰ دلار، در محدوده ۸۵ تا ۹۰ دلار برای هر بشکه قرار دارد.»
+
+🔸ترامپ جزئیات بیشتری درباره عملیات آمریکا برای خارج کردن نفت از ایران ارائه نکرد.
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 22121
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22121_1781110480.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 سی ان ان :
+
+بیل گیتس به کنگره آمریکا گفت که جفری اپستین پس از پایان ارتباطشان، تلاش کرده بود با استفاده از اطلاعاتی درباره روابط خارج از ازدواج او، روی وی فشار وارد کند.
+
+متوجه شدم اپستین به اطلاعات حساسی درباره زندگی شخصی من دست پیدا کرده بود.
+
+از جمله این‌که در دوران ازدواجم به همسرم خیانت کرده بودم.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22120
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نشتی گاز شدیده انگار @IranianMinds
+</div>
+
+## Dirty_Kids — post 391594
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391594_1781110481.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این کسمغز شیعه‌سان یه جور خیلی خوبی توضیح می‌ده که موشعلی کسپر شده و دیگه نیست،
+نمی‌دونم چطور توضیح بدم اما خیلی خوب وصف می‌کنه، خیلی.
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 126907
+
+<div align="center">
+  <a href="telegram/content/alonews_126907_1781110482.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پزشکیان: زیرساخت‌های حیاتی شریان حیات مردم هستند. تهدید به هدف قرار دادن آن‌ها — از شبکه‌های حمل‌ونقل تا صنایع برق و آب — نشانه قدرت نیست، بلکه نشانه‌ای از ناامیدی در برابر اراده یک ملت است.
+
+
+🔴ایران، با تکیه بر دانش و توانایی متخصصان خود، وحدت ملی و همبستگی، در برابر هرگونه فشار یا تهدید استوار خواهد ایستاد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126906
+
+<div align="center">
+  <a href="telegram/content/alonews_126906_1781110482.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 پیت‌ هگستث در خلیج گوانتانامو:
+ما به دنبال دشمنان نیستیم. ما به دنبال دشمنان نیستیم. ما یک دوست بزرگ هستیم.
+
+
+
+🔴و امیدواریم به زودی بتوانیم دوست رهبری دولت کوبا باشیم.
+
+
+🔴ایران باید بداند که به ما بیشتر چالش ایجاد کند، کار نادانی است
+
+
+🔴من همین الان وارد یک قایق مواد مخدر در کارائیب یا اقیانوس آرام شرقی می‌شوم.
+چون ما شما را شکار می‌کنیم همان‌طور که القاعده و داعش را در خاورمیانه شکار کردیم
+
+
+🔴در حال حاضر، حملات دفاعی برای اطمینان از محافظت از مردم ما.
+
+
+🔴باز هم، برای ایران غیرعقلانی خواهد بود که ما را بیشتر به چالش بکشد.
+
+
+🔴رئیس‌جمهور ترامپ به دنبال یک توافق است، اما نه فقط یک توافق، بلکه یک توافق بزرگ به نمایندگی از مردم آمریکایی تا اینکه ایران هرگز به سلاح هسته‌ای دست نیابد
+
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126905
+
+<div align="center">
+  <a href="telegram/content/alonews_126905_1781110483.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تسنیم: ترامپ باز هم از ضربات کوبنده ایران عبرت نگرفته است!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/20 20:14
 ---
 

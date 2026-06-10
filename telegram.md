@@ -7,6 +7,363 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/20 16:03
+---
+
+## VahidOOnLine — post 244673
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_244673_1781094836.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ رسانه‌های ایران تصاویری از تخریب مخازن آب سیریک در پی حملات آمریکا را منتشر کردند
+
+♦️خبرگزاری تسنیم، وابسته به سپاه پاسداران روز چهارشنبه ۲۰ خردادماه و ساعاتی پس از حملات آمریکا به اهدافی در شهرستان سیریک، ویدیویی از آثار تخریب مخازن آب بخش بمانی شهرستان سیریک استان هرمزگان را منتشر کرد.
+خبرگزاری تسنیم به نقل ازرئیس شرکت آب و فاضلاب استان هرمزگان نوشت:  «دو مخزن بتنی ذخیره آب با ظرفیت مجموع ۲۵۰۰ مترمکعب در بخش بمانی هدف اصابت موشک قرار گرفت و به طور کامل از مدار بهره‌برداری خارج شد.
+ این مقام محلی افرود: «این مخازن که از پروژه‌های کلیدی آبرسانی محسوب می‌شدند، وظیفه تأمین آب شرب شهر کوهستک و ۱۰ روستای اطراف را بر عهده داشتند... و
+ منابع آب زیرزمینی کافی برای جایگزینی فوری در این منطقه وجود ندارد.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244672
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244672_1781094838.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری رویترز به نقل از یک مقام آگاه گزارش داد که مذاکره‌کنندگان قطری چهارشنبه ۲۰ خرداد پس از رایزنی با آمریکا، در تلاشی برای نهایی کردن یک توافق، به تهران سفر کردند.
+
+همزمان خبرگزاری ایسنا نیز اعلام کرد این هیات ظهر چهارشنبه وارد تهران شد تا درباره «روابط دوجانبه، تحولات منطقه‌ای و آخرین روندهای دیپلماتیک برای خاتمه جنگ» گفت‌وگو کند.
+
+بر اساس گزارش ایسنا، این سفر با هدف رایزنی درباره وضعیت منطقه و بررسی مسیرهای سیاسی برای پایان دادن به درگیری‌ها انجام شد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244671
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244671_1781094839.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس جمهوری آمریکا روز چهارشنبه ۲۰ خرداد با انتقاد دوباره از رسانه‌های «اخبار دروغین»، محاصره دریایی ایران را موفق‌ترین محاصره تاریخ جنگ‌های دریایی خواند و گفت که «ایران به سرعت به ملتی شکست‌خورده تبدیل می‌شود.»
+
+ترامپ در این پیام نوشت: «رسانه‌های اخبار جعلی از گزارش اینکه محاصره دریایی ایالات متحده چقدر موثر است، خودداری می‌کنند. موفق‌ترین محاصره در تاریخ جنگ‌های دریایی. هیچ چیز عبور نمی‌کند مگر اینکه ما بخواهیم. این یک دیوار فولادی است! ایران هیچ تجارتی انجام نمی‌دهد، حقوق نظامیان خودش یا هیچیک از بدهی‌هایش را پرداخت نمی‌کند و به سرعت در حال تبدیل شدن به یک ملت شکست‌خورده است! مقدار زیادی نفت از دست می‌دهد. الحمدلله!»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14313
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فاکس نیوز به نقل از یک دیپلمات آگاه:
+پس از رایزنی با ایالات متحده، مذاکره‌کنندگان قطری امروز صبح برای دیدار با ایرانی‌ها به تهران سفر کردن تا در تلاشی برای رفع اختلافات باقی‌مانده در فرآیند مذاکره باشن.
+@withyashar
+</div>
+
+## WithYashar — post 14312
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ در گفتگو با فاکس نیوز: بالگرد آپاچی AH-64 ارتش ایالات متحده که اوایل این هفته سقوط کرد، توسط یک پهپاد که بین دو خلبان خورده بود، مورد اصابت قرار گرفت.
+با وجود آتش گرفتن و ایجاد گرمای شدید، پهپاد منفجر نشد و به خلبانان اجازه داد تا در دریا فرود اضطراری داشته باشند.
+
+خدمه حدود دو ساعت بعد توسط یک شناور سطحی بدون سرنشین نیروی دریایی ایالات متحده نجات یافتند.
+ترامپ زنده ماندن خلبانان را یک "معجزه" توصیف کرد
+@withyashar
+</div>
+
+## WithYashar — post 14311
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+معاون وزیر ارتباطات از بازگشت ۷۸ درصدی ترافیک اینترنت به شرایط پیش از محدودیت‌ها خبر داد و ابراز امیدواری کرد حداکثر طی دو هفته آینده وضعیت به طور کامل عادی شود. وی همچنین شایعه اعمال فیلترینگ جدید را تکذیب کرد
+@withyashar
+</div>
+
+## WithYashar — post 14310
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ به فاکس نیوز : فرصت اینو داشتند توافق رو امضا کنند و زنده بمونن
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342796
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342796_1781094840.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+RT @FoxBusiness: "They seem to be happy with proceeding into an election with this campaign position 'of we are anti law enforcement.'"
+
+Senate Majority Leader John Thune told Maria Bartiromo Republicans were left with “no choice” but to use reconciliation to pass the $70B ICE and Border Patrol funding bill.
+
+Thune says Democrats walked away from a bipartisan deal after Minneapolis, rejected new reform offers, and let the agencies sit unfunded for weeks.
+
+@MorningsMaria | @MariaBartiromo
+</div>
+
+## pm_afshaa — post 93298
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93298_1781094841.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فاکس نیوز به نقل از یک دیپلمات آگاه:
+پس از رایزنی با ایالات متحده، مذاکره‌کنندگان قطری امروز صبح برای دیدار با ایرانی‌ها به تهران سفر کردن تا در تلاشی برای رفع اختلافات باقی‌مانده در فرآیند مذاکره باشن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93297
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93297_1781094842.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ به کانال 13 اسرائیل:
+احتمال واقعی وجود داره که جنگ جدیدی علیه ایران آغاز کنم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93296
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93296_1781094843.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مسعود پزشکیان: امکان نداره یک کشور رو با بمباران وادار به تسلیم کرد؛ قطعا تسلیم نخواهیم شد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5537
+
+<div align="center">
+  <img src="telegram/content/DEJradio_5537_1781094844.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ ترامپ: جمهوری اسلامی فرصت توافق را سوزاند و باید بهایش را بپردازد
+
+دونالد ترامپ، رئیس جمهوری آمریکا روز چهارشنبه گفت جمهوری اسلامی برای رسیدن به توافق بیش از حد تعلل کرد و اکنون باید بهای این تأخیر را بپردازد.
+او در تروث سوشال نوشت نیروی نظامی جمهوری اسلامی در وضعیتی آشفته قرار دارد و بخشی بزرگ از توان دریایی و هوایی خود را از دست داده است.
+ترامپ همچنین نوشت که قلدر خاورمیانه مرده است.
+او افزود تهران توافقی را که می‌توانست برایش بسیار سودمند باشد، از دست داد.
+فاکس‌نیوز گزارش داد رئیس جمهوری آمریکا آماده است تا دستور حملاتی تازه را علیه تأسیسات و زیرساخت‌های جمهوری اسلامی صادر کند.
+
+#خبر #دژ #ترامپ #مذاکرات
+@DEJradio
+</div>
+
+## kianmeli1 — post 87861
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏🔴خبرگزاری تسنیم، وابسته به سپاه پاسداران، از بازداشت صادق زیباکلام، فعال سیاسی و استاد دانشگاه خبر داد
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87860
+
+<div align="center">
+  <a href="telegram/content/kianmeli1_87860_1781094844.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴دقایقی پیش-یک پهپاد مسلح MQ-9A Reaper دیگر متعلق به نیروی هوایی یا گارد ملی هوایی ایالات متحده بر فراز ایران سرنگون شد.
+
+لاشه این پهپاد در حال سوختن در کوه‌های نزدیک روستای چال بلوطک از توابع شهرستان اندیکا در استان خوزستان ایران قرار دارد.
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87859
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87859_1781094845.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴به دنبال اظهارات پیشین رجب طیب اردوغان، رئیس جمهور ترکیه که گفته بود «نتانیاهو با روش‌های نسل‌کشی خود به سطحی رسیده که هیتلر را به حسادت می‌اندازد»، بنیامین نتانیاهو، نخست وزیر اسرائیل، در پاسخ گفت که اردوغان «آخرین کسی است که می‌تواند اخلاق را موعظه کند».
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 341472
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری رویترز به نقل از یک مقام آگاه گزارش داد که مذاکره‌کنندگان قطری چهارشنبه ۲۰ خرداد پس از رایزنی با آمریکا، در تلاشی برای نهایی کردن یک توافق، به تهران سفر کردند.
+
+همزمان خبرگزاری ایسنا نیز اعلام کرد این هیات ظهر چهارشنبه وارد تهران شد تا درباره «روابط دوجانبه، تحولات منطقه‌ای و آخرین روندهای دیپلماتیک برای خاتمه جنگ» گفت‌وگو کند.
+
+بر اساس گزارش ایسنا، این سفر با هدف رایزنی درباره وضعیت منطقه و بررسی مسیرهای سیاسی برای پایان دادن به درگیری‌ها انجام شد.
+https://iranintl.com/202606100462
+</div>
+
+## Persian_Trend_Official — post 16469
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16469_1781094846.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+زیباکلام بازداشت شد!
+
+تسنیم: هفدهم خرداد بود که خبر تشدید قرار نظارت قضایی صادق زیباکلام در پی نقض قرار ممنوعیت هرگونه فعالیت رسانه‌ای و تولید محتوا در شبکه‌های اجتماعی رسانه‌ای شد.
+
+زیباکلام با وجود اعلام دادستانی تهران مبنی بر قرار نظارت قضایی با نقض این قرار، در مصاحبه‌ای اظهاراتی مطرح کرد که همین مصاحبه و ادعا‌های مطرح شده در آن منجر به اعلام جرم علیه این فرد و تشدید قرار نظارت قضایی وی شد.
+
+با اعلام جرم جدید و تشدید قرار نظارت قضایی، صبح امروز صادق زیباکلام بازداشت شد.
+
+در حال حاضر پرونده این فرد در دادسرای فرهنگ و رسانه مطرح رسیدگی است.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 22083
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22083_1781094846.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پست کاخ سفید:
+
+قلدر خاورمیانه مرده است.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22082
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22082_1781094847.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ به کانال ۱۳ اسرائیل:
+
+احتمال واقعی وجود دارد که جنگ جدیدی علیه ایران آغاز کنم!
+
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 391577
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 شریفی زارچی استاد سابق دانشگاه شریف: جمهوری اسلامی در حال انتقام‌گیری از دانشجوهاس؛ حداقل 7 نفر از دانشجویان دانشگاه صنعتی آریامهر (شریف) حکم اخراج دریافت کردن. 103 روز جرات نکردن رهبرشونو به گور بسپارن؛ با قاتل رهبرشون در حال مذاکره‌ن؛ و تمام شجاعتشون…
+</div>
+
+## Dirty_Kids — post 391576
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391576_1781094847.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 شریفی زارچی استاد سابق دانشگاه شریف:
+
+جمهوری اسلامی در حال انتقام‌گیری از دانشجوهاس؛
+حداقل 7 نفر از دانشجویان دانشگاه صنعتی آریامهر (شریف) حکم اخراج دریافت کردن.
+103 روز جرات نکردن رهبرشونو به گور بسپارن؛ با قاتل رهبرشون در حال مذاکره‌ن؛ و تمام شجاعتشون انتقام‌گیری از جوانان ایرانه.
+کفتارهای مقوایی.
+‌
+
+
+@Dirty_Kids 👻
+</div>
+
+## Hranews — post 113515
+
+<div align="center">
+  <img src="telegram/content/Hranews_113515_1781094848.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علیرغم نیاز به رسیدگی پزشکی؛ تداوم بازداشت امین احمدی در زندان شیبان اهواز
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– امین احمدی، متهم سیاسی اهل ایذه، نزدیک به یازده ماه است که بازداشت شده و در زندان شیبان اهواز در بلاتکلیفی قضایی به‌سر می‌برد. وی از بیماری‌های گوارشی رنج می‌برد و از دسترسی به خدمات درمانی و رسیدگی پزشکی مناسب محروم است.
+
+به گزارش خبرگزاری هرانا، ارگان خبری مجموعه فعالان حقوق بشر در ایران، امین احمدی همچنان در بازداشت است.
+
+بر اساس اطلاعات دریافتی هرانا، بیش از ۳۳۰ روز است که از بازداشت آقای احمدی می‌گذرد. او با اتهاماتی از جمله تبلیغ علیه نظام مواجه شده و تاکنون هیچ اقدامی برای رسیدگی به پرونده یا برگزاری دادگاه برای او صورت نگرفته است.
+
+یک منبع مطلع نزدیک به خانواده این شهروند ضمن تایید این خبر به هرانا گفت: “آقای احمدی از بیماری گوارشی رنج می‌برد و از دسترسی به داروهایش و رسیدگی پزشکی محروم مانده است. این محرومیت از دریافت دارو، نگرانی‌های خانواده آقای احمدی را نسبت به وضعیت سلامت او افزایش داده است.”
+
+ادامه مطلب
+
+#امین_احمدی
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## alonews — post 126819
+
+<div align="center">
+  <a href="telegram/content/alonews_126819_1781094848.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈صادق زیباکلام بخاطر این مصاحبه که گفته بود موشک‌ها فاجعه به بار میارن، بارداشت شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126818
+
+<div align="center">
+  <a href="telegram/content/alonews_126818_1781094850.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رضا دالمن دانشجوی کارشناسی ارشد رشته مهندسی کامپیوتر دانشگاه صنعتی شریف به خاطر اویزون کردن عروسک یک موش و بدون هیچ دلیل خاصی از دانشگاه اخراج شد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126817
+
+<div align="center">
+  <a href="telegram/content/alonews_126817_1781094851.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ در گفتگو با فاکس نیوز: بالگرد آپاچی AH-64 ارتش ایالات متحده که اوایل این هفته سقوط کرد، توسط یک پهپاد که بین دو خلبان خورده بود، مورد اصابت قرار گرفت.
+
+
+🔴با وجود آتش گرفتن و ایجاد گرمای شدید، پهپاد منفجر نشد و به خلبانان اجازه داد تا در دریا فرود اضطراری داشته باشند.
+
+
+🔴خدمه حدود دو ساعت بعد توسط یک شناور سطحی بدون سرنشین نیروی دریایی ایالات متحده نجات یافتند.
+
+
+🔴ترامپ زنده ماندن خلبانان را یک "معجزه" توصیف کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/20 15:53
 ---
 

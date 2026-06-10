@@ -7,6 +7,538 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/21 00:52
+---
+
+## VahidOOnLine — post 244786
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244786_1781126546.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️آکسیوس به نقل از دو منبع آمریکایی گزارش داد دونالد ترامپ چهارشنبه شب با مشاوران ارشد خود در اتاق بحران کاخ سفید جلسه‌ای برگزار کرد تا گزینه‌های مربوط به حملات احتمالی جدید علیه ایران را بررسی کند.
+این جلسه تنها چند ساعت پس از آن برگزار شد که ترامپ به خبرنگاران گفت ایالات متحده «امروز دوباره و به‌شدت» ایران را هدف قرار خواهد داد. به گفته منابع آگاه، محور اصلی این نشست بررسی گزینه‌های نظامی و حملات احتمالی تازه علیه ایران بوده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244785
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ پیت هگست، وزیر جنگ آمریکا، چهارشنبه عصر به وقت واشینگتن گفت فرماندهی مرکزی ایالات متحده (سنتکام) که هدایت عملیات نظامی آمریکا در خاورمیانه را بر عهده دارد، «امشب مشغول خواهد بود.»
+
+هگست در گفت‌وگو با خبرنگاران در مقر سنتکام در شهر تمپا در ایالت فلوریدا گفت جمهوری اسلامی همچنان فرصت دستیابی به توافق را دارد، اما در صورت ادامه بن‌بست، آمریکا به حملات خود ادامه خواهد داد. او افزود: «اگر لازم باشد با استفاده از بمب مذاکره کنیم، با استفاده از بمب مذاکره خواهیم کرد.»
+
+پیش‌تر، دونالد ترامپ در مراسم امضای قانون «آمریکای امن» در کاخ سفید با اشاره به حملات ارتش آمریکا به مواضع جمهوری اسلامی پس از سرنگونی یک بالگرد آمریکایی گفت: «ما دیروز به جمهوری اسلامی ضربه زدیم، امروز هم به آنها حمله خواهیم کرد.»
+
+رئیس‌جمهوری آمریکا همچنین گفت نیروهای جمهوری اسلامی به قصد نابود کردن این بالگرد به آن حمله کردند، اما به گفته او، خلبانان آمریکایی از این حادثه جان سالم به در بردند و «شناورهای بدون‌سرنشین پیشرفته» آمریکا در نجات آنها نقش داشتند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14389
+
+
+
+
+## WithYashar — post 14388
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یاشار : اگه جنگی بشه هم جنگی‌ که بی بی کیک آف نکنه برای ما جنگ نمیشه !
+@withyashar
+</div>
+
+## mwarmonitor — post 10659
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پدافند هوایی تهران فعال شد
+</div>
+
+## mwarmonitor — post 10658
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴آمریکا برای دومین شب متوالی ایران را بمباران می‌کند؛ هگستِث
+
+📝نوشته: باراک راوید
+
+🔰پیت هگستث، وزیر دفاع آمریکا، به خبرنگاران گفت که ارتش ایالات متحده برای دومین شب پیاپی حملاتی را علیه ایران انجام خواهد داد. مقامات آمریکایی هدف از این اقدام را اعمال فشار بر تهران برای امضای یک توافق اعلام کرده‌اند.
+
+
+تصویر کلی
+مقامات آمریکایی انتظار دارند که ایران دست به اقدام تلافی‌جویانه بزند و احتمالاً مانند سه‌شنبه شب، پایگاه‌های آمریکا را هدف قرار دهد. با این حال، دونالد ترامپ، رئیس‌جمهور آمریکا، تهران را متهم کرده که در مذاکرات «ما را ساده‌لوح فرض کرده است» و به همین دلیل تصمیم گرفت که این وضعیت باید تغییر کند.
+محور اخبار
+هگستث در جریان بازدید از مقر فرماندهی مرکزی آمریکا (سنتکام) در فلوریدا به خبرنگاران گفت:
+«سنتکام امشب سرش شلوغ خواهد بود، چرا که ما ضربه سختی به ایران وارد خواهیم کرد.»
+او در ادامه افزود:
+«ایران این شانس را دارد که به یک توافق بزرگ دست یابد، اما تا کنون تمایلی به آن نشان نداده است. آن‌ها شاهد فرود پی‌درپی بمب‌های ایالات متحده بر روی تاسیسات کلیدی خود در ایران خواهند بود. هدف از این کار شروع مجدد جنگ نیست، بلکه تعیین شروط برای یک توافق است.»
+هگستث همچنین اظهار داشت:
+«اگر مجبور باشیم با بمب مذاکره کنیم، با بمب مذاکره خواهیم کرد. ما امشب ضربه سختی به آن‌ها می‌زنیم و امیدواریم ایران تصمیم درستی بگیرد.»
+به گفته دو منبع آگاه آمریکایی، ترامپ بعدازظهر چهارشنبه، چند ساعت پس از آنکه به خبرنگاران گفت ایالات متحده «امروز دوباره ضربه سختی به آن‌ها خواهد زد»، با تیم امنیت ملی خود دیدار کرد تا گزینه‌های نظامی را بررسی کند.
+موضع طرف مقابل
+خبرگزاری تسنیم ایران به نقل از یک منبع نظامی، وعده «پاسخ‌های سنگین» داد.
+پیش از آن در روز چهارشنبه، رئیس‌جمهور ایران مدعی شد که تهدیدهای ترامپ نشان‌دهنده قدرت نیست، بلکه نشانه «استیصال» است.
+ایالات متحده سه شنبه شب در پاسخ به سرنگونی یک هلیکوپتر آمریکایی، به سایت‌های راداری و پدافند هوایی ایران حمله کرد؛ اما آن حملات به گونه‌ای تنظیم شده بود که از تلفات جانی جلوگیری شود و راه برای دستیابی به یک توافق باز بماند. ایران نیز در پاسخ، تعداد نسبتاً کمی موشک و پهپاد به سمت پایگاه‌های آمریکا شلیک کرد.
+پشت صحنه
+دو منبع آمریکایی اعلام کردند که ترامپ روز چهارشنبه با مقاماتی از جمله جی.دی. ونس (معاون رئیس‌جمهور)، مارکو روبیو (وزیر امور خارجه)، جان راتکلیف (رئیس سی‌آی‌ای)، ژنرال دن کین (رئیس ستاد مشترک ارتش) و استیو ویتکاف (فرستاده کاخ سفید) دیدار کرد. پیت هگستث نیز از مقر سنتکام به این جلسه پیوست.
+به گفته این منابع، یکی از گزینه‌هایی که ترامپ در حال بررسی آن بود، عملیاتی با ابعاد گسترده اما مدت زمان کوتاه بود؛ با این هدف که ایران را تحت فشار بگذارد تا موضع خود را در مذاکرات تغییر دهد. این منابع به جزئیات بیشتری اشاره نکردند.
+علاوه بر این، منابع آگاه فاش کردند که ترامپ به دلیل نزدیک به دو هفته انتظار برای دریافت پاسخ ایران به آخرین پیشنهادش، به شدت کلافه و ناامید شده بود
+
+
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 342825
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342825_1781126547.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH: A fisherman reels in a great white shark off the shore of Nantucket, giving stunned beachgoers a rare front-row view of one of the ocean's most feared predators.
+
+This footage captures just a glimpse of the roughly 40-minute battle as crowds gathered along the shoreline to see what was on the line.
+
+Witnesses said people were amazed by the shark's size, which the fisherman later measured to be more than 8.5 feet long and around 300 pounds before he released it back into the Atlantic.
+</div>
+
+## pm_afshaa — post 93403
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پرواز 15 سوخت رسان آمریکا در آسمان منطقه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93402
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93402_1781126548.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دقایقی پیش مشاهده یک نقطه‌ی نورانی متحرک که درحال چرخش مداوم در آسمان قزوین.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93401
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صدای انفجار در کیش و قشم گزارش شده
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93400
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پستارو شِیر کنید دوستاتونو بیارید چنل که امشب خیلی کار داریم❤️
+</div>
+
+## pm_afshaa — post 93399
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_93399_1781126549.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترور آلارم: شب بخیر تهران
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93398
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93398_1781126549.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴منابع عراقی: از فعالیت شدید جنگنده های آمریکایی در شمال عراق
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## mamlekate — post 103666
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 هشدار وزیر جنگ آمریکا به جمهوری اسلامی: «امشب ضربه محکمی به آنها خواهیم زد»
+
+پس از آنکه پرزیدنت ترامپ گفت ایالات متحده به حمله به جمهوری اسلامی ادامه خواهد داد، پیت هگست، وزیر جنگ آمریکا چهارشنبه عصر به وقت واشنگتن اعلام کرد سنتکام امشب مشغول خواهد بود.
+
+@mamlekate
+</div>
+
+## kianmeli1 — post 87890
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری-صدای فعالیت پدافند هوایی در غرب تهران شنیده شده است.
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87889
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری-پرواز جنگنده های امریکا در آسمان عراق سنگین و پرتعداد گزارش میشود.
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87888
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری-دوازده سوخت رسان برخاسته اند از اسراییل و عربستان
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87887
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری
+
+رویترز: سامانه‌های دفاع هوایی در جنوب ایران فعال شدند
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 341586
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341586_1781126549.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «از حرف ترامپ درباره حمله دوباره می‌توان این برداشت را داشت که یا از طولانی شدن مذاکرات با جمهوری اسلامی خسته شده و به دنبال بازگشت به زبان زور است، یا می‌خواهد با تهدید نظامی آخرین فشارها را برای وادار کردن جمهوری اسلامی به امضای توافق نهایی وارد کند.»
+@iranintltv
+</div>
+
+## Shin_Persian — post 6875
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Wed, 10 Jun 2026 21:21:08 UTC
+
+NOW @ 2121Z -
+AA activity over western Tehran, Tehran Province, #Iran
+
+ترجمه خودکار فارسی
+
+هم‌اکنون در ۲۱۲۱۲ زولو (۰۰:۵۱ به وقت تهران) -
+فعالیت پدافند هوایی در غرب تهران، استان تهران، #Iran
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6874
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Wed, 10 Jun 2026 21:16:47 UTC
+
+Shit's extremely heated rn
+
+ترجمه خودکار فارسی
+
+اوضاع در حال حاضر به شدت متشنج است
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6873
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Wed, 10 Jun 2026 21:14:15 UTC
+
+State-owned IRNA:
+IRIAF jet activity over Lorestan Province, #Iran, Western Iran
+
+ترجمه خودکار فارسی
+
+ایرنا (خبرگزاری رسمی دولت):
+فعالیت جنگنده‌های نیروی هوایی ارتش جمهوری اسلامی ایران (نهاجا) برفراز استان لرستان، #ایران، غرب ایران
+
+𝕏 · @shin_persian
+</div>
+
+## Iliaen — post 4470
+
+<div align="center">
+  <a href="telegram/content/Iliaen_4470_1781126551.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ساعت حدود ۰۰:۴۰ بامداد پنجشنبه؛ مشاهده یک نقطه‌ی نورانی متحرک که درحال چرخش مداوم در آسمان قزوین است.
+
+@iliaen
+</div>
+
+## FarsiVOA — post 220293
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220293_1781126552.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️خبرگزاری مهر دقایقی قبل گزارش داد که پدافند هوایی در شهر مُهر استان فارس فعال شد.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220292
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220292_1781126552.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️سفارت آمریکا در بغداد در هشداری به آمریکایی‌ها در عراق توصیه کرد «اختلالات سفر و بسته شدن حریم هوایی ممکن است در کوتاه‌ترین زمان ممکن رخ دهد.» سفارت آمریکا در این هشدار به شهروندان آمریکایی توصیه کرد: «به هیچ دلیلی به عراق سفر نکنید. اگر آنجا هستید، همین حالا آنجا را ترک کنید.»
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 16553
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فعالیت پدافند تهران
+</div>
+
+## Persian_Trend_Official — post 16552
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+منابع محلی گزارش می‌دهند که انفجارهایی از تنگه هرمز شنیده شده است که گفته می‌شود از ارتفاعات می‌آید
+</div>
+
+## Persian_Trend_Official — post 16551
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16551_1781126553.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پرواز گسترده سوخت رسان های آمریکایی در منطقه
+</div>
+
+## Persian_Trend_Official — post 16550
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔹بیش از ۱۰ سوخت رسان از مبدا عربستان سعودی، اسرائیل و اردن به پرواز در آمدند!
+</div>
+
+## Persian_Trend_Official — post 16549
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16549_1781126553.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک دسته پروازی لحظاتی پیش از فرودگاه نظامی آمریکا در اردن برخواستند
+</div>
+
+## Persian_Trend_Official — post 16548
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16548_1781126554.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## Persian_Trend_Official — post 16547
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال رسمی پرشین ترند pinned «https://youtube.com/live/M15ba3cLWxc?feature=share»
+</div>
+
+## Persian_Trend_Official — post 16546
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16546_1781126554.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سفارت ایالات متحده در بغداد:
+
+آمریکایی‌های حاضر در عراق باید فوراً آنجا را ترک کنند؛ به عراق سفر نکنید - سفر نکنید
+</div>
+
+## Persian_Trend_Official — post 16545
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16545_1781126555.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+****پیام های مردمی
+
+سلام از فیروزآباد فارس بهتون پیام میدم دقایقی قبل صدای تیراندازی شدید و شی های نورانی شبیه به شلیک توپ پدافندی به مدت دو دقیقه داخل شهر دیده و شنیده شد
+</div>
+
+## Persian_Trend_Official — post 16544
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://youtube.com/live/M15ba3cLWxc?feature=share
+</div>
+
+## Persian_Trend_Official — post 16543
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش منابع عراقی
+
+
+از فعالیت شدید جنگنده های آمریکایی در شمال عراق
+</div>
+
+## Persian_Trend_Official — post 16542
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16542_1781126555.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فعالیت پدافند در شهر مُهر استان فارس!
+
+همچنین طبق گزارشات یک پهپاد ناشناس وارد حریم هوایی عسلویه شده است!
+</div>
+
+## IranianMinds — post 22149
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 صداوسیما :
+
+صداهای انفجار از نزدیکی کیش شنیده شده
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22148
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سازمان ملل الان از نگرانی سکته میکنه
+
+
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22147
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگذاری مهر : پدافند تهران فعال شد
+
+
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22146
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22146_1781126556.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 پرواز گسترده سوخت رسان های آمریکایی در منطقه
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22145
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22145_1781126556.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فوری
+
+سفارت ایالات متحده در بغداد:
+
+«به هیچ دلیلی به عراق سفر نکنید. اگر آنجا هستید، همین حالا ترک کنید.»
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22144
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 صدای انفجار در حوالی قشم شنیده شد
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 391626
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391626_1781126557.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 قیمت جهانی طلا به شکل پشم‌ریزونی داره سقوط میکنه.
+
+هر اونس = 4,093 دلار
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391625
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این شبا وضعیت جوریه که اگه شب رو تو تلگرام بخوابی، صبح ممکنه تو روبیکا از خواب بیدار شی :)))))
+</div>
+
+## alonews — post 126982
+
+<div align="center">
+  <a href="telegram/content/alonews_126982_1781126558.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری/پدافند غرب تهران فعال شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126981
+
+<div align="center">
+  <a href="telegram/content/alonews_126981_1781126558.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈جنگنده‌های آمریکایی بر فراز عراق درحال پرواز هستن
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/21 00:42
 ---
 

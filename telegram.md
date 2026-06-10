@@ -7,6 +7,222 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/20 22:05
+---
+
+## VahidOOnLine — post 244759
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244759_1781116530.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری رویترز بر اساس یک نظرسنجی گزارش داد تولید نفت اوپک در ماه مه، تحت تاثیر محاصره دریایی آمریکا علیه جمهوری اسلامی و کاهش صادرات تولیدکنندگان خلیج فارس به دلیل بسته شدن عملی تنگه هرمز، به پایین‌ترین سطح در بیش از دو دهه گذشته رسید.
+
+بر اساس این گزارش، تولید ۱۱ عضو اوپک در ماه مه با کاهش روزانه یک میلیون و ۶۰ هزار بشکه‌ای نسبت به ماه قبل، به ۱۶ میلیون و ۱۳۰ هزار بشکه در روز رسید؛ پایین‌ترین رقم ماهانه از دست‌کم سال ۲۰۰۰ تاکنون.
+
+رویترز نوشت جمهوری اسلامی بیشترین کاهش تولید را تجربه کرده و صادرات نفت خام و میعانات گازی آن به پایین‌ترین سطح در دست‌کم شش سال گذشته رسیده است.
+
+این آمار امارات متحده عربی را شامل نمی‌شود که از اول ماه مه از اوپک خارج شده است. به گفته منابع رویترز، تولید عربستان سعودی نیز کاهش یافت، اما عراق، ونزوئلا و نیجریه تولید خود را افزایش دادند.
+
+رویترز افزود هشت عضو اوپک‌پلاس توافق کرده بودند تولید خود را در ماه مه افزایش دهند، اما جنگ جمهوری اسلامی و محاصره آمریکا این تصمیم را غیرممکن کرد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244758
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+همزمان با گزارش آتش‌سوزی و دود در شرق و جنوب تهران، ویدیوی رسیده وسعت آتش در یکی از این نقاط در شامگاه چهارشنبه ۲۰ خرداد را نشان می‌دهد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14366
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پدافندهای کل کشور به حالت آماده باش 100 درصدی درآمد
+@withyashar
+</div>
+
+## WithYashar — post 14365
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+منابع عبری: اسرائیل درحال آماده سازی جهت حمله به ایران است
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342820
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Newly released dashcam video shows a homicide suspect opening fire on Missouri state troopers during a high-speed chase.
+
+After troopers used a PIT maneuver to spin out the suspect's vehicle, investigators say Steven Swanson fired shots at a pursuing trooper, striking the patrol car.
+
+Authorities say the chase began after Swanson allegedly killed one person and injured another in Boone County, Missouri.
+
+After leading law enforcement on a pursuit, he stopped in the median of U.S. Highway 63, where officers later found him dead from an apparent self-inflicted gunshot wound.
+</div>
+
+## pm_afshaa — post 93361
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93361_1781116532.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آتش‌سوزی حوالی میدان قیام تهران :
+
+صداوسیما: بیشترش انبار فرش هستن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5560
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5560_1781116533.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️
+🚨 ترامپ: حملات آمریکا به مواضع جمهوری اسلامی ادامه می‌یابد دونالد ترامپ، رئیس جمهوری آمریکا، شامگاه چهارشنبه اعلام کرد ایالات متحده بار دیگر مواضع جمهوری اسلامی را هدف می‌گیرد. او با اشاره به سرنگونی یک بالگرد آمریکایی گفت جمهوری اسلامی باید بهای این اقدام…
+</div>
+
+## DEJradio — post 5559
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5559_1781116534.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺📢 شریان‌های موشکی در پوشش صنایع مدنی؛
+
+*عطا حسینیان، روزنامه‌نگار اقتصادی
+
+#اقتصاد #تورم
+@DEJradio
+</div>
+
+## IranIntlTV — post 341559
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341559_1781116535.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻اندرو جولیانی، رییس کارگروه ویژه کاخ سفید برای جام جهانی فوتبال ۲۰۲۶، دیدار احتمالی تیم‌های فوتبال ایران و آمریکا در مرحله حذفی را رویدادی فوق‌العاده و کم‌نظیر خواند و در عین حال تاکید کرد که به برخی از مقام‌ها و مسئولان تیم ملی ایران در تصمیمی آگاهانه ویزا داده نشده است.
+
+🔹اگر تیم‌های آمریکا و ایران هر دو در گروه‌های خود در رده دوم قرار بگیرند، در مرحله حذفی روز ۱۲ تیر ۱۴۰۵، یعنی یک روز پیش از روز استقلال آمریکا، در شهر دالاس به مصاف یکدیگر خواهند رفت.
+
+🔹حضور کشوری که با کشور میزبان در وضعیت جنگی قرار دارد، اتفاقی بی‌سابقه در تاریخ جام جهانی محسوب می‌شود.
+
+🔹جولیانی دوشنبه ۱۸ خرداد در گفت‌وگو با شبکه آی‌تی‌وی نیوز گفت تمامی بازیکنان تیم ملی ایران برای ورود به آمریکا ویزا دریافت کرده‌اند.
+
+🔹او گفت: «بازیکنان یک روز پیش از مسابقه وارد آمریکا خواهند شد و ما می‌خواهیم مطمئن شویم که تیم در امنیت کامل قرار دارد و فرصت بازی کردن را خواهد داشت.»
+
+🔹جولیانی افزود: «برخی از مقام‌ها و مسئولان ایرانی ویزا دریافت نکردند و این تصمیمی کاملا آگاهانه و مشخص بود.»
+
+🔹جزییات بیشتر را در سایت بخوانید.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 341558
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341558_1781116536.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری رویترز بر اساس یک نظرسنجی گزارش داد تولید نفت اوپک در ماه مه، تحت تاثیر محاصره دریایی آمریکا علیه جمهوری اسلامی و کاهش صادرات تولیدکنندگان خلیج فارس به دلیل بسته شدن عملی تنگه هرمز، به پایین‌ترین سطح در بیش از دو دهه گذشته رسید.
+
+بر اساس این گزارش، تولید ۱۱ عضو اوپک در ماه مه با کاهش روزانه یک میلیون و ۶۰ هزار بشکه‌ای نسبت به ماه قبل، به ۱۶ میلیون و ۱۳۰ هزار بشکه در روز رسید؛ پایین‌ترین رقم ماهانه از دست‌کم سال ۲۰۰۰ تاکنون.
+
+رویترز نوشت جمهوری اسلامی بیشترین کاهش تولید را تجربه کرده و صادرات نفت خام و میعانات گازی آن به پایین‌ترین سطح در دست‌کم شش سال گذشته رسیده است.
+
+این آمار امارات متحده عربی را شامل نمی‌شود که از اول ماه مه از اوپک خارج شده است. به گفته منابع رویترز، تولید عربستان سعودی نیز کاهش یافت، اما عراق، ونزوئلا و نیجریه تولید خود را افزایش دادند.
+
+رویترز افزود هشت عضو اوپک‌پلاس توافق کرده بودند تولید خود را در ماه مه افزایش دهند، اما جنگ جمهوری اسلامی و محاصره آمریکا این تصمیم را غیرممکن کرد.
+https://iranintl.com/202606106563
+</div>
+
+## IranIntlTV — post 341557
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+همزمان با گزارش آتش‌سوزی و دود در شرق و جنوب تهران، ویدیوی رسیده وسعت آتش در یکی از این نقاط در شامگاه چهارشنبه ۲۰ خرداد را نشان می‌دهد.
+</div>
+
+## FarsiVOA — post 220268
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: ایران برای مذاکره در مورد توافقی که برایشان عالی بود، خیلی وقت تلف کرد، حالا باید هزینه بپردازد
+</div>
+
+## Persian_Trend_Official — post 16515
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16515_1781116537.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ابراهیم عزیزی رئیس کمیسیون امنیت ملی مجلس: ما از جنگیدن با بازندگان نمی‌ترسیم.
+
+تعداد تلفات آمریکایی‌ها بسیار بیشتر از آن چیزی است که ترامپ ادعا می‌کند و افزایش خواهد یافت.
+
+این بار، جنگ به منطقه محدود نخواهد شد. خواهیم دید چه اتفاقی می‌افتد!
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 22133
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22133_1781116538.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ابراهیم عزیزی رئیس کمیسیون امنیت ملی مجلس :
+
+این بار جنگ فقط محدود به منطقه نیست !
+
++ مثلا چیکار میکنید خاک آمریکارو هدف قرار میدید ؟
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22132
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22132_1781116539.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 بمب‌افکن هسته‌ای B-52H نیروی هوایی ایالات متحده که از ایتالیا حرکت کرده بود، در حال حاضر بر فراز عربستان سعودی می‌باشد و دقیقأ تا یک ساعت دیگر به منطقه عملیات ایران خواهد رسید.
+
+@IranianMinds
+</div>
+
+## alonews — post 126931
+
+<div align="center">
+  <a href="telegram/content/alonews_126931_1781116540.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈جواد خیابانی پس از ۳۶ سال از صداسیما خدافظی کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/20 21:55
 ---
 

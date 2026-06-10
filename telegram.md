@@ -7,6 +7,371 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/20 19:24
+---
+
+## VahidOOnLine — post 244715
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244715_1781106843.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نمایندگی‌های جمهوری اسلامی، روسیه و چین در وین، در بیانیه‌ای مشترک خطاب به شورای حکام آژانس بین‌المللی انرژی اتمی، اعلام کردند: «پیش‌نویس قطعنامه آمریکا و سه کشور اروپایی علیه تهران سیاسی، نابهنگام و غیرسازنده است و همکاری تهران و آژانس را تضعیف می‌کند.»
+
+در بخشی از این بیانیه آمده است: «ارائه تضمین برای‌عدم تکرار حملات شرط تداوم همکاری تهران با آژانس است و حمایت از این قطعنامه می‌تواند به تشدید تنش‌ها منجر شود.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244714
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244714_1781106844.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رضا نجفی، سفیر و نماینده دائم جمهوری اسلامی در وین، در واکنش به تصویب قطعنامه آژانس درباره برنامه هسته‌ای جمهوری اسلامی، گفت آژانس بین‌المللی انرژی اتمی با «ورشکستگی اعتمادی» و «بحران مشروعیت» روبه‌رو است و حمایت از قطعنامه جدید می‌تواند به تشدید تنش‌ها و بی‌ثباتی بیشتر منجر شود.
+
+او افزود: «پیش‌نویس قطعنامه جدید به پیشنهاد آمریکا ارائه شده و فنی نیست؛ حامیان آن باید مسئولیت پیامدهای احتمالی و تشدید بحران را بپذیرند.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244713
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_244713_1781106844.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ جی‌دی ونس:
+توافقی می‌خواهیم که فراتر از دوران ریاست‌جمهوری ترامپ دوام داشته باشد
+
+♦️جی‌دی ونس، معاون رئیس‌جمهوری آمریکا، در گفتگو با شبکه «سی‌بی‌اس» اعلام کرد که واشنگتن «به دستیابی به توافق با ایران نزدیک شده است»، توافقی که به گفته او نه‌تنها از نظر اقتصادی به سود آمریکا خواهد بود، بلکه برنامه هسته‌ای ایران را در بلندمدت مهار خواهد کرد.
+ونس تاکید کرد هدف دولت آمریکا صرفا دستیابی به توافقی موقت در دوران ریاست‌جمهوری دونالد ترامپ نیست، بلکه ایجاد سازوکاری پایدار است تا نسل‌های آینده نیز مطمئن باشند ایران به سلاح هسته‌ای دست نخواهد یافت.
+او در عین ابراز خوش‌بینی نسبت به روند مذاکرات، افزود که «هنوز کارهای دشواری باقی مانده» و دولت آمریکا به تلاش برای نهایی کردن توافق ادامه خواهد داد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14328
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صداوسیما: یه پهپاد جاسوسی آمریکایی بر فراز آسمون تهران سرنگون کردیم
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342809
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NEW: President Trump touts newly-renovated Lincoln Memorial Reflecting Pool:
+
+"It was all disgusting."
+
+"It was going to take four years to build, and we did it in like a month, a month and a half."
+
+"We took 11 dumpsters of garbage out, with shovels. We had a shovel inside of what's called a pool or a lake and got it cleaned. We then fumigated it... sandblasted the entire thing, washed it, cleaned it, scrubbed it, sandblasted it."
+</div>
+
+## pm_afshaa — post 93315
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: ما به آنها حمله خواهیم کرد و بسیار شدید حمله خواهیم کرد. ما بمباران رو از سر خواهیم گرفت. ما حق انجام این کار رو داریم. آنها هلیکوپتر ما رو ساقط کردن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93314
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فوووری
+</div>
+
+## pm_afshaa — post 93313
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ درباره ایران: یا باید راه حلی با آن پیدا کنیم یا آنها رو از بین خواهیم برد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93312
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93312_1781106847.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کوثری، عضو کمیسیون امنیت ملی مجلس: ما با مذاکرات مشکلی نداریم، اونا مشکل دارن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 341521
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341521_1781106847.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نمایندگی‌های جمهوری اسلامی، روسیه و چین در وین، در بیانیه‌ای مشترک خطاب به شورای حکام آژانس بین‌المللی انرژی اتمی، اعلام کردند: «پیش‌نویس قطعنامه آمریکا و سه کشور اروپایی علیه تهران سیاسی، نابهنگام و غیرسازنده است و همکاری تهران و آژانس را تضعیف می‌کند.»
+
+در بخشی از این بیانیه آمده است: «ارائه تضمین برای‌عدم تکرار حملات شرط تداوم همکاری تهران با آژانس است و حمایت از این قطعنامه می‌تواند به تشدید تنش‌ها منجر شود.»
+https://iranintl.com/202606102663
+</div>
+
+## IranIntlTV — post 341520
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341520_1781106848.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رضا نجفی، سفیر و نماینده دائم جمهوری اسلامی در وین، در واکنش به تصویب قطعنامه آژانس درباره برنامه هسته‌ای جمهوری اسلامی، گفت آژانس بین‌المللی انرژی اتمی با «ورشکستگی اعتمادی» و «بحران مشروعیت» روبه‌رو است و حمایت از قطعنامه جدید می‌تواند به تشدید تنش‌ها و بی‌ثباتی بیشتر منجر شود.
+
+او افزود: «پیش‌نویس قطعنامه جدید به پیشنهاد آمریکا ارائه شده و فنی نیست؛ حامیان آن باید مسئولیت پیامدهای احتمالی و تشدید بحران را بپذیرند.»
+https://iranintl.com/202606108889
+</div>
+
+## Shin_Persian — post 6862
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Wed, 10 Jun 2026 15:46:03 UTC
+
+Something out of Shiraz
+Fars Province, #Iran
+
+ترجمه خودکار فارسی
+
+چیزی خارج از شیراز،
+استان فارس، #Iran
+
+𝕏 · @shin_persian
+</div>
+
+## Persian_Trend_Official — post 16487
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16487_1781106848.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ در مورد ایران: ما به آنها حمله خواهیم کرد و خیلی سخت به آنها حمله خواهیم کرد.
+
+ما بمباران را از سر خواهیم گرفت. ما حق داریم این کار را انجام دهیم. آنها هلیکوپتر ما را سرنگون کردند.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16486
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16486_1781106850.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسحاق هرتزوگ، رئیس جمهور اسرائیل خطاب به رئیس جمهور لبنان و مردم لبنان: ما در اسرائیل به دنبال صلح با لبنان هستیم. مردم اسرائیل از صلح با لبنان حمایت می‌کنند. صلح با لبنان امکان‌پذیر است.
+
+رویای من این است که سوار ماشین شوم و تا بیروت رانندگی کنم. این امکان‌پذیر است. اما برای این کار، دولت لبنان، رهبری لبنان و مردم لبنان باید در مقابل ایران و حزب‌الله بایستند و روشن کنند که آنها صلح می‌خواهند. نه ترور.
+
+این حزب‌الله بود که قطعنامه شورای امنیت سال 2006 را نقض کرد. این حزب‌الله بود که توافق آتش‌بس 2024 را نقض کرد. اسرائیلی‌ها و اسرائیل نمی‌توانند هیچ حمله‌ای به شهروندان ما، هیچ حمله‌ای از مرزهای ما، هیچ حمله تروریستی را بپذیرند. ما حق کامل دفاع از خود را داریم.
+
+و تا زمانی که هیچ توافق روشنی وجود نداشته باشد که از ملت‌های ما محافظت کند، پیشرفت غیرممکن خواهد بود. بنابراین این در دستان شماست. برای آن بجنگید.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 22098
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22098_1781106852.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ :
+
+چند ماهه داریم با این حرف میزنیم مذاکره میکنیم و این توافقی که داریم‌ رو‌ اونا باید امضا کنن مذاکره ی خوبیه !
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22097
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22097_1781106853.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فوری ترامپ درمورد ایران :
+
+ما به آن‌ها حمله خواهیم کرد؛ حملات بسیار شدیدی.
+
+بمباران‌ها را از سر می‌گیریم. حق انجام این کار را داریم.
+
+آن‌ها بالگرد ما را سرنگون کردند.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22096
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22096_1781106855.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ :
+
+این یارو‌ کسخل شومره کیه هی میاد میگه اپستین اپستین اپستین جنجال به پا میکنه دیوانه
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 283354
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻تاکید پزشکیان بر لزوم خروج از وضعیت « نه جنگ و نه صلح»
+
+رئیس‌جمهوری ایران با نقل قولی از رهبر سابق جمهوری اسلامی، تاکید کرده است کشور را در وضعیت « نه جنگ و نه صلح» نباید نگه داشت.
+
+مسعود پزشکیان گفت که علی خامنه‌ای اصرار داشت که کشور را نباید در وضعیت « نه جنگ و نه صلح» نگه داشت.
+
+او اشاره کرد که گرچه گاهی صد‌و‌سیما پیام‌هایی را از مخالفت رهبر سابق جمهوری اسلامی با جنگ منتشر می‌کرد، اما او مخالف وضعیت « نه جنگ و نه صلح» بود و برای حل همین مساله، اجازه مذاکره را صادر کرده بود.
+
+آقای پزشکیان گفت که غلی خامنه‌ای دستور داد: «بروید و مساله را حل کنید؛ ما باید از این حالت نه جنگ نه صلح در بیاییم»
+
+آقای پزشکیان گفت که «جنگ قطعا به نفع کشور نیست.»
+
+هرچند او تاکید کرد که « اگر به خاک و سرزمین ما حمله کنند قطعا تسلیم نمی‌شویم و کوتاه نمی‌آییم.»
+@BBCPersian
+</div>
+
+## alonews — post 126868
+
+<div align="center">
+  <a href="telegram/content/alonews_126868_1781106857.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / ترامپ: به ایران که به یک هلیکوپتر آپاچی آمریکایی حمله کرد، حمله خواهیم کرد 
+🔴 ما با قدرت به ایران حمله خواهیم کرد، این کشور باید توافق را امضا می‌کرد. 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126867
+
+<div align="center">
+  <a href="telegram/content/alonews_126867_1781106857.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / ترامپ: به ایران که به یک هلیکوپتر آپاچی آمریکایی حمله کرد، حمله خواهیم کرد
+
+
+🔴 ما با قدرت به ایران حمله خواهیم کرد، این کشور باید توافق را امضا می‌کرد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126866
+
+<div align="center">
+  <a href="telegram/content/alonews_126866_1781106857.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ درباره دموکرات‌ها: منتظر روزی هستم که دیگر آن‌ها را «دموکرات‌های احمق» صدا نکنم. و این اتفاق نخواهد افتاد مگر اینکه آن‌ها وظیفه‌شان را انجام دهند.
+
+
+🔴اگر بخواهند جرم را متوقف کنند، اگر بخواهند مالیات‌ها را کاهش دهند، اگر بخواهند آموزش عمومی و کارهای خوب را انجام دهند. کارهای زیادی هست که می‌توانیم با هم انجام دهیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126865
+
+<div align="center">
+  <a href="telegram/content/alonews_126865_1781106859.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: شومر به خاطر این و آن دیوانه می‌شود، یا اپستین، اپستین، اپستین!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126864
+
+<div align="center">
+  <a href="telegram/content/alonews_126864_1781106861.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ درباره گراهام پلاتنر: او یک اوباش است. احتمالاً بدتر از هر انسانی است که تاکنون برای مقام انتخاب شده است.
+
+
+🔴من او را نمی‌شناسم. نمی‌خواهم بد بگویم، اما هیچ‌کس سابقه‌ای مانند او نداشته است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126863
+
+<div align="center">
+  <a href="telegram/content/alonews_126863_1781106863.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ونس: توافق با ایران باید از نظر اقتصادی به نفع آمریکا باشد
+ 
+
+🔴جی دی ونس، معاون رئیس جمهور آمریکا: احساس می‌کنم در موقعیتی هستیم که بتوانیم به توافقی دست یابیم که از نظر اقتصادی به نفع آمریکا باشد و واقعاً موضوع برنامه هسته‌ای ایران را نه فقط در حال حاضر، نه فقط تا وقتی که دونالد ترامپ رئیس‌جمهور است، بلکه در بلندمدت حل کند.
+ 
+
+🔴عدم برخورداری ایران از سلاح اتمی، سیاست ماست و فکر می‌کنم بسیار به رسیدن به آن هدف نزدیک شده‌ایم، اما هنوز مقداری کار دشوار باقی مانده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126862
+
+<div align="center">
+  <a href="telegram/content/alonews_126862_1781106863.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: ما جریان فنتانیل را از مرزهایمان تقریباً ۶۰ درصد کاهش دادیم.
+
+
+🔴از طریق دریا، ۹۷ درصد. ما به دنبال آن ۳ درصد باقی‌مانده هستیم، زیرا فکر می‌کنیم آن‌ها از شجاع‌ترین افراد هستند.
+
+
+🔴متاسفانه باید به مکزیک بگویم که اکنون تمرکز ما بر ورود از طریق خشکی است.
+
+
+🔴بخش زیادی از آن از طریق دریا وارد می‌شد، درصدی بسیار بزرگتر از آنچه کسی می‌دانست.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/20 19:13
 ---
 

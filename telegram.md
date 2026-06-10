@@ -7,6 +7,368 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/21 02:52
+---
+
+## VahidOOnLine — post 244822
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244822_1781133736.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دقایقی پس از بیانیه قرارگاه خاتم که در آن تنگه هرمز کاملا بسته اعلام شده و هشدار داده شده بود که به هر شناوری که قصد عبور داشته باشد شلیک می‌شود، تسنیم از مورد اصابت قرار گرفتن دو کشتی در تنگه هرمز خبر داد. در گزارش این رسانه وابسته به سپاه آمده است که کشتی‌های «متخلف» قصد داشتند «به‌طور غیرقانونی» از تنگه هرمز عبور کنند. هنوز مقامات رسمی و سنتکام در این زمینه اظهارنظر نکرده‌اند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244821
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244821_1781133737.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️خبرگزاری تسنیم وابسته به سپاه پاسداران بامداد پنجشنبه ۲۱ خرداد به نقل از مقام‌های محلی و استانی گزارش داد که هیچ انفجاری در عسلویه یا مجتمع گازی پارس جنوبی رخ نداده است.
+
+اسکندر پاسالار، فرماندار عسلویه، با رد گزارش‌های منتشرشده در برخی شبکه‌های اجتماعی گفت: «در عسلویه هیچ انفجاری نداشتیم و شهر و منطقه اقتصادی عسلویه در آرامش کامل است.»
+
+تسنیم نیز اعلام کرد خبرهایی که از ساعاتی پیش درباره بمباران یک کارخانه پتروشیمی در عسلویه به نقل از این خبرگزاری منتشر شده، در هیچ‌یک از خروجی‌های رسمی این رسانه منتشر نشده و صحت ندارد.
+
+معاون سیاسی، امنیتی و اجتماعی استاندار بوشهر نیز با رد این گزارش‌ها گفت تاکنون هیچ انفجاری در مجتمع گازی عسلویه رخ نداده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14454
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پاکستان: به آمریکا اعلام کردیم که دیگر دست از تلاش برای میانجیگری برمی‌داریم
+@withyashar
+</div>
+
+## pm_afshaa — post 93509
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93509_1781133737.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صدای جنگنده‌های آمریکایی برفراز قشم
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93508
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93508_1781133738.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فاکس نیوز: یه مقام آمریکایی اطلاع داد حملات به ایران ادامه داره.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93507
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93507_1781133739.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ومارک لوین:
+دور دوم حملات به ایران همین حالا در حال انجامه. من کاملاً موافق آن هستم.
+
+من درک نمیکنم چرا حملات 48 ساعت پیش اسرائیل، که در پاسخ به شلیک 11 موشک بالستیک به کشورش بود، این‌همه انتقاد به همراه داشت!
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## VahidOnline — post 76173
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76173_1781133739.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️روزنامه وال‌استریت ژورنال پنج‌شنبه شب به وقت واشنگتن به نقل از یک مقام ارشد آمریکایی گزارش داد که هیچ سایت زیرساختی در ایران مورد اصابت قرار نگرفته است و نیروهای نظامی ایالات متحده در حال حمله به پدافند هوایی و سایت‌های راداری در نزدیکی تنگه هرمز بودند. انفجارهایی در امتداد تنگه هرمز، از جمله بندرعباس، جزیره قشم و سیریک گزارش شده است.
+@VahidHeadline
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 76172
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیام‌های دریافتی:
+قشم ۲:۳۵ صدا و لرزشش حس شد
+
+۲:۳۵ دقیقه بندرعباس دوباره صدای انفجار اومد
+
+سلام بندرعباس دوباره زدن ۲:۳۷
+[احتمالا منظورشون اینه که صدا شنیدند!]
+
+📡 @VahidOnline
+</div>
+
+## kianmeli1 — post 87908
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری
+۲:۳۵ دقیقه بندرعباس و قشم صدای انفجار اومد
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87907
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏🔴نیروی دریایی سپاه: دو کشتی که قصد عبور از تنگه هرمز را داشتند، مورد اصابت قرار گرفتند
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87906
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری-پدافند کرمانشاه در تنگ کنشت فعال شد
+https://t.me/kianmeli1
+</div>
+
+## Shin_Persian — post 6905
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Wed, 10 Jun 2026 23:18:04 UTC
+
+Blasts in Bandar Abbas, Hormozgan Province, #Iran
+
+ترجمه خودکار فارسی
+
+انفجارها در بندرعباس، استان هرمزگان، #Iran
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 220312
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220312_1781133739.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️کانال تلگرامی وحید‌آنلاین از شنیده شدن صدای انفجار در بندر عباس در حوالی ساعات ۲:۳۰ بامداد خبر داده است. همچنین این کانال گزارش‌هایی مردمی از «صدا و لرزش» در جزیره قشم را منتشر کرد.
+@FarsiVOA
+</div>
+
+## DW_Farsi — post 125794
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125794_1781133740.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 قرارگاه خاتم‌الانبیا: تنگه هرمز برای تردد هرنوع شناور بسته است
+
+ساعتی پس از آغاز حملات امریکا به اهدافی در داخل ایران، قرارگاه مرکزی خاتم‌الانبیای سپاه پاسداران در بیانیه‌ای اعلام کرد تنگه هرمز به روی هر نوع شناور اعم از نفتکش و تجاری بسته است.
+
+در این بیانیه با تایید حملات آمریکا به "برخی از مناطق جنوب در استان هرمزگان" آمده است: «از این لحظه به دلیل ناامنی در منطقه، تنگه هرمز برای تردد هر نوع شناور اعم از نفتکش و تجاری بسته اعلام می‌گردد و هرگونه تردد مورد اصابت قرار خواهد گرفت.»
+
+این قرارگاه سپاه ادعای امریکا درباره عبور کشتی از تنگه هرمز را نیز تکذیب کرد.
+
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 16629
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨والا: اسرائیل خود را برای احتمال شلیک موشک از سوی ایران، آماده می‌‌کند.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16628
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16628_1781133740.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ جوان ایرانی:
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16627
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16627_1781133742.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‼️ صدای انفجار مهیب در بندرعباس
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16626
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ مقام آمریکایی به شبکه فاکس نیوز: حملات نظامی آمریکا علیه ایران، همچنان ادامه دارد.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16625
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ قرارگاه مرکزی خاتم‌الانبیا: نیروهای مسلح جمهوری اسلامی ایران به هرگونه تجاوز و شرارت ارتش متجاوز و تروریست آمریکا در منطقه، پاسخ کوبنده و قاطع می‌دهند.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16624
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 درگیری‌های آمریکا و ایران در نزدیکی جزیره قشم، خلیج فارس ادامه دارد.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16623
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16623_1781133743.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ پاکستان:
+
+به آمریکا اعلام کردیم که دیگر دست از تلاش برای می‌انجیگری برمی‌‌داریم!
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16622
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16622_1781133744.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هم اکنون بازی والیبال تیم حکومتی جمهوری اسلامی با برزیل
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 22225
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 یک مقام آمریکایی به فاکس‌ نیوز :
+
+حملات نظامی آمریکا علیه اهدافی در ایران همچنان ادامه دارد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22224
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22224_1781133744.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حضور جنگنده های آمریکا در آسمان قشم
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 283371
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻سی‌ان‌ان: حملات جدید آمریکا در حالیست که هیئت مذاکره کننده قطری هنوز در تهران است
+
+شبکه تلویزیونی سی‌ان‌ان به نقل از یک منبع آگاه گزارش کرده است که موج جدید حملات آمریکا علیه اهدافی در ایران در حالیست که هنوز یک هئیت قطری در تهران است.
+
+پیش‌تر به گزارش رسانه‌های ایران یک هیئت بلندپایه از قطر ظهر روز چهارشنبه برای گفتگو با مقامات ایران وارد تهران شد.
+
+به گزارش روزنامه دولتی ایران، این هیئت برای گفتگو و تبادل نظر درباره روابط دوجانبه و تحولات منطقه‌ای، به تهران سفر کرده است.
+
+بر اساس این گزارش «در جریان این سفر، این هیئت علاوه بر بحث در مورد روابط دوجانبه و تحولات منطقه، در باره آخرین تحولات مرتبط با روند دیپلماتیک برای خاتمه جنگ بین آمریکا و ایران هم بحث و رایزنی می‌کند.»
+https://bbc.in/4fIJPot
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 391653
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+الان سردار رادان میره یه بیمارستان، شناسنامه‌شو می‌ذاره روی میز ایستگاه پرستاری میگه: یه اتاق رو به زایشگاه لطفا.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391652
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391652_1781133745.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تحلیل یک راس عرزشی
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 127023
+
+<div align="center">
+  <a href="telegram/content/alonews_127023_1781133745.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈صدای جنگنده های آمریکایی برفراز قشم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/21 02:42
 ---
 

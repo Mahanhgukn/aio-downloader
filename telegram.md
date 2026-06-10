@@ -7,6 +7,216 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/20 23:43
+---
+
+## VahidOOnLine — post 244775
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244775_1781122417.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کمال شحاده، وزیر امور مهاجرت لبنان به العربیه گفت که چهار هزار کشته در لبنان نتیجه شرط‌بندی بر سیاست‌های اشتباه بود و حزب‌الله به دستور جمهوری اسلامی امتیاز می‌دهد نه به سود لبنان.
+او افزود: «سلاح نعیم قاسم هیچ سودی برای ما ندارد.»
+
+وزیر امور مهاجرت لبنان ادامه داد: «زیر بمباران مذاکره می‌کنیم همان‌گونه که ایران زیر بمباران مذاکره می‌کند.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14378
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ :به همه پیشنهاد میکنم امشب تلویزیون رو روشن کنن ( یک ساعت و نیم دیگه )
+@withyashar
+</div>
+
+## mwarmonitor — post 10646
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸هلیکوپتر آپاچی که روز سه‌شنبه سقوط کرد، طبق گفته یک مقام ارشد آمریکایی در حال دفاع از کشتی‌ها در آن آبراه در برابر پهپادها و موشک‌های ایرانی بوده است.
+
+🔸خلبانان توانستند پس از برخورد هواگرد با آب و آتش‌گرفتن آن، با جدا کردن باقی‌مانده شیشه/سقف کابین (کاناپی) و بیرون آمدن از آن، چند ثانیه پیش از غرق شدن، از هواگرد در حال سوختن خارج شوند. وال‌استریت ژورنال
+
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10645
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وزارت خارجه آمریکا: ما از طریق «عملیات خشم اقتصادی» به مختل‌کردن شبکه‌های تأمین و تدارکاتی که از برنامه‌های نظامی ایران حمایت می‌کنند ادامه می‌دهیم.
+
+🔴وزارت خارجه آمریکا: تحریم‌هایی علیه ۱۳ فرد و نهاد در ایران، بلاروس و چین اعمال شده است که برای خرید سلاح به نفع سپاه پاسداران انقلاب اسلامی تلاش کرده‌اند.
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 93369
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93369_1781122417.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴دو ساعت تا سخنرانی ترامپ؛
+ترامپ: به همه پیشنهاد میکنم امشب تلویزیون رو روشن کنن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93368
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93368_1781122418.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴استرالیا و کانادا از همه شهروندان خود در ایران خواستن فوراً کشور رو ترک کنند.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 341579
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341579_1781122419.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کمال شحاده، وزیر امور مهاجرت لبنان به العربیه گفت که چهار هزار کشته در لبنان نتیجه شرط‌بندی بر سیاست‌های اشتباه بود و حزب‌الله به دستور جمهوری اسلامی امتیاز می‌دهد نه به سود لبنان.
+او افزود: «سلاح نعیم قاسم هیچ سودی برای ما ندارد.»
+
+وزیر امور مهاجرت لبنان ادامه داد: «زیر بمباران مذاکره می‌کنیم همان‌گونه که ایران زیر بمباران مذاکره می‌کند.»
+https://iranintl.com/202606102985
+</div>
+
+## FarsiVOA — post 220283
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️جمهوری اسلامی پس از بیش از صد شب تجمع حکومتی در تهران، ادامه این برنامه‌ها را به دستور مجتبی خامنه‌ای گره زده است. منتقدان می‌گویند حکومت با تکیه بر نام رهبر غایب، هم به تصمیمات خود مشروعیت می‌بخشد و هم تلاش می‌کند تصویر حمایت مردمی و انسجام درونی نظام را حفظ کند.
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 16526
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16526_1781122419.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیت هگست، وزیر جنگ خطاب به نیروهای مستقر در سنتکام: همانطور که رئیس جمهور ترامپ امروز گفت، آنها حاضر به توافق نیستند، آنگاه ما به شدت به آنها ضربه خواهیم زد. سنتکام این کار را به خوبی انجام می‌دهد، بهتر از هر کس دیگری در جهان.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16525
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16525_1781122421.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیت هگست، وزیر جنگ امریکا خطاب به نیروهای سنتکام: من فقط می‌خواهم از طرف رئیس‌جمهور ترامپ و از طرف مردم آمریکا بگویم که چقدر به کاری که سنتکام انجام داده افتخار می‌کنیم.
+
+بیش از 100 روز است که از عملیات‌های رزمی بزرگ گرفته تا آتش‌بس و محاصره، این کار را انجام داده‌ایم. در هر مرحله، از دریاسالار گرفته تا تک تک نیروهای سنتکام، شما رهبری مسیر را بر عهده داشته‌اید و مسیر قدرت آمریکا را ترسیم کرده‌اید.
+
+شما باید به آنچه انجام داده‌اید، نحوه انجام آن، دشمنی که به آن خیره شده‌اید و مأموریت مهمی که انجام داده‌اید و هنوز هم انجام می‌دهید تا اطمینان حاصل کنید که ایران هرگز به سلاح هسته‌ای دست پیدا نمی‌کند، افتخار کنید، که همه اینجا می‌دانند که چرا این موضوع بسیار مهم است.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16524
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16524_1781122422.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨وزیر جنگ، پیت هگستث، به ستاد فرماندهی مرکزی (CENTCOM) در پایگاه نیروی هوایی مک‌دیل در تمپا، فلوریدا، رسید
+
+
+🔸 او پس از فرود توسط کوپر فرمانده سنتکام استقبال شد.
+</div>
+
+## Dirty_Kids — post 391616
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فوری/ترامپ :
+
+به همه پیشنهاد میکنم امشب تلویزیون رو روشن کنن ( یک ساعت و نیم دیگه )
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391615
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391615_1781122424.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دیشب تو بازی دوستانه آرژانتین مقابل ایسلند، دنیل گودیانسن، مهاجم ایسلند، جلوی مسی رو گرفت و گفت منو یادت میاد؟ مسی هم تعجب کرد و نشناختش، تا اینکه خودشو معرفی کرد.
+
+مسی بعد از بازی گفت:«اول ازم پرسید منو یادت میاد؟ بعد گفت پسر گودیانسنه. واقعاً غافلگیر شدم. اون موقع فقط یه بچه کوچیک بود. یادمه بعضی وقتا با پدرش میومد تمرین، ولی چون خیلی کوچیک بود، راستش یادم نمیومد.»
+
+ایدور گودیانسن قبلا تو بارسا هم‌تیمی مسی بود.
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 126962
+
+<div align="center">
+  <a href="telegram/content/alonews_126962_1781122424.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری/ پیت هگست:
+همانطور که رئیس‌جمهور ترامپ امروز گفت، آنها معامله نخواهند کرد، پس ما به شدت به آنها ضربه خواهیم زد. سنتکام این کار را بسیار خوب انجام می‌دهد، بهتر از هر کس دیگری در جهان.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126961
+
+<div align="center">
+  <a href="telegram/content/alonews_126961_1781122426.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری/ترامپ : به همه پیشنهاد میکنم امشب تلویزیون رو روشن کنن ( یک ساعت و نیم دیگه )
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126960
+
+<div align="center">
+  <a href="telegram/content/alonews_126960_1781122426.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رئیس جمهور صربستان: من رئیس‌جمهور کشوری هستم که یکی از معدود کشورهای اروپا است که در همکاری و همکاری با اسرائیل تردید ندارد و به طور علنی و آشکار به این موضوع افتخار می‌کند و آن را پنهان نمی‌کند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/20 23:33
 ---
 

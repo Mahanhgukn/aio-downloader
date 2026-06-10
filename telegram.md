@@ -7,6 +7,380 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/20 20:14
+---
+
+## VahidOOnLine — post 244731
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244731_1781109894.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️با نزدیک شدن به جام جهانی ۲۰۲۶ در کشورهای آمریکا، کانادا و مکزیک، دنیای فوتبال آماده یک جابجایی بزرگ بین‌نسلی می‌شود. این رقابت‌ها احتمالا آخرین حضور دو اسطوره تکرارنشدنی، لیونل مسی و کریستیانو رونالدو، در بزرگ‌ترین صحنه فوتبال جهان خواهد بود. مسی که دوره قبل آرژانتین را به قهرمانی رساند، به رویای خود رسیده؛ اما رونالدو پس از قهرمانی با النصر، همچنان در حسرت این جام است.
+
+در غیاب یا سایه این دو فوق‌ستاره، نسل جدیدی از راه رسیده است. کیلیان امباپه فرانسوی همچنان در تلاش است تا جایگاه خود را به عنوان وارث اصلی تاج و تخت فوتبال تثبیت کند. در کنار او، عثمان دمبله، برنده توپ طلا، و ارلینگ هالند، ماشین گلزنی ۲۵ ساله منچسترسیتی که اولین تورنمنت بزرگ ملی خود را تجربه می‌کند، به دنبال درخشش هستند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244730
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ستاد فرماندهی مرکزی آمریکا، سنتکام، در شبکه ایکس نوشت نیروهای آمریکایی، ۹ ژوئن، برابر با ۱۹ خرداد، برای دومین روز متوالی یک نفتکش را در خلیج عمان از کار انداختند؛ زیرا به گفته سنتکام، این کشتی با تلاش برای انتقال نفت از جمهوری اسلامی، محاصره جاری را نقض کرده بود.
+
+سنتکام اعلام کرد نفتکش «سته‌بلو» با پرچم پالائو هنگام عبور از خلیج عمان از کار انداخته شد.
+
+بر اساس این بیانیه، پس از آنکه خدمه کشتی بارها از اجرای دستورهای نیروهای آمریکایی خودداری کردند، یک هواپیمای آمریکایی با مهمات هدایت‌شونده دقیق، اتاق موتور کشتی را هدف قرار داد.
+
+سنتکام افزود از زمان آغاز محاصره در ۱۳ آوریل، برابر با ۲۴ فروردین، نیروهایش هشت کشتی ناقض دستورها را از کار انداخته، مسیر ۱۳۴ کشتی را که از دستورها تبعیت کرده‌اند تغییر داده و به ۴۲ کشتی حامل کمک‌های بشردوستانه اجازه عبور داده‌اند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14349
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شاهزاده رضا پهلوی اعلام کرد امشب ساعت 21 پیامی برای مردم داره
+@withyashar
+</div>
+
+## WithYashar — post 14348
+
+
+
+
+## WithYashar — post 14347
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: با بمب‌افکن‌های B-2 به ایران حمله می‌کنیم
+@withyashar
+</div>
+
+## pm_afshaa — post 93339
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تهران دود بلند شده 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## kianmeli1 — post 87869
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87869_1781109895.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴الان خیابان قیام تهران دود سیاه غلیظ
+
+مشخص نیست وضعیت عادیه یا خبری بوده
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87866
+
+<div align="center">
+  <a href="telegram/content/kianmeli1_87866_1781109896.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری
+
+شرق و جنوب تهران رو زدن!
+دود سیاه دیده میشه
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 341532
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341532_1781109899.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تیتراول با نیوشا صارمی، چهارشنبه ۲۰ خرداد
+@iranintltv
+</div>
+
+## IranIntlTV — post 341531
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341531_1781109900.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻محمد تقوی، ایران‌اینترنشنال در ویژه برنامه هت‌تریک برای جام جهانی گفت: «ما نباید فراموش کنیم در دی‌ماه چه اتفاقی افتاد. یک مسئولیتی این جوانان با جان خود بر دوش ما گذاشتند که آن هم سرنگونی این حکومت است. تا زمانی که زنده هستیم باید راه این جوانان را ادامه بدهیم.»
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 341530
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341530_1781109902.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ستاد فرماندهی مرکزی آمریکا، سنتکام، در شبکه ایکس نوشت نیروهای آمریکایی، ۹ ژوئن، برابر با ۱۹ خرداد، برای دومین روز متوالی یک نفتکش را در خلیج عمان از کار انداختند؛ زیرا به گفته سنتکام، این کشتی با تلاش برای انتقال نفت از جمهوری اسلامی، محاصره جاری را نقض کرده بود.
+
+سنتکام اعلام کرد نفتکش «سته‌بلو» با پرچم پالائو هنگام عبور از خلیج عمان از کار انداخته شد.
+
+بر اساس این بیانیه، پس از آنکه خدمه کشتی بارها از اجرای دستورهای نیروهای آمریکایی خودداری کردند، یک هواپیمای آمریکایی با مهمات هدایت‌شونده دقیق، اتاق موتور کشتی را هدف قرار داد.
+
+سنتکام افزود از زمان آغاز محاصره در ۱۳ آوریل، برابر با ۲۴ فروردین، نیروهایش هشت کشتی ناقض دستورها را از کار انداخته، مسیر ۱۳۴ کشتی را که از دستورها تبعیت کرده‌اند تغییر داده و به ۴۲ کشتی حامل کمک‌های بشردوستانه اجازه عبور داده‌اند.
+https://iranintl.com/202606104646
+</div>
+
+## Persian_Trend_Official — post 16499
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16499_1781109902.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قیمت نفت بعد از صحبت ترامپ ... بازار در انتظار جنگ
+</div>
+
+## Persian_Trend_Official — post 16498
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16498_1781109903.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قیمت نفت بعد از صحبت ترامپ ...
+بازار در انتظار جنگ
+</div>
+
+## RadioFarda — post 158153
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_158153_1781109904.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸وزیر دفاع آمریکا با هشدار به ایران پس از تبادل آتش بامداد چهارشنبه گفت که برای ایران عاقلانه نیست که ایالات متحده را بیشتر به چالش بکشد.
+
+🔸پیت هگست روز چهارشنبه در جریان بازدید از پایگاه آمریکا در خلیج گوانتانامو در کوبا گفت: «در حال حاضر، حملات ما دفاعی است تا از نیروهایمان محافظت کنیم. برای ایران عاقلانه نیست که ما را بیشتر به چالش بکشد.»
+
+🔸وزیر دفاع آمریکا گفت دونالد ترامپ به دنبال یک «توافق بزرگ به نمایندگی از مردم آمریکا» است تا ایران هرگز به سلاح هسته‌ای دست نیابد.
+
+🔸به دنبال سرنگونی یک بالگرد نظامی آمریکا در تنگه هرمز، تنش‌ها میان ایران و آمریکا بار دیگر افزایش یافته است و آمریکا بامداد چهارشنبه به منطقی در سواحل جنوبی ایران حمله کرد. ایران نیز در پاسخ به نقاطی در کشورهای بحرین، کویت و اردن موشک زد. مقام‌های نظامی ایران گفته‌اند به هر حمله آمریکا پاسخ خواهند داد.
+
+@RadioFarda
+</div>
+
+## RadioFarda — post 158152
+
+<div align="center">
+  <a href="telegram/content/RadioFarda_158152_1781109905.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸ستاد فرماندهی مرکزی ارتش آمریکا، سنتکام، اعلام کرد نیروهای این کشور یک نفتکش با پرچم پالائو را در خلیج عمان هدف قرار داده و از ادامه حرکت آن جلوگیری کرده‌اند.
+
+🔸سنتکام در بیانیه‌ای گفت این نفتکش با نام «ستِه‌بِلو» شامگاه ۱۹ خرداد در حالی در خلیج عمان در حال تردد بود که به گفته آمریکا، در نقض محاصره دریایی در حال انتقال نفت از ایران بود.
+
+🔸به گفته سنتکام، پس از آنکه خدمه این نفتکش به هشدارها و دستورات نیروهای آمریکایی توجه نکردند، یک هواپیمای نظامی آمریکا با استفاده از مهمات هدایت‌شونده، اتاق موتور کشتی را هدف قرار داد و آن را از کار انداخت.
+
+🔸سنتکام این اقدام را دومین عملیات مشابه در دو روز متوالی توصیف کرده است.
+
+🔸این نهاد نظامی همچنین اعلام کرد از زمان آغاز محاصره دریایی، نیروهای آمریکایی هشت شناور را که «متخلف» خوانده شده‌اند از کار انداخته، مسیر ۱۳۴ کشتی را تغییر داده و به ۴۲ شناور حامل کمک‌های بشردوستانه اجازه عبور داده‌اند.
+
+🔸سنتکام جزئیات بیشتری درباره محموله نفتکش یا مقصد نهایی آن منتشر نکرده است.
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 22119
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22119_1781109909.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 شاهزاده رضا پهلوی اعلام کرد امشب ساعت ۲۱ پیام مهمی برای مردم ایران داره.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22117
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22117_1781109910.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+باز نشتی گاز داریم تو‌ تهران انگار @IranianMinds
+</div>
+
+## IranianMinds — post 22116
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22116_1781109910.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ درباره ایران:
+
+امروز برای اولین بار این را اعلام می‌کنم، اما ما میلیون‌ها بشکه نفت را وارد بازار کرده‌ایم.
+هر شب نفت وارد بازار می‌کردیم، اما چیزی نمی‌گفتم.
+خیلی دلم می‌خواست این موضوع را اعلام کنم، اما نمی‌خواستم برنامه خراب شود.
+
+حالا ایران متوجه شده، پس می‌توانم درباره‌اش صحبت کنم.
+
+به همین دلیل قیمت نفت به جای ۲۵۰ دلار، حدود ۸۵ تا ۹۰ دلار در هر بشکه است.
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 391593
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391593_1781109913.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرنگار: آیا به حمله به نیروگاه‌ها و پل‌های ایران فکر می‌کنید؟
+
+ترامپ: به تو نمیگم اما می‌تونم این کارو انجام بدم.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391592
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391592_1781109915.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بنی بلانکو درحال ماچ کردن ممه‌های زیبای سلنا‌گومز :///
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391591
+
+<div align="center">
+  <a href="https://t.me/Dirty_Kids/391591" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ریتزوبت تنها سایت بین المللی میباشد ، که به صورت هفتگی پرومو کد دریافت میکنید ✅
+
+♦️ آموزش شارژ حساب با کریپتو
+♦️ آموزش شارژ حساب ریالی در ریتزوبت
+
+🔵ریتزوبت برندی با لایسنس معتبر در صنعت شرطبندی و پیشبینی مسابقات ورزشی و کازینویی 👇
+#پیشبینی
+https://t.me/+LB508WZyIr8xNmY0
+</div>
+
+## Dirty_Kids — post 391590
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391590_1781109916.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🏆تنها 1️⃣ روز تا آغاز بازی های جام جهانی باقی مانده …
+
+
+⚽️ آماده ی این رقابت های حساس هستی ؟؟
+
+ریتزوبت ، سایت بین المللی با لایسنس معتبر آماده خدمت رسانی به کاربران ایران زمین 
+🦁
+
+
+⚡️امکان شارژ و برداشت کریپتو و ریلای
+
+⚡️شرطبندی بدون سقف برداشت
+
+⚡️پروموکد تا سقف 100 میلیون برای کاربران
+
+همین حالا وارد خانواده ی ریتزوبت شوید 
+👇
+👇
+
+
+🛸 لینک ورود به سایت 👉
+
+
+🌐 کانال تلگرامی 
+3️⃣
+2️⃣
+1️⃣
+G20
+https://t.me/+LB508WZyIr8xNmY0
+</div>
+
+## Dirty_Kids — post 391589
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391589_1781109917.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیویی که این خرزشی از خودش تو اینستا منتشر کرده و گفته؛ «دختری که مدنظر پسراست واسه ازدواج»
+💩😂😂
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 126902
+
+<div align="center">
+  <a href="telegram/content/alonews_126902_1781109919.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈آتش سوزی تهران
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126901
+
+<div align="center">
+  <a href="telegram/content/alonews_126901_1781109921.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سخنگوی آتش‌نشانی تهران: ستون دود سیاه رنگ در جنوب تهران مربوط به آتش‌سوزی انباری در میدان قیام است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126900
+
+<div align="center">
+  <a href="telegram/content/alonews_126900_1781109921.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رویترز: هند معاون رئیس هیئت دیپلماتیک آمریکا در دهلی نو را در پی حمله به یک نفتکش در نزدیکی سواحل عمان احضار کرده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126899
+
+<div align="center">
+  <a href="telegram/content/alonews_126899_1781109922.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ستاد فرماندهی مرکزی ایالات متحده: از زمان آغاز محاصره تنگه هرمز، تاکنون مسیر ۸ کشتی را مختل و ۱۳۴ کشتی را تغییر مسیر داده‌ایم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126898
+
+<div align="center">
+  <a href="telegram/content/alonews_126898_1781109922.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈قطعی آب سیریک پس از حمله آمریکا در ‌‌۱۲ ساعت وصل شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/20 20:04
 ---
 

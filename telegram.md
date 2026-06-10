@@ -7,6 +7,354 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/20 23:54
+---
+
+## VahidOOnLine — post 244776
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244776_1781123048.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ابراهیم عزیزی، رئیس کمیسیون امنیت ملی و سیاست خارجی مجلس شورای اسلامی، با انتشار پیامی در شبکه اجتماعی ایکس به تهدیدات اخیر دونالد ترامپ واکنش نشان داد و نسبت به فرامنطقه‌ای شدن هرگونه درگیری نظامی هشدار داد.
+
+عزیزی در این پیام نوشت: «ما از جنگیدن با بازنده‌ها نمی‌ترسیم. همین الان هم تابوت‌های آمریکایی بسیار بیشتر از آن چیزی است که ترامپ می‌گوید و بیشتر هم خواهد شد؛ چرا که جنگ این‌بار حتی به منطقه هم محدود نخواهد شد... خواهیم دید چه می‌شود!»
+
+این اظهارات پس از آن مطرح می‌شود که آمریکا در روزهای گذشته، ضمن مقصر دانستن تهران در سقوط بالگرد آپاچی در تنگه هرمز، حملات گسترده‌ای علیه مواضعی در ایران انجام داد و ترامپ نیز با اشاره به همین حادثه و تعلل تهران در مذاکرات، درباره از سرگیری حملات سنگین به زیرساخت‌های ایران هشدار داد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14379
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آکسیوس:هم اکنون ترامپ و تیم ارشد امنیت ملی خود در اتاق وضعیت کاخ سفید در حال برگزاری جلسه در مورد ایران می‌باشند.
+@withyashar
+</div>
+
+## mwarmonitor — post 10649
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⏳
+</div>
+
+## mwarmonitor — post 10648
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خب تصمیم گرفته شد
+</div>
+
+## mwarmonitor — post 10647
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ برای بررسی گزینه‌های حمله به ایران، در «اتاق وضعیت» تشکیل جلسه داد
+
+📝نویسنده: باراک راوید
+
+🔰به گفته دو منبع آمریکایی، پرزیدنت ترامپ عصر روز چهارشنبه جلسه‌ای را در «اتاق وضعیت» (Situation Room) کاخ سفید برگزار کرد تا گزینه‌های حملات جدید علیه ایران را بررسی کند؛ این جلسه تنها چند ساعت پس از آن تشکیل شد که وی به خبرنگاران گفت ایالات متحده «امروز دوباره ضربه سختی به آن‌ها خواهد زد».
+
+📌جزئیات بیشتر
+منابع آگاه اعلام کردند یکی از گزینه‌هایی که ترامپ در حال بررسی آن است، راه‌اندازی عملیاتی با مقیاس بزرگ اما مدت زمان کوتاه است؛ هدفی که پشت این اقدام وجود دارد، تحت فشار قرار دادن ایران برای تغییر موضع خود در مذاکرات است. این منابع به جزئیات بیشتری اشاره نکردند.
+
+📌آخرین وضعیت
+میانجی‌های قطری روز چهارشنبه در تهران با مقامات ایرانی گفتگو کردند تا تلاش کنند جانی دوباره به توافقی ببخشند که ایالات متحده و ایران هفته‌هاست در حال مذاکره روی آن هستند.
+در صورت عدم دستیابی به یک پیشرفت ملموس، حملات ایالات متحده ممکن است به‌زودی آغاز شود.
+ایالات متحده شامگاه سه‌شنبه در پاسخ به سرنگونی یک هلیکوپتر آمریکایی، به سایت‌های راداری و پدافند هوایی ایران حمله کرد، اما این حملات به‌گونه‌ای تنظیم شده بودند که از تلفات جانی جلوگیری کنند تا مسیر برای دستیابی به یک توافق احتمالی باز بماند.
+
+🔸به گفته این منابع، در جلسه اتاق وضعیت، مقامات ارشد از جمله معاون رئیس‌جمهور ونس، وزیر امور خارجه مارکو روبیو، رئیس سی‌آی‌ای (CIA) جان راتکلیف، رئیس ستاد مشترک ارتش ژنرال دن کین و فرستاده کاخ سفید استیو ویتکوف حضور داشتند.
+
+🔸پیت هگست، وزیر دفاع، نیز از مقر فرماندهی مرکزی ایالات متحده (سنتکام) در تامپا به این جلسه پیوست. هگست در فلوریدا و در جمع سربازان، همسو با اظهارات قبلی ترامپ در روز چهارشنبه، گفت: «اگر آن‌ها حاضر به توافق نشوند، ما ضربه سختی به آن‌ها خواهیم زد.»
+کاخ سفید هنوز به درخواست‌ها برای اظهار نظر در این باره پاسخی نداده است.
+
+📌پشت صحنه
+ترامپ به دلیل نزدیک به دو هفته انتظار برای دریافت پاسخ ایران به آخرین پیشنهادش، به‌شدت و به طور فزاینده‌ای کلافه و ناامید شده بود.
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 93374
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93374_1781123049.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴منبع پاکستانی به الحدث: ما امروز از امضای توافقنامه صلح، خیلی دور شدیم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93373
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93373_1781123050.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴باراک راوید، خبرنگار اکسیوس: ترامپ امشب جلسه‌ای در اتاق وضعیت در مورد گزینه‌های حمله به ایران برگزار کرد. + هنوزم در جلسه هستن و ادامه داره. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93372
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_93372_1781123050.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴باراک راوید، خبرنگار اکسیوس:
+ترامپ امشب جلسه‌ای در اتاق وضعیت در مورد گزینه‌های حمله به ایران برگزار کرد.
+
++ هنوزم در جلسه هستن و ادامه داره.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93371
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93371_1781123051.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وزارت خارجه آمریکا:
+ما از طریق «عملیات خشم اقتصادی» به مختل‌کردن شبکه‌های تأمین و تدارکاتی که از برنامه‌های نظامی جمهوری اسلامی حمایت میکنن ادامه میدیم.
+
+تحریم‌هایی علیه 13 فرد و نهاد در ایران، بلاروس و چین اعمال شده که برای خرید سلاح به نفع سپاه پاسداران تلاش کردن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93370
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93370_1781123052.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پیت هگست، وزیر دفاع آمریکا:
+همانطور که ترامپ امروز گفت ایرانی‌ها معامله نخواهند کرد، پس ما به شدت به آنها ضربه خواهیم زد. سنتکام این کار رو بسیار خوب انجام میده، بهتر از هر کس دیگری در جهان.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## mamlekate — post 103658
+
+<div align="center">
+  <a href="telegram/content/mamlekate_103658_1781123052.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📞 من الان از آتش‌سوزی میدون قیام تهران میام. هنوزم درحال سوختنه. حجم آتیش اینقدر زیاده که تا دو ساعت دیگه هم خاموش نمیشه. چندتا ساختمون و انبار هست. انبار فرش هم هست اونجا. به نظر میاد بخاطر حجم آتیش، فرش‌ها باشن.
+
+35.67060° N, 51.43727° E
+
+@mamlekate
+</div>
+
+## kianmeli1 — post 87880
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87880_1781123054.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری
+
+ترامپ جلسه‌ای در اتاق وضعیت در مورد گزینه‌های حمله به ایران برگزار کرد.
+https://t.me/kianmeli1
+</div>
+
+## FarsiVOA — post 220286
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️در حالی که مقام‌های جمهوری اسلامی از مذاکره، پاسخ نظامی و تشدید تنش‌ها سخن می‌گویند، فشارهای امنیتی در داخل ایران نیز ادامه دارد؛ از بازداشت‌ها و احکام دانشجویی تا پرونده‌ای که با هشتگ «موشعلی» همچنان خبرساز است
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220285
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220285_1781123055.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️هشدار پرزیدنت ترامپ به جمهوری اسلامی به چه معناست؛ ادامه دیپلماسی یا حملات نظامی؟ گفت‌وگو با مهدی نوربخش
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220284
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220284_1781123056.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️بررسی رویکرد چین و روسیه، دو متحد اصلی جدر قبال تنش‌ها در خاورمیانه؛ گفت‌وگو با کامران متین
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 16531
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16531_1781123057.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وال استریت ژورنال: هلیکوپتر آپاچی آمریکایی که روز سه‌شنبه پس از اصابت یک پهپاد ایرانی سقوط کرد، در حال دفاع از کشتی‌ها در تنگه هرمز در برابر پهپادها و موشک‌های ایرانی بود.
+
+خلبانان با بیرون انداختن خود لحظاتی قبل از غرق شدن هلیکوپتر، از هواپیمای در حال سوختن فرار کردند.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16530
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+باراک راوید طی توییتی اعلام کرد مذاکرات طی 2 تا 3 ساعت آینده ممکن است با فروپاشی مواجه بشود. 📝 Amir 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16529
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16529_1781123058.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+باراک راوید طی توییتی اعلام کرد مذاکرات طی 2 تا 3 ساعت آینده ممکن است با فروپاشی مواجه بشود.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16528
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16528_1781123058.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📰الجزیره: آینده مذاکرات لبنان و اسرائیل در هاله‌ای از ابهام
+
+یک منبع دیپلماتیک لبنانی به الجزیره گفته است که اسرائیل تمایل چندانی به پیشبرد مذاکرات نشان نمی‌دهد و روند سیاسی فعلی را بیشتر یک مسیر تحمیلی می‌داند.
+
+بر اساس این گزارش، سرنوشت دور بعدی مذاکرات که قرار است ۲۲ ژوئن برگزار شود، همچنان نامشخص است. این منبع همچنین مدعی شده بنیامین نتانیاهو تمایل دارد درگیری‌ها در جبهه لبنان تا زمان انتخابات اسرائیل ادامه پیدا کند.
+
+🔹 به گفته این منبع، ایالات متحده ابزارهای لازم برای اعمال فشار بر اسرائیل را در اختیار دارد، اما محدودیت‌های ناشی از ساختار ائتلاف حاکم در تل‌آویو، دامنه مانور واشنگتن را کاهش داده است.
+
+
+
+
+👺Phantom
+
+
+📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی :::
+</div>
+
+## Persian_Trend_Official — post 16527
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16527_1781123059.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اکسیوس: ترامپ، رئیس جمهور آمریکا، روز چهارشنبه جلسه‌ای در اتاق وضعیت برگزار کرد تا در مورد حملات احتمالی جدید علیه ایران بحث کند، ساعاتی پس از آنکه به خبرنگاران گفت ایالات متحده امروز دوباره به آنها ضربه سختی خواهد زد.
+
+گزینه‌های مورد بررسی شامل یک عملیات گسترده اما کوتاه مدت برای تحت فشار قرار دادن ایران برای تغییر موضعش در مذاکرات است.
+
+در این جلسه ونس، معاون رئیس جمهور ایالات متحده، مارکو روبیو، وزیر امور خارجه، جان راتکلیف، مدیر سیا، ژنرال دن کین، رئیس ستاد مشترک ارتش و استیو ویتکاف، فرستاده کاخ سفید، حضور داشتند.
+
+میانجیگران قطری روز چهارشنبه در تهران با مقامات ایرانی در تلاش برای بازگرداندن شتاب به توافق گفتگو کردند. در صورت عدم دستیابی به موفقیت، حملات ایالات متحده ممکن است در پی آن انجام شود.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## alonews — post 126967
+
+<div align="center">
+  <a href="telegram/content/alonews_126967_1781123060.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈منابع ایرانی به الجزیره گفتند:
+«هرگونه حمله منجر به پایان مذاکرات خواهد شد».
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126966
+
+<div align="center">
+  <a href="telegram/content/alonews_126966_1781123060.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈اکسیوس: دو منبع آمریکایی گفتند: ترامپ بعدازظهر چهارشنبه جلسه‌ای در اتاق وضعیت (Situation Room) برگزار کرد تا درباره حملات احتمالی جدید علیه ایران بحث کند، این جلسه ساعاتی پس از آن برگزار شد که ترامپ به خبرنگاران گفته بود آمریکا «امروز دوباره به سختی به آنها حمله خواهد کرد».
+
+
+🔴منابع گفتند یکی از گزینه‌هایی که ترامپ در نظر دارد، انجام عملیاتی با مقیاس بزرگ ولی کوتاه‌مدت است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126965
+
+<div align="center">
+  <a href="telegram/content/alonews_126965_1781123061.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈جی‌دی‌ونس در پاسخ به این سوال که آیا نتانیاهو در نحوه مدیریت رابطه خود با ایالات متحده درباره ایران اشتباهاتی داشته است یا نه گفت: «او قطعاً در برخی موارد اشتباه کرده است.»
+
+
+🔴ونس از ارائه نمونه خودداری کرد و گفت این گفت‌وگوها «بهتر است در محافل خصوصی باقی بمانند.»
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126964
+
+<div align="center">
+  <a href="telegram/content/alonews_126964_1781123061.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈جی‌دی ونس: منافع ایالات متحده و اسرائیل همیشه با یکدیگر همسو نیستند؛ رابطه ترامپ با نتانیاهو بر سر جنگ ایران تحت فشار قرار گرفته است.
+
+
+🔴گاهی ما [و اسرائیل] در یک مسیر و هم‌نظر هستیم و گاهی نیستیم. و هر جا که این دو از هم جدا شوند، ما، باید جانب مردم آمریکا را بگیریم، و همیشه همین کار را می‌کنیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126963
+
+<div align="center">
+  <a href="telegram/content/alonews_126963_1781123061.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈آکسیوس: ترامپ در حال بررسی انجام عملیات نظامی جامع و سریع علیه ایران است.‌
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/20 23:43
 ---
 

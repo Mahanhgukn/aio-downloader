@@ -7,6 +7,66 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/20 07:03
+---
+
+## VahidOOnLine — post 244625
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_244625_1781062384.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️خبرگزاری تسنیم، رسانه وابسته به سپاه پاسداران، به نقل از منابع محلی از انهدام یک شیء پرنده در آسمان شهرستان جم در جنوب استان بوشهر خبر داد.
+پیش‌تر نیز سپاه پاسداران اعلام کرده بود یک پهپاد ام‌کیو۹ را در شمال خلیج فارس و در آسمان شهرستان جم در استان بوشهر سرنگون کرده است. تا زمان انتشار این خبر، ارتش آمریکا درباره این گزارش اظهارنظری نکرده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## pm_afshaa — post 93269
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93269_1781062386.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴یک مقام آمریکایی به نیویورک تایمز: ایران اوایل امروز چندین موشک و پهپاد به پایگاه‌های آمریکایی در سراسر خاورمیانه شلیک کرد و تقریباً همه طبق ارزیابی‌های اولیه آمریکا رهگیری شدن.
+
+هیچ تلفات آمریکایی گزارش نشده و هیچ خسارتی به پایگاه‌های آمریکا تأیید نشده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## alonews — post 126680
+
+<div align="center">
+  <a href="telegram/content/alonews_126680_1781062387.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈یک مقام آمریکایی به نیویورک تایمز: ایران اوایل چهارشنبه چندین موشک و پهپاد به پایگاه‌های آمریکایی در سراسر خاورمیانه شلیک کرد و تقریباً همه طبق ارزیابی‌های اولیه آمریکا رهگیری شدند.
+
+هیچ تلفات آمریکایی گزارش نشده است.
+هیچ خسارتی به پایگاه‌های آمریکا از حملات ایرانی تأیید نشده است.​​​​​​​​​​​​​​​​
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126679
+
+<div align="center">
+  <a href="telegram/content/alonews_126679_1781062387.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈صدای انفجار در بحرین
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/20 06:53
 ---
 

@@ -7,6 +7,299 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/21 02:12
+---
+
+## VahidOOnLine — post 244814
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_244814_1781131323.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️همزمان با آغاز دور دیگری از حمله‌های آمریکا، خبرگزاری مهر تصاویری را با توضیح «پرواز جنگنده ارتش بر فراز تهران» منتشر کرده است
+پیش از این، خبرگزاری مهر از شنیده شدن صدای پدافند در غرب تهران و صداهای نامشخص در کیش خبر داده بود.
+همزمان، فرماندهی مرکزی ایالات متحده (سنتکام) اعلام کرد نیروهای آمریکایی از ساعت ۱۷:۱۵ به وقت شرق آمریکا حملات جدیدی را علیه چندین هدف در ایران آغاز کرده‌اند. سنتکام مدعی شد این عملیات در پاسخ به آنچه «اقدامات تهاجمی و ادامه‌دار ایران» خوانده، انجام شده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14444
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نیروی هوافضای ۳پا: آغاز مرحله پاسخ قاطع و بازدارنده مستقیم به دشمن را اعلام می‌کنیم.
+@withyashar
+</div>
+
+## WithYashar — post 14443
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبکه ۱۵ اسرائیل : موج اول حملات به ایران؛ به پایان رسیده
+@withyashar
+یاشار : درگیری همچنان در تنگه هرمز ادامه دارد.
+</div>
+
+## WithYashar — post 14442
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روابط عمومی ۳پا: درپی تجاوز جنگنده f16 به حریم هوایی خلیج فارس و شلیک موشک سامانه پدافند هوایی سپاه به سمت آن، جنگنده متجاوز متواری گشت
+@withyashar
+</div>
+
+## WithYashar — post 14441
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هاآرتص: اسرائیل در انتظار حمله موشکی ایران پس از حملات جدید آمریکا به اهدافی در ایران
+@withyashar
+</div>
+
+## pm_afshaa — post 93490
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴گروه هکری حنظه ادعا می‌کنه که توانسته موج‌های حمله ارتش آمریکا را با استفاده از توانایی‌های الکترونیکی مختل کنه
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93489
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+الان تو آتش‌بس هستیم هنوز یا نه؟
+عادت کردیم دیگه حرفی ازش زده نمیشه
+</div>
+
+## pm_afshaa — post 93488
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صف طولانی در پمپ بنزین های کشور
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93487
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93487_1781131325.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سپاه: درپی تجاوز جنگنده F-16 به حریم هوایی خلیج فارس و شلیک پدافند هوایی سپاه به سمتش، جنگنده متجاوز فرار کرد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93486
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تهدید حمله موشکی سپاه به اسراییل
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93485
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+موج اول حملات آمریکا به پایان رسید
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93483
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93483_1781131325.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🤔 بعضی قیمت‌ها ارزونن...
+
+
+💸بعضی قیمت‌ها مشکوکن...
+
+
+😅 ولی این یکی فقط غیرقابل باوره
+
+
+💎 هر گیگ فقط ۳ هزار تومن 
+💎
+
+
+👎نه کیفیت کم شده
+
+👎نه سرعت قربانی شده
+
+👎نه قراره چیزی از دست بدی
+
+
+👍فقط قراره کمتر پول بدی.
+
+
+🚀 @LexVipBot 
+⚡️ @Lex_Server
+</div>
+
+## IranIntlTV — post 341597
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/341597" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی برنامه با کامبیز حسینی؛ آیا این «تیم ملی» را نمایندهٔ خودتان می‌دانید؟
+@iranintlTV
+</div>
+
+## Shin_Persian — post 6900
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn Wed, 10 Jun 2026 22:35:34 UTC IRGC Terror organization: "air defense fired a missile at a USAF F-16 over Persian Gulf, jet evaded." ترجمه خودکار فارسی سازمان تروریستی سپاه پاسداران انقلاب اسلامی (IRGC): «پدافند هوایی موشکی را به…
+</div>
+
+## Shin_Persian — post 6899
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Wed, 10 Jun 2026 22:35:34 UTC
+
+IRGC Terror organization: "air defense fired a missile at a USAF F-16 over Persian Gulf, jet evaded."
+
+ترجمه خودکار فارسی
+
+سازمان تروریستی سپاه پاسداران انقلاب اسلامی (IRGC): «پدافند هوایی موشکی را به سمت یک فروند F-16 نیروی هوایی ایالات متحده (USAF) بر فراز خلیج فارس شلیک کرد، جنگنده از برخورد گریخت.»
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 220306
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Farsi VOA pinned a photo
+</div>
+
+## FarsiVOA — post 220305
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220305_1781131326.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📸اینستاگرام صدای آمریکا را هم اکنون فالو کنید تا از آخرین خبرها مطلع بمانید:
+https://www.instagram.com/voafarsi/
+
+📡همچنین جهت اطلاع از بروزترین فرکانسهای ماهواره‌ای صدای آمریکا به لینک زیر مراجعت فرمایید:
+https://ir.voanews.com/satellite
+
+این پست را با دوستانتان به اشتراک بگذارید
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 16607
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ ایسنا:
+
+روابط عمومی سپاه: درپی تجاوز جنگنده f16 دشمن به حریم هوایی خلیج فارس و شلیک موشک سامانه پدافند هوایی سپاه به سمت آن، جنگنده متجاوز متواری گشت.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16606
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16606_1781131326.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## Persian_Trend_Official — post 16605
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16605_1781131327.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ مهر:
+
+📹 قادری، کارشناس مسائل بین الملل: تبعات شرارت‌های رژیم صهیونیستی و آمریکا به نسبت گذشته بسیار سنگین خواهد بود.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16604
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16604_1781131328.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 22215
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فقط خواسم یادآوری کنم :
+
+حملات دفاعیه و آتش بس هنوز برقراره 😔
+</div>
+
+## IranianMinds — post 22214
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 سپاه :
+
+یه جنگنده F-16 آمریکایی رو‌ زدیمش‌ که سریع فرار کرد
+
+@IranianMinds
+</div>
+
+## alonews — post 127012
+
+<div align="center">
+  <a href="telegram/content/alonews_127012_1781131329.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈شبکه ۱۵ اسرائیل : موج اول حملات به ایران؛ به پایان رسیده
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/21 02:02
 ---
 

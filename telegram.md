@@ -7,6 +7,188 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/20 15:43
+---
+
+## WithYashar — post 14304
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: حملات بیشتر آمریکا به ایران، یک گزینه واقع بینانه است.
+@withyashar
+</div>
+
+## WithYashar — post 14303
+
+<div align="center">
+  <a href="telegram/content/WithYashar_14303_1781093620.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسرائیل نان استاپ داره لبنان رو میزنه، یه خودرو رو هم با پهپاد نقطه‌زنی کرده، هدفمند.
+@withyashar
+</div>
+
+## mwarmonitor — post 10609
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_10609_1781093622.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خواهیم دید
+</div>
+
+## mwarmonitor — post 10608
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مجری داخل استودیو: «یکی از چیزهایی که او را متوقف می‌کند... یعنی مانع از بازگشت و ادامه کارش شد، چندین مسئله است. افرادی در دولت او هستند که فقط نگران انتخابات هستند، که من این را درک می‌کنم، و کلاً فکر می‌کنند که ما اصلاً نباید این کار را انجام می‌دادیم.…
+</div>
+
+## mwarmonitor — post 10607
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+«من همین الان مکالمه تلفنی‌ام با رئیس‌جمهور ترامپ تمام شد و او جزئیات کاملاً جدیدی را درباره اتفاقی که برای آن هلیکوپتر آپاچی که اوایل این هفته سقوط کرد، در اختیار فاکس نیوز گذاشت و همچنین دیدگاه خود را درباره اینکه اوضاع در زمینه مذاکرات در چه مرحله‌ای قرار…
+</div>
+
+## pm_afshaa — post 93294
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93294_1781093622.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پزشکیان: هر هفته بدون استثنا با رهبر شهید دیدار داشتم که پشتوانه محکمی برای مدیریت ما و سیاست‌هایی بود که باید در کشور پیاده کنم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 341469
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341469_1781093623.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مرکز پژوهش‌های کنگره آمریکا اعلام کرد در پیش‌نویس بودجه ۲۰۲۷ حدود ۱۱۹ میلیون دلار برای حمایت از نیروهای مسلح عراق در نظر گرفته شده و بررسی مشروط شدن این کمک‌ها به مهار گروه‌های وابسته به جمهوری اسلامی در جریان است
+
+گفت‌وگو با تروسکه صادقی، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## Persian_Trend_Official — post 16468
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16468_1781093625.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: ایران در اشتباه خود، هلی‌کوپتر ما را سرنگون کرد، مثل معجزه بود که خلبانان ما کشته نشدند و زنده ماندند.
+
+هنوز کارم با ایران تمام نشده است. ما 55 درصد از آنچه ایران در طول آتش‌بس بازسازی کرده بود را نابود کردیم.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16467
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک منبع مطلع به i24NEWS گفت: رئیس‌جمهور ترامپ دیشب با نخست‌وزیر نتانیاهو گفتگو کرد و او را در جریان حمله احتمالی شب گذشته قرار داد.
+
+این دو همچنین درباره موضوعات دیگری مرتبط با مذاکرات با ایران بحث کردند. در آمریکا از وضعیت مذاکرات ناامید شده‌اند و صبرشان رو به پایان است.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## BBCPersian — post 283349
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻سفر یک هیات قطری به تهران
+
+🔻به گزارش رسانه‌های ایران یک هیئت بلندپایه از قطر ظهر امروز برای گفتگو با مقامات ایران وارد تهران شده است.
+
+به گزارش روزنامه دولتی ایران، این هیئت برای گفتگو و تبادل نظر درباره روابط دوجانبه و تحولات منطقه‌ای، به تهران سفر کرده است.
+
+بر اساس این گزارش «در جریان این سفر، این هیئت علاوه بر بحث در مورد روابط دوجانبه و تحولات منطقه، در باره آخرین تحولات مرتبط با روند دیپلماتیک برای خاتمه جنگ بین آمریکا و ایران هم بحث و رایزنی می‌کند.»
+
+این سفر در حالی انجام می‌شود که درپی ساقط شدن یک بالگرد آمریکایی، تبادل آتش‌های تازه‌ای بین آمریکا و ایران رخ داده است.
+
+ساعتی پیش دونالد ترامپ گفت که ایران در مذاکرات بیش از حد تعلل کرده است و حالا باید بهایش را بپردازد.
+
+ایران هم پیشتر گفت که با درنظر گرفتن حملات جدید آمریکا در مورد ادامه مذاکرات تصمیم می‌گیرد.
+
+https://bbc.in/3QuVrRC
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 391573
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391573_1781093625.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فاکس‌نیوز:
+ترامپ درحال نزدیک شدن به صدور دستور حمله به نیروگاه‌ها و پل‌های ایرانه.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391572
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فوری-رسانه های عبری
+
+تصمیم ترامپ برای حمله به پل ها و زیرساخت ایران قطعی است.
+پنتاگون طرح های حمله جدید را به ترامپ گزارش داده و اسرائیل را نیز مطلع کرده.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391571
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391571_1781093625.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ در حالیکه امروز از دنده‌ی چپ از خواب بلند شده و معامله با ج.ا در این دقایق از چشش افتاده در پست دیگری گفت:
+
+رسانه‌های فیک‌نیوز اصلاً به روی قرمساق خودشون نمیارن که محاصره‌ی دریایی آمریکا چقدر کارساز بوده.
+محاصره‌ای که موفق‌ترین نمونه در کل تاریخ جنگ‌های دریایی به‌حساب میاد.
+تا خودمون نخوایم پرنده هم نمی‌تونه ازش رد شه.
+این محاصره مثل یه دیوار فولادیه. داد و ستد جمهوری‌اسلامی‌ کاملاً صفر شده. نه پول نیروی نظامیش رو داره بده و نه از پس مخارج دیگه‌ش برمیاد و خیلی سریع داره تبدیل به یه کشور ورشکسته می‌شه.
+البته کلی نفت داره خارج می‌شه
+
+رئیس‌جمهور، دونالد جی. ترامپ
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 126813
+
+<div align="center">
+  <a href="telegram/content/alonews_126813_1781093626.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ به فاکس نیوز : کارم با ایران تموم نشده؛ ما ۵۵٪ از چیزهایی رو که ایران در زمان آتش‌بس دوباره ساخته بود، نابود کردیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/20 15:34
 ---
 

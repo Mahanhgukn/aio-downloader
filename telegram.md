@@ -7,6 +7,76 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/20 09:53
+---
+
+## IranIntlTV — post 341444
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341444_1781072586.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مهرداد محمدی، روزنامه‌نگار، گفت: «برخوردهای شدید انضباطی با دانشجویان، در واقع تسویه‌حساب اصلاح‌طلبان و دولتشان با دانشجوهاست. اصلاح‌طلبان در سال‌های گذشته می‌خواستند در دانشگاه و در میان دانشجویان نفوذ کنند تا برای اهداف سیاسی خود، از جمله راه انداختن شوهای انتخاباتی، نمایش مضحک دموکراسی دینی و در نهایت ایجاد سنگر برای حفظ نظام، استفاده کنند. شعارهای دانشجویان در حمایت از پهلوی، آخرین میخ به تابوت اصلاح‌طلبی حکومتی در ایران بود.»
+@iranintltv
+</div>
+
+## Persian_Trend_Official — post 16430
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16430_1781072587.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️🇾🇪 UKMTO گزارشی از حادثه‌ای در ۸۸ مایل دریایی جنوب غربی بالحاف، یمن ارائه داد، جایی که یک کشتی باربری توسط یک قایق کوچک حامل شش فرد مسلح مورد نزدیک شدن قرار گرفت.
+
+گزارش شده است که تبادل آتش بین قایق و تیم امنیتی مسلح کشتی رخ داده است، پس از آن قایق کوچک دور شده است.
+
+
+👺Phantom
+
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 22057
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 روابط عمومی سپاه:
+نیروی دریایی سپاه ۲۱ هدف از پایگاه‌های هوایی و دریایی آمریکا در منطقه رو مورد اصابت قرار داد.
+
+
+@IranianMinds
+</div>
+
+## alonews — post 126705
+
+<div align="center">
+  <a href="telegram/content/alonews_126705_1781072588.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سازمان دریانوردی بریتانیا:یک کشتی تجاری گزارش داده که در جنوب غربی بندر بلحاف یمن، یک قایق کوچک حامل ۶ فرد مسلح به آن نزدیک شده است.
+
+
+🔴به گفته این سازمان، بین قایق مسلح و تیم حفاظت مسلح کشتی تبادل تیراندازی رخ داده و در نهایت قایق از محل دور شده است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126704
+
+<div align="center">
+  <a href="telegram/content/alonews_126704_1781072588.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خبرگزاری رویترز به نقل از پلیس آفریقای جنوبی گزارش داد که در تیراندازی در ژوهانسبورگ، دست کم ۱۲ نفر کشته و ۹ نفر زخمی شدند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/20 09:43
 ---
 

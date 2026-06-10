@@ -7,6 +7,264 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/20 14:53
+---
+
+## WithYashar — post 14287
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نتانیاهو بعد توییت ترامپ: ایران نباید سلاح هسته ای داشته باشه.
+@withyashar
+</div>
+
+## WithYashar — post 14286
+
+<div align="center">
+  <img src="telegram/content/WithYashar_14286_1781090628.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ در تروث: ارتش ایران کاملاً از هم پاشیده و نابود شده. بخش بزرگی از توان نظامی ایران، از جمله نیروی دریایی و نیروی هوایی، عملاً دیگه وجود نداره. ایران به طور کامل شکست خورده. ایران فقط حرف می‌زنه و کاری انجام نمی‌ده. قلدر خاورمیانه مُرده! خیلی بیشتر از حد لازم برای مذاکره روی توافقی که می‌تونست به نفعشون باشه وقت تلف کردن و حالا باید بهای این کار رو پرداخت کنن
+@withyashar
+</div>
+
+## mwarmonitor — post 10602
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_10602_1781090628.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبر فوری: پس از رایزنی‌ها با ایالات متحده، مذاکره‌کنندگان قطری صبح امروز به تهران سفر کردند تا با ایرانی‌ها دیدار کنند و با هدف پر کردن شکاف‌های باقی‌مانده در روند مذاکرات تلاش کنند؛ این موضوع را یک دیپلمات آگاه از وضعیت به فاکس نیوز گفته است. @mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 342792
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342792_1781090630.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+“They’ve taken too long to negotiate a deal... now they will have to pay the price!!!”
+
+President Trump putting the Iranian regime in his crosshairs after the U.S. launched defensive strikes in response to an American helicopter being shot down near the Strait of Hormuz.
+
+“Iran’s Military is a complete and total mess... The Bully of the Middle East is DEAD!!!”
+</div>
+
+## FoxNewsTwitter — post 342791
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342791_1781090631.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: Iran has 'taken too long to negotiate a deal,' 'will have to pay the price,' Trump writes on Truth Social
+</div>
+
+## DEJradio — post 5534
+
+<div align="center">
+  <img src="telegram/content/DEJradio_5534_1781090631.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️
+🔸 یک منبع امنیتی:
+کشف «تجهیزات اسرائیلی» در جنگل‌های تنکابن یا کوه‌های لواسان پروپاگاندای حکومت است
+
+رسانه‌های حکومتی و کانال‌های وابسته به سـ.ـپاه مدعی کشف تجهیزات فنی و سامانه‌های زمین‌پایه در جنگل‌های تنکابن (استان مازندران) و کوه‌های لواسان (شمال شرق تهران) شده‌اند.
+
+گفته شده این تجهیزات برای پشتیبانی و هدایت جنگنده‌های مهاجم استفاده می‌شود و در مسیرهای اصلی ورود جنگنده‌های دشمن به حریم هوایی تهران مستقر شده‌اند.
+
+یک منبع امنیتی به دژ می‌گوید، «اگر منظور حکومت از تجهیزات مکشوفه همین تصاویر باشد کاملا پروپاگانداست زیرا نسل جدید جنگنده‌ها مجهز به سامانه‌های دیجیتال ماهواره‌ای‌اند. این تجهیزات که با پنل خورشیدی تغذیه می‌شوند یشتر شبیه سامانه‌های ایستگاه هواشناسی یا پایش محیطی و پایش حیات وحش است و ارتباطی با سامانه‌های هدایت هواپیما ندارد.»
+
+#پروپاگاندا #اسرائیل
+@DEJradio
+</div>
+
+## FarsiVOA — post 220238
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220238_1781090632.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ در اظهار نظر جدیدی در شبکه اجتماعی تروت‌سوشال هشدار داد که اکنون زمانی است که جمهوری اسلامی باید بهای اقداماتش را بپردازد.
+
+آقای ترامپ در این اظهار نظر یادآور شد که «نیروی نظامی ایران یک ویرانه کامل و تمام‌عیار است. بخش زیادی از آن، مانند نیروی دریایی و نیروی هوایی‌شان، دیگر حتی وجود خارجی ندارد - آن‌ها کاملاً شکست خورده‌اند.»
+
+او تصریح کرد: «ایران فقط حرف می‌زند و مرد عمل نیست. [اما] قلدرِ خاورمیانه مرده است.»
+
+آقای ترامپ افزود: «آن‌ها برای مذاکره بر سر توافقی که می‌توانست برایشان عالی باشد بیش از حد وقت تلف کردند، و اکنون باید بهای آن را بپردازند.»
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220237
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220237_1781090633.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امارات متحده عربی روز چهارشنبه، حملات موشکی و پهپادی جمهوری اسلامی به بحرین، کویت و اردن را به‌شدت محکوم کرد.
+
+وزارت خارجه امارات در بیانیه‌ای این حملات را «تروریستی» و «بی‌دلیل» خواند و اعلام کرد که هدف قرار دادن پادشاهی بحرین، دولت کویت و پادشاهی اردن هاشمی، نقض آشکار حاکمیت این سه کشور و تهدیدی علیه امنیت و ثبات آن‌هاست.
+
+در این بیانیه همچنین آمده است که امارات همبستگی کامل خود را با بحرین، کویت و اردن اعلام می‌کند و از همه اقداماتی که این کشورها برای حفاظت از امنیت و ثبات خود انجام دهند، حمایت می‌کند.
+@FarsiVOA
+</div>
+
+## DW_Farsi — post 125764
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 رأی مثبت شورای امنیت به بررسی روند بازگشت تحریم‌های ایران
+
+شورای امنیت سازمان ملل متحد شامگاه سه‌شنبه ۹ ژوئن (۱۹ خرداد) در نشستی با ۱۱ رأی موافق، بررسی روند بازگشت‌ تحریم‌ها علیه ایران را در پی فعال‌سازی مکانیسم ماشه تصویب کرد.
+
+در این رأی‌گیری روسیه و چین به این قطعنامه رأی منفی و پاکستان و سومالی رأی‌ ممتنع دادند. این نشست با اختلاف نظر فرانسه، بریتانیا و ایالات متحده از یک سو و چین و روسیه از سوی دیگر، بر سر فعال‌شدن مکانیسم ماشه و بازگشت تحریم‌ها علیه ایران همراه بود.
+
+روسیه و چین بر این نظر بودند که مکانیسم ماشه فعال نشده است، در حالی‌که فرانسه، ایالات متحده و آمریکا تأکید کردند این مکانیسم عملا فعال شده است و تحریم‌ها علیه ایران مجددا برقرار شده‌اند.
+
+نماینده روسیه پیش از آغاز نشست شورای امنیت اظهار داشت که مکانیسم ماشه "به دلایل مختلف" فعال نشده است و نه "تحریف‌های عمدی" و نه "موضع نادرست و غیرقانونی رهبری دبیرخانه سازمان ملل" در این‌باره اهمیتی ندارند. واسیلی نبنزیا با تأکید بر این‌که هیچ مبنایی برای برگزاری نشست توجیهی کمیته ۱۷۳۷ وجود ندارد، خواستار رأی‌گیری شورای امنیت درباره برگزاری جلسه روز سه‌شنبه شد.
+
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 16460
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16460_1781090634.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تصویری واضح تر از سوله منهدم شده در پایگاه رامات دیوید 📝 Amir 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16459
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16459_1781090635.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 آمار ادعایی به‌روز شده از تلفات هوایی ارتش آمریکا در جنگ با ایران
+
+اینفوگرافی منتشرشده مدعی است که از آغاز درگیری‌ها در ۲۸ فوریه تا ۸ ژوئن ۲۰۲۶، ارتش آمریکا بخشی از ناوگان هوایی خود را در منطقه از دست داده یا آسیب دیده است.
+
+بر اساس این ادعاها:
+
+🔹 ۱ فروند F-35 آسیب دیده
+🔹 ۴ فروند F-15E سرنگون شده
+🔹 ۱ فروند A-10 از دست رفته
+🔹 ۱ فروند بالگرد AH-64 سرنگون شده
+🔹 ۱ فروند هواپیمای آواکس E-3 منهدم شده
+🔹 دست‌کم ۲ فروند KC-135 منهدم و ۷ فروند دیگر آسیب دیده‌اند
+🔹 ۲ فروند MC-130J از بین رفته‌اند
+🔹 ۱ فروند پهپاد MQ-4C Triton منهدم شده
+🔹 ۲۸ فروند MQ-9 Reaper و یک پهپاد MQ-1C از دست رفته‌اند
+🔹 چندین بالگرد HH-60 و CH-47 نیز آسیب دیده یا منهدم شده‌اند
+
+⚠️ این آمار بر پایه ادعاهای منتشرشده در این اینفوگرافی است و تاکنون از سوی وزارت دفاع آمریکا به‌صورت رسمی تأیید نشده است.
+
+
+👺 Phantom
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 22079
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22079_1781090636.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴تصویری که فاکس‌نیوز از آخرین آرایش سنگین ناوگان دریایی در خاورمیانه نشان داده است.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22078
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22078_1781090636.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فوری، پست جدید ترامپ:
+
+ایران کاملا بهم ریخته و آشفته شده، نیروی دریایی و نیروی هوایی اونا دیگه وجود ندارن، اونا کامل شکست خوردن.
+
+ایران فقط حرف میزنه و هیچ اقدامی نمیکنه، قلدر خاورمیانه دیگه مُرده.
+اونا در مورد مذاکره‌ای که براشون فوق العاده بود خیلی طول دادن، حالا باید بهاشو پرداخت کنن.
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 391568
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391568_1781090637.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ با کله‌ی خراب از خواب پا شده و در پستی در تروث‌سوشال نوشته:
+
+«نیروی نظامی جمهوری‌اسلامی قحبه یک افتضاح تمام‌عیار و مطلقه.
+بخش زیادیش مثل نیروی دریایی و نیروی هوایی‌شون دیگه حتی وجود خارجی هم نداره.
+این قحبه‌ها به طور کامل شکست خورده‌اند.
+روافض گنده‌گوز فقط حرف می‌زنه و مرد عمل نیست.
+قلدرِ خاورمیانه بگای سگ رفته و مرده.
+روافض هزارپدر برای مذاکره بر سر توافقی که می‌تونست براشون عالی باشه خیلی لفتش دادن.
+الان باید تاوانش رو پس بدن.
+پرزیدنت دونالد جی. ترامپ
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 126790
+
+<div align="center">
+  <a href="telegram/content/alonews_126790_1781090637.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 قالیباف: جمهوری اسلامی ایران به هرگونه تجاوز با قاطعیت و بدون درنگ پاسخ می‌دهد. 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126789
+
+<div align="center">
+  <a href="telegram/content/alonews_126789_1781090638.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 قالیباف: جمهوری اسلامی ایران به هرگونه تجاوز با قاطعیت و بدون درنگ پاسخ می‌دهد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126788
+
+<div align="center">
+  <a href="telegram/content/alonews_126788_1781090638.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوووری/ترامپ: ارتش ایران کاملاً آشفته و بهم ریخته است. بخش زیادی از آن، مانند نیروی دریایی و هوایی آنها، دیگر حتی وجود ندارد. 
+🔴آنها کاملاً شکست خورده‌اند. ایران فقط حرف می‌زند و عمل نمی‌کند. قلدر خاورمیانه مُرده است! 
+🔴آنها برای مذاکره بر سر توافقی که می‌توانست…
+</div>
+
+## alonews — post 126787
+
+<div align="center">
+  <a href="telegram/content/alonews_126787_1781090638.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈همزمان با پست ترامپ، توئیت جدید نتانیاهو : ایران نباید سلاح هسته ای داشته باشه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/20 14:43
 ---
 

@@ -7,6 +7,251 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/21 02:42
+---
+
+## VahidOOnLine — post 244820
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244820_1781133137.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️قرارگاه خاتم در بیانیه‌ای که تسنیم منتشر کرده تنگه هرمز را کاملا بسته اعلام کرد و تهدید کرد که هرگونه تردد مورد اصابت قرار خواهد گرفت. در این بیانیه آمده است که این ممنوعیت شامل کشتی‌های تجاری و نتفکش‌ها است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14453
+
+
+
+
+## WithYashar — post 14452
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هوافضای ۳پا: پاسداران برای یک عملیات تاریخی آماده شده اند!
+@withyashar
+</div>
+
+## WithYashar — post 14451
+
+
+
+
+## WithYashar — post 14450
+
+
+
+
+## FoxNewsTwitter — post 342829
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342829_1781133137.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH LIVE: Annual Congressional Baseball Game for Charity at Nationals Park https://twitter.com/i/broadcasts/1oKMvvrRMznGQ
+</div>
+
+## pm_afshaa — post 93506
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انفجار مجدد در بندر عباس
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93505
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ما منتظر جواب سپاهیم
+چی شد پس این موشکا!؟
+</div>
+
+## pm_afshaa — post 93504
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93504_1781133138.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴گزارشات اولیه از حملات هواپیمای جنگی A-10 آمریکا به قایق های تندرو سپاه در جزیره لارک.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## mamlekate — post 103669
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 اندیمشک شدیدا صدای جنگنده میاد . ساعت دو بامداد پنجشنبه ۲۱ خرداد
+
+
+📝 ساعت ۰۲:۱۵ دقیقه صدای ممتد عبور جنگنده. ما از شهر بافت، استان کرمان شنیدیم صدا رو، لشکرکشی بود
+
+
+📝 کرمانشاه ساعت۲:۳۰ دوتا صدای انفجار مهیب از دور آمد
+پنجشنبه۲۱ خرداد
+
+
+📝 ۲:۳۶ بندرعباس مجدد صدای انفجار اومد
+
+@mamlekate_pm
+</div>
+
+## kianmeli1 — post 87905
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری-پدافند هوایی در رباط کریم تهران فعال شد
+https://t.me/kianmeli1
+</div>
+
+## FarsiVOA — post 220311
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220311_1781133138.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️روزنامه وال‌استریت ژورنال پنج‌شنبه شب به وقت واشنگتن به نقل از یک مقام ارشد آمریکایی گزارش داد که هیچ سایت زیرساختی در ایران مورد اصابت قرار نگرفته است و نیروهای نظامی ایالات متحده در حال حمله به پدافند هوایی و سایت‌های راداری در نزدیکی تنگه هرمز بودند. انفجارهایی در امتداد تنگه هرمز، از جمله بندرعباس، جزیره قشم و سیریک گزارش شده است.
+@FarsiVOA
+</div>
+
+## DW_Farsi — post 125793
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125793_1781133138.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 خبرهای متناقض از حمله به پارس جنوبی و عسلویه
+
+در حالی که خبرگزاری دانشجو وابسته به بسیج دانشجویی از بمباران یک کارخانه پتروشیمی متعلق به مجتمع گاز پارس جنوبی در عسلویه خبر می‌دهد، خبرگزاری تسنیم وابسته به سپاه پاسداران این خبر را تکذیب کرده است.
+
+معاون استاندار بوشهر نیز هرگونه انفجار در مجتمع گازی عسلویه را تکذیب کرد.
+
+تسنیم همچنین فعالیت هرگونه پدافند در شیراز را نیز تکذیب کرد.
+
+در عین حال خبرگزاری اکسیوس به نقل از یک مقام آمریکایی گزارش داد تمامی اهدافی که در حملات اخیر مورد هدف قرار گرفته‌اند، در جنوب ایران واقع شده‌اند. این مقام آمریکایی گفت سامانه‌های پدافند هوایی، رادارها و واحدهای فرماندهی و کنترل پهپادها از جمله اهداف این حملات بوده‌اند.
+
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 16621
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16621_1781133139.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک منبع به جروزالم پست گفت که هیئت صلح غزه در حال پیشبرد طرح‌های مسکن، آموزش، مراقبت‌های بهداشتی و ایجاد ثبات در مناطق خارج از کنترل حماس است و منتظر پاسخ این گروه تروریستی به مذاکرات خلع سلاح نخواهد ماند.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16620
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16620_1781133139.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تایید نشده/ایران شروع به مین‌گذاری در آب‌های تنگه هرمز کرده است.
+</div>
+
+## IranianMinds — post 22223
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فعلا حدود یک ساعتیه خبری از حملات جدید نیست
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22222
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 مقامات پاکستانی اعلام کردن دیگر دست از میانجیگری در مذاکرات ایران و آمریکا برمیدارن.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 283370
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283370_1781133140.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+قرارگاه خاتم الانبیاء که مدیریت جنگ در ایران را بر عهده دارد ساعتی بعد از دور جدید حملات آمریکا با صدور اطلاعیه‌ای اعلام کرد: «از این لحظه به دلیل ناامنی در منطقه، تنگه هرمز برای تردد هر نوع شناور اعم از نفتکش و تجاری بسته اعلام می‌گردد.»
+
+این قرارگاه تهدید کرده است که هرگونه ترددی «مورد اصابت» قرار خواهد گرفت.
+
+همچنین در این اطلاعیه آمده که «ادعای آمریکا مبنی بر عبور کشتی از تنگه یاد شده تکذیب می‌شود».
+
+به نظر می‌رسد این واکنشی به ادعای عصر چهارشنبه دونالد ترامپ است که گفته بود آمریکا طی یک عملیات توانسته ده‌ها میلیون بشکه نفت را از تنگه هرمز عبور دهد.
+
+📷Reuters
+https://bbc.in/4fIJPot
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 391651
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرنگار: آیا به حمله به نیروگاه‌ها و پل‌های ایران فکر می‌کنید؟ ترامپ: به تو نمیگم اما می‌تونم این کارو انجام بدم. @Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391650
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ساعت حدود ۰۲:۱۵ صبح پنجشنبه؛ چند قایق تندرو در نزدیکی جزیره لارَک هدف قرار گرفته شدند.
+
+براساس توصیف شاهدان، شلیک به صورت رگبار از آسمان به سطح دریا بود (احتمالاً توسط هواپیمای A-10)
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 127022
+
+<div align="center">
+  <a href="telegram/content/alonews_127022_1781133141.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈انفجار مجدد در بندرعباس
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127021
+
+<div align="center">
+  <a href="telegram/content/alonews_127021_1781133141.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری/پاکستان: به آمریکا اعلام کردیم که دیگر دست از تلاش برای میانجیگری برمی‌داریم!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/21 02:32
 ---
 

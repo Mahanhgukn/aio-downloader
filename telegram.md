@@ -7,6 +7,189 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/20 11:23
+---
+
+## VahidOOnLine — post 244650
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244650_1781078016.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لین جیان، سخنگوی وزارت خارجه چین، چهارشنبه ۲۰ خرداد در نشست خبری با خبرنگاران، در واکنش به حملات اخیر میان آمریکا و جمهوری اسلامی گفت چین «عمیقا نگران» این تنش‌ها است.
+
+او از طرف‌های درگیر خواست «خونسردی خود را حفظ کنند، خویشتنداری نشان دهند، از تشدید تنش‌ها خودداری و اقدام‌های ملموسی برای کاهش تنش انجام دهند.»
+
+سخنگوی وزارت خارجه چین همچنین از آمریکا و جمهوری اسلامی خواست از ابزارهای سیاسی و دیپلماتیک برای «دستیابی سریع به آتش‌بسی جامع و پایدار» استفاده کنند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14270
+
+<div align="center">
+  <img src="telegram/content/WithYashar_14270_1781078016.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تصویری از کشف تجهیزات جاسوسی برای پشتیبانی هدایت جنگنده‌ها در لواسان
+@withyashar
+</div>
+
+## mwarmonitor — post 10594
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💥صدای انفجار در اطراف جزیره قشم شنیده شده است.
+</div>
+
+## pm_afshaa — post 93281
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+منابع داخلی از انفجار در قشم خبر دادن
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## kianmeli1 — post 87842
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87842_1781078018.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴تصویری که فاکس نیوز از آخرین آرایش سنگین‌ ناوگان‌ دریایی آمریکا در منطقه برای "محاصره دریایی ایران" منتشر کرده است!
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87841
+
+<div align="center">
+  <a href="telegram/content/kianmeli1_87841_1781078018.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کلیپی از شلیک ۱۱ موشک به سمت پایگاه های امریکایی که امروز صبح توسط سپاه صورت پذیرفت
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 341453
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341453_1781078021.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لین جیان، سخنگوی وزارت خارجه چین، چهارشنبه ۲۰ خرداد در نشست خبری با خبرنگاران، در واکنش به حملات اخیر میان آمریکا و جمهوری اسلامی گفت چین «عمیقا نگران» این تنش‌ها است.
+
+او از طرف‌های درگیر خواست «خونسردی خود را حفظ کنند، خویشتنداری نشان دهند، از تشدید تنش‌ها خودداری و اقدام‌های ملموسی برای کاهش تنش انجام دهند.»
+
+سخنگوی وزارت خارجه چین همچنین از آمریکا و جمهوری اسلامی خواست از ابزارهای سیاسی و دیپلماتیک برای «دستیابی سریع به آتش‌بسی جامع و پایدار» استفاده کنند.
+https://iranintl.com/202606101330
+</div>
+
+## Persian_Trend_Official — post 16431
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16431_1781078021.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بد شد که !!!!
+چطور با نرخ 100 درصد اشتباه میکنی 😄
+</div>
+
+## Hranews — post 113509
+
+<div align="center">
+  <img src="telegram/content/Hranews_113509_1781078024.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پویا اسماعیلی در نوشهر بازداشت شد
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– پویا اسماعیلی، شهروند ساکن نوشهر، توسط نیروهای امنیتی در این شهرستان بازداشت و به مکان نامعلومی منتقل شد.
+
+به گزارش خبرگزاری هرانا، ارگان خبری مجموعه فعالان حقوق بشر در ایران، پویا اسماعیلی بازداشت شد.
+
+بر اساس اطلاعات دریافتی هرانا، بازداشت این شهروند روز سه شنبه ۱۹ خردادماه، توسط نیروهای امنیتی در نوشهر صورت گرفته است.
+
+ادامه مطلب
+
+#پویا_اسماعیلی
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## alonews — post 126727
+
+<div align="center">
+  <a href="telegram/content/alonews_126727_1781078024.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈دقایقی پیش منابع محلی از شنیده شدن صدای یک انفجار در محدوده شهرستان قشم خبر داده‌اند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126726
+
+<div align="center">
+  <a href="telegram/content/alonews_126726_1781078025.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈روستای بیت یاحون در جبهه بنت جبیل، قبل و بعد از حملات اسرائیل
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126725
+
+<div align="center">
+  <a href="telegram/content/alonews_126725_1781078025.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزارت دفاع کویت نیز تایید کرد که کویت هدف حمله هوایی ایران قرار گرفته است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126724
+
+<div align="center">
+  <a href="telegram/content/alonews_126724_1781078026.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈چین: از همه طرف‌ها می‌خواهیم که به تشدید تنش‌ها در خاورمیانه پایان دهند.
+
+
+🔴ما نسبت به تحولات جنگ در خاورمیانه نگران هستیم و خواستار توقف تشدید تنش‌ها هستیم.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126723
+
+<div align="center">
+  <a href="telegram/content/alonews_126723_1781078026.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈آخرین قیمت نفت ۹۱.۳۴ دلار
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/20 11:13
 ---
 

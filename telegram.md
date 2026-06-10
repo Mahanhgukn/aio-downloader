@@ -7,6 +7,460 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/21 01:52
+---
+
+## VahidOOnLine — post 244797
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244797_1781130154.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری دانشجو اعلام کرد منابع خبری از هدف قرار گرفتن یک کارخانه پتروشیمی متعلق به مجتمع گاز پارس جنوبی در عسلویه خبر دادند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14435
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+المیادین: منطقه تنگه هرمز شاهد درگیری شدیده.
+@withyashar
+</div>
+
+## WithYashar — post 14434
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کان عبری: اسرائیل نقشی در حملات امشب نداشته است
+@withyashar
+</div>
+
+## WithYashar — post 14433
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیشروی ناو های آمریکایی اکنون در فاصله 150 تا 250 کیلومتری از ساحل چابهار هستند.🚨🚨
+@withyashar
+</div>
+
+## WithYashar — post 14432
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پرواز سوخت رسان های بیشتر از بن گوریون رصد شد. سوخت رسان اسرائیل به پرواز در آمد.
+@withyashar
+</div>
+
+## WithYashar — post 14431
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آکسیوس:مذاکرات ایران و آمریکا فروپاشید
+@withyashar
+</div>
+
+## WithYashar — post 14430
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انفجار ‌جدید قشم
+@withyashar
+</div>
+
+## mwarmonitor — post 10676
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸مسئول امنیتی اسرائیلی: اسرائیل تاکنون در حملات علیه ایران مشارکت نداشته است. شبکه کان اسرائیل
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10675
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴چشم‌انداز دستیابی به یک پیشرفت دیپلماتیک میان ایران و آمریکا پس از آن‌که یک هیئت میانجی قطری بدون هیچ پیشرفتی تهران را ترک کرد، کمرنگ شده است — نیویورک تایمز
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 93471
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93471_1781130155.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴المیادین: منطقه تنگه هرمز شاهد درگیری شدیده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93470
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93470_1781130156.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کان نیوز عبری: اسرائیل نقشی در حملات امشب نداشته. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93469
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93469_1781130157.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کان نیوز عبری: اسرائیل نقشی در حملات امشب نداشته.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93468
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93468_1781130158.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نیویورک تایمز:
+چشم‌انداز پیشرفت دیپلماتیک در مذاکرات آمریکا و ایران زمانی تیره‌تر شد که یک هیئت میانجی‌گر قطری عصر چهارشنبه بدون هیچ پیشرفتی در مذاکرات، تهران رو ترک کرد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93467
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93467_1781130158.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فارس: حمله به کشتی‌های آمریکایی در تنگه هرمز
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93466
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+از عربستان و امارات چندین سوخت رسان بلند شدن
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93465
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نه ببین داداش جام جهانی حمله نمیکنن عمرااااا
+</div>
+
+## pm_afshaa — post 93464
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انفجار در قشم
+</div>
+
+## pm_afshaa — post 93463
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_93463_1781130159.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تصویر منتسب به انفجار در سیریک :
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## VahidOnline — post 76169
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بعضی کانال‌های خبری به نقل از تسنیم نوشته بودند:
+منابع خبری از هدف قرار گرفتن یک کارخانه پتروشیمی متعلق به مجتمع گاز پارس جنوبی در عسلویه خبر دادند
+
+خبرگزاری تسنیم وابسته به سپاه در پستی نوشت:
+انتشار خبر جعلی در کانالهای فیک‌نیوز به نقل از تسنیم
+
+برخی فیک‌نیوزها از دقایقی پیش به صورت هماهنگ خبری با عنوان "هم اکنون یک کارخانه پتروشیمی متعلق به مجتمع گاز پارس جنوبی در عسلویه بمباران شد" به نقل از تسنیم نقل می‌کنند.
+
+این در حالی است که امشب چنین خبری تا این لحظه بر روی هیچکدام از خروجی‌های تسنیم قرار نگرفته است و چنین خبری تاکنون صحت ندارد.
+
+به هرحال اون خبر رو خبرگزاری دانشجو وابسته به بسیج هم منتشر کرده و الان به نقل از اون داره پخش میشه:
+هم اکنون یک کارخانه پتروشیمی متعلق به مجتمع گاز پارس جنوبی در عسلویه بمباران شد
+
+📡 @VahidOnline
+</div>
+
+## Shin_Persian — post 6897
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Wed, 10 Jun 2026 22:19:53 UTC
+
+Wrong, this image is not from Sirik, Iran. It's from Aden, Yemen.
+
+ترجمه خودکار فارسی
+
+اشتباه است، این تصویر مربوط به سیریک ایران نیست. این تصویر متعلق به عدن، یمن است.
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 220303
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220303_1781130160.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️خبرگزاری جمهوری اسلامی می گوید صدای چند انفجار در حوالی فرودگاه و پایگاه هوایی بندرعباس شنیده شد. سنتکام ساعتی پیش از آغاز دور دیگری از حملات به مواضع جمهوری اسلامی خبر داد.
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 16599
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16599_1781130160.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش نیویورک تایمز: «هیئت قطری بدون پیشرفت ایران را ترک کرد، شانس موفقیت در مذاکرات رو به کاهش است»
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16598
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16598_1781130161.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سیریک
+</div>
+
+## Persian_Trend_Official — post 16597
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش‌هایی از پرتاب موشک‌های کروز ضد کشتی از ایران، هدف قرار دادن ناوهای نیروی دریایی آمریکا در خلیج عمان.
+</div>
+
+## RadioFarda — post 158160
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_158160_1781130161.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸خبرگزاری جمهوری اسلامی، ایرنا از وقوع چندین انفجار در اطراف فرودگاه و پایگاه هوایی بندرعباس خبر می‌دهد.
+
+🔸این خبرگزاری اصابت «پرتابه‌های دشمن به نقطه‌ای در سیریک» را هم تأیید کرده است. برخی منابع محلی می‌گویند پایگاه نیروی دریایی جمهوری اسلامی در این شهر بندری هدف قرار گرفته است.
+
+🔸از سوی دیگر برخی خبرگزاری‌ها هم از وقوع درگیری‌هایی «در دریا» بین نیروهای ایران و آمریکا خبر می‌دهند.
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 22207
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 صداوسیما : پدافند عسلویه فعال شد. @IranianMinds
+</div>
+
+## IranianMinds — post 22206
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 صداوسیما :
+
+پدافند عسلویه فعال شد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22205
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 مقامات امنیتی اسرائیل می گویند اسرائیل در این مرحله در حملات آمریکا به ایران دخالتی ندارد.
+
+منبع:کان نیوز
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22204
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 نیویورک‌ تایمز :
+
+راه دیپلماسی میان ایران‌ و آمریکا تیره و تار شده ، امروز هم یک‌ هیئت قطری بدون هیچ‌ پیشرفتی برای میانجیگری برگشتن خونشون
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22203
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 خبرگزاری فارس :
+
+بمولا یه کشتی آمریکایی زدیم
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22202
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فوری
+
+روزنامه یدیعوت آحرونوت :
+
+یک ناو جنگی آمریکایی احتمالاً در تنگه هرمز مورد اصابت قرار گرفته است.
+
+این اطلاعات بسیار تأییدنشده است.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22201
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دو تانکر سوخت رسان آمریکایی با فرستنده روشن حدود یک ساعته اینطوری دارن تو خلیج فارس دور خودشون میچرخن و سوخت جنگنده هارو‌ راحت تامین میکنن برای حمله :)) @IranianMinds
+</div>
+
+## IranianMinds — post 22200
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 سیتنا :
+
+خیالتون راحت اتصال اینترنت پایداره و سرعتش خوبه نتتون قطع نمیشه.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 283368
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️گزارش های ضد و نقیض از «هدف قرار گرفتن» یک مجتمع پتروشیمی در عسلویه
+
+برخی منابع خبری از جمله خبرگزاری دانشجو وابسته به بسیج از «هدف قرار گرفتن یک کارخانه پتروشیمی متعلق به مجتمع گاز پارس جنوبی در عسلویه» گزارش داده است اما خبرگزاری تسنیم - نزدیک به سپاه پاسداران - آن را تکذیب کرده و انتساب چنین گزارشی به این خبرگزاری را رد کرده است.
+
+ساعتی پیش هم خبرگزاری‌های رسمی ایران از شنیدن صدای انفجار در مناطقی چون میناب، غرب بندرعباس، سیریک، جزیره قشم و همچنین در گزارشی غیررسمی از حوالی فرودگاه مهرآباد خبر داده بودند.
+
+تحولات را در سایت بی‌بی‌سی فارسی دنبال کنید.⬇️
+
+https://bbc.in/4fIJPot
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 391642
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391642_1781130162.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏الجزیره نوشت اسرائیل هم در حملات امشب به جمهوری اسلامی مشارکت دارد.
+
+صداوسیما اعلام کرد به جزیره قشم هم حمله شده است.
+
+برخی رسانه‌های آمریکایی نوشته‌اند که عملیات آمریکا «چند ساعت» طول می‌کشد و شامل «بیش از ۱۰۰ هدف» خواهد بود.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391641
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 آکسیوس:
+
+مذاکرات ایران و آمریکا فروپاشید و تمام شد.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391640
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سه ماه تحلیل گرای نظامی میگفتن باید تا جام جهانی تکلیف روشن شه. یارو حمله رو گذاشت برا شب افتتاحیه=))))
+</div>
+
+## alonews — post 127009
+
+<div align="center">
+  <a href="telegram/content/alonews_127009_1781130163.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈به گزارش آکسیوس، مذاکرات ایران و آمریکا به طور کامل فرو پاشید
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127008
+
+<div align="center">
+  <a href="telegram/content/alonews_127008_1781130163.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نیویورک تایمز:
+چشم‌انداز پیشرفت دیپلماتیک در مذاکرات آمریکا و ایران زمانی تیره‌تر شد که یک هیئت میانجی‌گر قطری عصر چهارشنبه بدون هیچ پیشرفتی در مذاکرات، تهران را ترک کرد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127007
+
+<div align="center">
+  <a href="telegram/content/alonews_127007_1781130163.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈گزارشات از تحرکات شدید در اسرائیل
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/21 01:42
 ---
 

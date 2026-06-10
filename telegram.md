@@ -7,6 +7,149 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/20 11:53
+---
+
+## WithYashar — post 14276
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال ۱۴ اسرائیل فاش کرد:
+
+طبق جزئیات فاش شده از مذاکرات، دولت ترامپ در حال انجام مذاکرات محرمانه پیشرفته با تهران در مورد یک توافق هسته‌ای جدید است که برای متوقف کردن برنامه تسلیحاتی ایران به مدت تقریباً ۱۵ سال طراحی شده است.
+@withyashar
+</div>
+
+## WithYashar — post 14275
+
+<div align="center">
+  <a href="telegram/content/WithYashar_14275_1781079795.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پاکستان تصاویر هدف قرار دادن اردوگاه‌های تحریک طالبان پاکستان در کنر، پکتیکا و خوست در افغانستان را منتشر کرد.
+
+این هدف‌گیری به وضوح نشان می‌دهد که این سازه توسط بمب‌های هدایت‌شونده لیزری مورد اصابت قرار گرفته است.
+@withyashar
+</div>
+
+## kianmeli1 — post 87845
+
+<div align="center">
+  <a href="telegram/content/kianmeli1_87845_1781079796.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیویی که ترامپ پست کرده: اگر یک آمریکایی را بکشید ما با پاسخ متناسب برنمی‌گردیم با فاجعه کامل برمی‌گردیم
+
+این صحنه از قسمت «پاسخ متناسب» است. در داستان سریال، یک هواپیمای آمریکایی در مأموریتی پزشکی هدف قرار گرفته و شماری از آمریکایی‌ها، از جمله پزشک شخصی رئیس‌جمهور، کشته شده‌اند. در اتاق وضعیت کاخ سفید، فرماندهان ارتش گزینه‌هایی برای یک حمله محدود و «متناسب» ارائه می‌کنند؛ اما رئیس‌جمهور خیالی، جِد بارتلت، با خشم می‌پرسد فایده چنین پاسخی چیست؟ او می‌گوید اگر دشمن می‌داند آمریکا همیشه محدود و قابل‌پیش‌بینی پاسخ می‌دهد، پس این پاسخ دیگر بازدارنده نیست.
+
+اهمیت انتخاب این سکانس در این است که ترامپ پس از حمله‌ای که رسماً «متناسب» توصیف شده، پیامی دوگانه می‌فرستد: از یک طرف می‌گوید پاسخ فعلی کنترل‌شده و محدود بوده؛ از طرف دیگر هشدار می‌دهد که محدود بودن این پاسخ نباید به‌عنوان ضعف تعبیر شود. پایان سکانس با تهدیدی روشن همراه است: اگر آمریکایی کشته شود، پاسخ بعدی می‌تواند از چارچوب «متناسب» خارج شود و به «فاجعه کامل» تبدیل شود.
+https://t.me/kianmeli1
+</div>
+
+## FarsiVOA — post 220225
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کامبک - ویژه برنامه‌ی جام جهانی ۲۰۲۶ از پنجشنبه ۲۱ خرداد هر شب ساعت ۱۱ به وقت ایران تا پایان جام جهانی با اجرای آرش آرا و نجمه مرادی مهمان خانه های شماست.
+جهت کسب اطلاعات بیشتر و اخبار جام جهانی به صفحه ویژه جام‌جهانی در وبسایت صدای آمریکا مراجعه فرمایید.
+</div>
+
+## FarsiVOA — post 220224
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Farsi VOA pinned a photo
+</div>
+
+## FarsiVOA — post 220223
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220223_1781079798.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📸اینستاگرام صدای آمریکا را هم اکنون فالو کنید تا از آخرین خبرها مطلع بمانید:
+https://www.instagram.com/voafarsi/
+
+📡همچنین جهت اطلاع از بروزترین فرکانسهای ماهواره‌ای صدای آمریکا به لینک زیر مراجعت فرمایید:
+https://ir.voanews.com/satellite
+
+این پست را با دوستانتان به اشتراک بگذارید
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220222
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220222_1781079798.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+منابع خبری لبنانی گزارش داده‌اند که در چهار حمله جداگانه ارتش اسرائیل در جنوب لبنان، دست‌کم هفت نفر کشته شده‌اند.
+
+بر اساس این گزارش‌ها، دو نفر در حمله به روستای صادقین، دو نفر در حمله به یک موتورسیکلت در روستای تیردبا، یک نفر در حمله به موتورسیکلت دیگری در روستای الدویر و دو نفر نیز در حمله به روستای دونین کشته شده‌اند.
+
+این حملات در حالی انجام شده که ارتش اسرائیل امروز هشدار فوری برای تخلیه برخی مناطق جنوب لبنان صادر کرده بود.
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 16434
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16434_1781079799.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ونس: توافق با ایران می‌تواند ظرف یک هفته یا چندین ماه دیگر بدست آید.
+
+جی دی ونس، معاون رئیس جمهور آمریکا مدعی شد که دولت این کشور به دستیابی به توافق با ایران بسیار نزدیک است، اما این اتفاق می‌تواند ظرف یک هفته یا چندین ماه دیگر رخ دهد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16433
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16433_1781079800.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سپاه پاسداران ویدیویی از لحظه رهگیری و انهدام پهپاد MQ-9 امریکایی در نزدیکی جم منتشر کرد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## alonews — post 126731
+
+<div align="center">
+  <a href="telegram/content/alonews_126731_1781079801.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وضعیت خاورمیانه واقعا عجیبه
+‼️
+
+
+🔴افغانستان و پاکستان که دیشب باهم جنگ داشتن، امروز بازی دوستانه دارن!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126730
+
+<div align="center">
+  <a href="telegram/content/alonews_126730_1781079802.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تصویر لحظه انهدام پهپاد MQ9 آمریکا
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/20 11:42
 ---
 

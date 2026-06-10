@@ -7,6 +7,112 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/20 06:03
+---
+
+## VahidOOnLine — post 244619
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244619_1781058797.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سپاه از حمله به ۲۱ هدف در پایگاه‌های آمریکا در منطقه خبر داد و گفت نیروی هوافضای سپاه با موشک‌های سوخت جامد دوربرد، چهار «هدف مهم»، از جمله آشیانه‌های جنگنده‌های اف-۳۵ در پایگاه هوایی و مرکز فرماندهی و کنترل ارتش آمریکا در الازرق اردن را هدف قرار داد و منهدم کرد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244618
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️همزمان با حملات روز چهارشنبه آمریکا به جنوب ایران، بخش خبری ساعت ۳ بامداد صداوسیما، در حین اعلام یک خبر اقتصادی، تصاویر شبیه‌سازی شده از انفجار هسته‌ای در وسط یک شهر را پخش کرد و پس از آن عبارت «تسلیت بندرعباس» زیرنویس شد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342788
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342788_1781058798.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Austin Metcalf’s family, including his twin brother and parents, stand with the DA following the murder conviction of Karmelo Anthony.
+
+A Texas jury found Anthony guilty of murder in the fatal stabbing of the student-athlete during a high school track meet.
+
+Anthony was sentenced to 35 years in prison.
+</div>
+
+## pm_afshaa — post 93263
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93263_1781058800.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبرنگار وای نت:
+در چند ساعت اخیر در رویدادی جالب سامانه‌های پدافندی آمریکا تمامی موشک‌های شلیک شده به 3 کشور مختلف رو رهگیری کردن. صفر اصابت و شاهکار پاتریوت!
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93262
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93262_1781058801.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ارتش کویت: در حال مقابله با حملات موشکی و پهپادی ایران هستیم. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93261
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اینکه نفت جهانی بالا نرفت و رو همون کانال 90 دلار موند عجیبه
+</div>
+
+## VahidOnline — post 76130
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76130_1781058801.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش کویت گفت دقیقه‌ای پیش اعلام کرد که سامانه‌های پدافند هوایی آن در حال حاضر مشغول مقابله با «اهداف هوایی متخاصم» هستند.
+@VahidHeadline
+پیشتر سپاه اعلام کرد که به پایگاه آمریکا در اردن حمله کرده.
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 341433
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341433_1781058802.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سپاه از حمله به ۲۱ هدف در پایگاه‌های آمریکا در منطقه خبر داد و گفت نیروی هوافضای سپاه با موشک‌های سوخت جامد دوربرد، چهار «هدف مهم»، از جمله آشیانه‌های جنگنده‌های اف-۳۵ در پایگاه هوایی و مرکز فرماندهی و کنترل ارتش آمریکا در الازرق اردن را هدف قرار داد و منهدم کرد.
+https://iranintl.com/202606109827
+</div>
+
+## FarsiVOA — post 220210
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220210_1781058802.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ارتش کویت دقیقه‌ای پیش اعلام کرد که سامانه‌های پدافند هوایی آن در حال حاضر مشغول مقابله با «اهداف هوایی متخاصم» هستند.
+@FarsiVOA
+</div>
+
+---
 📅 بروزرسانی: 1405/03/20 05:53
 ---
 

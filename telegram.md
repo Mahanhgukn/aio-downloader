@@ -7,6 +7,147 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/20 12:04
+---
+
+## VahidOOnLine — post 244654
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244654_1781080457.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسماعیل بقایی، سخنگوی وزارت خارجه جمهوری اسلامی، با اشاره به حملات شامگاه سه‌شنبه آمریکا گفت: «پیام‌های متناقض، تغییر مکرر مواضع و مطالبات و همچنین نقض‌های پیاپی آتش‌بس از سوی آمریکا به روند دیپلماتیک آسیب می‌زند.»
+
+او افزود: «هر روند دیپلماتیکی از توسل به زور و اقدامات غیرقانونی متضرر می‌شود.» بقایی تاکید کرد روند دیپلماتیک در خلأ شکل نمی‌گیرد و برای پیشبرد هر مذاکره‌ای، وجود حداقلی از فضای مناسب ضروری است.
+
+سخنگوی وزارت خارجه جمهوری اسلامی همچنین گفت اسرائیل با «نقض‌های مکرر آتش‌بس» در لبنان به این روند لطمه می‌زند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## mwarmonitor — post 10595
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_10595_1781080458.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 تجهیزات ارتباطی کشف شده منطقه لواسان در شمال تهران.
+
+@mwarmonitor
+</div>
+
+## kianmeli1 — post 87847
+
+<div align="center">
+  <a href="telegram/content/kianmeli1_87847_1781080459.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴بقایی
+
+باتوجه به قضایای دیشب باید وضعیت مذاکره را بررسی کنیم
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87846
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏🔴امارات متحده عربی حملات جمهوری اسلامی به اردن، بحرین و کویت را نقض آشکار حاکمیت این کشورها خواند و با آنان اعلام همبستگی کرد
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 341457
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341457_1781080460.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسماعیل بقایی، سخنگوی وزارت خارجه جمهوری اسلامی، با اشاره به حملات شامگاه سه‌شنبه آمریکا گفت: «پیام‌های متناقض، تغییر مکرر مواضع و مطالبات و همچنین نقض‌های پیاپی آتش‌بس از سوی آمریکا به روند دیپلماتیک آسیب می‌زند.»
+
+او افزود: «هر روند دیپلماتیکی از توسل به زور و اقدامات غیرقانونی متضرر می‌شود.» بقایی تاکید کرد روند دیپلماتیک در خلأ شکل نمی‌گیرد و برای پیشبرد هر مذاکره‌ای، وجود حداقلی از فضای مناسب ضروری است.
+
+سخنگوی وزارت خارجه جمهوری اسلامی همچنین گفت اسرائیل با «نقض‌های مکرر آتش‌بس» در لبنان به این روند لطمه می‌زند.
+https://iranintl.com/202606101258
+</div>
+
+## Persian_Trend_Official — post 16441
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16441_1781080461.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+الاخبار: گروه‌های فلسطینی در قاهره با نقشه راه 15 ماده‌ای ارائه شده توسط نیکولای ملادنوف، فرستاده غزه، به یک فرمول نهایی قابل قبول در مورد سلاح‌های مقاومت دست یافته‌اند.
+
+این گروه‌ها از تحویل سلاح به اسرائیل خودداری کردند و در عوض موافقت کردند که آنها را تحت نظارت یک نهاد فلسطینی با نظارت اعراب و بین‌المللی قرار دهند. خلع سلاح به صورت مرحله‌ای و مستقیماً به خروج اسرائیل از غزه یک فرآیند گام به گام مرتبط خواهد بود.
+
+هر مرحله از تحویل سلاح به عقب‌نشینی اسرائیل از مناطق خط زرد، ورود یک کمیته اداری به غزه و جریان کمک‌ها و مصالح ساختمانی مرتبط خواهد بود.
+
+با این حال، حماس هنوز تأیید نهایی را نداده است و این توافق به نخست وزیر اسرائیل، نتانیاهو، ارائه نشده است.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16435
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16435_1781080462.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تصاویری از حمله ارتش امریکا به مخازن آب آشامیدنی بخش بمانی شهرستان سیریک هرمزگان
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## BBCPersian — post 283332
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌🔻گزارش‌ رسانه‌های ایران از شنیده شدن صدای انفجار در قشم
+
+🔻خبرگزاری ایران به نقل از منابع محلی، از شنیده شدن صدای یک انفجار در محدوده شهرستان قشم خبر می‌دهند.
+
+خبرگزاری مهر نوشته است: «هرچند ماهیت دقیق این صداها هنوز مشخص نیست، اما با توجه به حجم صدا ممکن است منبع انفجار فاصله نسبتا زیادی با شهر قشم داشته است و یا مربوط یه تحرکاتی در تنگه هرمز باشد.»
+
+جزئیات بیشتری در این باره منتشر نشده است.
+
+بامداد چهارشنبه آمریکا در پاسخ به ساقط شدن یک بالگرد خود در دریای عمان چندین حمله هوایی به نقاطی در جنوب ایران انجام داد، قرارگاه خاتم الانبیا هم از حملات متقابل سپاه پاسداران و ارتش ایران به پایگاه‌های آمریکا در کشورهای بحرین، کویت و اردن خبر داد.
+
+https://bbc.in/4vECISn
+@BBCPersian
+</div>
+
+## alonews — post 126733
+
+<div align="center">
+  <a href="telegram/content/alonews_126733_1781080464.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈در حملات هوایی دیشب پاکستان به افغانستان، ۱۱ کودک کشته شدند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126732
+
+<div align="center">
+  <a href="telegram/content/alonews_126732_1781080464.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈قیمت نفت به ۹۱ دلار رسید
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/20 11:53
 ---
 

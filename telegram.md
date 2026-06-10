@@ -7,6 +7,137 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/20 09:03
+---
+
+## IranIntlTV — post 341441
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341441_1781069585.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سنتکام اعلام کرد آمریکا حملات دفاعی علیه جمهوری اسلامی را پایان داد و یک مقام ارشد آمریکایی به فاکس‌نیوز گفت ۲۰ هدف در داخل ایران هدف قرار گرفت.
+
+رییس مجلس نمایندگان آمریکا نیز گفت این اقدام یک حمله محدود و متناسب با شرایط بود
+
+گفت‌وگو با اردوان روزبه، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## Persian_Trend_Official — post 16425
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️🇮🇱🇱🇧 ارتش دفاعی اسرائیل اعلام کرده است که چندین سایت زیرساخت حزب‌الله را در جنوب لبنان هدف قرار داده است، از جمله تأسیساتی نزدیک صور که گفته می‌شود برای حمایت از حملات علیه اسرائیل و نیروهای اسرائیلی استفاده می‌شود.
+
+اسرائیل گفت که این حملات همچنین لانچرهای آماده به کار، شبه‌نظامیان فعال در نزدیکی نیروهای اسرائیلی و یک سایت که گفته می‌شود برای پرتاب پهپادهای انفجاری استفاده می‌شود را هدف قرار داده است.
+
+
+👺Phantom
+
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16424
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16424_1781069586.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رد موشک‌ های ایران در آسمان اَمّان، پایتخت اردن
+
+👺Phantom
+
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16423
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16423_1781069587.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚀اصابت موشک‌های سپاه به مقر ناوگان پنجم نیروی‌دریایی آمریکا در بحرین
+
+
+👺Phantom
+
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16422
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16422_1781069588.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در حمله شب گذشته آمریکا، زیرساخت توزیع آب در شهرستان سیریک هرمزگان آسیب دیده:
+
+شرکت آب و فاضلاب استان هرمزگان، از حمله‌ای موشکی ارتش آمریکا به زیرساخت‌های  توزیع آب در شهرستان سیریک خبر داد.
+در حال حاضر روند توزیع آب در تمامی روستاهای بخش بمانی و شهر کوهستک متوقف شده است و تیم‌های عملیاتی و مدیریت بحران آبفا در تلاش هستند تا اقدامات جایگزین برای تامین آب پایدار انجام دهند.
+
+👺Phantom
+
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## alonews — post 126697
+
+<div align="center">
+  <a href="telegram/content/alonews_126697_1781069589.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈زمین‌لرزه‌ای به بزرگی ۳.۲ ریشتر دریای خزر حوالی شهرستان آستارا در استان گیلان را لرزاند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126696
+
+<div align="center">
+  <a href="telegram/content/alonews_126696_1781069589.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزیر علوم: سهمیه جنگ ۴۰روزه در کنکور ۱۴۰۵ قطعی شد!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126695
+
+<div align="center">
+  <a href="telegram/content/alonews_126695_1781069589.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈گفتگوی تلفنی عراقچی با وزرای امور خارجه ترکیه و عربستان
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126694
+
+<div align="center">
+  <a href="telegram/content/alonews_126694_1781069590.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈طالبان افغانستان: در پی حملات هوایی ارتش پاکستان به سه ولایت افغانستان، دست‌کم ۱۳ نفر کشته و ۱۴ نفر زخمی شده‌اند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/20 08:53
 ---
 

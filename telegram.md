@@ -7,6 +7,179 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/20 05:12
+---
+
+## VahidOOnLine — post 244613
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_244613_1781055778.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های اجتماعی وابسته به جمهوری اسلامی ویدیویی منتشر کرده‌اند که نشان می‌دهد یک پهپاد جمهوری اسلامی از فراز آسمان عراق به‌سوی هدفی در حال پرواز است.
+فرماندهی مرکزی ایالات متحده، سنتکام، ساعاتی پیش با انتشار اطلاعیه‌ای در شبکه اجتماعی ایکس اعلام کرد در پاسخ به سرنگونی یک هلیکوپتر آپاچی آمریکا، حملاتی را در دفاع از خود علیه ایران آغاز کرده است.
+سنتکام تاکید کرد که این عملیات، پاسخی متناسب به تجاوز غیرموجه ایران است.
+رسانه‌های داخلی نیز از حملات به قشم، سیریک، جاسک، کوه مبارکه و بندرعباس خبر دادند.
+گزارش‌های منتشرشده حاکی است سپاه پاسداران حملات موشکی و پهپادی را در منطقه آغاز کرده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## pm_afshaa — post 93248
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93248_1781055779.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴تسنیم: انفجارها در بحرین قطع نمیشه و تا الان صدای 16 انفجار شنیده شده. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93247
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93247_1781055780.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴تسنیم: انفجارها در بحرین قطع نمیشه و تا الان صدای 16 انفجار شنیده شده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93246
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93246_1781055780.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴برخی منابع خبر دادن که تمامی موشک‌ها رهگیری شدن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93245
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_93245_1781055781.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پدافند بحرین فعال برای رهگیری موشک
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93244
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پدافند بحرین فعال شد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93243
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فاکس نیوز به نقل از یک مقام ارشد آمریکایی: ارتش ایالات متحده آماده واکنش در صورت تصمیم ایران به حمله متقابل است
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## Shin_Persian — post 6839
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Wed, 10 Jun 2026 01:33:58 UTC
+
+Interceptions over #Bahrain 🇧🇭
+Cameraperson tells me all of the UAVs were intercepted.
+
+ترجمه خودکار فارسی
+
+رهگیری‌ها بر فراز #Bahrain 🇧🇭
+فیلمبردار به من می‌گوید تمام پهپادها رهگیری شدند.
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 220204
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️احضار حدود ۳۰ سینماگر به دادسرای فرهنگ و رسانه به دلیل اعتراض به کشتار و سرکوب معترضان
+@FarsiVOA
+</div>
+
+## BBCPersian — post 283301
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻 آژیرهای خطر در بحرین به صدا درآمدند
+
+آژیر خطر در بحرین به صدا در آمده است.
+
+وزارت کشور بحرین از مردم خواسته تا «آرامش خود را حفظ کرده و به نزدیکترین مکان امن بروند».
+
+پیش از این سپاه پاسداران اعلام کرده بود که به پایگاه نیروی دریایی آمریکا در بحرین حمله کرده است.
+
+https://bbc.in/4aj1hfy
+@BBCPersian
+</div>
+
+## BBCPersian — post 283300
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻 سپاه پاسداران می‌گوید یک پهپاد آمریکا را در شمال خلیج فارس سرنگون کرده است
+
+سپاه پاسداران گفته «در جریان درگیری‌های هوایی جاری در تنگه هرمز یک فروند پهپاد ام‌کیو۹» را سرنگون کرده است.
+
+به گفته سپاه این پهپاد «از آسمان شمال خلیج فارس قصد نزدیک شدن و مداخله در صحنه نبرد را داشت.»
+
+رسانه‌های ایران به نقل سپاه نوشته است که این پهپاد «در آسمان شهرستان جم استان بوشهر مورد اصابت» قرار گرفته و «منهدم» شده است.
+
+سنتکام هنوز واکنشی به این ادعا نداده است.
+
+https://bbc.in/4ojSP5p
+@BBCPersian
+</div>
+
+## BBCPersian — post 283299
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻 مدیرعامل آب هرمزگان: در پی حملات آمریکا آب بخش بمانی و شهر کوهستک قطع شده است
+
+مدیرعامل شرکت آب و فاضلاب استان هرمزگان گفته است در پی حملات بامداد امروز آمریکا «زیرساخت‌های حیاتی توزیع آب در شهرستان سیریک» تخریب شده است.
+
+عبدالحمید حمزه پور گفته در این حملات «دو مخزن استراتژیک آب در بخش بمانی هدف قرار گرفته و به طور کامل تخریب شدند ... که نقش کلیدی در تأمین آب شرب بخش بمانی و شهر کوهستک ایفا می‌کردند.»
+
+به گفته او «در حال حاضر روند توزیع آب در تمامی روستاهای بخش بمانی و شهر کوهستک متوقف شده است.»
+
+https://bbc.in/4ofYgCm
+@BBCPersian
+</div>
+
+---
 📅 بروزرسانی: 1405/03/20 05:03
 ---
 

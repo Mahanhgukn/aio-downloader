@@ -7,6 +7,129 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/20 23:13
+---
+
+## VahidOOnLine — post 244771
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244771_1781120617.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️وزارت امور خارجه آمریکا اعلام کرد که مارکو روبیو، وزیر امور خارجه این کشور برای شرکت در مراسم افتتاحیه بازی‌های جام جهانی ۲۰۲۶ در بخش ایالات متحده و همچنین تماشای نخستین مسابقه تیم ملی آمریکا در برابر پاراگوئه، روز جمعه به لس‌آنجلس سفر خواهد کرد.
+
+بر اساس این بیانیه، روبیو سرپرستی هیئت آمریکایی را در این مراسم افتتاحیه بر عهده خواهد داشت و شان دافی و مارک‌وین مولین، وزرای حمل‌ونقل و امنیت میهن، او را در این سفر همراهی خواهند کرد.
+
+روبیو علاوه بر حضور در رویدادهای جام جهانی، در لس‌آنجلس با سانتیاگو پنیا، رئیس‌جمهوری پاراگوئه نیز دیدار و گفتگو خواهد کرد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14371
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال ۱۲ اسرائیل:
+طی ساعات آتی احتمال شعله‌ور شون جنگ بزرگ وجود دارد
+@withyashar
+</div>
+
+## pm_afshaa — post 93366
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93366_1781120617.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رضایی، سخنگوی کمیسیون امنیت ملی:
+تو جنگ چهل‌روزه وسعت آب‌های سرزمینی ایران افزایش پیدا کرد، تو جنگ بعدی شاید وسعت خاک ایران افزایش پیدا کنه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93365
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93365_1781120618.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کانال 12 اسرائیل: طی ساعات آتی احتمال شعله‌ور شون جنگ بزرگ وجود داره.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 341573
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341573_1781120618.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزینه‌های جدید حمله به ایران روی میز ترامپ
+
+«چشم‌انداز با مهدی مهدوی‌آزاد»
+
+تماشای نسخه کامل برنامه در یوتیوب:
+
+https://youtu.be/GzU-k-Yl6X8
+@iranintltv
+</div>
+
+## IranIntlTV — post 341572
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341572_1781120620.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لرد موریس گلاسمن، عضو مجلس اعیان بریتانیا، درباره ارائه لایحه جدید «امنیت ملی» در پارلمان بریتانیا گفت: «دولت باید به ما پاسخ دهد چرا سپاه پاسداران را در فهرست گروه‌های تروریستی قرار نمی‌دهد و چرا فعالانه از مردم ایران در مبارزه آن‌ها علیه جمهوری اسلامی حمایت نمی‌کند.»
+@iranintltv
+</div>
+
+## Persian_Trend_Official — post 16522
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16522_1781120622.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+طبق تصاویر ماهواره ای یک ناوشکن ارلی برک نیروی دریایی ایالات متحده در فاصله 140 کیلومتری سواحل چابهار مستقر شده است.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## BBCPersian — post 283363
+
+<div align="center">
+  <a href="telegram/content/BBCPersian_283363_1781120622.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻آخرین خبرهای مهم روز چهارشنبه ۲۰ خرداد ماه ۱۴۰۵ از تلویزیون بی‌بی‌سی فارسی
+
+https://bbc.in/42XnQmy
+https://bbc.in/3WtLd3k
+@BBCPersian
+</div>
+
+## alonews — post 126952
+
+<div align="center">
+  <a href="telegram/content/alonews_126952_1781120623.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گدایی کنید تا فروشنده خوبی بشید :||||
+
+دارن آموزش گدایی کردن میدن
+[@AloTweet]
+</div>
+
+---
 📅 بروزرسانی: 1405/03/20 23:05
 ---
 

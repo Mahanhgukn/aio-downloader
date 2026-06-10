@@ -7,6 +7,32 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/20 06:33
+---
+
+## VahidOOnLine — post 244621
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244621_1781060603.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️قرارگاه خاتم در بیانیه‌ای اعلام کرد که «پایگاه‌های آمریکا در منطقه» هدف حمله مشترک ارتش و سپاه قرار گرفته است و «در صورت تکرار تعرض آمریکا به جمهوری اسلامی ایران، حملات سهمگین‌ و گسترده‌تر علیه بانک اهداف تعیین شده در منطقه انجام خواهد شد.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## FarsiVOA — post 220211
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220211_1781060604.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️وزارت کشور بحرین دقایقی پیش بار دیگر از به صدا در آمدن آژیر خطر در این کشور خبر داد
+@FarsiVOA
+</div>
+
+---
 📅 بروزرسانی: 1405/03/20 06:23
 ---
 

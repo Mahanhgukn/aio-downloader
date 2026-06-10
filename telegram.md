@@ -7,6 +7,584 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/21 02:02
+---
+
+## VahidOOnLine — post 244813
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244813_1781130749.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های داخلی از حملات هوایی شدید به پایگاه هوایی و فرودگاه بین‌المللی بندرعباس خبر دادند. همزمان صدای چند انفجار در قشم و بندر کنگان شنیده شده است. صداوسیما نیز اعلام کرد انفجارها در قشم ادامه دارد و مقام‌های محلی گفته‌اند منشأ برخی صداها هنوز مشخص نیست.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244807
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_244807_1781130750.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فشار بر صادرات نفت، شکاف‌های درونی جمهوری اسلامی را آشکارتر کرده است. رژیمی که برای حفظ نیروهای سرکوب، شبکه‌های نیابتی و نظام وفاداری به درآمد نفتی نیاز دارد، اکنون میان مذاکره برای تنفس اقتصادی و تسلیم گرفتار شده است.
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244800
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_244800_1781130751.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ می‌گوید در «مراحل پایانی» دستیابی به توافقی با جمهوری اسلامی قرار دارد و آمریکا به‌زودی «پیروزی کامل» را اعلام خواهد کرد.
+
+اما این نخستین بار نیست که رئیس‌جمهور آمریکا از نزدیک بودن پایان این مناقشه سخن می‌گوید؛ ورق بزنید.
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244799
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_244799_1781130751.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+بازدید محمدرضا شاه پهلوی از دانشکده فرماندهی و ستاد ارتش شاهنشاهی در دهه ۵۰ خورشیدی.
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244798
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244798_1781130753.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️آکسیوس بامداد پنجشنبه ۲۱ خردادماه به نقل از یک مقام آمریکایی گزارش داد تمامی اهدافی که در حملات اخیر مورد هدف قرار گرفته‌اند، در جنوب ایران واقع شده‌اند.
+این مقام آمریکایی گفت سامانه‌های پدافند هوایی، رادارها و واحدهای فرماندهی و کنترل پهپادها از جمله اهداف این حملات بوده‌اند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14440
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ : به توافق نزدیک بودیم اما ورق کاملا برگشت و ایران منتظر حملات سنگین و شدیدتر از دو سه ماه اخیر باشد
+@withyashar
+</div>
+
+## WithYashar — post 14439
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فاکس نیوز : اهداف بعدی ترامپ پل‌ها و نیروگاه‌ها هستن!
+@withyashar
+</div>
+
+## WithYashar — post 14438
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه عراقی «صابرین‌نیوز» گزارش داد که کشتی‌های آمریکایی در نزدیکی تنگه هرمز هدف حملات موشکی و پهپادی نیروهای مسلح ایران قرار گرفته‌اند. @withyashar
+</div>
+
+## WithYashar — post 14437
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه عراقی «صابرین‌نیوز» گزارش داد که کشتی‌های آمریکایی در نزدیکی تنگه هرمز هدف حملات موشکی و پهپادی نیروهای مسلح ایران قرار گرفته‌اند.
+@withyashar
+</div>
+
+## WithYashar — post 14436
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرنگار I24News  : عوامل آمریکایی: مراکز فرماندهی و کنترل، انبارهای مهمات، رادارها و واحدهای پهپادی مورد حمله قرار گرفتند
+@withyashar
+</div>
+
+## mwarmonitor — post 10677
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸«آمریکا در حال انجام حملات به ایران در چندین موج است — کان نیوز»
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 342828
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342828_1781130754.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+A House hearing went off the rails when Rep. Jasmine Crockett launched into a blistering attack on Republicans and Martin Luther King Jr.’s niece.
+
+The Texas Democrat took aim at the GOP as a “majority... White” party while criticizing lawmakers for spotlighting civil rights activist Alveda King during a hearing examining the Southern Poverty Law Center.
+
+At one point, Crockett suggested Republicans were trying to make the public think a “Doctor King” was condemning the SPLC, prompting a fiery response from King.
+
+King responded saying Crockett's comments made her "emotional" and later questioned whether Crockett was calling her a "bastard" of the King name — but by by the time she responded, Crockett had already stormed away from the room.
+</div>
+
+## FoxNewsTwitter — post 342827
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342827_1781130756.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Ilhan Omar shuts down questions about a possible Ethics Committee probe into her finances.
+
+The Minnesota Democrat brushed off a FOX News Digital reporter asking about scrutiny surrounding her reported decline in net worth, insisting there is no investigation underway.
+
+The exchange comes as questions continue to circulate over her financial disclosures and whether congressional ethics officials are reviewing the matter.
+</div>
+
+## pm_afshaa — post 93482
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93482_1781130757.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رسانه‌های داخلی از حملات هوایی به پایگاه هوایی و فرودگاه بین‌المللی بندرعباس خبر میدن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93481
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_93481_1781130758.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دو هواپیمای سوخت‌رسان هوایی آمریکایی از پایگاه عربستان سعودی برخاستند و اکنون در حال سوخت‌رسانی هوایی در غرب تنگه هرمز هستن
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93480
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فاکس نیوز: اهداف بعدی ترامپ ، نیروگاه ها و پل ها هستن
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93479
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93479_1781130759.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴علی قلهکی، خبرنگار: اگه آمریکا بخواد زیرساخت‌های مارو بزنه و بندازتمون تو بحران برق و بنزین، ما کاری میکنیم که اسرائیل هم دچار این بحران بشه. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93478
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93478_1781130759.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴علی قلهکی، خبرنگار:
+اگه آمریکا بخواد زیرساخت‌های مارو بزنه و بندازتمون تو بحران برق و بنزین، ما کاری میکنیم که اسرائیل هم دچار این بحران بشه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93477
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش تایید نشده از ترور فرمانده پایگاه هوایی سپاه پاسداران در کرمان
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93476
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93476_1781130760.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبرنگار I24News: مراکز فرماندهی و کنترل، انبارهای مهمات، رادارها و واحدهای پهپادی مورد حمله قرار گرفتن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93475
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴گزارش‌های بیشتری از حذف قابل توجه در ایران حکایت دارد
+
+דרמטי: דיווחים נוספים מצביעים על חיסול משמעותי באיראן
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93474
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پولیتیکو:رئیس‌جمهور آمریکا دونالد ترامپ در بازی اول جام جهانی که در آمریکا بین تیم‌های ایالات متحده و پاراگوئه در لس آنجلس روز جمعه برگزار می‌شود، شرکت نخواهد کرد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93473
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93473_1781130761.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کان نیوز: آمریکا در حال انجام حملات به ایران در چندین موجه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93472
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش ها از ترور یک مقام ارشد جمهوری اسلامی
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## mamlekate — post 103668
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 اندیمشک شدیدا صدای جنگنده میاد . ساعت دو بامداد پنجشنبه ۲۱ خرداد
+
+@mamlekate_pm
+</div>
+
+## VahidOnline — post 76170
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76170_1781130761.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️آکسیوس بامداد پنجشنبه ۲۱ خردادماه به نقل از یک مقام آمریکایی گزارش داد تمامی اهدافی که در حملات اخیر مورد هدف قرار گرفته‌اند، در جنوب ایران واقع شده‌اند.
+این مقام آمریکایی گفت سامانه‌های پدافند هوایی، رادارها و واحدهای فرماندهی و کنترل پهپادها از جمله اهداف این حملات بوده‌اند.
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## kianmeli1 — post 87902
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری/فاکس نیوز
+
+اهداف بعدی ترامپ ، نیروگاه ها و پل ها هستند
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87901
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87901_1781130762.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴شیراز پمپ بنزین بعد از خبر اینکه به عسلویه رو زدن شلوغ شده
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 341596
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/341596" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی سیاست با مراد ویسی: تهدید ترامپ به حمله سنگین
+@iranintlTV
+</div>
+
+## IranIntlTV — post 341595
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341595_1781130763.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های داخلی از حملات هوایی شدید به پایگاه هوایی و فرودگاه بین‌المللی بندرعباس خبر دادند. همزمان صدای چند انفجار در قشم و بندر کنگان شنیده شده است. صداوسیما نیز اعلام کرد انفجارها در قشم ادامه دارد و مقام‌های محلی گفته‌اند منشأ برخی صداها هنوز مشخص نیست.
+https://iranintl.com/202606108560
+</div>
+
+## IranIntlTV — post 341594
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341594_1781130763.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جمشید برزگر، روزنامه‌نگار و تحلیل‌گر سیاسی، گفت: «جمهوری اسلامی در عمل تلاش کرده سرنوشت درگیری‌های منطقه، به‌ویژه جنگ میان حزب‌الله و اسرائیل، را به روند مذاکرات خود با آمریکا گره بزند.»
+
+او افزود: «حملات به اسرائیل و همچنین حملات علیه نیروها و پایگاه‌های آمریکا در منطقه، دونالد ترامپ را در موقعیت دشوارتری قرار داده است.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 341593
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341593_1781130765.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرشته پزشک، کارشناس روابط بین‌الملل، گفت: «تا زمانی که ابعاد و اهداف واقعی این حملات روشن‌تر نشود، قضاوت درباره نتیجه آن دشوار است؛ مگر اینکه نوع عملیات به گونه‌ای باشد که ساختار تصمیم‌گیری سیاسی و نظامی جمهوری اسلامی را به طور اساسی تحت تاثیر قرار دهد و تغییراتی در سطوح عالی قدرت ایجاد کند.»
+
+او افزود: «مساله اصلی میان آمریکا و جمهوری اسلامی بیش از آنکه یک مساله صرفاً نظامی یا تاکتیکی باشد، یک مساله سیاسی است.»
+@iranintltv
+</div>
+
+## ManotoTV — post 106003
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_106003_1781130767.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فشار بر صادرات نفت، شکاف‌های درونی جمهوری اسلامی را آشکارتر کرده است. رژیمی که برای حفظ نیروهای سرکوب، شبکه‌های نیابتی و نظام وفاداری به درآمد نفتی نیاز دارد، اکنون میان مذاکره برای تنفس اقتصادی و تسلیم گرفتار شده است.
+</div>
+
+## ManotoTV — post 105996
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105996_1781130768.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ می‌گوید در «مراحل پایانی» دستیابی به توافقی با جمهوری اسلامی قرار دارد و آمریکا به‌زودی «پیروزی کامل» را اعلام خواهد کرد.
+
+اما این نخستین بار نیست که رئیس‌جمهور آمریکا از نزدیک بودن پایان این مناقشه سخن می‌گوید؛ ورق بزنید.
+</div>
+
+## ManotoTV — post 105995
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105995_1781130768.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+بازدید محمدرضا شاه پهلوی از دانشکده فرماندهی و ستاد ارتش شاهنشاهی در دهه ۵۰ خورشیدی.
+</div>
+
+## FarsiVOA — post 220304
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220304_1781130770.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️باراک راوید، خبرنگار آکسیوس از قول «یک مقام آمریکایی» می‌گوید تمام اهدافی که مورد حمله قرار گرفته‌اند در جنوب ایران هستند و شامل سامانه‌های پدافند هوایی، رادارها و واحدهای فرماندهی و کنترل پهپادها می‌شوند.
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 16603
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش شده است که موج دیگری از حملات هوایی آمریکا به شهر بندرعباس و فرودگاه بندرعباس
+</div>
+
+## Persian_Trend_Official — post 16602
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16602_1781130770.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ علی قلهکی:
+
+حملات جدید ترامپ به ایران بخاطر «مُجاب‌سازیِ تهران» برای «توافقِ شبه‌تسلیم» است.
+پیش‌بینی می‌شود آمریکا به سمت زدن «زیرساخت‌های حیاتی» _مثل برق و بنزین_ برود!
+اگرچه تمهیداتِ خوبی برای این شرایط هم دیده شده ولی طبیعتا اگر قرار باشد ایران در «برق» و «بنزین» دُچارِ مشکل شود، همه منطقه و خصوصا سرزمین‌های اشغالی هم باید بحرانی شوند!
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16601
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سیریک
+</div>
+
+## Persian_Trend_Official — post 16600
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16600_1781130770.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نقاط مورد هدف توسط آمریکا در عملیات امشب
+</div>
+
+## IranianMinds — post 22213
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+موج‌ اول‌‌ حملات تموم شد
+چن دقیقه دیگه برا تقه دوم میان
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22211
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 یک مقام آمریکایی به فاکس نیوز :
+
+این یک هشدار بود ، اهداف بعدی پل ها و‌ نیروگاه های برق خواهند بود !
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22210
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22210_1781130771.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وضعیت پمپ بنزین های شیراز :
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22209
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 گزارش انفجار مجدد در بندرعباس
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22208
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22208_1781130771.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 علی قلهکی خبرنگار حکومتی :
+
+اگه آمریکا بخواد زیرساخت های مارو بزنه و بندازتمون توی بحران برق و بنزین ما هم کاری میکنیم که اسرائیل هم دچار این بحران بشه.
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 391643
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یکبار دیگه اینترنتا قطع بشه منو برخط نمی‌بینید، آخرخط می‌بینید. خدانگهدار.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## manototv — post 106003
+
+<div align="center">
+  <a href="telegram/content/manototv_106003_1781130772.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فشار بر صادرات نفت، شکاف‌های درونی جمهوری اسلامی را آشکارتر کرده است. رژیمی که برای حفظ نیروهای سرکوب، شبکه‌های نیابتی و نظام وفاداری به درآمد نفتی نیاز دارد، اکنون میان مذاکره برای تنفس اقتصادی و تسلیم گرفتار شده است.
+</div>
+
+## manototv — post 105996
+
+<div align="center">
+  <a href="telegram/content/manototv_105996_1781130772.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ می‌گوید در «مراحل پایانی» دستیابی به توافقی با جمهوری اسلامی قرار دارد و آمریکا به‌زودی «پیروزی کامل» را اعلام خواهد کرد.
+
+اما این نخستین بار نیست که رئیس‌جمهور آمریکا از نزدیک بودن پایان این مناقشه سخن می‌گوید؛ ورق بزنید.
+</div>
+
+## manototv — post 105995
+
+<div align="center">
+  <a href="telegram/content/manototv_105995_1781130773.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+بازدید محمدرضا شاه پهلوی از دانشکده فرماندهی و ستاد ارتش شاهنشاهی در دهه ۵۰ خورشیدی.
+</div>
+
+## alonews — post 127011
+
+<div align="center">
+  <a href="telegram/content/alonews_127011_1781130775.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری/فاکس نیوز: اهداف بعدی ترامپ ، نیروگاه ها و پل ها هستند!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127010
+
+<div align="center">
+  <a href="telegram/content/alonews_127010_1781130775.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈انفجار مجدد در بندرعباس
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/21 01:52
 ---
 

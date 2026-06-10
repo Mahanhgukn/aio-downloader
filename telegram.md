@@ -7,6 +7,242 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/20 22:52
+---
+
+## VahidOOnLine — post 244768
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244768_1781119334.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ابراهیم رضایی، سخنگوی کمیسیون امنیت ملی مجلس، در شبکه ایکس نوشت: «در جنگ ۴۰ روزه وسعت آب‌های سرزمینی ایران افزایش یافت، در جنگ بعدی شاید وسعت خاک ایران افزایش یابد.»
+
+او در مطلبی دیگر تاکید کرد جمهوری اسلامی آماده‌تر از قبل است.
+
+او همچنین در یک برنامه تلویزیونی گفت: «دست از لبنان برنمی‌داریم و دشمن یا باید به خواسته‌های ما در میز مذاکره تن بدهد یا در میدان نبرد.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244767
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244767_1781119335.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ابراهیم رضایی، سخنگوی کمیسیون امنیت ملی مجلس، در شبکه ایکس نوشت: «در جنگ ۴۰ روزه وسعت آب‌های سرزمینی ایران افزایش یافت، در جنگ بعدی شاید وسعت خاک ایران افزایش یابد.»
+
+او در مطلبی دیگر تاکید کرد جمهوری اسلامی آماده‌تر از قبل است.
+
+او همچنین در یک برنامه تلویزیونی گفت: «دست از لبنان برنمی‌داریم و دشمن یا باید به خواسته‌های ما در میز مذاکره تن بدهد یا در میدان نبرد.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14369
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امروز دو فروند هواپیمای گشت دریایی P-8A Poseidon متعلق به نیروی دریایی آمریکا از پایگاه هوایی سیگونلا (NAS Sigonella) به سمت شرق پرواز کردند؛ مسیری که احتمالاً به خاورمیانه یا شاخ آفریقا منتهی می‌شود. اگرچه این جابه‌جایی به‌خودی‌خود قابل توجه بود، اما آنچه توجه علاقه‌مندان به ردیابی پرواز را جلب کرد این بود که یکی از این هواپیماها به نظر می‌رسید کد هگز ICAO متعلق به یک بمب‌افکن B-52 نیروی هوایی آمریکا را ارسال می‌کند.
+این ناهنجاری به‌سرعت باعث گمانه‌زنی‌هایی در فضای آنلاین شد مبنی بر اینکه یک B-52 استراتوفورترس از سیسیل به پرواز درآمده است. با این حال، شواهد موجود نشان می‌دهد که هیچ B-52 از سیگونلا عملیات نداشته و هواپیمای مورد نظر در واقع یک P-8A بوده است.
+
+هواپیماهای نظامی گاهی به دلایل فنی، عملیاتی یا اداری داده‌های شناسایی غیرمعمولی ارسال می‌کنند. در برخی موارد، تنظیمات ترانسپوندر ممکن است اشتباه باشد؛ در موارد دیگر، آزمایش‌ها یا فعالیت‌های تعمیر و نگهداری می‌تواند منجر به ارسال داده‌های غیرمنتظره شود.
+اما برای تحلیل‌گران متن‌باز (OSINT)، چنین ناهنجاری‌هایی می‌تواند پیامدهای قابل توجهی داشته باشد.
+نمایش یک B-52 بر فراز مدیترانه مرکزی فوراً توجه‌ها را جلب می‌کند، زیرا این بمب‌افکن یکی از اصلی‌ترین پلتفرم‌های حمله دوربرد ایالات متحده است. گزارش حضور B-52 در سیسیل به‌طور طبیعی باعث گمانه‌زنی درباره عملیات احتمالی نظامی، تغییر آرایش نیروها یا آمادگی برای سناریوهای منطقه‌ای می‌شود.
+@withyashar
+</div>
+
+## mwarmonitor — post 10643
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رسانه‌های اسرائیلی: دوباره یک رویداد غیرعادی در خط مقدم رخ داده است. از ساکنان زرعیت در شمال اسرائیل خواسته شده است به پناهگاه‌ها بروند و تا اطلاع ثانوی در نزدیکی آن‌ها بمانند: «باید از تجمع‌ها و رفت‌وآمد در منطقه خودداری شود و دستورالعمل‌های نیروهای امنیتی رعایت گردد.»
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 342822
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342822_1781119335.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH LIVE: California AG Rob Bonta, Santa Clara officials announce legal action against Trump administration (Courtesy: CA Dept of Justice) https://twitter.com/i/broadcasts/1jGXggXXkVeKZ
+</div>
+
+## DEJradio — post 5561
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5561_1781119336.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🔸 خبر ۲۱
+چهارشنبه ۲۰ خرداد ۱۴۰۵
+
+#خبر۲۱
+@DEJradio
+</div>
+
+## kianmeli1 — post 87877
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87877_1781119340.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رییس کمیته ملی
+
+در جنگ بعد ممکنه کشورگشایی کنیم
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87876
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴بمب افکن های امریکا در بحرین آماده عملیات شده اند
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 341567
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341567_1781119341.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ابراهیم رضایی، سخنگوی کمیسیون امنیت ملی مجلس، در شبکه ایکس نوشت: «در جنگ ۴۰ روزه وسعت آب‌های سرزمینی ایران افزایش یافت، در جنگ بعدی شاید وسعت خاک ایران افزایش یابد.»
+
+او در مطلبی دیگر تاکید کرد جمهوری اسلامی آماده‌تر از قبل است.
+
+او همچنین در یک برنامه تلویزیونی گفت: «دست از لبنان برنمی‌داریم و دشمن یا باید به خواسته‌های ما در میز مذاکره تن بدهد یا در میدان نبرد.»
+https://iranintl.com/202606107186
+</div>
+
+## IranIntlTV — post 341566
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341566_1781119342.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شاهزاده رضا پهلوی: «مردم ایران بهای سیاست‌های جمهوری اسلامی را می‌پردازند؛ حکومتی که به‌جای ساختن ایران، کشور را به جنگ، فساد، فقر و ویرانی کشانده است.»
+
+او افزود چه با حمایت خارجی و چه بدون آن، سرنوشت ایران در دست مردم ایران است و پیروزی از آن ملت ایران خواهد بود.
+@iranintltv
+</div>
+
+## FarsiVOA — post 220276
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محکومیت گسترده تروریسم‌ برون مرزی جمهوری اسلامی از سوی آمریکا و ۲۲ کشور غربی
+</div>
+
+## FarsiVOA — post 220275
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+واکنش اروپا و روسیه به دور جدید تنش‌های جمهوری اسلامی و آمریکا؛ از دیپلماسی تا اختلافات
+</div>
+
+## DW_Farsi — post 125790
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125790_1781119345.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 سنتکام: به یک نفتکش در دریای عمان حمله کردیم؛ هند دیپلمات آمریکا را احضار کرد
+
+ارتش آمریکا اعلام کرد که به یک نفتکش که ظاهرا تلاش داشته نفت ایران را منتقل کند در دریای عمان حمله کرده است.
+
+فرماندهی مرکزی ایالات متحده آمریکا (سنتکام) در پیامی در شبکه ایکس اعلام کرد که موتورخانه کشتی "سته‌بلو" (Settebello) که با پرچم کشور پالائو حرکت می‌کرد، پس از آن که خدمه آن از دستورات نیروهای نظامی سرپیچی کردند، هدف قرار گرفت.
+
+پیش‌تر سازمان عملیات تجارت دریایی بریتانیا (UKMTO) از این سانحه و آتش‌‌سوزی در موتورخانه این کشتی و تخلیه خدمه خبر داده بود.
+
+طبق گزارش این سازمان، دو نفر مفقود شده‌اند و یک نفر نیز "قربانی" شده اما مشخص نیست که منظور از واژه قربانی یک کشته بوده یا یک زخمی.
+
+هند که پیش‌تر از مفقود شدن سه تبعه خود در حمله به نفتکش نامبرده در سواحل نزدیک به عمان خبر داده بود در همین رابطه یک دیپلمات ارشد سفارت آمریکا را به وزارت خارجه در دهلی نو احضار کرده است.
+
+به گزارش خبرگزاری رویترز، وزارت خارجه هند با اعلام خبر احضار جیسون میکس افزود که "اعتراض شدید" هند به او منتقل شده است.
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 16520
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تا نیم ساعت دیگه لایو رو شروع میکنیم
+</div>
+
+## IranianMinds — post 22137
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اومده سمت تنگه هرمز ببینیم کاری میکنه یا نه @IranianMinds
+</div>
+
+## Dirty_Kids — post 391606
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391606_1781119346.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شما که پول سربازا و نظامیاتونو نمیتونید بدید براچی جنگ میکنید
+
+انقد بالایی میدزدن پولی نمیمونه، وضعیت مملکت که دیگه‌ نگم تمام مشاغل خوابیده، تورم سر به فلک کشیده...
+
+
+@Dirty_Kids 👻
+</div>
+
+## Hranews — post 113529
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قتل یک دانشجو زن توسط همسرش در دانشگاه قزوین؛ دو مامور حراست بازداشت شدند
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– در پی کشته شدن یک دانشجوی دختر رشته دندانپزشکی توسط همسرش در دانشگاه علوم پزشکی قزوین، دو تن از ماموران حراست این دانشگاه بازداشت شدند. ضارب با یک سلاح جنگی وارد محیط دانشگاه شده و پس از شلیک به همسر خود، اقدام به خودکشی کرده است. موضوع چگونگی ورود یک قبضه سلاح جنگی به محیط دانشگاه و احتمال قصور یا سهل‌انگاری در فرایندهای حفاظتی از محورهای مورد بررسی مراجع قضایی است.
+
+ادامه مطلب
+
+↘️
+@hranews_bot تماس ✉️ -  @Hranews  کانال هرانا 🆑
+</div>
+
+## alonews — post 126943
+
+<div align="center">
+  <a href="telegram/content/alonews_126943_1781119349.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈منابع عربى: اشتباه در برنامه فلايت رادار، این هواپيما يک فروند هوایپمای P_8 آمریکایی است و در حال پرواز به سمت قطر می باشد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126942
+
+<div align="center">
+  <a href="telegram/content/alonews_126942_1781119349.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ادعای یک دیپلمات لبنانی: نتانیاهو جنگ لبنان را تا انتخابات اسرائیل ادامه می‌دهد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/20 22:34
 ---
 

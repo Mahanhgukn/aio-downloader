@@ -7,6 +7,936 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/20 19:54
+---
+
+## VahidOOnLine — post 244722
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_244722_1781108669.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ناپدید شدن پول از حساب‌های بانکی فقط یک مشکل مالی نیست، نشانه‌ای از فروریختن اعتماد عمومی به نظام بانکی و توان دولت در حفاظت از دارایی شهروندان است.
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244721
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244721_1781108670.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس جمهوری ایالات متحده، درباره مذاکرات با جمهوری اسلامی گفت: «آن‌ها مدام ما را سر می‌دوانند. خواهیم دید با توافق چه می‌شود.»
+
+ترامپ افزود: «جمهوری اسلامی به‌هیچ‌وجه نباید سلاح هسته‌ای داشته باشد و نخواهد داشت. آن‌ها هم با این موضوع موافقت کرده‌اند. تنها کاری که باید بکنند این است که یک کاغذ را امضا کنند.»
+
+او ادامه داد: «ما یک توافق کاملا نهایی داریم، اما آن‌ها مدام وقت‌کشی می‌کنند. من می‌گویم بسیار خب، چند روز دیگر هم به آن‌ها فرصت بدهیم. چون این یک سند مهم و معنادار است و آن‌ها می‌دانند وقتی آن را امضا کنند، جدی است.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244720
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244720_1781108671.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️آنتونیو گوترش، دبیرکل سازمان ملل متحد، روز چهارشنبه با اشاره به دور جدید حملات متقابل میان ایران و ایالات متحده اعلام کرد: «همان‌طور که در ۴۸ ساعت گذشته از طریق تشدید حملات و مواضع تند طرفین شاهد بوده‌ایم، آتش‌بس در خاورمیانه بیشتر شبیه به یک آتشِ کم‌فروغ‌تر (کاهش موقت درگیری‌ها) است [تا یک صلح واقعی].»
+
+گوترش که در شورای امنیت سخن می‌گفت، هشدار داد که این درگیری‌های پراکنده می‌تواند به یک جنگ گسترده‌تر تبدیل شود که کل منطقه را در بر خواهد گرفت. دبیرکل سازمان ملل در پایان تاکید کرد: «من از همه طرف‌ها می‌خواهم که به آتش‌بس پایبند باشند و تلاش‌های خود را برای دستیابی به یک توافق پایدار دوچندان کنند.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244719
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244719_1781108672.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ رئیس‌جمهوری آمریکا روز چهارشنبه ۲۰ خرداد، در پاسخ به درخواست خبرنگاران برای شفاف‌سازی درباره اظهارات قبلی‌اش مبنی بر اینکه جمهوری اسلامی ایران باید بهای طولانی کردن روند توافق را «بپردازد»، موضع تندی اتخاذ کرد.
+
+دونالد ترامپ در دفتر بیضی کاخ سفید به خبرنگاران گفت: «خب، ما به آن‌ها حمله خواهیم کرد، و بسیار هم سخت حمله خواهیم کرد.»
+
+در ادامه از او سوال شد که آیا این به معنای از سرگیری کارزار بمباران [مواضع ایران] توسط ایالات متحده است؟ ترامپ پاسخ داد: «بله، خب، با توجه به موضوع بالگرد، فکر می‌کنم این حق را داریم که چنین کاری انجام دهیم.»
+
+ترامپ ایران را متهم کرده است که یک بالگرد آپاچی ارتش آمریکا را بر فراز تنگه هرمز سرنگون کرده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14346
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+راست گفتی باید پوشک ببندیممممم
+</div>
+
+## WithYashar — post 14345
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: عینک دودی مکرون که در فضای بسته از آن استفاده میکند از سلاح هسته ای خطرناک تر است، به عنوان دوست به او میگویم اصلا عینک زیبایی نیست
+@withyashar
+</div>
+
+## WithYashar — post 14344
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: فکر می‌کنم آنها بخواهند معامله‌ای انجام دهند.
+@withyashar
+</div>
+
+## WithYashar — post 14343
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ : وقتی این جنگ تموم بشه، تورم مثل یه سنگ سقوط می‌کنه.
+ما داشتیم میلیون‌ها بشکه نفت خارج می‌کردیم؛ اینو امروز برای اولین بار اعلام می‌کنم، اما مدت‌هاست که این کار رو انجام می‌دیم. هر شب نفت خارج می‌کردیم.
+حالا دارم بهتون می‌گم چون ایران تازه متوجه این موضوع شده. حالا که فهمیدن، می‌تونم درباره‌ش صحبت کنم. برای من خیلی سخت بود؛ دلم می‌خواست زودتر بگمش، ولی نمی‌خواستم این عملیات به خطر بیفته.
+میلیون‌ها بشکه نفت خارج شده و به همین دلیله که قیمت نفت به‌جای ۲۵۰ دلار، حدود ۸۵ تا ۹۰ دلار در هر بشکه است.
+اما ما قدرتمندترین ارتش دنیا رو داریم.
+به درخواست پاکستان به ایران فرصت دادم. فیلد مارشال و نخست‌وزیر پاکستان آدم‌های فوق‌العاده‌ای هستند.
+ما جلوی جنگ بین پاکستان و هند را گرفتیم
+@withyashar
+</div>
+
+## WithYashar — post 14342
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عرزشی ها ریختن دایرکتم دارن دیوارو چنگ میزنند 🤣🤣 بای بای بی پدرو مادرا
+</div>
+
+## WithYashar — post 14341
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال ۱۴ اسرائیل: مشکل ترامپ این است که تهدیدهایش دیگر نه تنها در نگاه غربی‌ها، بلکه در چشم ایرانی‌ها نیز اعتبار خود را از دست داده است
+@withyashar
+</div>
+
+## WithYashar — post 14340
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: ایران وقت‌کشی می‌کند و من می‌گویم چند روز دیگر هم به آن‌ها فرصت بدهیم، اما آن‌ها همچنان به تعلل و وقت‌کشی ادامه می‌دهند.»
+@withyashar
+</div>
+
+## WithYashar — post 14339
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ : پاکستان همین الان داره تلاش میکنه تا ایران راضی کنه توافقی انجام بدن
+@withyashar
+</div>
+
+## WithYashar — post 14338
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: شب گذشته و در گذشته برای هدف قرار دادن رادارهای ایران کار کردیم
+@withyashar
+</div>
+
+## WithYashar — post 14337
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اتاق جنگ با یاشار : ⌛️
+@withyashar
+</div>
+
+## WithYashar — post 14336
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارشگر: برای تولدتان چه آرزویی دارید؟
+
+ترامپ: صلح برای کل جهان
+@withyashar
+</div>
+
+## mwarmonitor — post 10628
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴طبق گزارش رویترز به نقل از گروه امنیت دریایی بریتانیایی «Ambrey»، نفتکش با پرچم پالائو که صبح امروز در نزدیکی سواحل عمان دچار انفجار شد و باعث آتش‌سوزی در اتاق موتور گردید، احتمالاً نتیجه یک حمله موشکی آمریکا در چارچوب عملیات‌های ادامه‌دار برای محاصره علیه…
+</div>
+
+## mwarmonitor — post 10627
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_10627_1781108673.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خواهیم دید چه می‌شود.
+</div>
+
+## FoxNewsTwitter — post 342813
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌Fox News (Twitter/X)
+
+Breaking news is unfolding right now, and President Trump is addressing reporters live. Watch it now on FOX One!
+
+https://www.fox.com/stream/fox-news?cmpid=org=fn::ag=owned_other::mc=organicsocial[%E2%80%A6]WITTER::cmp=100_o2_th4::cont=m2_tp1::add=03_17_00_05_13_00_02_A
+</div>
+
+## FoxNewsTwitter — post 342812
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342812_1781108673.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+JUST IN: President Trump officially endorses Senator Susan Collins in the Maine Senate race, blasting Democratic candidate Graham Platner.
+
+"She's a sane woman and she's a respected person."
+
+“But this guy is a thug... He's a phony. I made a lot of money picking out phonies. He's a real phony. He's bad. He's a bad person."
+</div>
+
+## FoxNewsTwitter — post 342811
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342811_1781108676.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: President Trump says he is going to continue bombing Iran "very hard" after it shot down a U.S. helicopter over the Strait of Hormuz.
+
+"We're going to be attacking them and attacking them very hard."
+
+"I've been working with Iran for a number of months, and they should sign their deal. It's a good deal. It doesn't give them the right to have a nuclear weapon. In fact, it totally prohibits them from ever having a nuclear weapon."
+</div>
+
+## pm_afshaa — post 93334
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93334_1781108679.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: به توافق نزدیک هستیم، اما ایران به توقف آن ادامه میده.
+
+من نمیدونم رهبران ایران چه می‌کنند و ما در حال جلوگیری از دستیابی آنها به سلاح هسته‌ای هستیم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93333
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امشب شب مهمیه خیلی از منابع گفته بودن حکومت تا 2 هفته اینده سقوط میکنه
+امشب ساعت 21 شاهنشاه هم قراره پیام مهمی بده
+</div>
+
+## pm_afshaa — post 93332
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ با این حرفای الان هم از ادامه حمله به ایران گفت و هم از توافق که که در مراحل نهایی هست اما ایران داره هی امروز فردا میکنه و مارو معطل کرده و بازیمون میده. گفت ببینیم چی‌ میشه.. رسما تهدید کرد و گفت امروز هم حملات به ایران ادامه داره و احتمالا اینا مقدمه‌ای…
+</div>
+
+## pm_afshaa — post 93331
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ با این حرفای الان هم از ادامه حمله به ایران گفت و هم از توافق که که در مراحل نهایی هست اما ایران داره هی امروز فردا میکنه و مارو معطل کرده و بازیمون میده. گفت ببینیم چی‌ میشه..
+
+رسما تهدید کرد و گفت امروز هم حملات به ایران ادامه داره و احتمالا اینا مقدمه‌ای برای حمله اصلی و بزرگ در چند روز آینده هست. در کنارش دارن فشار میارن شاید جمهموری اسلامی توافق هم امضا کرد (تسلیم شد)
+</div>
+
+## pm_afshaa — post 93330
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93330_1781108680.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ اعلام کرد امروز ساعت ۵:۳۰ عصر به وقت ساحل شرقی آمریکا یک سخنرانی اضطراری برای مردم و رسانه‌ها خواهد داشت. + حوالی ۳ صبح تهران میشه. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93329
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93329_1781108681.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: ایران نباید سلاح هسته‌ای داشته باشه و نخواهد داشت، خودشونم با این موضوع موافقت کردن. همه‌چی سر توافق نهایی شده و فقط مونده برگه رو امضا کنن، ولی هی وقت‌کشی میکنن و امروز و فردا میکنن. منم میگم باشه، چند روز دیگه هم بهشون فرصت میدیم. دارن این کارو میکنن چون این توافق، یه توافق مهم و سرنوشت‌سازه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93328
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93328_1781108681.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: پاکستان همین الان داره تلاش میکنه تا ایران راضی کنه توافقی انجام بدن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93327
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93327_1781108682.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴دونالد ترامپ: ما دیروز بهشون ضربه محکمی زدیم و امروز هم دوباره قراره ضربه محکمی بهشون بزنیم؛ باید ببینیم آخرش سر توافق چی میشه، واقعاً خیلی به توافق نزدیک بودیم، ولی هی ما رو معطل میکنن و سر می‌دوونن، انگار فکر کردن ما هالوئیم و میتونن بازی‌مون بدن. 
+💧…
+</div>
+
+## pm_afshaa — post 93326
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93326_1781108683.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: شب گذشته و در گذشته برای هدف قرار دادن رادارهای ایران کار کردیم.
+
+شب گذشته 22 کشتی ایرانی رو منهدم کردیم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93325
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎙️گزارشگر: برای تولدتون چه آرزویی دارید؟
+ترامپ: صلح برای کل جهان.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93324
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎙️خبرنگار: آیا فکر می کنید احتمال درگیری بین اسرائیل و ترکیه وجود داره؟
+
+ترامپ: من اردوغان رو بسیار تحسین میکنم. او فردی قوی است... فکر نمیکنم تا زمانی که من رئیس جمهور هستم، این اتفاق در مورد ترکیه رخ بده، چون اردوغان به من احترام میزارن و من به او احترام میزارم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93323
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93323_1781108683.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴بمب افکن B52 آمریکایی در نزدیکی اسرائیل در حال حرکت به سمت ایرانه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5550
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5550_1781108684.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️
+🚨 ترامپ: حملات آمریکا به مواضع جمهوری اسلامی ادامه می‌یابد
+
+دونالد ترامپ، رئیس جمهوری آمریکا، شامگاه چهارشنبه اعلام کرد ایالات متحده بار دیگر مواضع جمهوری اسلامی را هدف می‌گیرد.
+او با اشاره به سرنگونی یک بالگرد آمریکایی گفت جمهوری اسلامی باید بهای این اقدام را بپردازد.
+ترامپ با اشاره به حملهٔ بامداد چهارشنبهٔ آمریکا به مواضع جمهوری اسلامی، افزود که این دست حملات ادامه می‌یابد.
+ترامپ در نشست کاخ سفید بار دیگر گفت تهران فرصت رسیدن به توافق با آمریکا را از دست داده و اکنون باید هزینهٔ این تعلل را پرداخت کند.
+
+#خبر #دژ #ترامپ
+@DEJradio
+</div>
+
+## VahidOnline — post 76150
+
+<div align="center">
+  <a href="telegram/content/VahidOnline_76150_1781108685.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهوری آمریکا، طی سخنانی در کاخ سفید گفت: «ما آنها را بسیار سخت هدف قرار خواهیم داد. باید توافق را امضا کنند. ما توافقی می‌خواهیم که معنادار باشد و کار کند.»
+
+او ادامه داد: «امروز دوباره ضربه محکمی به آنها خواهیم زد.»
+
+ترامپ افزود: «نخواهم گفت آیا پل‌ها و نیروگاه‌ها را هدف قرار خواهیم داد یا نه.»
+
+ترامپ با اشاره به هدف قرار گرفتن یک بالگرد آمریکایی گفت جمهوری اسلامی ابتدا مسئولیت این اقدام را رد کرد، اما بعدا آن را پذیرفت. او افزود بمبی که به بالگرد اصابت کرد منفجر نشد و دو خلبان آن در جریان یک عملیات نجات زنده ماندند.
+
+او گفت یک شناور بدون سرنشین با سرعت بسیار بالا در عملیات نجات این دو خلبان نقش داشت و افزود حال هر دو خلبان خوب است.
+
+رییس‌جمهوری آمریکا همچنین گفت چند ماه است با جمهوری اسلامی بر روی سند کار می‌کند و توافقی امضا شده که به گفته او، دستیابی جمهوری اسلامی به سلاح هسته‌ای را «برای همیشه» ممنوع می‌کند.
+
+ترامپ با انتقاد از برجام، آن را «بدترین توافق» خواند و گفت این توافق مسیری برای دستیابی جمهوری اسلامی به سلاح هسته‌ای بود. او افزود توافق کنونی مسیر خلاف سلاح هسته‌ای است و جمهوری اسلامی نمی‌تواند سلاح هسته‌ای داشته باشد.
+
+او همچنین گفت به درخواست پاکستان به آن‌ها فرصت داده و افزود فرمانده ارتش و نخست‌وزیر پاکستان «عالی» بودند و مقام‌های پاکستانی همچنان به جمهوری اسلامی نزدیک هستند و تلاش می‌کنند تهران را به انجام «کار درست» ترغیب کنند. ترامپ گفت اگر او مداخله نمی‌کرد، ممکن بود یک جنگ هسته‌ای رخ دهد.
+
+ترامپ بار دیگر گفت: «دیروز ضربه سختی به آن‌ها زدیم و امروز هم دوباره ضربه سختی خواهیم زد.»
+
+او در پاسخ به سوالی درباره احتمال هدف قرار دادن پل‌ها و نیروگاه‌ها در ایران گفت جزییات عملیات احتمالی را اعلام نخواهد کرد، اما آمریکا توان انجام چنین اقداماتی را دارد و «قوی‌ترین ارتش جهان» را در اختیار دارد.
+
+رییس‌جمهوری آمریکا همچنین گفت جمهوری اسلامی «به هیچ‌وجه» نباید سلاح هسته‌ای داشته باشد و نخواهد داشت. به گفته او، توافق هسته‌ای «کاملا مذاکره و نهایی شده» و تنها کاری که جمهوری اسلامی باید انجام دهد امضای آن است، اما تهران همچنان در حال وقت‌کشی است.
+
+ترامپ گفت جمهوری اسلامی با ممنوعیت دستیابی به سلاح هسته‌ای موافقت کرده و افزود این توافق «سندی مهم و معنادار» است که با امضای آن تعهدی جدی ایجاد می‌شود.
+
+ترامپ در پایان بار دیگر برجام را «یکی از بدترین و احمقانه‌ترین اسناد» خواند که تاکنون دیده است.
+
+دونالد ترامپ، رییس‌جمهوری آمریکا، در در کاخ سفید، گفت جمهوری اسلامی «به هیچ‌وجه» نباید سلاح هسته‌ای داشته باشد و نخواهد داشت و افزود مقام‌های جمهوری اسلامی نیز با این موضوع موافقت کرده‌اند. او گفت تنها کاری که جمهوری اسلامی باید انجام دهد امضای توافق است.
+
+رییس‌جمهوری آمریکا افزود توافق «کاملا مذاکره و نهایی شده» است، اما جمهوری اسلامی همچنان در حال وقت‌کشی است. او گفت: «چند روز دیگر هم به آن‌ها فرصت می‌دهیم، چون این یک سند مهم و معنادار است و آن‌ها می‌دانند وقتی آن را امضا کنند، تعهدی جدی ایجاد می‌شود.»
+
+ترامپ بار دیگر برجام را هدف انتقاد قرار داد و گفت: «توافق اوباما، برجام، یکی از بدترین و احمقانه‌ترین اسنادی بود که تا به حال دیده‌ام.»
+
+او در پاسخ به سوالی درباره احتمال درگیری میان اسرائیل و ترکیه گفت رجب طیب اردوغان، رییس‌جمهوری ترکیه، «دوست بسیار خوب» اوست و دو طرف همکاری خوبی با یکدیگر داشته‌اند. ترامپ اردوغان را «رهبری قدرتمند» توصیف کرد و گفت از احتمال درگیری میان اسرائیل و ترکیه اطلاعی ندارد، اما اگر چنین موضوعی مطرح شود با طرف‌ها تماس خواهد گرفت.
+
+ترامپ همچنین گفت جمهوری اسلامی از برخی اقدامات اخیر آمریکا اطلاعی نداشته و افزود آمریکا چند شب پیش ۲۲ کشتی را در تاریکی و بدون چراغ جابه‌جا کرده است. او گفت جمهوری اسلامی «دیگر رادار ندارد» زیرا آمریکا سامانه‌های آن را نابود کرده است.
+
+او در ادامه گفت زمانی که تصمیم به حمله گرفت، به اطرافیانش گفته بود اقتصاد آمریکا در بهترین وضعیت قرار دارد، بازار سهام و حساب‌های بازنشستگی به رکوردهای تاریخی رسیده‌اند، اما جمهوری اسلامی به‌زودی به سلاح هسته‌ای دست خواهد یافت و به همین دلیل باید اقدام نظامی انجام شود.
+
+ترامپ افزود آمریکا با بمب‌افکن‌های بی-۲ به جمهوری اسلامی حمله کرده است. او این عملیات را «بسیار شجاعانه» و «کاملا موفقیت‌آمیز» توصیف کرد و گفت پس از آن «مرحله دوم» نیز باید انجام می‌شد.
+
+رییس‌جمهوری آمریکا گفت برخی پیش‌بینی می‌کردند بازار سهام پس از این حملات تا ۲۵ درصد سقوط کند، اما جلوگیری از دستیابی جمهوری اسلامی به سلاح هسته‌ای «ارزشش را داشت». او همچنین گفت نگران بود قیمت نفت تا ۲۵۰ دلار در هر بشکه افزایش یابد، اما اکنون حدود ۸۵
+</div>
+
+## VahidOnline — post 76149
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76149_1781108686.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رئیس‌جمهوری آمریکا روز چهارشنبه ۲۰ خرداد، در پاسخ به درخواست خبرنگاران برای شفاف‌سازی درباره اظهارات قبلی‌اش مبنی بر اینکه جمهوری اسلامی ایران باید بهای طولانی کردن روند توافق را «بپردازد»، موضع تندی اتخاذ کرد.
+
+دونالد ترامپ در دفتر بیضی کاخ سفید به خبرنگاران گفت: «خب، ما به آن‌ها حمله خواهیم کرد، و بسیار هم سخت حمله خواهیم کرد.»
+
+در ادامه از او سوال شد که آیا این به معنای از سرگیری کارزار بمباران [مواضع ایران] توسط ایالات متحده است؟ ترامپ پاسخ داد: «بله، خب، با توجه به موضوع بالگرد، فکر می‌کنم این حق را داریم که چنین کاری انجام دهیم.»
+
+ترامپ ایران را متهم کرده است که یک بالگرد آپاچی ارتش آمریکا را بر فراز تنگه هرمز سرنگون کرده است.
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## kianmeli1 — post 87864
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87864_1781108687.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پس از اعلام حمله نظامی ترامپ به ایران؛ قیمت نفت در حال بالا رفتن است
+
+ترامپ اعلام کرد امروز به ایران حمله سنگین میکنیم
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87863
+
+<div align="center">
+  <a href="telegram/content/kianmeli1_87863_1781108688.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری/ ترامپ:
+
+امروز ایران را به شدت هدف قرار خواهیم داد.
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 341526
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341526_1781108689.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس جمهوری ایالات متحده، درباره مذاکرات با جمهوری اسلامی گفت: «آن‌ها مدام ما را سر می‌دوانند. خواهیم دید با توافق چه می‌شود.»
+
+ترامپ افزود: «جمهوری اسلامی به‌هیچ‌وجه نباید سلاح هسته‌ای داشته باشد و نخواهد داشت. آن‌ها هم با این موضوع موافقت کرده‌اند. تنها کاری که باید بکنند این است که یک کاغذ را امضا کنند.»
+
+او ادامه داد: «ما یک توافق کاملا نهایی داریم، اما آن‌ها مدام وقت‌کشی می‌کنند. من می‌گویم بسیار خب، چند روز دیگر هم به آن‌ها فرصت بدهیم. چون این یک سند مهم و معنادار است و آن‌ها می‌دانند وقتی آن را امضا کنند، جدی است.»
+https://iranintl.com/202606100443
+</div>
+
+## IranIntlTV — post 341525
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/341525" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی اخبار شبانگاهی | چهارشنبه ۲۰ خرداد
+@iranintlTV
+</div>
+
+## ManotoTV — post 105988
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105988_1781108691.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ناپدید شدن پول از حساب‌های بانکی فقط یک مشکل مالی نیست، نشانه‌ای از فروریختن اعتماد عمومی به نظام بانکی و توان دولت در حفاظت از دارایی شهروندان است.
+</div>
+
+## FarsiVOA — post 220256
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220256_1781108691.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در گفت‌وگو با امیر چاهکی به حملات محدود جمهوری اسلامی به کشورهای عرب خلیج فارس همزمان با تأکید وزارت خارجه بر دیپلماسی پرداختیم. به گفته او، اگر جمهوری اسلامی واقعاً قصد استفاده از فرصت توافق با آمریکا را دارد، باید حمله به همسایگان عرب را کنار بگذارد.
+</div>
+
+## FarsiVOA — post 220255
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220255_1781108693.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پزشکیان مدعی شد به‌رغم آنکه صداوسیما گاهی پیام مخالفت علی خامنه‌ای با مذاکرات را نشان می‌دهد، او بارها برای حل شدن وضعیت «نه جنگ و نه صلح» اجازه ادامه مذاکرات را می‌داد. رئیس دولت جمهوری اسلامی در ادامه گفت: «ما باید از این حالت نه جنگ نه صلح دربیاییم.»
+</div>
+
+## DW_Farsi — post 125784
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 "امیدوارم قطع نشود”؛ روایت زندگی‌های وابسته به اینترنت
+
+🔺 گزارشی از سارا مجیدی
+
+«اگر اینترنت دوباره قطع شود، چه بر سر زندگی ما می‌آید؟» این پرسشی است که این روزها دوباره در ذهن بسیاری از ایرانیان تکرار می‌شود؛ در روزهایی که پس از مدتی، دوباره توانسته‌اند با خانواده‌هایشان در تماس باشند، کسب‌وکارهای آنلاینشان را از سر بگیرند و زندگی‌شان را دوباره به اینترنت گره بزنند.
+
+تازه‌ترین اظهارات دونالد ترامپ، ر‌ئیس‌ جمهور آمریکا درباره احتمال حملات جدید علیه ایران، بار دیگر نگرانی‌ها از بازگشت جنگ را افزایش داده است اما برای بسیاری از شهروندان ایرانی، اضطراب این روزها تنها به موشک‌ها و انفجارها محدود نمی‌شود.
+
+در کنار ترس از تشدید درگیری‌ها، نگرانی دیگری نیز وجود دارد؛ نگرانی از قطع اینترنت و از دست رفتن آخرین راه ارتباط با جهان بیرون.
+
+برای کسانی که زندگی، کار و ارتباطات روزمره‌شان به اینترنت وابسته است، این دو ترس از هم جدا نیستند. هر بار که تنش‌ها بالا می‌گیرد، پرسشی تکراری نیز در ذهن بسیاری شکل می‌گیرد: «اگر جنگ گسترده‌تر برگردد، آیا اینترنت هم دوباره قطع خواهد شد؟»
+
+این سوال را معلمی می‌پرسد که شاگرد آنلاین دارد، فروشنده‌ای که آنلاین‌شاپ تنها منبع درآمدش است و شخصی که زیر صدای انفجار، نگران است که آیا تا آخر جلسه‌اش اینترنت دارد یا نه؟
+
+
+📌 برای دسترسی کامل به گزارش به وبسایت دویچه‌وله فارسی مراجعه کنید.
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 16495
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16495_1781108696.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://www.youtube.com/watch?v=S6dI2dLI1t0
+</div>
+
+## Persian_Trend_Official — post 16494
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://www.youtube.com/watch?v=S6dI2dLI1t0
+</div>
+
+## Persian_Trend_Official — post 16493
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رئیس جمهور ترامپ: وقتی جنگ تمام شود، تورم مثل سنگ پایین خواهد آمد.
+
+ما میلیون‌ها دلار از بازار خارج می‌کنیم، که من امروز برای اولین بار اعلام می‌کنم، اما ما میلیون‌ها بشکه نفت از بازار خارج کرده‌ایم. هر شب، ما نفت خارج می‌کردیم.
+
+اما حالا می‌خواهم به شما بگویم چون ایران تازه متوجه این موضوع شده است. حالا که متوجه شده، می‌توانم به شما بگویم. برای من خیلی سخت بود. خیلی دلم می‌خواست این را بگویم، اما نمی‌خواستم آن را خراب کنم.
+
+میلیون‌ها بشکه نفت از بازار خارج شده است. و به همین دلیل است که قیمت آن به جای 250 دلار، بشکه‌ای 85 تا 90 دلار است. اما ما بزرگترین ارتش جهان را داریم.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16492
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16492_1781108696.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرنگار: آیا نگران آخرین رقم تورم هستید که امروز صبح منتشر شد؟
+
+ترامپ: نه، من عاشقش هستم. اعداد عالی بودند. می‌دانید من واقعاً عاشق چه چیزی هستم؟ من عاشق تورم هستم. می‌دانید چرا؟ چون به محض اینکه این جنگ تمام شود می‌دانید، الان می‌توانم بگویم، چیزی که شما نمی‌دانستید.
+
+ما میلیون‌ها بشکه نفت را خارج کرده‌ایم. هیچ‌کس این را نمی‌داند. می‌دانید چه کسی از آن خبر ندارد؟ ایران، تا همین الان.
+
+ما دیشب، آخر شب، 22 کشتی را بدون چراغ گرفتیم، چون رادار ندارند.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## RadioFarda — post 158151
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_158151_1781108697.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸دونالد ترامپ، رئیس‌جمهور آمریکا، روز چهارشنبه با اشاره به حملات شب گذشته ایالات متحده به ایران وعده داد که «امروز بار دیگر حملات سنگینی علیه ایران انجام خواهیم داد.»
+
+🔸او در جریان رویدادی در کاخ سفید در گفت‌وگو با خبرنگاران این موضع را اعلام کرد.
+
+🔸ترامپ با اشاره به مذاکرات با ایران گفت: «ما بسیار به توافق نزدیک شده بودیم، اما ایرانی‌ها مدام وقت‌کشی می‌کنند و تصور می‌کنند می‌توانند ما را فریب دهند.»
+
+🔸او ساعتی پیش نیز در شبکه اجتماعی خود، تروث سوشال، نوشت که ایران برای رسیدن به توافقی که می‌توانست برایش بسیار خوب باشد بیش از حد تعلل کرد و حالا باید بهای آن را بپردازد.
+
+🔸ارتش ایالات متحده شب گذشته در واکنش به سرنگونی یک بالگرد آمریکایی در سواحل عمان، حملاتی را به نقاطی در جنوب ایران انجام داد و سپس ایران در واکنش کشورهای اردن، کویت و بحرین را با موشک هدف گرفت.
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 22111
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22111_1781108698.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 پس از اعلام حمله نظامی ترامپ به ایران؛ قیمت نفت در حال بالا رفتن است
+
+ترامپ اعلام کرد امروز به ایران حمله سنگین میکنیم
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22110
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🟢 خفن‌ ترین و جذابترین بونوس های واقعی و بدون قیدو شرط فقط در سایت جهانی رومابت
+
+🇪🇺 https://trentivo6402.bar
+</div>
+
+## IranianMinds — post 22109
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22109_1781108699.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ 1 روز مونده به جام جهانی
+
+
+💳 در #رومابت با ارز دیجیتال حسابتو شارژ کن 
+🅰️
+🅰️
+🅰️ شارژ اضافی بگیر ✅
+
+
+🎁20% بونوس برای شارژ با رمز ارز
+
+💰 10% کش بک روی تیم محبوبت
+
+💰   100% بونوس خوشامدگویی
+
+🎁 20% کش بک بازی های کازینویی و انفجار
+
+🔥   همراه با درگاه‌ #ریالی
+#RomaBet
+
+📣‌ #بدون_احراز_هویت
+
+
+1️⃣
+2️⃣
+3️⃣
+4️⃣   
+1️⃣
+2️⃣
+3️⃣
+4️⃣
+
+
+⛔در صورت فیلتر بودن از طریق VPN غیر از سرور انگلیس ( سرور 
+🇺🇸 
+🇩🇪 
+🇨🇦
+🇫🇮
+🇹🇷
+👇
+👇 )
+
+
+🇪🇺 https://trentivo6402.bar
+
+
+✅کانال تلگرامی #رومابت 20
+👇
+
+
+🔵 @Romabet_official
+</div>
+
+## IranianMinds — post 22108
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 خبرنگار: «آیا به حمله به نیروگاه‌های برق و پل‌های ایران فکر می‌کنید؟»
+
+ترامپ: «این را به شما نمی‌گویم، اما می‌توانم چنین کاری انجام دهم.»
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22107
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22107_1781108702.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ :
+
+به درخواست پاکستان، به ایران فرصت دادم.
+
+فیلد مارشال و نخست‌ وزیر پاکستان افراد فوق‌العاده‌ای هستند.
+
+ما جلوی رفتن پاکستان و هند به سمت جنگ را گرفتیم.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22106
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ :
+
+خواهیم دید چه خواهد شد!
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22105
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22105_1781108705.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ درباره ایران :
+
+فک‌ میکنم اونا میخوان مذاکره کنن.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22104
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22104_1781108706.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ :
+
+ما ۲۲ تا از کشتی های ایرانی رو توی یه شب گرفتیم ، چون این بدبختا هیچ‌ راداری ندارن اصلا متوجه هم نمیشن!
+
+@IranianMinds
+</div>
+
+## idfinfarsi — post 11831
+
+<div align="center">
+  <a href="telegram/content/idfinfarsi_11831_1781108709.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‼️در صور و جنوب لبنان: ارتش اسرائیل به حمله به زیرساخت‌ها و به هلاکت رساندن تروریست‌های سازمان تروریستی حزب‌الله ادامه می‌دهد
+
+⭕️در طول ۲۴ ساعت گذشته، ارتش اسرائیل زیرساخت‌های سازمان تروریستی حزب‌الله را هدف قرار داده و تروریست‌هایی را در صور و مناطق دیگر در جنوب لبنان به هلاکت رسانده است.
+
+⭕️در چارچوب یکی از این حملات، یک انبار تسلیحات متعلق به سازمان تروریستی حزب‌الله هدف قرار گرفت. در پی این حمله، انفجارهای ثانویه‌ای شناسایی شد که نشان‌دهنده وجود تسلیحات در محل بود.
+</div>
+
+## manototv — post 105988
+
+<div align="center">
+  <a href="telegram/content/manototv_105988_1781108711.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ناپدید شدن پول از حساب‌های بانکی فقط یک مشکل مالی نیست، نشانه‌ای از فروریختن اعتماد عمومی به نظام بانکی و توان دولت در حفاظت از دارایی شهروندان است.
+</div>
+
+## alonews — post 126890
+
+<div align="center">
+  <a href="telegram/content/alonews_126890_1781108712.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ : این یه مسیر برای رسیدن به سلاح هسته‌ای بود
+
+
+🔴اونا تو دوره اون در حال توسعه سلاح هسته‌ای بودن
+
+
+🔴اگه سلاح هسته‌ای داشتن دیگه اسرائیلی وجود نداشت خاورمیانه‌ای هم نبود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126889
+
+<div align="center">
+  <a href="telegram/content/alonews_126889_1781108712.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 ترامپ : فکر میکنم اونها میخوان مذاکره کنند...!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126888
+
+<div align="center">
+  <a href="telegram/content/alonews_126888_1781108714.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: ونزوئلا به یک کشور شاد تبدیل شده است، باور بکنید یا نکنید
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126887
+
+<div align="center">
+  <a href="telegram/content/alonews_126887_1781108714.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: ما با بمب‌افکن‌های B-2 به ایران حمله می کنیم
+
+
+🔴میلیون‌ها بشکه نفت ایران را بر میداریم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126886
+
+<div align="center">
+  <a href="telegram/content/alonews_126886_1781108714.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حمید رسایی:
+اینترنت رو قطع کنید تا دیر نشده
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126885
+
+<div align="center">
+  <a href="telegram/content/alonews_126885_1781108715.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: ایران وقت‌کشی می‌کند و من می‌گویم چند روز دیگر هم به آن‌ها فرصت بدهیم، اما آن‌ها همچنان به تعلل و وقت‌کشی ادامه می‌دهند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126884
+
+<div align="center">
+  <a href="telegram/content/alonews_126884_1781108715.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: شب گذشته ۲۲ کشتی ایرانی را منهدم کردیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126883
+
+<div align="center">
+  <a href="telegram/content/alonews_126883_1781108715.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: ما به هیچ‌چیز که کانادا دارد نیاز نداریم. ما به هیچ‌چیز که مکزیک دارد نیاز نداریم. اما آن‌ها به همه چیزهایی که ما داریم نیاز دارند.
+
+
+🔴آن‌ها باید با ما بهتر رفتار کنند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126882
+
+<div align="center">
+  <a href="telegram/content/alonews_126882_1781108718.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: ما دیشب و پیش از این هم برای هدف قرار دادن رادارهای ایران تلاش کردیم.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126881
+
+<div align="center">
+  <a href="telegram/content/alonews_126881_1781108719.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: خواهیم دید سر توافق چه پیش می‌آید. واقعاً به توافق نزدیک بودیم، اما آن‌ها مدام ما را به بازی می‌گیرند. مدام ما را گول می‌زنند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126880
+
+<div align="center">
+  <a href="telegram/content/alonews_126880_1781108719.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈قیمت نفت برنت بعد از تهدید جدید ترامپ بر علیه ایران
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/20 19:34
 ---
 

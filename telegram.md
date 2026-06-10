@@ -7,6 +7,377 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/20 21:04
+---
+
+## VahidOOnLine — post 244746
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی ارسالی شهروندان به ایران اینترنشنال نشان می‌دهد در حوالی میدان قیام در محدوده جنوب تهران آتش و دود گسترده در شامگاه چهارشنبه ۲۰ خرداد دیده می‌شود.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244745
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244745_1781112868.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ مسعود پزشکیان، رئیس جمهوری اسلامی، روز چهارشنبه ۲۰ خرداد با انتشار پیامی در شبکه اجتماعی ایکس به تهدیدهای ترامپ مبنی بر هدف قرار دادن زیرساخت‌ها در ایران واکنش نشان داد. پزشکیان نوشت: «زیرساخت‌های حیاتی، شریان‌های زندگی مردم‌اند. تهدید به هدف قرار دادن آن‌ها از شبکه‌های حمل و نقل تا صنعت برق و آب، نه نمایش قدرت بلکه نشانه استیصال در برابر اراده یک ملت است.»
+
+رئیس جمهوری اسلامی در ادامه تاکید کرد: «ایران با تکیه بر دانش و توان متخصصان، وحدت ملی و همبستگی، در برابر هر فشار و تهدیدی استوار خواهد ماند.»
+
+این اظهارات یک روز پس از آن بیان شد که نیروهای آمریکا در پاسخ به هدف قرار گرفتن یک هلیکوپتر ارتش این کشور بر فراز تنگه هرمز، مجموعه‌ای از حملات را علیه مواضعی در ایران انجام دادند. پس از انجام این حملات، دونالد ترامپ در پاسخ به سوال خبرنگاران، احتمال حمله به زیرساخت‌ها در ایران را رد نکرد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244744
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244744_1781112868.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بنیامین نتانیاهو، نخست‌وزیر اسرائیل، در پیامی ویدیویی خطاب به مردم لبنان گفت اسرائیل با آن‌ها در جنگ نیست، بلکه با حزب‌الله می‌جنگد؛ گروهی که به گفته او لبنان را «گروگان» گرفته، به فرمان جمهوری اسلامی عمل می‌کند و از خاک لبنان برای حملات علیه اسرائیل استفاده می‌کند.
+
+نتانیاهو گفت لبنان پیش از نفوذ جمهوری اسلامی و حزب‌الله کشوری با آرامش، فرهنگ و رونق بود، اما به گفته او حزب‌الله و جمهوری اسلامی این کشور را به «کابوس» تبدیل کرده‌اند و بارها اسرائیل و لبنان را به جنگ کشانده‌اند.
+
+او افزود حزب‌الله «ضعیف‌تر از همیشه» و اسرائیل «قوی‌تر از همیشه» است و گفت اسرائیل تاکنون نزدیک به ۱۰ هزار نیروی حزب‌الله را از میان برده و به‌طور نظام‌مند در حال پاکسازی جنوب لبنان از نیروهای این گروه است. او افزود: «هر جا باشند، آن‌ها را پیدا خواهیم کرد.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244743
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس‌جمهوری آمریکا، روز چهارشنبه ۲۰ خرداد در جمع خبرنگاران در دفتر بیضی کاخ سفید ادعا کرد که ایالات متحده در عملیاتی شبانه، میلیون‌ها بشکه نفت را از خلیج فارس خارج کرده است.
+ترامپ مدعی شد این عملیات در تاریکی شب انجام شده و ایران تا زمان بیان این اظهارات از آن اطلاع نداشته است. او همچنین گفت که سامانه‌های راداری طرف مقابل در حملات آمریکا «کاملا نابود شده‌اند» و به همین دلیل این عملیات با عبور «۲۲ کشتی» امکان‌پذیر بوده است.
+رئیس‌جمهوری آمریکا در ادامه گفت افزایش قیمت نفت به ۸۵ دلار در هر بشکه نتیجه همین اقدامات است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14358
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨🚨🚨🚨🚨🚨🚨🚨به گزارش i24NEWS، ایالات متحده در حال آماده‌سازی موج گسترده‌تری از حملات علیه اهداف ایرانی در ساعات آینده است که فراتر از دامنه حملات قبلی خواهد بود
+@withyashar
+</div>
+
+## WithYashar — post 14357
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سفیر ایالات متحده در اسرائیل مایک هاکبی:ممکن است به زودی اوضاع در منطقه کمی داغ شود.
+@withyashar
+</div>
+
+## WithYashar — post 14356
+
+<div align="center">
+  <img src="telegram/content/WithYashar_14356_1781112869.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بی ۵۲ هم اکنون روی آسمان سعودی است 🚨
+@withyashar
+</div>
+
+## mwarmonitor — post 10635
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_10635_1781112870.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✈️یک فروند بمب‌افکن راهبردی از نوع B-52H Stratofortress متعلق به نیروی هوایی United States Air Force هم‌اکنون بر فراز عربستان سعودی در حال پرواز است و به سمت خلیج فارس حرکت می‌کند، در حالی که دستگاه پاسخ‌دهنده (transponder) خود را فعال کرده است.
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 342819
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342819_1781112871.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+President Trump is giving one of the nation's biggest transit hubs an $8 billion makeover.
+
+New renderings show what Trump's proposed transformation of New York Penn Station could look like.
+
+A brighter, more open station is being shown off, with more public space and a new, dramatic Eighth Avenue entrance designed to handle the rush of hundreds of thousands of daily commuters.
+
+The project gained momentum after Gov. Kathy Hochul secured funding support from Trump, who has previously floated the idea of having the new station named after him. For now, organizers say naming discussions aren't part of the project.
+
+Officials hope to start construction in 2027, but commuters can expect years of work before the project is finished.
+</div>
+
+## FoxNewsTwitter — post 342818
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌Fox News (Twitter/X)
+
+Read more here 👉
+</div>
+
+## FoxNewsTwitter — post 342817
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342817_1781112873.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"More people will be ready to greet him and wait for him than he might even expect."
+
+Serbian President Aleksandar Vučić exclusively tells Fox News Digital that Trump would receive a hero's welcome in Belgrade after support for the U.S. surged under his administration.
+
+Vučić says many Serbs see Trump far differently than previous American leaders, despite decades of lingering resentment over NATO's 1999 bombing campaign.
+
+Now, Serbia and the U.S. are preparing to expand cooperation on everything from energy and infrastructure to artificial intelligence and defense.
+
+The growing relationship comes as Serbia seeks to position itself as a regional economic hub while continuing its long-standing ambition of joining the European Union.
+</div>
+
+## pm_afshaa — post 93348
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93348_1781112874.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایران ما، امروز بیش از هر زمان دیگری به اتحاد نیروهای ملی نیاز دارد. چه با حمایت خارجی و چه بدون آن، سرنوشت ایران در دستان خود ماست. ما از این رژیم فرسوده و درمانده نیرومندتریم. ما از مزدورانی که برای نمایش‌های تبلیغاتی به خیابان فرستاده می‌شوند، مصمم‌تر و استوارتریم.
+
+@OfficialRezaPahlavi
+</div>
+
+## pm_afshaa — post 93347
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سفیر آمریکا در اسرائیل:ممکن است به زودی اوضاع در منطقه کمی داغ شود
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93346
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93346_1781112875.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: هر شب میلیون‌ها بشکه نفت از تنگه هرمز خارج میکنیم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93345
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴شبکه i24News : انتظار می‌رود ایالات متحده در ساعات آینده حملاتی را علیه طیف گسترده‌ تری از اهداف ایرانی انجام دهد که دامنه آن از حملات شب گذشته فراتر خواهد رفت
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93343
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93343_1781112876.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسمون ایلام پر پهپاده
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5554
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5554_1781112877.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺📢 شکایت مردم از گرانی مواد غذایی
+
+#گرانی #تورم
+@DEJradio
+</div>
+
+## kianmeli1 — post 87873
+
+<div align="center">
+  <a href="telegram/content/kianmeli1_87873_1781112879.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴شبکه i24News : انتظار می‌رود ایالات متحده در ساعات آینده حملاتی را علیه طیف گسترده‌ تری از اهداف ایرانی انجام دهد که دامنه آن از حملات شب گذشته فراتر خواهد رفت
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 341544
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی ارسالی شهروندان به ایران اینترنشنال نشان می‌دهد در حوالی میدان قیام در محدوده جنوب تهران آتش و دود گسترده در شامگاه چهارشنبه ۲۰ خرداد دیده می‌شود.
+</div>
+
+## IranIntlTV — post 341543
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341543_1781112881.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بنیامین نتانیاهو، نخست‌وزیر اسرائیل، در پیامی ویدیویی خطاب به مردم لبنان گفت اسرائیل با آن‌ها در جنگ نیست، بلکه با حزب‌الله می‌جنگد؛ گروهی که به گفته او لبنان را «گروگان» گرفته، به فرمان جمهوری اسلامی عمل می‌کند و از خاک لبنان برای حملات علیه اسرائیل استفاده می‌کند.
+
+نتانیاهو گفت لبنان پیش از نفوذ جمهوری اسلامی و حزب‌الله کشوری با آرامش، فرهنگ و رونق بود، اما به گفته او حزب‌الله و جمهوری اسلامی این کشور را به «کابوس» تبدیل کرده‌اند و بارها اسرائیل و لبنان را به جنگ کشانده‌اند.
+
+او افزود حزب‌الله «ضعیف‌تر از همیشه» و اسرائیل «قوی‌تر از همیشه» است و گفت اسرائیل تاکنون نزدیک به ۱۰ هزار نیروی حزب‌الله را از میان برده و به‌طور نظام‌مند در حال پاکسازی جنوب لبنان از نیروهای این گروه است. او افزود: «هر جا باشند، آن‌ها را پیدا خواهیم کرد.»
+https://iranintl.com/202606101114
+</div>
+
+## FarsiVOA — post 220259
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220259_1781112881.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل اعلام کرد در شبانه‌روز گذشته مواضع و نیروهای حزب‌الله را در صور و مناطق دیگر در جنوب لبنان هدف قرار داده است.
+
+در یکی از این حملات، یک انبار تسلیحات متعلق به سازمان تروریستی حزب‌الله هدف قرار گرفت. انفجارهای ثانویه در این حمله نشان‌دهنده وجود تسلیحات در محل بود.
+
+ارتش اسرائیل تاکید کرد به حملات خود به مواضع و نیروهای حزب‌الله در این مناطق ادامه می‌دهد.
+</div>
+
+## DW_Farsi — post 125786
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎥 ترامپ: قلدر خاورمیانه مرده است
+
+دونالد ترامپ، رئیس جمهور آمریکا روز چهارشنبه ۱۰ ژوئن (۲۰ خرداد) در شبکه تروث سوشال از مرگ "قلدر خاورمیانه" گفت و در مقابل تهران نیز همچنان بر مواضع خود پافشاری می‌کند. در این بین چشم‌انداز مذاکرات چندان روشن نیست.
+@dw_farsi
+</div>
+
+## IranianMinds — post 22124
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22124_1781112883.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سفیر ایالات متحده در اسرائیل، مایک هاکبی:
+
+ممکن است اوضاع به زودی در منطقه کمی داغ شود.
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 391599
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391599_1781112884.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کاری قشنگ از مهدی رسولی بنام عظما تو یخچاله 😂😂😂😂😂😂
+
+
+@Dirty_Kids 👻
+</div>
+
+## Hranews — post 113525
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارشی از بیکاری، بلاتکلیفی و معوقات مزدی و بیمه‌ای کارگران در ۴ واحد مختلف
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– کارگران شرکت فولاد پارس هفت‌تپه و کارخانه سرجین بافت زنجان، از عدم پرداخت مطالبات مزدی و بیمه‌ای خود خبر دادند. همچنین، جمعی از #کارگران بیکار شده پروژه ساخت فاز دوم پالایشگاه گاز ایلام، از محقق نشدن وعده بازگشت به کار خود انتقاد کردند. از سوی دیگر، کارگران شاغل در یک واحد تولید و بسته‌بندی رب گوجه فرنگی در کهنوج، در پی پلمب این واحد تولیدی، بیکار شدند.
+
+ادامه مطلب
+
+↘️
+@hranews_bot تماس ✉️ -  @Hranews  کانال هرانا 🆑
+</div>
+
+## officialrezapahlavi — post 1843
+
+<div align="center">
+  <a href="telegram/content/officialrezapahlavi_1843_1781112885.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایران ما، امروز بیش از هر زمان دیگری به اتحاد نیروهای ملی نیاز دارد. چه با حمایت خارجی و چه بدون آن، سرنوشت ایران در دستان خود ماست. ما از این رژیم فرسوده و درمانده نیرومندتریم. ما از مزدورانی که برای نمایش‌های تبلیغاتی به خیابان فرستاده می‌شوند، مصمم‌تر و استوارتریم.
+
+@OfficialRezaPahlavi
+</div>
+
+## alonews — post 126917
+
+<div align="center">
+  <a href="telegram/content/alonews_126917_1781112886.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزیر انرژی آمریکا رایت، در پاسخ به سوال درباره اظهارات ترامپ، می‌گوید از خارج کردن نفت از ایران توسط آمریکا مطلع نیست
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126916
+
+<div align="center">
+  <a href="telegram/content/alonews_126916_1781112886.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈آکسیوس: ترامپ پس از سرنگونی یک هلیکوپتر آمریکایی، حمله به ایران را دستور داد، اما مقامات می‌گویند خشم او به دلیل عدم پاسخ تهران به آخرین پیشنهادش، تقریباً دو هفته بود که در حال افزایش بود.
+
+
+🔴این حملات طوری طراحی شده بودند که بدون ایجاد تلفات انسانی یا به هم ریختن دیپلماسی، اهرم فشار را بازگردانند.
+
+
+🔴حتی در حالی که نیروهای آمریکایی به سیستم‌های نظامی ایران حمله می‌کردند، میانجی‌گران قطری گفتگوهای خود را برای احیای مذاکرات ادامه دادند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126915
+
+<div align="center">
+  <a href="telegram/content/alonews_126915_1781112886.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈شبکه i24News : انتظار می‌رود ایالات متحده در ساعات آینده حملاتی را علیه طیف گسترده‌ تری از اهداف ایرانی انجام دهد که دامنه آن از حملات شب گذشته فراتر خواهد رفت
+
+
+🔴هدف از این حملات ارسال پیامی به تهران برای ارائه پاسخ فوری در مورد توافق پیشنهادی روی میز است و به معنای بازگشت به یک جنگ تمام‌ عیار نیست
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/20 20:54
 ---
 

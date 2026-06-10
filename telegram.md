@@ -7,6 +7,460 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/20 03:32
+---
+
+## VahidOOnLine — post 244600
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244600_1781049772.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مایک جانسون، رییس مجلس نمایندگان آمریکا، گفت پیشاپیش از دور جدید حملات آمریکا به جمهوری اسلامی با خبر شده بود. او این حمله‌ها را «متناسب و محدود» توصیف کرد و گفت این عملیات سامانه‌های راداری، موشکی و مراکز فرماندهی و کنترل را هدف گرفته است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244599
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244599_1781049773.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️رضا دالمن، دانشجوی کارشناسی ارشد مهندسی کامپیوتر دانشگاه صنعتی شریف، با حکم شورای انضباطی این دانشگاه به اخراج و محرومیت از تحصیل در تمامی دانشگاه‌های کشور به مدت چهار سال محکوم شد.
+به گزارش خبرگزاری دانشجو، این حکم پس از تایید در شورای تجدیدنظر دانشگاه برای اجرا به وزارت علوم ارسال شده است. بر اساس این حکم، دالمن که ورودی سال ۱۴۰۳ مقطع کارشناسی ارشد مهندسی کامپیوتر است، از دانشگاه اخراج و از ادامه تحصیل در همه دانشگاه‌های کشور به مدت چهار سال محروم شده است.
+دادبان پیش‌تر گزارش داده بود که رضا دالمن، دانشجوی ۲۴ ساله دانشگاه صنعتی شریف، شب سال نو ۱۴۰۵ به اتهام آویختن عروسک موش به درخت بازداشت شده بود. او ۲۸ اسفندماه ۱۴۰۴ بازداشت و حدود یک ماه بعد با تودیع وثیقه آزاد شد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14255
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/boost/withyashar
+
+۳۹۰ بوست پرمیوم هاااا
+</div>
+
+## WithYashar — post 14254
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+۴ انفجار‌شدید بندر عباس
+@withyashar
+</div>
+
+## mwarmonitor — post 10577
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 حمله دوباره آمریکایی به سیریک
+</div>
+
+## FoxNewsTwitter — post 342782
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342782_1781049773.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: Trump-backed Republican Steve Hilton has advanced in the California governor's race, the Associated Press projects.
+
+Hilton will run against former President Biden's Health and Human Services Secretary, Xavier Becerra.
+</div>
+
+## FoxNewsTwitter — post 342781
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342781_1781049774.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+FOX NEWS REPORT: Just three days before the first U.S. Men's World Cup match, hospitality workers at the Los Angeles stadium have reached a tentative agreement to avoid a strike, FOX News’ @BillMelugin_ reports ahead of kickoff.
+</div>
+
+## pm_afshaa — post 93176
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+افراد محلی میگن تو جنگ 40 روزه هم همچین حملاتی در تایم کوتاه و همزمان به بندرعباس نشده بوده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93175
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش سنتکام از تعداد حمله بیاد جالبه
+گزارش‌ها از انفجار در بندرعباس خیلی زیاده
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93174
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هنوز بندرعباس صدای انفجار
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93173
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+3 انفجار در بندر عباس
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93172
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انفجار های شدید در بندرعباس ادامه داره.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93171
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴منابع عراقی: جنگنده‌های آمریکایی در تعداد بالا درحال پرواز در آسمان عراق هستن
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93170
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93170_1781049776.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴حملات آمریکا در جنوب کشور از جمله سیریک، قشم و بندرعباس شدید گزارش شده. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## VahidOnline — post 76120
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76120_1781049776.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مایک جانسون، رییس مجلس نمایندگان آمریکا، گفت پیشاپیش از دور جدید حملات آمریکا به جمهوری اسلامی با خبر شده بود. او این حمله‌ها را «متناسب و محدود» توصیف کرد و گفت این عملیات سامانه‌های راداری، موشکی و مراکز فرماندهی و کنترل را هدف گرفته است.
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 76119
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیام‌‌های دریافتی تایید نشده:
+
+سلام وحید جان، ۰۳:۱۸ و ۰۳:۱۹ دوتا صدای انفجار اومد بندرعباس
+الانم دوتا وحشتناک تر🤯
+
+همین الان بندرعباس صدا اومد ۳:۲۱
+
+سلام وحید همین الان دوتا انفجار شدید بندرعباس
+
+وحید بندرعباس انفجار شدید
+
+همين الان بندرعباس صدا اومد ٣:٢٢ دقيقه
+
+درود بندر ۳.۲۳ انفجار پیاپی + ۳.۲۲
+و مجدد ۳.۲۴ بندرعباس
+
+دوتا صدای وحشتناک ۳:۲۳
+همین الان بندرعباس
+
+
+سلام وحید سیریک سمت روستایی طاهرویی صدای انفجار شدیدی اومدم فکر کنم نیرو دریایی سپاه رو زدن
+
+سلا وحید جان، همین الان بندرعباس صدای دوتا انفجار پشت سر هم اومد، ترسناک بود
+
+صدای انفجار بندرعباس همین الان دوبار صدا اومد
+صدای نسبتا شدید و خطرناک
+
+وحید ساعت ۳:۲۴ بندرعباس صدای دو تا انفجار
+
+بندرعباس ۴ انفجار
+
+قشم ساعت ۳:۲۳ بامداد ۲۰ خرداد
+در محدوده طولا یه لرزش نسبتا شدید احساس شد ولی صدای انفجار خاصی نیومد، شاید زلزله شاید هم انفجارات حمله‌های اخیر بوده که لرزشش رو حس کردیم، خونه کامل لرزید
+
+سلام وحید جان همین حالا قشم ۲ تا صدای انفجار اومد ، دومی نزدیکتر یا شدید تر بود
+
+بندر دوتا انفجار خیلی شدید پشت سرهم اومد سمت پارک جنگلی
+
+ساعت ۳:۲۳ بامداد بندرعباس یه چیزی منفجر شد
+
+سلام سمت پایگاه هوایی بندرعباس رو میزنن
+
+#قشم، 03:23، 20 خرداد صدای بلند انفجار شنیده شد. (شاید صدای انفجار بندرعباس بوده)
+
+سلام بندعباس صدای انفجار الان چهارشنبه ۳:۲۴
+
+نزديك پایگاه هوایی بندرعباس خونه ماست به فاصله پنج دقیقه چهار انفجار بزرگ صدا اومد
+
+اقا وحید بندر خیلی صدا انفجار میاد
+
+سلام وحید جان بندرعباس 3:24 دوبار زدن صدای خیلی زیادی اومد همراه با لرزش
+
+وحید جان درود
+ساعت 3:24 دقیقه بامداد چهارشنبه 4 انفجار شدید سمت فرودگاه و پایگاه هوایی بندرعباس
+
+۳:۲۳ دقیقه ۴ ۵ تا پشت هم زدن بندر رو
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 341424
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341424_1781049777.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مایک جانسون، رییس مجلس نمایندگان آمریکا، گفت پیشاپیش از دور جدید حملات آمریکا به جمهوری اسلامی با خبر شده بود. او این حمله‌ها را «متناسب و محدود» توصیف کرد و گفت این عملیات سامانه‌های راداری، موشکی و مراکز فرماندهی و کنترل را هدف گرفته است.
+https://iranintl.com/202606096156
+</div>
+
+## Shin_Persian — post 6810
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6810_1781049777.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Tue, 09 Jun 2026 23:59:53 UTC
+
+Several blasts felt in Qeshm between 2351Z to 2355Z
+(Presumably from Bandar Abbas' side)
+
+فارسی
+
+چندین انفجار بین ساعت ۲۳۵۱ زولو (۰۳:۲۱ به وقت تهران) تا ۲۳۵۵ زولو (۰۳:۲۵ به وقت تهران) در قشم احساس شد
+(احتمالاً از سمت بندرعباس)
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6809
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Tue, 09 Jun 2026 23:53:37 UTC
+
+Blast in Bandar Abbas, Hormozgan Province, #Iran
+
+فارسی
+
+انفجار در بندرعباس، استان هرمزگان، #Iran
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6808
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6808_1781049778.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Tue, 09 Jun 2026 23:52:57 UTC
+
+Inb4 some telegram channel watermark it this way
+
+فارسی
+
+پیش از آنکه برخی کانال‌های تلگرامی به این شکل روی آن واترمارک بزنند
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 220189
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220189_1781049779.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️خبرگزاری‌های حکومتی در ایران دقایقی پیش خبر دادند که یک بار دیگر صدای انفجارها در شهرستان جاسک واقع در استان هرمزگان گزارش شد. ایالات متحده ساعاتی پیش اعلام کرد که حملات خود به مواضع رژیم را در واکنش به سرنگون کردن یک هلی‌کوپتر آمریکایی،‌ آغاز کرده است.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220188
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️محکومیت جهانی تیراندازی طالبان به معترضان در هرات افغانستان
+@FarsiVOA
+</div>
+
+## DW_Farsi — post 125745
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125745_1781049779.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 الجزیره: آغاز موج دوم حملات آمریکا علیه سیستم‌های پدافندی و راداری ایران
+
+شبکه خبری الجزیره بامداد چهارشنبه ۱۰ ژوئن (۲۰ خرداد) به نقل از پایگاه اکسیوس از آغاز موج دوم حملات آمریکا علیه سیستم‌های پدافندی و راداری ایران خبر داد.
+
+این در حالیست که گزارش‌هایی از موج دوم حملات هوایی آمریکا منتشر شده اما سنتکام هنوز اطلاعیه جدیدی در این‌باره منتشر نکرده است.
+
+خبرگزاری صداوسیما نیز گزارش کرد، "لحظاتی پیش مجددا صدای انفجار در محدوده شهرستان جاسک در استان هرمزگان شنیده شده است".
+
+به گزارش خبرگزاری مهر، "بامداد چهارشنبه صدای انفجارهایی در محدوده شهرستان قشم از سوی منابع محلی و ساکنان بندر سیریک و روستاهای اطراف گزارش شده است. هنوز ماهیت این صداها به طور دقیق مشخص نیست".
+
+پیش‌تر حملات به بندر جاسک تایید شده بود. پایگاه خبری اکسیوس شامگاه سه‌شنبه به نقل از یک مقام آمریکایی گزارش داد، حملات تلافی‌جویانه ارتش آمریکا چندین سامانه پدافند هوایی و راداری ایران را در اطراف تنگه هرمز هدف قرار داده است.
+
+در همین حال خبرگزاری‌های داخلی ایران با انتشار تصاویری از مشاهده پهپادهای انتحاری ایران در آسمان عراق خبر می‌دهند.
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 16412
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کماکان بمباران بندر عباس، قشم و سیریک ادامه دارد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 22025
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22025_1781049779.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فوری ناو‌ آبراهام رئیسی برای مقابله با ناو های آمریکایی به سمت تنگه هرمز‌ حرکت کرد
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22024
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 انفجار مجدد در سیریک
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22023
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شدید داره میزنه بندرعباسو آمریکا
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22022
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 دو انفجار سنگین در بندرعباس
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22021
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 حملات شدید آمریکا به بندرعباس
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 391550
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391550_1781049780.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔥فقط با ورشکست کردن سایت های شرط بندی امشب با جوجه ی قشنگم کنار برج خلیفه ام
+🔥 https://t.me/+lCR7HeYTU15iNjM0 https://t.me/+lCR7HeYTU15iNjM0 A19 
+💯حال کردم به همتون پول دراوردن رو یاد بدم من قرار نیست از تو پولی بگیرم و همه چیز رایگانه
+💸
+</div>
+
+## Dirty_Kids — post 391549
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391549_1781049780.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔥فقط با ورشکست کردن سایت های شرط بندی امشب با جوجه ی قشنگم کنار برج خلیفه ام
+🔥
+
+https://t.me/+lCR7HeYTU15iNjM0
+https://t.me/+lCR7HeYTU15iNjM0
+A19
+
+💯حال کردم به همتون پول دراوردن رو یاد بدم
+من قرار نیست از تو پولی بگیرم و همه چیز رایگانه
+💸
+</div>
+
+## Dirty_Kids — post 391548
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391548_1781049781.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#بخوابیم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391547
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391547_1781049781.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عاصم منیر امشب:
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/03/20 03:23
 ---
 

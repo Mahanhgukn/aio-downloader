@@ -7,6 +7,298 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/20 04:52
+---
+
+## VahidOOnLine — post 244611
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244611_1781054579.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ستاد فرماندهی مرکزی آمریکا، سنتکام، اعلام کرد عملیات جدید خود علیه جمهوری اسلامی را که در پاسخ به سرنگون شدن یک بالگرد آپاچی ارتش آمریکا انجام داد، به پایان رسانده است.
+طبق اعلام سنتکام، نیروهای آمریکا با استفاده از مهمات دقیق که از جنگنده‌های نیروی هوایی و نیروی دریایی آمریکا شلیک شد، سامانه‌های پدافند هوایی، ایستگاه‌های کنترل زمینی و سایت‌های راداری نظارتی جمهوری اسلامی در نزدیکی تنگه هرمز را هدف قرار دادند.
+سنتکام این عملیات را پاسخی متناسب به حملات اخیر علیه نیروهای آمریکایی و کشتی‌های تجاری بین‌المللی در حال عبور از آب‌های منطقه توصیف کرد.
+سنتکام تاکید کرد نیروهای آمریکایی همچنان در حالت آماده‌باش باقی مانده‌اند و برای دفاع در برابر «تجاوز غیرموجه» جمهوری اسلامی آمادگی دارند.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342785
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342785_1781054579.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"A chance for change."
+
+Steve Hilton celebrated advancing to California's gubernatorial general election after securing a spot in the state's top-two primary.
+
+The Trump-backed Republican will now face former Biden Cabinet secretary Xavier Becerra in a high-stakes race to succeed Gov. Gavin Newsom.
+</div>
+
+## FoxNewsTwitter — post 342784
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342784_1781054580.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+RT @JesseBWatters: 🚨 BREAKING: JURY SENTENCES KARMELO ANTHONY TO 35 YEARS BEHIND BARS 🚨
+</div>
+
+## pm_afshaa — post 93236
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_93236_1781054582.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شلیک موشک از الیگودرز لرستان
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93235
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سد مجید خوابه؟
+</div>
+
+## pm_afshaa — post 93234
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_93234_1781054583.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پرتاب موشک از الیگودرز لرستان :
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93233
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93233_1781054583.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴گویا 6 موشک تا الان شلیک شده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93232
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93232_1781054584.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پرتاب موشک از خمین :
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93231
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شلیک موشک خمین و لرستان
+</div>
+
+## VahidOnline — post 76127
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76127_1781054585.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قرارگاه مرکزی خاتم الانبیا اعلام کرد ارتش و سپاه در پاسخ به حمله‌های جدید آمریکا علیه جمهوری اسلامی، برخی از پایگاه‌های آمریکا در منطقه هدف حمله‌های قرار دادند.
+این قرارگاه تاکید کرد در صورت تکرار حملات آمریکا، جمهوری اسلامی «حملات سهمگین و گسترده‌تری» علیه بانک اهداف تعیین شده در منطقه انجام خواهد شد.
+
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 341429
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341429_1781054585.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ستاد فرماندهی مرکزی آمریکا، سنتکام، اعلام کرد عملیات جدید خود علیه جمهوری اسلامی را که در پاسخ به سرنگون شدن یک بالگرد آپاچی ارتش آمریکا انجام داد، به پایان رسانده است.
+طبق اعلام سنتکام، نیروهای آمریکا با استفاده از مهمات دقیق که از جنگنده‌های نیروی هوایی و نیروی دریایی آمریکا شلیک شد، سامانه‌های پدافند هوایی، ایستگاه‌های کنترل زمینی و سایت‌های راداری نظارتی جمهوری اسلامی در نزدیکی تنگه هرمز را هدف قرار دادند.
+سنتکام این عملیات را پاسخی متناسب به حملات اخیر علیه نیروهای آمریکایی و کشتی‌های تجاری بین‌المللی در حال عبور از آب‌های منطقه توصیف کرد.
+سنتکام تاکید کرد نیروهای آمریکایی همچنان در حالت آماده‌باش باقی مانده‌اند و برای دفاع در برابر «تجاوز غیرموجه» جمهوری اسلامی آمادگی دارند.
+
+https://iranintl.com/202606103042
+</div>
+
+## Shin_Persian — post 6836
+
+<div align="center">
+  <a href="telegram/content/Shin_Persian_6836_1781054586.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Wed, 10 Jun 2026 01:11:06 UTC
+
+Via @Vahid:
+0106Z - 3 BMs launched from Khomein, Markaz Province, #Iran
+
+ترجمه خودکار فارسی
+
+به نقل از @Vahid:
+۰۱۰۶ زولو (۰۴:۳۶ به وقت تهران) - شلیک ۳ فروند موشک بالستیک از خمین، استان مرکزی، #Iran_
+
+𝕏 · @shin_persian
+</div>
+
+## Iliaen — post 4468
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ساعت حدود ۰۴:۳۰ صبح چهارشنبه؛ جمهوری اسلامی چندین موشک بالستیک را از نقاط مختلف ایران به سمت اهدافی نامشخص پرتاب کرد.
+
+@iliaen
+</div>
+
+## FarsiVOA — post 220202
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺آمریکا می‌گوید «حمله دفاعی» آن در واکنش به حمله جمهوری اسلامی به هلی‌کوپتر آپاچی تکمیل شد
+
+▪️ستاد فرماندهی مرکزی آمریکا،‌ سنتکام، در بیانیه‌ای که سه‌شنبه شب به وقت واشنگتن صادر کرد گفت نیروهای آمریکایی حملاتی را در تاریخ ۹ ژوئن، به دستور فرمانده کل قوا و در پاسخ به سرنگونی روز دوشنبه یک هلیکوپتر آپاچی ارتش ایالات متحده آغاز کرده‌ بودند، تکمیل کردند.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8159284.html
+@FarsiVOA
+</div>
+
+## DW_Farsi — post 125749
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125749_1781054586.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 گزارش‌ها از شنیده شدن صدای انفجار در بحرین و کویت
+
+در پی آغاز دور جدیدی از حملات ارتش ایالات متحده به مواضعی در جنوب ایران، گزارش‌ها از برقراری بالاترین سطح هشدار در پایگاه‌های نظامی آمریکا در کشورهای حوزه خلیج فارس و شنیده شدن صدای انفجارهای شدید در بحرین و کویت حکایت دارد.
+
+به گزارش ایرنا، صداهای انفجار شدیدی در بحرین و کویت شنیده شده است. هنوز جزئیات بیشتری درباره علت این انفجارها یا اهداف احتمالی منتشر نشده است.
+
+این تحولات پس از آن رخ می‌دهد که فرماندهی مرکزی نیروهای آمریکا در خاورمیانه (سنتکام) رسما اعلام کرد، ارتش این کشور حملات تلافی‌جویانه‌ای را در پاسخ به سرنگونی یک بالگرد آپاچی خود علیه ایران آغاز کرده است.
+
+📌تصویر از آرشیو
+@dw_farsi
+</div>
+
+## IranianMinds — post 22053
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این موشکا کجا میرن دقیقا؟ نکنه دارن آدم فضایی شکار میکنن چون نه رهگیری میشن نه خبر انفجار از جایی هست
+</div>
+
+## IranianMinds — post 22052
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22052_1781054587.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شلیک موشک از الیگودرز لرستان
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22051
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22051_1781054587.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شلیک موشک از خمین
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22050
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارشاتتونو بفرستید
+
+@AmanWiths
+</div>
+
+## IranianMinds — post 22049
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سپاه دوباره از خمین چن تا آبگرمکن شلیک کرد @IranianMinds
+</div>
+
+## IranianMinds — post 22048
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سپاه دوباره از خمین چن تا آبگرمکن شلیک کرد
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 283297
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻سنتکام از پایان این دور حملاتش به ایران خبر داد: پاسخ ما به ایران در پی سرنگون کردن بالگرد پایان یافت
+
+سنتکام، سرفرماندهی ارتش آمریکا اعلام کرد که حملاتش به ایران در پاسخ به سرنگون کردن بالگرد آپاچی پایان یافته است.
+
+سنتکام در پستی در شبکه اجتماعی ایکس نوشت: «نیروهای فرماندهی مرکزی ایالات متحده با مهمات دقیق از جنگنده‌های نیروی هوایی و دریایی ایالات متحده، به پدافند هوایی، ایستگاه‌های کنترل زمینی و سایت‌های رادار نظارتی ایران در نزدیکی تنگه هرمز حمله کردند.»
+
+آمریکا گفته که «این عملیات پاسخی متناسب به حملات اخیر به نیروهای آمریکایی و کشتی‌های تجاری بین‌المللی در حال عبور از آب‌های منطقه‌ای بود.»
+
+سنتکام در پایان هم تاکید کرده که ارتش آمریکا «آماده دفاع در برابر تجاوز بی‌دلیل ایران» است.
+https://bbc.in/4fAMoZF
+@BBCPersian
+</div>
+
+## BBCPersian — post 283296
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻سپاه پاسداران از حمله به پایگاه نیروی دریایی آمریکا در بحرین خبر داد
+
+خبرگزاری تسنیم به نقل از سپاه پاسداران نوشته است: «در پاسخ به حرکت شرارت آمیز دشمن، رزمندگان نیروی دریایی سپاه ساعت ۲.۳۰ دقیقه بامداد ناوگان پنجم دریایی بحرین را مورد حمله پهپادی قرار دادند.»
+
+در بیانیه سپاه پاسداران که بامداد چهارشنبه منتشر شد آمده است: «رژیم جنگ افروز آمریکا در اوایل بامداد امروز با بهانه های واهی چند نقطه در جاسک، سیریک و قشم را مورد حمله قرار داد که به یک دکل مخابراتی در سیریک خساراتی وارد آمد و دو مخزن آب بخش بمانی این شهرستان منهدم شد. در پاسخ به این حرکت شرارت آمیز دشمن، رزمندگان نیروی دریایی سپاه ساعت ۲.۳۰ دقیقه بامداد ناوگان پنجم دریایی بحرین را مورد حمله پهپادی قرار دادند.»
+
+در بیانیه سپاه از «ادامه درگیری‌ها» خبر داده شده و آمده است: «در صورت ادامه شرارت، پاسخ‌های سنگین‌تری در راه است.»
+
+پیش از این هم خبرگزاری‌های نزدیک به سپاه پاسداران تصاویری از مشاهده پهپاد در آسمان عراق منتشر کرده و تلویحا آنها را در «مسیر حمله و واکنش به حملات آمریکا» خوانده بودند.
+https://bbc.in/4fAMoZF
+@BBCPersian
+</div>
+
+---
 📅 بروزرسانی: 1405/03/20 04:42
 ---
 

@@ -7,6 +7,148 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/20 05:33
+---
+
+## VahidOOnLine — post 244616
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244616_1781056994.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️خبرگزاری فارس، رسانه وابسته به سپاه پاسداران، اعلام کرد که  سپاه دقایقی قبل پایگاه آمریکایی الازرق در خاک اردن را هدف حمله موشکی قرار داده‌اند. این حمله موشکی در حالی صورت می‌گیرد که پیش از این نیز سپاه پاسداران با انتشار بیانیه‌ای رسمی اعلام کرده بود در پاسخ به حملات ایالات متحده، مقر فرماندهی ناوگان پنجم آمریکا در بحرین را هدف حملات خود قرار داده است. با این حملات، دامنه درگیری‌های نظامی در منطقه به شکل بی‌سابقه‌ای گسترش یافته است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## pm_afshaa — post 93256
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93256_1781056994.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وزارت کشور بحرین:
+پس از حملات ایران، شرایط امنیتی به حالت عادی بازگشته و همه چیز امنه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93255
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دریغ از یه برخورد عرزشی زجه بزن😂
+</div>
+
+## Shin_Persian — post 6846
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Wed, 10 Jun 2026 02:02:26 UTC
+
+NOW @ 0202Z -
+Jet activity over Erbil, #Iraq 🇮🇶
+
+ترجمه خودکار فارسی
+
+هم‌اکنون در ۰۲۰۲ زولو (۰۵:۳۲ به وقت تهران) -
+فعالیت جنگنده‌ها بر فراز اربیل، #Iraq 🇮🇶
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6845
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Wed, 10 Jun 2026 01:59:13 UTC
+
+IRGC terror organization:
+
+"Following the successful operation by the IRGC Navy, which targeted 21 objectives across US air and naval bases in the region and led to the downing of an MQ9 drone over Kangan County, and in response to the enemy's ongoing malevolence, the forces of Islam and the brave aerospace fighters of the IRGC have utilized their long-range solid-propellant missiles to strike and destroy four critical targets. These targets include F-35 fighter jet hangars at an airbase and the command and control center of the American army in Al-Azraq, Jordan.
+
+Our forces are prepared to deliver a decisive and crushing response to any further aggression by the enemy. The consequences of any renewed aggression will rest squarely with the American enemy."
+
+ترجمه خودکار فارسی
+
+سازمان تروریستی سپاه پاسداران انقلاب اسلامی (IRGC):
+
+«در پی عملیات موفقیت‌آمیز نیروی دریایی سپاه پاسداران (IRGC)، که ۲۱ هدف را در پایگاه‌های هوایی و دریایی آمریکا در منطقه مورد هدف قرار داد و منجر به سرنگونی یک پهپاد MQ9 بر فراز شهرستان کنگان شد، و در پاسخ به شرارت‌های مستمر دشمن، نیروهای اسلام و رزمندگان دلاور هوافضای سپاه پاسداران (IRGC) با استفاده از موشک‌های دوربرد سوخت جامد خود، چهار هدف حیاتی را مورد اصابت قرار داده و منهدم کردند. این اهداف شامل آشیانه‌های جنگنده F-35 در یک پایگاه هوایی و مرکز فرماندهی و کنترل ارتش آمریکا در الازرق اردن است.
+
+نیروهای ما آماده‌اند تا به هرگونه تجاوز بیشتر از سوی دشمن، پاسخی قاطع و کوبنده بدهند. عواقب هرگونه تجاوز مجدد مستقیماً بر عهده دشمن آمریکایی خواهد بود.»
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6844
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6844_1781056995.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet: Shin ✓ @hey_itsmyturn Wed, 10 Jun 2026 01:28:55 UTC Bahrain MOI: Sirens sounded. Citizens and residents urged to remain calm, head to nearest safe place, and follow official channels. #Bahrain 🇧🇭 Source: @moi_bahrain https://x.com/moi…
+</div>
+
+## Shin_Persian — post 6843
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+Shin ✓ @hey_itsmyturn
+Wed, 10 Jun 2026 01:28:55 UTC
+
+Bahrain MOI: Sirens sounded. Citizens and residents urged to remain calm, head to nearest safe place, and follow official channels.
+
+#Bahrain 🇧🇭
+
+Source: @moi_bahrain
+https://x.com/moi_bahrain/status/2064520099243921819
+
+↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
+
+ترجمه خودکار فارسی
+
+وزارت کشور بحرین: آژیرهای خطر به صدا درآمدند. از شهروندان و ساکنان درخواست می‌شود آرامش خود را حفظ کرده، به نزدیک‌ترین مکان امن بروند و کانال‌های رسمی را دنبال کنند.
+
+#Bahrain 🇧🇭
+
+منبع: @moi_bahrain
+https://x.com/moi_bahrain/status/2064520099243921819
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 220206
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️لایحه جدید کنگره: پایان کمک‌های نظامی به عراق در صورت تداوم نفوذ گروه‌های نیابتی جمهوری اسلامی
+@FarsiVOA
+</div>
+
+## BBCPersian — post 283302
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻 آمریکا از حمله به ۲۰ هدف در بامداد چهارشنبه خبر داد
+
+مقام‌های آمریکایی در گفتگو با شبکه فاکس درباره حملات هوایی بامداد چهارشنبه به نقاطی در جنوب ایران گفته اند از جمله این که در جریان این حملات که به نظر طی سه موج در فواصل زمانی کوتاه انجام شد «۲۰ هدف» مورد حمله قرار گرفته است.
+
+ایران هدف قرار گرفتن نقاطی در شهرهای جنوبی این کشور چون جاسک و حوالی بندرعباس، میناب و روستاهای سیریک و کوه مبارک را تایید کرده است اما جزییاتی از تاسیسات یا نقاط مورد حمله قرار گرفته هنوز منتشر نکرده است.
+
+در هرمزگان اما مقام‌های محلی از هدف قرار گرفتن دو منبع آب روستاهای سیریک خبر داده‌اند.
+
+https://bbc.in/4uqpnfC
+@BBCPersian
+</div>
+
+---
 📅 بروزرسانی: 1405/03/20 05:23
 ---
 

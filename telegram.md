@@ -7,6 +7,296 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/20 04:33
+---
+
+## VahidOOnLine — post 244606
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244606_1781053390.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️درحالی که بحرین و سنتکام هنوز گزارشی از حمله به ناوگان پنجم دریایی آمریکا منتشر نکرده‌اند، سپاه پاسداران در بیانیه‌ای گفت که حوالی ساعت ۲:۳۰ دقیقه بامداد چهارشنبه به این ناوگان حمله کرده است. قرارگاه خاتم نیز گفته که برخی پایگاه‌های آمریکا در منطقه هدف گرفته شدند. هنوز کشورهای منطقه یا سنتکام این حمله‌ها را تایید نکرده‌اند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## mwarmonitor — post 10586
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴تامپا، فلوریدا — فرماندهی مرکزی ایالات متحده آمریکا (سنتکام) اعلام کرد که نیروهای این فرماندهی در ۹ ژوئن و به دستور فرمانده کل قوا، حملات «دفاع از خود» را علیه ایران انجام داده‌اند؛ این اقدام در پاسخ به سرنگونی یک بالگرد آپاچی ارتش آمریکا در روز گذشته صورت گرفته است.
+
+🔸بر اساس این بیانیه، نیروهای سنتکام مواضع پدافند هوایی ایران، ایستگاه‌های کنترل زمینی و سایت‌های راداری مراقبت در نزدیکی تنگه هرمز را با مهمات دقیق و توسط جنگنده‌های نیروی هوایی و نیروی دریایی آمریکا هدف قرار داده‌اند.
+
+🔸در این گزارش آمده است که این عملیات پاسخی متناسب به حملات اخیر علیه نیروهای آمریکایی و کشتی‌های تجاری بین‌المللی عبوری از آب‌های منطقه‌ای بوده است.
+
+🔸در پایان نیز تأکید شده است که نیروهای آمریکایی همچنان در حالت هوشیاری کامل قرار دارند و برای دفاع در برابر هرگونه «تجاوز غیرموجه ایران» آماده هستند.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10585
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴صدای انفجار در شهر اهواز، مرکز استان خوزستان ایران.
+</div>
+
+## FoxNewsTwitter — post 342783
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342783_1781053391.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: Karmelo Anthony has been sentenced to 35 years in prison.
+
+Anthony was found guilty of murder on Tuesday for the stabbing death of Austin Metcalf at a high school track meet.
+
+He will be eligible for parole after half time served.
+</div>
+
+## pm_afshaa — post 93229
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93229_1781053391.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سنتکام اعلام کرد که حملات آمریکا به پایان رسید.
+
+نیروهای فرماندهی مرکزی ایالات متحده (CENTCOM) در تاریخ ۹ ژوئن، به دستور فرمانده کل قوا، حملات دفاعی خود را در پاسخ به سرنگونی هلیکوپتر آپاچی ارتش آمریکا در روز گذشته انجام دادند.
+نیروهای سنتکام با استفاده از مهمات دقیق از جنگنده‌های نیروی هوایی و نیروی دریایی آمریکا، به سامانه‌های دفاع هوایی، ایستگاه‌های کنترل زمینی و رادارهای نظارتی ایران در نزدیکی تنگه هرمز حمله کردند. این عملیات پاسخی متناسب به حملات اخیر علیه نیروهای آمریکایی و کشتی‌های تجاری بین‌المللی در آب‌های منطقه‌ای بود.
+نیروهای آمریکایی همچنان هوشیار بوده و آماده دفاع در برابر تجاوزات غیرموجه ایران هستند.
+
+
+💧Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93228
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سنتکام اعلام کرد حملات تمام شد
+</div>
+
+## pm_afshaa — post 93227
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93227_1781053392.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سپاه: یه فروند پهپاد MQ9 دشمن رهگیری و منهدم شد. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93226
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93226_1781053392.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سپاه: یه فروند پهپاد MQ9 دشمن رهگیری و منهدم شد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93225
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_93225_1781053393.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+واکنش سهمگین سپاه پاسداران 🎀
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93224
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_93224_1781053393.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+با چی زدید؟ فوش ناموسی دادید برگشتید؟
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93223
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93223_1781053394.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سپاه پاسداران: ناوگان پنجم دریایی آمریکا تو بحرین رو با پهپاد زدیم. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## VahidOnline — post 76124
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری فارس، وابسته به سپاه:
+"سپاه پاسداران: یک فروند پهپاد MQ9 دشمن رهگیری و منهدم شد
+
+در جریان درگیری‌های هوایی جاری در تنگۀ‌هرمز یک فروند پهپاد MQ9 که از آسمان شمال خلیج‌فارس قصد نزدیک شدن و مداخله در صحنۀ نبرد را داشت، در آسمان شهرستان جم استان بوشهر مورد اصابت آتش رزمندگان قهرمان پدافند هوایی نوین سپاه قرار گرفت و منهدم شد."
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 76123
+
+<div align="center">
+  <a href="telegram/content/VahidOnline_76123_1781053395.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صدا و سیما: دو انفجار در بندر عباس
+هنوز درباره محل دقیق انفجارها و جزئیات اصابت‌های احتمالی، اطلاعات دقیقی در دسترس نیست.
+دو‌ مخزن آب در سیریک و‌ بندر کوهستک بطور کامل تخریب شده است.
+
+📡 @VahidOnline
+</div>
+
+## kianmeli1 — post 87836
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 در بیانیه‌ سپاه پاسداران آمده است
+
+در ساعت ۰۲:۳۰ بامداد به ناوگان پنجم آمریکا در بحرین حمله کرده است.
+
+(احتمالا با پهپاد حمله کرده اند و از موشک استفاده نکرده اند)
+
+-یکی از دلایل عدم انتشار فیلم این است: کشورهای عربی ضبط و انتشار فیلم را با محکومیت زندانی طولانی مدت جریمه میکنند
+https://t.me/kianmeli1
+</div>
+
+## Shin_Persian — post 6829
+
+<div align="center">
+  <a href="telegram/content/Shin_Persian_6829_1781053396.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Wed, 10 Jun 2026 00:57:52 UTC
+
+Whatever the fuck these are.
+0052Z - Isfahan suburbs, central Iran
+
+ترجمه خودکار فارسی
+
+هر چه که هست، لعنت به این‌ها.
+۰۰۵۲ زولو (۰۴:۲۲ به وقت تهران) - حومه اصفهان، مرکز ایران
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6828
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Wed, 10 Jun 2026 00:53:54 UTC
+
+IRGC:
+"In response to the enemy's malicious act, IRGC naval forces launched a drone attack on the Fifth Fleet of Bahrain at 2:30 AM [2300Z]
+
+Engagements are ongoing, and the valiant guardians of the Iranian nation are responding to the enemy's aggressions. Should these provocations persist, more severe responses are imminent."
+
+ترجمه خودکار فارسی
+
+سپاه پاسداران انقلاب اسلامی (IRGC):
+«در پاسخ به اقدام شرورانه دشمن، نیروهای دریایی سپاه پاسداران انقلاب اسلامی در ساعت ۲:۳۰ بامداد [۲۳۰۰ زولو (۰۲:۳۰ به وقت تهران)] حمله‌ای پهپادی علیه ناوگان پنجم مستقر در بحرین انجام دادند.
+
+درگیری‌ها همچنان ادامه دارد و پاسداران دلاور ملت ایران در حال پاسخگویی به تجاوزات دشمن هستند. در صورت تداوم این تحریکات، پاسخ‌های شدیدتری در راه خواهد بود.»
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 220199
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️گزارش الحره از پشت‌پرده تلاش‌های بغداد برای کنترل گروه‌های مسلح وابسته به جمهوری اسلامی
+@FarsiVOA
+</div>
+
+## IranianMinds — post 22045
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22045_1781053397.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 بیانیه سنتکام فرماندهی مرکزی آمریکا:
+
+نیروهای سنتکام به دستور رئیس‌جمهور آمریکا، عملیات نظامی علیه ایران را به پایان رساندند.
+این حملات در واکنش به سرنگونی یک بالگرد آپاچی ارتش آمریکا در روز گذشته انجام شد.
+اهداف حملات شامل سامانه‌های پدافند هوایی، مراکز کنترل زمینی و سایت‌های راداری در نزدیکی تنگه هرمز بود.
+این عملیات با استفاده از مهمات دقیق توسط جنگنده‌های نیروی هوایی و نیروی دریایی آمریکا انجام شد.
+سنتکام این حملات را «پاسخی متناسب» به حملات اخیر علیه نیروهای آمریکایی و کشتی‌های تجاری در منطقه توصیف کرد.
+
+آمریکا اعلام کرد نیروهایش همچنان در حالت آماده‌باش برای مقابله با هرگونه اقدام ایران باقی خواهند ماند.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22044
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 سپاه :
+
+با کمک ارتش چن تا از پایگاه های آمریکارو در پاسخ به حملاتشون زدیم ، اگه ادامه بدن بدتر پاسخ میدیم.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22043
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رفتن فک کنم خبری از انفجار جدیدی نیست
+</div>
+
+## BBCPersian — post 283295
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283295_1781053398.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+دونالد ترامپ و بنیامین نتانیاهو معتقد بودند که پیروزی بر ایران،خاورمیانه را تغییر خواهد داد.
+
+منطقه در حال تغییر است. اما نه به آن شکلی که آنها انتظار داشتند. جمهوری اسلامی ایران شکست نخورده است. اکنون خطر یک بحران دائمی طولانی و فرسایشی وجود دارد که به طور متناوب به درگیری نظامی علنی منجر می‌شود.
+
+رژیم ایران ثابت کرده است که بسیار سرسخت تر از آن چیزی است که ترامپ و نتانیاهو تصور می‌کردند. قضاوت آنها اشتباه بود و به نظر می‌رسد کنترل عواقب آن را از دست داده‌اند.
+
+سرنگونی بالگرد آمریکایی یادآوری دیگری است که حاکمان ایران هنوز می‌توانند به آمریکایی‌ها آسیب بزنند و در عزم خود برای پیروزی در این جنگ، کوتاه نخواهند آمد. برای آنها، پیروزی به معنای بقا و بازدارندگی بیشتر است، به شکل اذعان به کنترل تنگه هرمز، یکی از استراتژیک‌ترین آبراه‌های جهان.
+
+📷ATTA KENARE / AFP via Getty Images
+
+شرح عکس: حمله آمریکا و اسرائیل به تهران در تاریخ دهم اسفند ماه گذشته
+https://bbc.in/4fAMoZF
+@BBCPersian
+</div>
+
+---
 📅 بروزرسانی: 1405/03/20 04:23
 ---
 

@@ -7,6 +7,142 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/20 22:34
+---
+
+## VahidOOnLine — post 244766
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️تب بسکتبال نیویورک در آستانه بازی چهارم فینال «ان‌بی‌ای» به اوج رسیده است. از ساعات اولیه روز، فروش کلاه، تی‌شرت و محصولات هواداری نیکس در اطراف «مدیسن اسکوئر گاردن» رونق گرفته و خیابان‌های منتهی به ورزشگاه مملو از هوادارانی است که امیدوارند تیم محبوبشان یک گام دیگر به قهرمانی نزدیک شود.
+
+نیویورک نیکس امشب در بازی چهارم فینال «ان‌بی‌ای» به مصاف سن‌آنتونیو اسپرز می‌رود؛ دیداری حساس که پس از شکست ۱۱۵ بر ۱۱۱ نیکس در بازی سوم برگزار می‌شود. با این حال، نیکس همچنان با برتری ۲ بر ۱ در مجموع سری، شرایط بهتری نسبت به حریف دارد.
+
+در صورت پیروزی امشب، نیکس با نتیجه ۳ بر ۱ پیش خواهد افتاد و تنها یک برد تا نخستین قهرمانی خود از سال ۱۹۷۳ فاصله خواهد داشت؛ قهرمانی‌ای که می‌تواند به انتظار ۵۳ ساله هواداران این تیم پایان دهد.
+
+همزمان، پلیس نیویورک با استقرار گسترده نیروها و اعمال محدودیت‌های ترافیکی در اطراف «مدیسن اسکوئر گاردن»، خود را برای حضور ده‌ها هزار هوادار و برگزاری یکی از مهم‌ترین شب‌های ورزشی سال در این شهر آماده کرده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244765
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244765_1781118285.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اکسیوس گزارش داد که قطر تلاش کرده نشستی سه‌جانبه برگزار کند، اما جمهوری اسلامی این پیشنهاد را نپذیرفته است.
+
+بنا بر این گزارش با وجود تبادل آتش، مقام‌های ایرانی و آمریکایی طی دو روز گذشته، به‌طور جداگانه با میانجیگران قطری در دوحه دیدار کردند.
+
+پیش‌تر گزارش‌هایی مبنی بر تلاش‌های قطر برای حصول توافق میان تهران و واشینگتن منتشر شده بود.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## pm_afshaa — post 93363
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93363_1781118285.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴تایمز اسرائیل: نتانیاهو و ترامپ درباره جمهوری اسلامی هماهنگی کامل دارن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## kianmeli1 — post 87875
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87875_1781118286.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پرواز شش فروند هواپیمای سوخت‌ رسان ارتش آمریکا بر فراز منطقه
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 341565
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341565_1781118286.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اکسیوس گزارش داد که قطر تلاش کرده نشستی سه‌جانبه برگزار کند، اما جمهوری اسلامی این پیشنهاد را نپذیرفته است.
+
+بنا بر این گزارش با وجود تبادل آتش، مقام‌های ایرانی و آمریکایی طی دو روز گذشته، به‌طور جداگانه با میانجیگران قطری در دوحه دیدار کردند.
+
+پیش‌تر گزارش‌هایی مبنی بر تلاش‌های قطر برای حصول توافق میان تهران و واشینگتن منتشر شده بود.
+https://iranintl.com/202606104535
+</div>
+
+## FarsiVOA — post 220274
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حملات دوباره جمهوری اسلامی به اقلیم کردستان؛ بغداد گروه‌های مسلح را به «تروریستی» اعلام کردن تهدید کرد
+</div>
+
+## Persian_Trend_Official — post 16519
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16519_1781118287.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایران ما، امروز بیش از هر زمان دیگری به اتحاد نیروهای ملی نیاز دارد. چه با حمایت خارجی و چه بدون آن، سرنوشت ایران در دستان خود ماست. ما از این رژیم فرسوده و درمانده نیرومندتریم. ما از مزدورانی که برای نمایش‌های تبلیغاتی به خیابان فرستاده می‌شوند، مصمم‌تر و استوارتریم.
+
+@OfficialRezaPahlavi
+</div>
+
+## IranianMinds — post 22136
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 بمب‌افکن هسته‌ای B-52H نیروی هوایی ایالات متحده که از ایتالیا حرکت کرده بود، در حال حاضر بر فراز عربستان سعودی می‌باشد و دقیقأ تا یک ساعت دیگر به منطقه عملیات ایران خواهد رسید. @IranianMinds
+</div>
+
+## alonews — post 126939
+
+<div align="center">
+  <a href="telegram/content/alonews_126939_1781118288.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈لُبنان، منطقه صور؛ امشب
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126935
+
+<div align="center">
+  <a href="telegram/content/alonews_126935_1781118289.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سخنگوی سازمان آتش‌نشانی: آتش‌سوزی انبار فرش در خیابان ری تهران مهار شد
+
+
+🔴نیروهای آتش‌نشانی پایتخت در حال لکه‌گیری در محل حریق هستند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126934
+
+<div align="center">
+  <a href="telegram/content/alonews_126934_1781118289.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢فوووووووووری/پرواز شدید جنگنده‌های آمریکایی در مرز ایران 
+🚨 @AkhbareFouri
+</div>
+
+---
 📅 بروزرسانی: 1405/03/20 22:25
 ---
 

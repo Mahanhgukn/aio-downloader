@@ -7,6 +7,358 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/20 15:34
+---
+
+## VahidOOnLine — post 244669
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244669_1781093093.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️رویترز: یک هیات قطری پس از «مشورت با واشنگتن» برای رایزنی با مقام‌های ایرانی به تهران سفر کرد
+
+♦️خبرگزاری رویترز روز چهارشنبه ۲۰ خردادماه و همزمان با تشدید تنش‌ها میان ایران و آمریکا، از سفر یک هیئت رسمی قطر «پس از مشورت با واشنگتن» به تهران خبر داد.
+
+براساس این گزارش، هیئت قطری برای گفتگو درباره مذاکرات میان جمهوری اسلامی و آمریکا به پایتخت ایران سفر کرده است.
+
+ هیئت قطری ساعاتی پس از تشدید بی‌سابقه رویارویی نظامی میان نیروهای مسلح جمهوری اسلامی ایران و سنتکام در بامداد چهارشنبه به تهران سفر کرده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14302
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: در آتش بس 55 درصد از آنچه که ایران درحال بازسازی آن بود را ویران کردم هنوز با ایران کار دارم🚨
+@withyashar
+</div>
+
+## WithYashar — post 14301
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک منبع مطلع به i24NEWS می‌گوید: رئیس‌جمهور ترامپ دیشب با نخست‌وزیر نتانیاهو صحبت کرد و او را در جریان حمله احتمالی امشب قرار داد. این دو همچنین درباره موضوعات دیگری مرتبط با مذاکرات با ایران بحث کردند. در آمریکا از وضعیت مذاکرات ناامید شده‌اند و صبرشان رو به پایان است.
+@withyashar
+</div>
+
+## WithYashar — post 14300
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ این جمله را برای بار دوم دارد می‌گوید: «بلوکاد «حبس دریایی» ما علیه ایران آنقدر موفق است که حتی خدای آنها (الله) هم دارد علیه آنها کار می‌کند و من را تأیید می‌کند، ستایش بر الله باد!» @withyashar
+</div>
+
+## WithYashar — post 14299
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نتانیاهو: اسرائیل به شدت علیه ایران و نمایندگانش که خاورمیانه و جهان را تهدید می‌کنند، به فعالیت خود ادامه خواهد داد
+@withyashar
+</div>
+
+## WithYashar — post 14298
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پست جدیدتر ترامپ: رسانه‌های اخبار جعلی از گزارش میزان اثربخشی محاصره دریایی ایالات متحده، که موفق‌ترین محاصره در تاریخ جنگ دریایی است، خودداری می‌کنند. هیچ چیز عبور نمی‌کند مگر اینکه ما بخواهیم. این یک دیوار فولادی است! ایران هیچ تجارتی ندارد، به ارتش خود…
+</div>
+
+## FoxNewsTwitter — post 342795
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: President Trump exclusively tells @TreyYingst that the U.S. is getting close to ordering new strikes against Iranian power plants and bridges in response to “tapping the United States along” when it comes to drawn out negotiations.
+
+The U.S. launched overnight strikes against Iranian-linked targets after a U.S. Apache helicopter was downed near the Strait of Hormuz, hitting roughly 20 sites.
+
+Trump also revealing new details about the helicopter incident - saying an Iranian drone became lodged between the helicopter's two pilots as they maneuvered to avoid an explosion.
+</div>
+
+## pm_afshaa — post 93293
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴اسرائیل هیوم:پنتاگون طرح های حمله جدید را به ترامپ گزارش داده و اسرائیل را نیز مطلع کرده 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93292
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴اسرائیل هیوم:پنتاگون طرح های حمله جدید را به ترامپ گزارش داده و اسرائیل را نیز مطلع کرده
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93291
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♨️
+♨️
+♨️
+♨️
+</div>
+
+## pm_afshaa — post 93290
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93290_1781093094.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴شریفی زارچی استاد سابق دانشگاه شریف:
+
+جمهوری اسلامی در حال انتقام‌گیری از دانشجوهاس؛ حداقل 7 نفر از دانشجویان دانشگاه صنعتی آریامهر (شریف) حکم اخراج دریافت کردن. 103 روز جرات نکردن رهبرشونو به گور بسپارن؛ با قاتل رهبرشون در حال مذاکره‌ن؛ و تمام شجاعتشون انتقام‌گیری از جوانان ایرانه. کفتارهای مقوایی.
+‌
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## kianmeli1 — post 87858
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری - اسرائیل هیوم:
+
+پنتاگون طرح های حمله جدید را به ترامپ گزارش داده و اسرائیل را نیز مطلع کرده
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87857
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری-رسانه های عبری
+
+تصمیم ترامپ برای حمله به پل ها و زیرساخت ایران قطعی است
+https://t.me/kianmeli1
+</div>
+
+## FarsiVOA — post 220242
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220242_1781093095.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رئیس‌جمهوری آمریکا، در پیامی در تروث‌سوشال، محاصرهٔ دریایی آمریکا علیه جمهوری اسلامی را «موفق‌ترین محاصره در تاریخ جنگ‌های دریایی» خواند و نوشت «رسانه‌های جعلی» از انعکاس میزان «اثرگذاری» آن خودداری می‌کنند.
+
+آقای ترامپ نوشت: «هیچ‌چیز عبور نمی‌کند، مگر آنکه ما بخواهیم. این یک دیوار فولادی است.» آقای ترامپ تاکید کرده است جمهوری اسلامی «هیچ تجارتی ندارد، حقوق نظامیانش را نمی‌پردازد و هیچ‌یک از صورت‌حساب‌هایش را پوشش نمی‌دهد» و «به‌سرعت در حال تبدیل‌شدن به یک کشور ورشکسته» است.
+
+آقای ترامپ در همان پیام به عبور نفتکش‌ها از تنگه هرمز اشاره کرد و نوشت «نفت زیادی در حال خارج‌شدن است» و جمله را با عبارت «الحمدلله» به پایان رساند.
+@FarsiVOA
+</div>
+
+## DW_Farsi — post 125775
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 "اسرائیل در صورت لزوم به‌تنهایی با ایران مقابله می‌کند"
+
+به گزارش شبکه خبری تلویزیونی "آی۲۴ نیوز" بنیامین نتانیاهو ابراز آمادگی کرده که در صورت لزوم به تنهایی و بدون پشتیبانی نظامی آمریکا دست به مقابله نظامی با جمهوری اسلامی بزند.
+
+این شبکه گزارش خود را با استناد به اظهارات نخست‌وزیر اسرائیل در یک نشست کابینه منتشر کرده است. به گزارش آی۲۴ نیوز نتانیاهو در این نشست تصریح کرد: «ممکن است ما در شرایطی قرار گیریم که مجبور شویم به تنهایی و بدون پشتیبانی ایالات متحده با ایران روبرو شود با تمامی بهایی که ممکن است در ازای آن بپردازیم: هزینه‌های نظامی و انزوای بین‌المللی.»
+
+نخست‌وزیر اسرائیل در ادامه اظهارات خود تأکید کرد که این کشور خواهان بروز چنین وضعیتی نیست، اما بر این امر واقف است که چنین وضعیتی ممکن است رخ دهد و کار به چنین جایی بکشد.
+
+اظهارات نتانیاهو در حالی است که ترامپ تا کنون نخست‌وزیر اسرائیل را فراخوانده تا از انجام اقدامات یکجانبه و تک‌روی پرهیز کند. علیرغم حملات متقابل روزهای اخیر واشنگتن همچنان به تلاش‌های دیپلماتیک برای رسیدن به توافق با جمهوری اسلامی تأکید دارد.
+
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 16465
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16465_1781093096.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حمله پهپادی به صیدا و کشته شدن دو لبنانی
+
+منابع لبنانی گزارش دادند که در حمله پهپادی اسرائیل به خودرویی در شهر صیدا در جنوب لبنان دو لبنانی احتمالا از اعضای حزب‌الله کشته شدند.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16464
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16464_1781093097.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لیکود نامزدی نتانیاهو برای انتخابات آینده را اعلام کرد.
+
+حزب لیکود اعلام کرد که نتانیاهو ریاست این حزب را برعهده خواهد داشت و در انتخابات پارلمانی آینده اسراییل نامزد خواهد شد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## RadioFarda — post 158143
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اردوغان: حملات اسرائیل به سوریه و لبنان برای ترکیه نیز تهدید است
+
+🔸رجب طیب اردوغان، رئیس‌جمهور ترکیه، روز چهارشنبه ۲۰ خرداد گفت حملات اسرائیل به سوریه و لبنان به مرحله‌ای رسیده که ترکیه را نیز تهدید می‌کند و افزود «تجاوزگری» اسرائیل تهدیدی برای کل جهان است و باید متوقف شود.
+
+🔸ترکیه، عضو ناتو، از سرسخت‌ترین منتقدان حملات اسرائیل به ایران، غزه و لبنان بوده و می‌گوید اسرائیل بزرگ‌ترین مانع صلح منطقه‌ای است. این کشور همه روابط تجاری با اسرائیل را متوقف کرده و خواستار اتخاذ تدابیری علیه آن در دادگاه‌های بین‌المللی شده است.
+
+🔸اردوغان در پارلمان و در جمع نمایندگان حزب حاکم عدالت و توسعه گفت: «حملات (بنیامین) نتانیاهو و شبکهٔ قتل او به لبنان و سوریه، موضوع را به نقطه‌ای رسانده که ترکیه را نیز تهدید می‌کند».
+
+🔸او افزود امنیت آنکارا با امنیت این دو کشور گره خورده است.
+
+🔸رئیس‌جمهور ترکیه همچنین گفت اسرائیل در حال «تلاشی پنهان» برای بی‌ثبات کردن کشورهای آفریقایی و منطقه مدیترانه، از طریق دامن زدن به «آتش تفرقه» در جزیره قبرس است که از نظر قومی دچار شکاف است.
+
+🔸اردوغان افزود: «این موجودیت‌های کوچک که جاه‌طلبی‌هایشان بسیار فراتر از اندازه‌شان است، سوار قایق شیطنت اسرائیل شده‌اند، نقش پیمانکاران صهیونیستی را پذیرفته‌اند و در شرق مدیترانه در پی رؤیاهای واهی هستند».
+
+🔸 گزارش کامل را در وب‌سایت رادیوفردا بخوانید.
+
+@RadioFarda
+</div>
+
+## BBCPersian — post 283348
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283348_1781093098.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻دونالد ترامپ، رئیس‌جمهور آمریکا، می‌گوید که ایران در مذاکرات بیش از حد تعلل کرده است و حالا باید بهایش را بپردازد.
+
+آقای ترامپ در پستی در شبکه اجتماعی خود تروث سوشال نوشت: «ارتش ایران کاملا آشفته و بهم ریخته است. بخش زیادی از آن، مانند نیروی دریایی و هوایی آنها، دیگر حتی وجود ندارد- آنها کاملا شکست خورده‌اند.»
+
+او در ادامه آورده است: «ایران فقط حرف می‌زند و هیچ عملی انجام نمی‌دهد. قلدر خاورمیانه مرده است.»
+
+آقای ترامپ در انتهای پیامش نوشته است: «آنها مذاکره در مورد توافقی که برایشان عالی بود را خیلی کش دادند، حالا باید هزینه آن را بپردازند.»
+
+این اظهارات یک روز پس از حملات متقابل آمریکا و ایران در پی سقوط بالگرد آمریکایی منتشر شده است.
+
+📷AFP via Getty Images
+https://bbc.in/4eg30Uf
+
+@BBCPersian
+</div>
+
+## alonews — post 126811
+
+<div align="center">
+  <a href="telegram/content/alonews_126811_1781093099.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈قطعنامه آمریکا علیه ایران که حمایت آلمان، فرانسه و انگلیس را نیز به همراه دارد، امروز در شورای حکام به رأی گذاشته می‌شود
+
+
+🔴در این سند از ایران خواسته شده درباره تأسیسات هسته‌ای بمباران‌شده و اورانیوم غنی‌شده آن‌ها به آژانس اطلاع‌رسانی کند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126810
+
+<div align="center">
+  <a href="telegram/content/alonews_126810_1781093099.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نیروی هوایی اسرائیل بین یساریه و سرفند داره لُبنان حملۀ می‌کنه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126809
+
+<div align="center">
+  <a href="telegram/content/alonews_126809_1781093101.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈یک منبع مطلع به i24NEWS می‌گوید:
+رئیس‌جمهور ترامپ دیشب با نخست‌وزیر نتانیاهو صحبت کرد و او را در جریان حمله احتمالی امشب قرار داد.
+
+
+🔴این دو همچنین درباره موضوعات دیگری مرتبط با مذاکرات با ایران بحث کردند.
+
+
+🔴در آمریکا از وضعیت مذاکرات ناامید شده‌اند و صبرشان رو به پایان است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126808
+
+<div align="center">
+  <a href="telegram/content/alonews_126808_1781093101.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پیت هگست، وزیر جنگ آمریکا؛ پست ترامپ درباره رسانه‌های جعلی رو تو صفحه خودش پست کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126807
+
+<div align="center">
+  <a href="telegram/content/alonews_126807_1781093102.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پیت هگستث، وزیر جنگ ایالات متحده، امروز به پایگاه دریایی گوانتانامو در کوبا سفر خواهد کرد و پس از آن از فرماندهی مرکزی ایالات متحده (CENTCOM) در تامپا، فلوریدا و احتمالاً فرماندهی جنوبی ایالات متحده در دورال، فلوریدا بازدید خواهد کرد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126806
+
+<div align="center">
+  <a href="telegram/content/alonews_126806_1781093102.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نتانیاهو: اسرائیل به شدت علیه ایران و نمایندگانش که خاورمیانه و جهان را تهدید می‌کنند، به فعالیت خود ادامه خواهد داد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126805
+
+<div align="center">
+  <a href="telegram/content/alonews_126805_1781093103.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نفت صعودی شد: ۹۳.۲۶ دلار
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126804
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈اسرائیل هیوم: وقت تمام شد مذاکرات شکست خورده و پاکستان از میانجیگری دست کشیده. ترامپ بعد از حادثه بالگرد و حملات دیشب بسیار عصبانی شده و میخواهد هرچه زودتر به جنگ باز گردد. پنتاگون طرح های حمله جدید راه به ترامپ گزارش داده و اسرائیل را نیز مطلع کرده.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/20 15:23
 ---
 

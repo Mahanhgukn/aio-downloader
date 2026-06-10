@@ -7,6 +7,96 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/20 05:53
+---
+
+## VahidOOnLine — post 244617
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244617_1781058191.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت دفاع بحرین از فعال شدن آژیرهای خطر و پدافند هوایی در پی حمله‌هایی از سمت ایران خبر داد. طبق اعلام مشاور رسانه‌ای پادشاه بحرین، پدافند هوایی بحرین این حملات جمهوری اسلامی را دفع کرده‌‌ است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## pm_afshaa — post 93260
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93260_1781058192.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آژیر خطر در کویت فعال شد. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93259
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آژیر خطر در کویت فعال شد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 341432
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341432_1781058193.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت دفاع بحرین از فعال شدن آژیرهای خطر و پدافند هوایی در پی حمله‌هایی از سمت ایران خبر داد. طبق اعلام مشاور رسانه‌ای پادشاه بحرین، پدافند هوایی بحرین این حملات جمهوری اسلامی را دفع کرده‌‌ است.
+https://iranintl.com/202606107702
+</div>
+
+## FarsiVOA — post 220209
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220209_1781058194.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️جمهوری اسلامی مدعی شد که حمله‌ای را علیه یک پایگاه نظامی در اردن که میزبان نیروهای آمریکایی است، انجام داده است. به گزارش آسوشیتدپرس، هیچ تأییدی از سوی اردن یا ایالات متحده در این باره صورت نگرفته است.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220208
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220208_1781058194.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️مایک جانسون، رئیس مجلس نمایندگان آمریکا، به خبرنگاران گفت که پیش از حملات تلافی‌جویانه ایالات متحده به جمهوری اسلامی در عصر سه‌شنبه (به‌وقت واشنگتن)، از این موضوع مطلع بوده است.
+جانسون گفت: «آنها قبل از شروع این حمله، به من، به عنوان رئیس مجلس، اطلاع دادند و این حملات هدفمند به سایت‌های رادار، موشک و فرماندهی و کنترل آنها است و ماهیت دفاعی دارد.»
+جانسون فاش کرد که صبح سه‌شنبه «چند ساعت» را در اتاق وضعیت کاخ سفید با رئیس جمهوری آمریکا، دونالد ترامپ، معاون رئیس جمهوری، جی‌دی ونس، وزیر امور خارجه، مارکو روبیو، وزیر جنگ، پیت هگست و رئیس سازمان اطلاعات مرکزی آمریکا (سیا)، جان راتکلیف، گذرانده است.
+جانسون گفت: «ما در مورد ایران و برخی مسائل دیگر صحبت کردیم.»
+@FarsiVOA
+</div>
+
+## BBCPersian — post 283303
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻 حمله موشکی ایران به پایگاه آمریکا در اردن
+
+خبرگزاری فارس گزارش کرده که سپاه پاسداران به پایگاهی ارتش آمریکا در اردن حمله موشکی کرده است.
+
+سپاه پاسداران گفته «توسط موشک‌های سوخت جامد دور برد خود ۴ هدف مهم از جمله آشیانه‌های جنگنده‌های اف‌۳۵ در پایگاه هوایی و مرکز فرمانده کنترل ارتش» آمریکا در الازرق اردن را مورد هدف قرار داده است.
+
+تاکنون منابع آمریکایی در خصوص این حمله واکنشی نداشته‌اند.
+
+آن طور که قرارگاه خاتم الانبیاء ساعتی پیش در اطلاعیه خود اعلام کرد حملات ایران به طور مشترک توسط سپاه پاسداران و ارتش ایران صورت گرفته است.
+
+https://bbc.in/43Y0c9g
+@BBCPersian
+</div>
+
+---
 📅 بروزرسانی: 1405/03/20 05:43
 ---
 

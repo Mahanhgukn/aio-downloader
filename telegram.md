@@ -7,6 +7,57 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/20 06:23
+---
+
+## pm_afshaa — post 93267
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93267_1781059999.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سپاه پاسداران: به دنبال عملیات موفق نیروی دریایی سپاه در اصابت قرار دادن 21 هدف در پایگاه‌های هوایی و دریایی آمریکا در منطقه و ساقط کردن یک فروند پهپاد MQ9 در آسمان شهرستان جم، با توجه به تداوم شرارت‌های دشمن، 4 هدف از جمله آشیانه‌های جنگنده‌های F-35 در پایگاه…
+</div>
+
+## pm_afshaa — post 93266
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93266_1781060000.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴اسرائیل دقایقی پیش به جنوب لبنان حمله کرد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## Shin_Persian — post 6848
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Wed, 10 Jun 2026 02:45:48 UTC
+
+Bahrain's Ministry of Interior announces: Sirens sounded. Citizens and residents urged to stay calm, move to nearest safe location, and follow official channels for updates.
+#Bahrain 🇧🇭
+
+Source: @moi_bahrain
+https://x.com/moi_bahrain/status/2064539450827247776
+
+ترجمه خودکار فارسی
+
+وزارت کشور بحرین اعلام کرد: صدای آژیرها شنیده شد. از شهروندان و ساکنان درخواست می‌شود آرامش خود را حفظ کنند، به نزدیک‌ترین مکان امن بروند و برای دریافت به‌روزرسانی‌ها کانال‌های رسمی را دنبال کنند.
+#Bahrain 🇧🇭
+
+منبع: @moi_bahrain
+https://x.com/moi_bahrain/status/2064539450827247776
+
+𝕏 · @shin_persian
+</div>
+
+---
 📅 بروزرسانی: 1405/03/20 06:13
 ---
 

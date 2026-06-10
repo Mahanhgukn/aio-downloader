@@ -7,6 +7,64 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/20 08:13
+---
+
+## VahidOOnLine — post 244631
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_244631_1781066606.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرخط خبرهای چهارشنبه ۲۰ خرداد
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## IranIntlTV — post 341437
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341437_1781066608.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرخط خبرهای چهارشنبه ۲۰ خرداد
+@iranintltv
+</div>
+
+## Persian_Trend_Official — post 16414
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16414_1781066610.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨🔴 خبرها حاکی از اینه که ایران در پاسخ به اتفاقات و حملات بامداد امروز، چند موشک بالستیک دوربرد به سمت اهداف آمریکایی در منطقه شلیک کرده.
+
+طبق گزارش‌ها، در این حمله از موشک‌های «قدر»، «عماد» و «خیبرشکن» استفاده شده. فعلاً جزئیات دقیقی درباره اهدافی که مورد اصابت قرار گرفته‌اند یا میزان خسارت احتمالی منتشر نشده.
+
+Phantom
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16413
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16413_1781066611.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قرارگاه مرکزی حضرت خاتم الانبیاء: در پاسخ به تجاوز ارتش تروریست آمریکا در مناطقی از جنوب کشور به بهانه واهی سقوط بالگرد خود، برخی از پایگاه های آمریکا در منطقه هدف هجوم قدرتمند ارتش قهرمان جمهوری اسلامی و دلاورمردان سپاه پاسداران انقلاب اسلامی قرار گرفت.
+
+ارتش جنایت‌کار آمریکا بداند در صورت تکرار تعرض به جمهوری اسلامی ایران، حملات سهمگین و گسترده تر علیه بانک اهداف تعیین شده در منطقه انجام خواهد شد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+---
 📅 بروزرسانی: 1405/03/20 08:03
 ---
 

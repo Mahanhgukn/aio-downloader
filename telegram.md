@@ -7,6 +7,291 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/20 23:05
+---
+
+## VahidOOnLine — post 244770
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244770_1781120109.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مایک هاکبی، سفیر آمریکا در اسرائیل، با بازنشر گزارش فاکس‌نیوز درباره اظهارات دونالد ترامپ، رییس‌جمهوری آمریکا، مبنی بر اینکه ایالات متحده امروز دوباره «ضربه سختی» به جمهوری اسلامی خواهد زد، در شبکه ایکس نوشت: «ممکن است اوضاع در منطقه به‌زودی کمی داغ شود.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244769
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244769_1781120109.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️خبرگزاری رویترز گزارش داد تولید نفت اعضای اوپک در ماه مه، تحت تاثیر تحولات منطقه‌ای، محاصره دریایی آمریکا علیه جمهوری اسلامی و کاهش صادرات تولیدکنندگان حوزه خلیج فارس در پی بسته شدن عملی تنگه هرمز، به پایین‌ترین سطح خود در بیش از دو دهه گذشته رسیده است.
+بر اساس این گزارش، تولید ۱۱ عضو اوپک در ماه مه با کاهش روزانه یک میلیون و ۶۰ هزار بشکه نسبت به ماه قبل، به ۱۶ میلیون و ۱۳۰ هزار بشکه در روز رسید، رقمی که پایین‌ترین سطح تولید ماهانه این سازمان از دست‌کم سال ۲۰۰۰ تاکنون به شمار می‌رود.
+رویترز همچنین نوشت جمهوری اسلامی بیشترین کاهش تولید را در میان اعضای اوپک تجربه کرده و صادرات نفت خام و میعانات گازی ایران به پایین‌ترین سطح خود در دست‌کم شش سال گذشته سقوط کرده است.
+این گزارش اشاره می‌کند که آمار ارائه‌شده شامل امارات متحده عربی نیست؛ کشوری که از ابتدای ماه مه از اوپک خارج شده است. همچنین، اگرچه تولید عربستان سعودی کاهش یافته، عراق، ونزوئلا و نیجریه بخشی از افت تولید را با افزایش تولید خود جبران کرده‌اند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14370
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+باراک راوید: ممکنه مذاکرات ظرف ۲ تا ۳ ساعت آینده به فروپاشی کامل برسه!
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342823
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342823_1781120110.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+.@ChadPergram and @kevincorke report live from Nationals Park with the latest. https://twitter.com/i/broadcasts/1AJEmmbgPNvJL
+</div>
+
+## pm_afshaa — post 93364
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93364_1781120110.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴باراک راوید خبرنگار آکسیوس: مذاکرات ممکنه ظرف دو سه ساعت آینده فر بریزه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## VahidOnline — post 76161
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76161_1781120111.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ابراهیم رضایی، سخنگوی کمیسیون امنیت ملی مجلس، در شبکه ایکس نوشت: «در جنگ ۴۰ روزه وسعت آب‌های سرزمینی ایران افزایش یافت، در جنگ بعدی شاید وسعت خاک ایران افزایش یابد.»
+
+او در مطلبی دیگر تاکید کرد جمهوری اسلامی آماده‌تر از قبل است.
+
+او همچنین در یک برنامه تلویزیونی گفت: «دست از لبنان برنمی‌داریم و دشمن یا باید به خواسته‌های ما در میز مذاکره تن بدهد یا در میدان نبرد.»
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 341571
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341571_1781120111.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نجات بهرامی، تحلیل‌گر سیاسی، گفت: «پیام اخیر شاهزاده بیش از هر چیز برای جلوگیری از ناامیدی جامعه بوده است. بسیاری از مردم خود را در آستانه پیروزی می‌دیدند، اما با محقق نشدن آن انتظار، خطر سرخوردگی به وجود آمد.»
+
+او افزود: «حتی اگر تحولات اخیر یا درگیری‌های نظامی به سقوط فوری جمهوری اسلامی منجر نشود، نباید امید را از دست داد و مسیر مبارزه ممکن است طولانی و فرسایشی باشد.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 341570
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341570_1781120113.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شایان سمیعی، کارشناس امنیت ملی، گفت: «شرایط به گونه‌ای پیش رفته که ممکن است حتی اگر دونالد ترامپ تمایلی به تشدید درگیری نداشته باشد، گزینه‌های محدودی پیش روی خود ببیند و مجبور به این کار شود.»
+
+او افزود: «از نگاه ترامپ، دیپلماسی ابزاری برای افزایش فشار اقتصادی و رسیدن به توافق است؛ اما جمهوری اسلامی از دیپلماسی بیشتر به‌عنوان ابزاری برای خرید زمان استفاده می‌کند.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 341569
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341569_1781120115.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مایک هاکبی، سفیر آمریکا در اسرائیل، با بازنشر گزارش فاکس‌نیوز درباره اظهارات دونالد ترامپ، رییس‌جمهوری آمریکا، مبنی بر اینکه ایالات متحده امروز دوباره «ضربه سختی» به جمهوری اسلامی خواهد زد، در شبکه ایکس نوشت: «ممکن است اوضاع در منطقه به‌زودی کمی داغ شود.»
+https://iranintl.com/202606102532
+</div>
+
+## FarsiVOA — post 220278
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️پوشش ویژه | مراسم امضای قاتون آمریکای امن توسط پرزیدنت ترامپ با ترجمه همزمان پژواک کیومرثی
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220277
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220277_1781120115.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️در آستانه آغاز مسابقات جام جهانی ۲۰۲۶، و تداوم حاشیه‌های مربوط به تیم ملی فوتبال ایران، روز چهارشنبه جمعی از مخالفان جمهوری اسلامی در مراسمی در لس آنجلس به همراه شماری از ورزشکاران و فعالان ایرانی ساکن آمریکا، نسبت به حضور این تیم در جام‌جهانی اعتراض کرده و از فیفا خواستار تعلیق آن شدند.
+اردوی تیم ملی فوتبال ایران، که به دلیل محدودیت‌های مربوط به ویزا و ورود به ایالات متحده از آریزونا به تیخوانا در مکزیک منتقل شده است، در گروه هفتم رقابت‌ها با نیوزیلند، بلژیک، و مصر روبه‌رو خواهد شد.
+در پی اعتراضات سراسری مردم ایران در سال ۱۴۰۱، موضوع تیم ملی فوتبال و رویکرد اعضای آن در قبال مردم و حاکمیت، بسیار پرحاشیه شد و برخی آن را تیم حکومت به جای تیم ملی فوتبال ایران می‌دانند. این معترضان نیز تیم ملی فعلی را تیم تحت کنترل سپاه پاسداران نامیده‌اند.
+@FarsiVOA
+</div>
+
+## DW_Farsi — post 125791
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125791_1781120115.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 آمریکا نهادهایی در چین و هنگ‌کنگ را در رابطه با تسلیحات ایران تحریم کرد
+
+وزارت خزانه‌داری آمریکا می‌گوید که دولت دونالد ترامپ تحریم‌های جدیدی در رابطه با ایران اعمال کرده است.
+
+به گزارش خبرگزاری رویترز، دولت ایالات متحده روز چهارشنبه ۲۰ خرداد اعلام کرد که علیه ۱۱ فرد و نهاد، از جمله چند مورد مستقر در چین و هنگ‌کنگ، به دلیل حمایت از تأمین تسلیحات برای سپاه پاسداران انقلاب اسلامی و ارتش ایران، تحریم‌هایی اعمال کرده است.
+
+بر اساس بیانیه دفتر کنترل دارایی‌های خارجی وزارت خزانه‌داری آمریکا (اوفک)، ۹ مورد از افراد و شرکت‌های تحریم‌شده، اشخاص و شرکت‌هایی مستقر در چین و هنگ‌کنگ هستند که در تسهیل خرید تسلیحات برای ارتش ایران نقش داشته‌اند.
+
+همچنین یک شرکت مستقر در هنگ‌کنگ که در شبکه بانکی پنهانی ایران فعالیت می‌کرد نیز در این فهرست قرار دارد.
+
+وزارت خزانه‌داری آمریکا همچنین اعلام کرده که وزارت خارجه این کشور، دو شرکت و چند فرد مستقر در ایران و بلاروس را هم به دلیل ارتباط با فعالیت‌های مرتبط با تسلیحات متعارف ایران، در لیست تحریم‌ها قرار داده است.
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 16521
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://youtube.com/live/sMPl0e57PQY?feature=share
+</div>
+
+## BBCPersian — post 283362
+
+<div align="center">
+  <a href="telegram/content/BBCPersian_283362_1781120116.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻رسانه‌های ایران از آتش‌سوزی گسترده در یک انبار فرش در حوالی میدان قیام واقع در منطقه ۱۲ تهران گزارش داده‌اند.
+
+به گزارش خبرگزاری قوه قضائيه این ساختمان یک انبار فرش بوده که در مجاورت پمپ بنزین پل ری واقع شده است.
+
+سازمان آتش‌نشانی تهران می‌گوید این مجموعه که شامل چند انبار و غرفه است و تقریبا ۲ هزار متر مربع وسعت دارد در ساعت ۱۹:۴۴ به وقت محلی دچار حریق شد و عملیات خاموش کردن آتش با حضور هشت ایستگاه آتش‌نشانی و تانکرهای آب شهرداری تهران انجام شده است.
+
+به گفته سازمان آتش‌نشانی تا این لحظه گزارشی از آسیب جانی گزارش نشده است.
+
+پیشتر گزارش‌هایی از مشاهده دود غلیظ در حوالی میدان قیام تهران منتشر شده بود.
+@BBCPersian
+</div>
+
+## Hranews — post 113530
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آوات صادق‌نیا با تودیع وثیقه آزاد شد
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– آوات صادق‌نیا (سرگلی)، شهروند اهل شهرستان مهاباد، پس از ۸۳ روز بازداشت، با تودیع وثیقه از زندان مهاباد آزاد شد.
+
+ادامه مطلب
+
+#آوات_صادق‌نیا
+
+↘️
+@hranews_bot تماس ✉️ -  @Hranews  کانال هرانا 🆑
+</div>
+
+## alonews — post 126951
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈این وسط هرکی تبلیغ خواست بیاد اینجا
+⬇️
+
+https://t.me/ads_alonews
+https://t.me/ads_alonews
+</div>
+
+## alonews — post 126950
+
+<div align="center">
+  <a href="telegram/content/alonews_126950_1781120118.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوووووووووووووووووووووووووووووری
+</div>
+
+## alonews — post 126949
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوووووووووووووووووووووووووووووری
+</div>
+
+## alonews — post 126948
+
+<div align="center">
+  <a href="telegram/content/alonews_126948_1781120119.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رسایی: این عنو قطع کنید
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126947
+
+<div align="center">
+  <a href="telegram/content/alonews_126947_1781120119.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈باراک راوید: ممکنه مذاکرات ظرف ۲ تا ۳ ساعت آینده به فروپاشی کامل برسه!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126946
+
+<div align="center">
+  <a href="telegram/content/alonews_126946_1781120119.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈جنگ قطعی هست 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126945
+
+<div align="center">
+  <a href="telegram/content/alonews_126945_1781120119.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈جنگ قطعی هست
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126944
+
+<div align="center">
+  <a href="telegram/content/alonews_126944_1781120119.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری/سخنگوی کمیسیون امنیت ملی: در جنگ چهل‌روزه وسعت آب‌های سرزمینی ایران افزایش یافت؛ در جنگ بعدی شاید وسعت خاک ایران افزایش یابد!!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/20 22:52
 ---
 

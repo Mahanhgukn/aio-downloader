@@ -7,6 +7,206 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/20 05:23
+---
+
+## VahidOOnLine — post 244615
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244615_1781056388.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️به گزارش سی‌ان‌ان، بامداد چهارشنبه در بحرین آژیرها به صدا درآمد و از ساکنان خواسته شد به مکان‌های امن بروند.
+در پیام وزارت کشور بحرین در اکس آمده است: «آژیر به صدا درآمده است. از شهروندان و ساکنان خواسته می‌شود آرامش خود را حفظ کرده و به نزدیک‌ترین مکان امن بروند.»
+پیش از این، سپاه پاسداران اعلام کرده بود که در پاسخ به حملات آمریکا، ناوگان پنجم ایالات متحده در بحرین را هدف قرار داده است.
+در بیانیه‌ای که تسنیم منتشر کرده، آمده است: «نیروهای دریایی سپاه پاسداران در ساعت ۲:۳۰ بامداد یک حمله پهپادی علیه ناوگان پنجم آمریکا در بحرین انجام دادند.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244614
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244614_1781056389.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️حمزه‌پور، مدیرعامل شرکت آبفای هرمزگان اعلام کرد که به دنبال حمله‌های بامداد چهارشنبه آمریکا، دو مخزن آب در بخش بمانی شهرستان سیریک به طور کامل تخریب شده است. به گزارش مهر، این مخازن شامل یک مخزن ۵۰۰ متر مکعبی و یک مخزن ۲ هزار متر مکعبی بوده‌اند که نقش کلیدی در تأمین آب شرب بخش بمانی و شهر کوهستک ایفا می‌کردند. به گفته حمزه‌پور، در حال حاضر روند توزیع آب در تمامی روستاهای بخش بمانی و شهر کوهستک متوقف شده است و تیم‌های عملیاتی و مدیریت بحران آبفا در تلاش هستند تا اقدامات جایگزین برای تامین آب پایدار انجام شود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342787
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342787_1781056390.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: Embattled Maine Democrat Graham Platner wins his party's nomination for Senate.
+
+He will now face longtime Republican Senator Susan Collins in November.
+
+The race is one of a handful across the country that will determine whether the GOP keeps control of its slim Senate majority.
+</div>
+
+## pm_afshaa — post 93254
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93254_1781056391.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+موشکایی که به سمت پایگاه الازق اردن شلیک شده بودن همشون رهگیری شدن
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93253
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93253_1781056394.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فارس: سپاه پاسداران دقایقی پیش پایگاه آمریکایی الازرق در اردن رو هدف حملۀ موشکی قرار داد. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93252
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کاش به حرف پزشکیان گوش کرده بودیم پایتختو برده بودیم بوشهر
+</div>
+
+## pm_afshaa — post 93251
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93251_1781056395.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فارس: سپاه پاسداران دقایقی پیش پایگاه آمریکایی الازرق در اردن رو هدف حملۀ موشکی قرار داد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93250
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93250_1781056396.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مشاور رسانه‌ای پادشاه بحرین: پدافندهای هوایی بحرین حملات ایران رو دفع کردن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93249
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93249_1781056397.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گوشه سمت راست و بالای ویدیو اصابت یک موشک معلومه
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## VahidOnline — post 76129
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+توییت اکانت وزارت کشور بحرین، ترجمه ماشین:
+آژیر هشدار به صدا درآمده است. از شهروندان و افراد مقیم درخواست می‌شود آرامش خود را حفظ کنند، به نزدیک‌ترین مکان امن بروند و اخبار را از طریق کانال‌های رسمی دنبال کنند.
+moi_bahrain
+
+📡 @VahidOnline
+</div>
+
+## kianmeli1 — post 87840
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سپاه پاسداران دقایقی قبل پایگاه آمریکایی الازرق در اردن را هدف حملۀ موشکی قرار داد.
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87839
+
+<div align="center">
+  <a href="telegram/content/kianmeli1_87839_1781056399.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴لحظه اصابت موشک به پایگاه ناوگان پنجم نیروی دریایی آمریکا در بحرین
+https://t.me/kianmeli1
+</div>
+
+## Shin_Persian — post 6842
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6842_1781056401.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Wed, 10 Jun 2026 01:48:29 UTC
+
+IRGC-owned Fars News:
+"The IRGC has targeted Al Azraq [Air] Base in Jordan."
+
+ترجمه خودکار فارسی
+
+خبرگزاری فارس متعلق به سپاه پاسداران:
+«سپاه پاسداران انقلاب اسلامی پایگاه [هوایی] الازرق در اردن را هدف قرار داده است.»
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6841
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6841_1781056401.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Wed, 10 Jun 2026 01:42:40 UTC
+
+0121Z
+Isfahan Province, Iran
+
+ترجمه خودکار فارسی
+
+۰۱۲۱ زولو (۰۴:۵۱ به وقت تهران)
+استان اصفهان، ایران
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 220205
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220205_1781056402.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️وزارت کشور بحرین دقایقی قبل از به صدا در آمدن آژیر خطر در این کشور خبر داد. این در حالی است که ایالات متحده اعلام کرد که حمله دفاعی خود به سایت‌های نظامی حکومت ایران را که در واکنش به سرنگونی هلی‌کوپتر آپاچی توسط جمهوری اسلامی آغاز کرده بود، به پایان رسانده است.
+
+@FarsiVOA
+</div>
+
+---
 📅 بروزرسانی: 1405/03/20 05:12
 ---
 

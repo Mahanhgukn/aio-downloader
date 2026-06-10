@@ -7,6 +7,96 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/20 12:43
+---
+
+## WithYashar — post 14279
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هم اکنون صدای انفجار‌ در‌ سیریک🚨
+@withyashar
+</div>
+
+## IranIntlTV — post 341459
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341459_1781082786.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبکه خبری آی‌۲۴ اسرائیل به نقل از نتانیاهو گزارش داد اسرائیل مایل نیست به تنهایی علیه جمهوری اسلامی اقدام کند، اما برای انجام آن آمادگی دارد
+
+گفت‌وگو با بابک اسحاقی، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## RadioFarda — post 158124
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_158124_1781082787.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸وزارت خارجه چین با ابراز نگرانی عمیق از درگیری‌های جاری در خاورمیانه، از طرف‌های درگیر خواست از تشدید تنش‌ها خودداری کنند و برای کاهش بحران گام‌های عملی بردارند.
+
+🔸لین جیان، سخنگوی وزارت خارجه چین، روز چهارشنبه ۲۰ خرداد گفت که «طرف‌های مختلف ذی‌ربط باید آرامش خود را حفظ کنند و خویشتن‌داری نشان دهند، از تشدید درگیری و وخیم‌تر شدن اوضاع خودداری کنند و با اتخاذ اقدامات ملموس، به کاهش تنش‌ها و آرام کردن وضعیت کمک کنند.»
+
+🔸ارتش ایالات متحده، در واکنش به سرنگونی یک بالگرد آمریکایی در سواحل عمان، بامداد چهارشنبه حملاتی را به جنوب ایران انجام داد و ایران نیز در واکنش به شلیک موشک و پهپاد به برخی کشورهای منطقه اقدام کرد.
+
+🔸پکن تاکنون از موضع‌گیری مستقیم به نفع هر یک از طرف‌های درگیر خودداری کرده و صرفاً بر ضرورت جلوگیری از گسترش درگیری‌ها و حفظ ثبات منطقه تأکید کرده است.
+@RadioFarda
+</div>
+
+## alonews — post 126756
+
+<div align="center">
+  <a href="telegram/content/alonews_126756_1781082788.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تایید نشده/ گزارشات اولیه از حمله آمریکا به بندر سیریک در هرمزگان
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126755
+
+<div align="center">
+  <a href="telegram/content/alonews_126755_1781082788.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈روسیه: آماده کمک به حل درگیری آمریکا و ایران هستیم
+
+
+🔴 واشنگتن و تهران خویشتن‌داری کنند
+
+
+🔴 حمله به زیرساخت‌های غیر نظامی، کاملاً غیر قابل قبول است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126754
+
+<div align="center">
+  <a href="telegram/content/alonews_126754_1781082788.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈دقایقی پیش منابع محلی از شنیده شدن صدای یک انفجار در محدوده شهرستان قشم خبر داده‌اند. 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126753
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 پزشکیان: قادر نخواهند بود ایران ما را با تهدید تسلیم کنند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/20 12:33
 ---
 

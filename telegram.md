@@ -7,6 +7,198 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/20 16:43
+---
+
+## VahidOOnLine — post 244678
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244678_1781097236.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بنیامین نتانیاهو، نخست‌وزیر اسرائیل، در واکنش به محکومیت حملات اسرائیل در منطقه از سوی رجب طیب اردوغان، گفت دولت اسرائیل و ارتش این کشور به اقدام قاطع علیه جمهوری اسلامی و نیروهای نیابتی آن ادامه خواهند داد.
+
+او در بیانیه‌ای به زبان عبری افزود: «دولت اسرائیل و ارتش اسرائیل، که اخلاقی‌ترین ارتش جهان است، به اقدام قاطع علیه ایران و نیروهای نیابتی آن که خاورمیانه و سراسر جهان را تهدید می‌کنند، ادامه خواهند داد.»
+
+بنیامین نتانیاهو همچنین رجب طیب اردوغان را «دیکتاتوری یهودستیز» توصیف کرد که به گفته او صلاحیت انتقاد از اسرائیل را ندارد.
+
+نخست‌وزیر اسرائیل در این بیانیه گفت: «دیکتاتور یهودستیز اردوغان که در حال نسل‌کشی علیه کردهاست، از سازمان «تروریستی» حماس حمایت می‌کند، مردم خود را سرکوب می‌کند و مخالفان سیاسی را زندانی می‌کند، آخرین کسی است که می‌تواند برای اسرائیل موعظه اخلاقی کند.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342801
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342801_1781097237.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"And apparently, I chose wrong if the goal was winning an election."
+
+That was Nancy Mace's message after a crushing defeat in South Carolina's Republican gubernatorial primary.
+
+After finishing fifth with roughly 11% of the vote, Mace said her focus was never about taking the easy path politically, pointing instead to her efforts on the Epstein files, sexual harassment settlements, and abuse investigations.
+
+The congresswoman finished far behind Trump-backed Pamela Evette, who advanced to a runoff alongside Attorney General Alan Wilson.
+
+“Serving South Carolina has been the greatest honor of my life,” she wrote after conceding.
+</div>
+
+## FoxNewsTwitter — post 342800
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌Fox News (Twitter/X)
+
+Which companies will have a top-ranked AI model this year?
+
+Our sponsor Kalshi’s prediction market shows:
+
+— OpenAI: 50%
+— Meta: 25%
+— xAI: 20%
+
+https://www.foxbusiness.com/media/ex-white-house-ai-czar-warns-us-could-lose-ai-race-china-washington-overregulates
+</div>
+
+## IranIntlTV — post 341482
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341482_1781097237.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شهروندان با ارسال پیام به ایران‌اینترنشنال از بحران تامین معیشت و افزایش بی‌سابقه قیمت مواد خوراکی در ایران انتقاد کردند. این پیام‌ها حاکی از کوچک‌تر شدن سبد خرید و حذف مواد غذایی پروتئینی از سفره‌های آنان است.
+
+سبا حیدرخانی، عضو تحریریه ایران‌اینترنشنال، گزارش می‌دهد
+@iranintltv
+</div>
+
+## IranIntlTV — post 341481
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341481_1781097239.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بنیامین نتانیاهو، نخست‌وزیر اسرائیل، در واکنش به محکومیت حملات اسرائیل در منطقه از سوی رجب طیب اردوغان، گفت دولت اسرائیل و ارتش این کشور به اقدام قاطع علیه جمهوری اسلامی و نیروهای نیابتی آن ادامه خواهند داد.
+
+او در بیانیه‌ای به زبان عبری افزود: «دولت اسرائیل و ارتش اسرائیل، که اخلاقی‌ترین ارتش جهان است، به اقدام قاطع علیه ایران و نیروهای نیابتی آن که خاورمیانه و سراسر جهان را تهدید می‌کنند، ادامه خواهند داد.»
+
+بنیامین نتانیاهو همچنین رجب طیب اردوغان را «دیکتاتوری یهودستیز» توصیف کرد که به گفته او صلاحیت انتقاد از اسرائیل را ندارد.
+
+نخست‌وزیر اسرائیل در این بیانیه گفت: «دیکتاتور یهودستیز اردوغان که در حال نسل‌کشی علیه کردهاست، از سازمان «تروریستی» حماس حمایت می‌کند، مردم خود را سرکوب می‌کند و مخالفان سیاسی را زندانی می‌کند، آخرین کسی است که می‌تواند برای اسرائیل موعظه اخلاقی کند.»
+https://iranintl.com/202606107315
+</div>
+
+## DW_Farsi — post 125777
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125777_1781097240.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 شماری کشته و زخمی در حملات هوایی پاکستان به افغانستان
+
+پاکستان اعلام کرده که بار دیگر به چند ولایت در مناطق مرزی افغانستان حمله هوایی کرده است. در این حملات که شب گذشته، نهم ژوئن انجام شده چند نفر کشته شده‌اند، اما درباره تعداد دقیق قربانیان تا کنون گزارش‌های متفاوتی منتشر شده است.
+
+عطاءالله طرار، وزیر اطلاع‌رسانی و رسانه‌های پاکستان اعلام کرده که هدف این عملیات مواضع شبه‌نظامیان در ولایت‌های کنر، خوست و پکتیکا بود و در جریان آن دست‌کم ۲۶ شبه‌نظامی کشته شده‌اند.
+
+او طی پیامی در شبکه اجتماعی ایکس نوشت که چهار هدف، از جمله یک مرکز آموزشی و یک انبار مهمات به‌طور کامل نابود شده‌اند.
+
+اما طالبان حاکم در افغانستان می‌گوید، دست‌کم ۱۳ غیرنظامی در این حملات کشته شده‌اند که برخی از آنان کودک بوده‌اند. همچنین حداقل ۱۴ زن و کودک نیز زخمی شده‌اند.
+
+افغانستان و پاکستان چند ماه است که روابط پرتنشی دارند و درگیری میان این دو کشور از فوریه سال جاری بار دیگر شدت گرفته است.
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 16476
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16476_1781097240.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جزئیاتی از حمله پهپادهای ارتش به پایگاه آمریکا در بحرین
+
+تسنیم: بامداد امروز پایگاه هوایی شیخ عیسی و یک سایت راداری راهبردی متعلق به نیروهای آمریکایی در بحرین هدف پهپادهای تهاجمی ارتش قرار گرفت. ارتش در حملات امروز خود از یک پهپاد جدید استفاده کرده است.
+
+بنابر اعلام سپاه و ارتش اهداف مورد نظر شامل پایگاه الازرق در اردن، پایگاه علی السالم در کویت و مقر ناوگان پنجم نیروی دریایی آمریکا در بحرین بودند.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16475
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: ایران در اشتباه خود، هلی‌کوپتر ما را سرنگون کرد، مثل معجزه بود که خلبانان ما کشته نشدند و زنده ماندند. هنوز کارم با ایران تمام نشده است. ما 55 درصد از آنچه ایران در طول آتش‌بس بازسازی کرده بود را نابود کردیم. 📝 Amir 📌 @persian_trend_official پرشین…
+</div>
+
+## Persian_Trend_Official — post 16473
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16473_1781097241.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سقوط بالگرد ارتش پاکستان در کشمیر
+
+روابط عمومی ارتش پاکستان: یک فروند بالگرد Mi-17 ارتش پاکستان در نزدیکی شهر مظفرآباد مرکز منطقه کشمیر هنگام برخاستن به دلیل نقص فنی سقوط کرد و تمام پرسنل حاضر در هلی‌کوپتر جان خود را از دست دادند.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16472
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16472_1781097242.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شب گذشته یک فروند بمب‌افکن B-52 نیروی‌های امریکا در پایگاه فیرفورد بریتانیا فرود آمد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## RadioFarda — post 158146
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_158146_1781097242.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸رسانه‌های مختلف به نقل از دیپلمات‌ها از سفر یک گروه مذاکره کننده قطری به تهران در روز چهارشنبه برای رسیدگی به اختلافات باقی‌مانده بین ایالات متحده و ایران خبر دادند.
+
+🔸خبرگزاری فرانسه به نقل از دیپلماتی آگاه به این سفر نوشت که این گروه مذاکره کننده قطری «پس از مشورت با ایالات متحده» به تهران سفر کرده تا در دیدار با مقام‌های ایران «شکاف‌های باقی‌مانده را پر کنند.»
+
+🔸رسانه‌های ایرانی نیز سفر هیئت قطری به تهران را تأیید کرده‌اند. ایسنا نوشت این هیئت برای «گفت‌وگو و تبادل نظر درباره روابط دوجانبه و تحولات منطقه‌ای» ظهر چهارشنبه وارد تهران شده است.
+
+🔸از زمان آتش‌بس میان ایران و آمریکا و اسرائیل، پاکستان به عنوان میانجی اصلی مذاکرات صلح میان ایران و آمریکا را هدایت می‌کرد اما در هفته‌های اخیر قطر نیز به عنوان میانجی دیگر تلاش کرده تا امکان برقرای تفاهمی میان ایران و آمریکا را فراهم کند.
+
+🔸سفر هیئت قطری به تهران ساعاتی پس از تبادل آتش واشینگتن و تهران پس از سرنگونی یک بالگرد نظامی آمریکا و همزمان با تند شدن لحن دونالد ترامپ علیه ایران انجام شده است.
+
+@RadioFarda
+</div>
+
+## alonews — post 126823
+
+<div align="center">
+  <a href="telegram/content/alonews_126823_1781097243.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈3 بمب افکن B52 آمریکایی در ساعات گذشته از آمریکا حرکت کرده و در بریتانیا فرود اومدن.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/20 16:34
 ---
 

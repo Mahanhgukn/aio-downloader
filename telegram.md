@@ -7,6 +7,76 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/20 05:43
+---
+
+## pm_afshaa — post 93258
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93258_1781057595.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سپاه پاسداران: به دنبال عملیات موفق نیروی دریایی سپاه در اصابت قرار دادن 21 هدف در پایگاه‌های هوایی و دریایی آمریکا در منطقه و ساقط کردن یک فروند پهپاد MQ9 در آسمان شهرستان جم، با توجه به تداوم شرارت‌های دشمن، 4 هدف از جمله آشیانه‌های جنگنده‌های F-35 در پایگاه…
+</div>
+
+## pm_afshaa — post 93257
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93257_1781057596.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سپاه پاسداران:
+به دنبال عملیات موفق نیروی دریایی سپاه در اصابت قرار دادن 21 هدف در پایگاه‌های هوایی و دریایی آمریکا در منطقه و ساقط کردن یک فروند پهپاد MQ9 در آسمان شهرستان جم، با توجه به تداوم شرارت‌های دشمن، 4 هدف از جمله آشیانه‌های جنگنده‌های F-35 در پایگاه هوایی ارتش آمریکا در الازرق اردن رو مورد هدف و انهدام قرار دادیم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## Shin_Persian — post 6847
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6847_1781057597.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Wed, 10 Jun 2026 02:11:34 UTC
+
+Kuwait Army General Staff announces air defense systems are currently engaging hostile aerial targets.
+
+Citizens are urged to follow safety instructions from official sources.
+
+#Kuwait 🇰🇼
+
+Source: @KuwaitArmyGHQ
+https://x.com/KuwaitArmyGHQ/status/2064530836901216641
+
+ترجمه خودکار فارسی
+
+ستاد کل ارتش کویت اعلام کرد که سامانه‌های پدافند هوایی در حال حاضر در حال درگیری با اهداف هوایی متخاصم هستند.
+
+از شهروندان درخواست می‌شود دستورالعمل‌های ایمنی را از منابع رسمی دنبال کنند.
+
+#Kuwait 🇰🇼
+
+منبع: @KuwaitArmyGHQ
+https://x.com/KuwaitArmyGHQ/status/2064530836901216641
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 220207
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220207_1781057598.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ویدیوی منتسب به «شلیک موشک از خمین» - چهارشنبه ۲۰ خرداد
+@FarsiVOA
+</div>
+
+---
 📅 بروزرسانی: 1405/03/20 05:33
 ---
 

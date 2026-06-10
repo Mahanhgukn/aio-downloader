@@ -7,6 +7,314 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/20 15:13
+---
+
+## VahidOOnLine — post 244667
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_244667_1781091820.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️پزشکیان: جنگ به نفع ما نیست ولی خوابش را ببینند که کوتاه بیاییم
+
+♦️مسعود پزشکیان، رئیس‌جمهوری اسلامی ایران روز چهارشنبه ۲۰ خردادماه در مراسم برای بزرگداشت علی خامنه‌ای گفت: «جنگ به سود ایران نیست، اما تهران در برابر هرگونه تعرض به حاکمیت، عزت و تمامیت ارضی کشور عقب‌نشینی نخواهد کرد».
+
+پزشکیان با پذیرش وضعیت دشوار اقتصادی حاکم بر ایران گفت: «ما باید از این وضعیتِ نه جنگ و نه صلح خارج شویم. بدون تردید، جنگ به نفع کشور نیست. اما این به آن معنا نیست که اگر بخواهند عزت ما را زیر پا بگذارند یا به سرزمین و تمامیت ارضی ما تعرض کنند، تسلیم شویم یا عقب‌نشینی کنیم. چنین چیزی را فقط می‌توانند در خواب ببینند. این موضوعی نیست که هرگز بر سر آن مصالحه کنیم.»
+
+پزشکیان همچنین مدعی شد تلاش‌های آمریکا و اسرائیل برای تحریک کشورهای عربی و اسلامی علیه ایران ناکام مانده و این روند موجب فاصله گرفتن دولت‌های منطقه از واشنگتن و تل‌آویو شده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14295
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ داره قاهره رو رد میکنه اقا ترمز کن 🤣🤣
+</div>
+
+## WithYashar — post 14294
+
+<div align="center">
+  <img src="telegram/content/WithYashar_14294_1781091822.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پست جدیدتر ترامپ:
+رسانه‌های اخبار جعلی از گزارش میزان اثربخشی محاصره دریایی ایالات متحده، که موفق‌ترین محاصره در تاریخ جنگ دریایی است، خودداری می‌کنند.
+
+هیچ چیز عبور نمی‌کند مگر اینکه ما بخواهیم. این یک دیوار فولادی است! ایران هیچ تجارتی ندارد، به ارتش خود یا هیچ یک از صورتحساب‌هایش پرداخت نمی‌کند و به سرعت به یک ملت شکست خورده تبدیل می‌شود! نفت زیادی در حال خروج است.
+@withyashar
+</div>
+
+## WithYashar — post 14293
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فاکس نیوز: ترامپ در حال مشورت با مشاوران خود برای بازگشت به جنگ با ایران است و گزینه حملات به نیروگاه‌ها و پل‌های ایران را بررسی می‌کند.@withyashar
+</div>
+
+## WithYashar — post 14292
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قالیباف: با وجود شهادت فرماندهان و دانشمندان در جنگ ۱۲ روزه، نه حرکت علم و دانش در کشور متوقف شد و نه توان دفاعی و بازدارندگی ایران کاهش یافت
+@withyashar
+</div>
+
+## WithYashar — post 14291
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ : ما کارمون با ایران رو ادامه می‌دیم و جلو می‌ریم
+@withyashar
+</div>
+
+## mwarmonitor — post 10604
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_10604_1781091823.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رسانه‌های اخبار جعلی (فیک نیوز) از گزارش اینکه محاصره دریایی ایالات متحده چقدر مؤثر است، خودداری می‌کنند؛ موفق‌ترین محاصره در تاریخ جنگ‌های دریایی. هیچ چیز عبور نمی‌کند مگر اینکه ما بخواهیم. این یک دیوار فولادی است! ایران صفر تجارت انجام می‌دهد، حقوق نظامیان یا هیچ‌یک از قبوض خود را پرداخت نمی‌کند و به‌سرعت در حال تبدیل شدن به یک کشور ورشکسته است! نفت زیادی در حال خارج شدن است.
+
+الحمدلله! رئیس‌جمهور دونالد جی. ترامپ.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10603
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ به فاکس‌نیوز گفت:
+
+🔸«در آستانه صدور دستور حملات جدید علیه نیروگاه‌ها و پل‌ها در ‎ایران هستم.»
+
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 342794
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌Fox News (Twitter/X)
+
+👉 Full story here:
+</div>
+
+## FoxNewsTwitter — post 342793
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342793_1781091823.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+FIRST ON FOX: Sen. Tom Cotton fires off a letter to acting AG Blanche demanding a DOJ investigation into a China-linked influence campaign he says is designed to 'kneecap' America's AI infrastructure. Cotton warns that Beijing is exploiting environmental and energy cost concerns to block U.S. data centers — while China subsidizes up to half the energy costs for its own AI operations.
+</div>
+
+## pm_afshaa — post 93288
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ به فاکس نیوز : به صدور دستور برای حمله‌های جدید به نیروگاه‌ها و پل‌های ایران نزدیک شده‌ام 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## kianmeli1 — post 87853
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴با حمله دیشب ترامپ به جنوب ایران ٫ به این نتیجه رسیده که جمهوری اسلامی توان پاسخ ندارد و میتواند به زیرساخت ضربه سنگین وارد کند
+
+بزودی جمهوری اسلامی محاصره دریایی را میشکند و ترامپ مجدد به فحاشی رو می آورد
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87852
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری-ترامپ به فاکس نیوز :
+
+به صدور دستور برای حمله‌های جدید به نیروگاه‌ها و پل‌های ایران نزدیک شده‌ام!
+https://t.me/kianmeli1
+</div>
+
+## Shin_Persian — post 6853
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6853_1781091824.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn Wed, 10 Jun 2026 11:35:26 UTC POTUS: "The Fake News Media refuses to report how EFFECTIVE the U.S. Naval BLOCKADE is, the most successful Blockade in the history of Naval Warfare. NOTHING GETS THROUGH unless we want it to. IT IS A STEEL…
+</div>
+
+## Shin_Persian — post 6852
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Wed, 10 Jun 2026 11:35:26 UTC
+
+POTUS:
+"The Fake News Media refuses to report how EFFECTIVE the U.S. Naval BLOCKADE is, the most successful Blockade in the history of Naval Warfare. NOTHING GETS THROUGH unless we want it to. IT IS A STEEL WALL! Iran is doing ZERO business, not paying their military, or any of their bills, and quickly becoming a FAILED NATION! Lots of oil is getting out. Praise be to Allah! President DONALD J. TRUMP"
+
+ترجمه خودکار فارسی
+
+رئیس‌جمهور ایالات متحده (POTUS):
+«رسانه‌های اخبار جعلی از گزارش اینکه محاصره دریایی ایالات متحده چقدر موثر است، خودداری می‌کنند؛ موفق‌ترین محاصره در تاریخ جنگ‌های دریایی. هیچ‌چیز عبور نمی‌کند مگر آنکه ما بخواهیم. این یک دیوار فولادی است! ایران هیچ معامله‌ای انجام نمی‌دهد، حقوق نظامیان خود یا هیچ‌یک از قبوضش را پرداخت نمی‌کند و به سرعت در حال تبدیل شدن به یک ملت شکست‌خورده است! مقدار زیادی نفت در حال خارج شدن است. الحمدلله! رئیس‌جمهور دونالد جی. ترامپ»
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 220240
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220240_1781091825.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سازمان عملیات تجارت دریایی بریتانیا روز چهارشنبه ۱۰ ژوئن از دو حادثهٔ جداگانه در مسیرهای حساس کشتیرانی منطقه خبر داد.
+
+در دریای عمان، یک نفتکش در حدود ۲۰ مایل دریایی شمال‌شرق صحارِ عمان دچار آتش‌سوزی در موتورخانه شد. به نقل از گزارش دریافتیِ این سازمان، یک نفر مصدوم و دو خدمه مفقود گزارش شده‌اند؛ با این حال هنوز علت آتش‌سوزی مشخص نیست و حادثه به‌طور رسمی «حمله» اعلام نشده است.
+
+چند ساعت پیش از آن نیز سازمان عملیات تجارت دریایی بریتانیا اعلام کرد یک کشتی باری در حدود ۸۸ مایل دریایی جنوب‌غرب بلحاف یمن، نزدیک تنگهٔ باب‌المندب و خلیج عدن با یک قایق کوچک حامل شش فرد مسلح روبه‌رو شد.
+
+میان افراد مسلح و تیم امنیتی کشتی تبادل آتش رخ داد و قایق از محل دور شد. گزارشی از تلفات یا خسارت به کشتی منتشر نشده است.
+
+این دو رخداد در حالی ثبت شده که یحیی سریع، سخنگوی نظامی حوثی‌های یمن، روز ۸ ژوئن «ناوبری دشمن» در دریای سرخ را ممنوع اعلام کرد و گفت هرگونه حرکت مرتبط با اسرائیل را هدف نظامی تلقی خواهد کرد.
+
+او همچنین هشدار داد «تشدید با تشدید پاسخ داده می‌شود و عملیات‌ها مطابق تحولات گسترده‌تر خواهد شد.»
+@FarsiVOA
+</div>
+
+## IranianMinds — post 22081
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ به فاکس‌نیوز:
+
+به صدور دستور حملات جدید علیه نیروگاه‌ها و پل‌های ایران نزدیک شدم.
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 391570
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ با کله‌ی خراب از خواب پا شده و در پستی در تروث‌سوشال نوشته: «نیروی نظامی جمهوری‌اسلامی قحبه یک افتضاح تمام‌عیار و مطلقه. بخش زیادیش مثل نیروی دریایی و نیروی هوایی‌شون دیگه حتی وجود خارجی هم نداره. این قحبه‌ها به طور کامل شکست خورده‌اند. روافض گنده‌گوز…
+</div>
+
+## Dirty_Kids — post 391569
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391569_1781091825.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بهروز رهبری فرد:
+ایرانی‌ها کونده پررواند! 😐
+
+
+@Dirty_Kids 👻
+</div>
+
+## Hranews — post 113513
+
+<div align="center">
+  <img src="telegram/content/Hranews_113513_1781091827.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزیر علوم، تحقیقات و فناوری درباره احکام انضباطی دانشجویان معترض در اعتراضات دانشگاه‌ها در دی ماه ۱۴۰۴ گفت: افرادی که در این تجمعات پرچم متفاوت را به دانشگاه آوردند یا اقدام به آتش زدن پرچم کردند، هم در دادسراها تحت تعقیب قضایی قرار دارند و هم برای آنها در دانشگاه پرونده انضباطی تشکیل شده است. حسین سیمایی‌صراف درباره تعداد #دانشجویان مشمول این رسیدگی‌ها اظهار کرد: آمار دقیقی در اختیار ندارم، اما در دانشگاه صنعتی شریف که یکی از موارد شاخص در این زمینه بوده، رسیدگی‌های لازم انجام شده است. در سایر دانشگاه‌ها نیز روند رسیدگی تفاوتی نخواهد داشت.
+#اعتراضات_۱۴۰۴
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## alonews — post 126802
+
+<div align="center">
+  <a href="telegram/content/alonews_126802_1781091827.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈افزایش قیمت نفت در پی سخنان ترامپ
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126801
+
+<div align="center">
+  <a href="telegram/content/alonews_126801_1781091827.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تخریب‌ها در طول جاده زبدین-نبطیه در جنوب لبنان به دلیل حملات مداوم اسرائیل قابل مشاهده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126797
+
+<div align="center">
+  <a href="telegram/content/alonews_126797_1781091829.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈یک حمله پهپادی اسرائیلی به تازگی خودرویی را در صیدا، جنوب لبنان هدف قرار داد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126796
+
+<div align="center">
+  <a href="telegram/content/alonews_126796_1781091831.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈توییت جدید ترامپ از طریق تروث سوشال: رسانه‌های خبری جعلی از گزارش میزان اثربخشی محاصره دریایی ایالات متحده که موفق‌ترین محاصره در تاریخ جنگ‌های دریایی است، خودداری می‌کنند.
+
+
+🔴هیچ چیزی عبور نمی‌کند مگر اینکه ما بخواهیم. این یک دیوار فولادی است! ایران هیچ تجارتی انجام نمی‌دهد، به ارتش خود پرداخت نمی‌کند، یا هیچ قبضی را پرداخت نمی‌کند و به سرعت به یک ملت شکست‌خورده تبدیل می‌شود! مقدار زیادی نفت خارج می‌شود.
+
+
+🔴الحمدالله!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126795
+
+<div align="center">
+  <a href="telegram/content/alonews_126795_1781091831.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / فاکس نیوز: ترامپ در حال مشورت با مشاوران خود برای بازگشت به جنگ با ایران است و گزینه حملات به نیروگاه‌ها و پل‌های ایران را بررسی می‌کند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126794
+
+<div align="center">
+  <a href="telegram/content/alonews_126794_1781091832.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تایمز آو اسرائیل: پایگاه هوایی رامات دیوید بر اثر حملات موشکی ایران در شب یکشنبه دچار خسارت شده است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/20 15:03
 ---
 

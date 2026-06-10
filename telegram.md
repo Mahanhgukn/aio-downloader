@@ -7,6 +7,367 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/21 00:42
+---
+
+## VahidOOnLine — post 244784
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244784_1781125972.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️پیت هگست، وزیر جنگ ایالات متحده، روز چهارشنبه ۲۰ خردادماه در مقر فرماندهی مرکزی آمریکا (سنتکام) گفت: «امشب تاسیسات کلیدی ایران را بمباران خواهیم کرد.»
+او با اشاره به موضع دولت دونالد ترامپ در قبال ایران افزود: «سنتکام امشب کار زیادی خواهد داشت، چون ترامپ گفته است که ما به ایران حمله سنگینی خواهیم کرد.» هگست همچنین گفت تهران هنوز از فرصت دستیابی به توافقی که واشنگتن انتظار دارد، استفاده نکرده است.
+وزیر جنگ آمریکا تاکید کرد هدف این حملات، وادار کردن ایران به پذیرش شرایط مورد نظر دولت ترامپ و جلوگیری از دستیابی تهران به سلاح هسته‌ای است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14387
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صدا و سیما: صداهایی از در نزدیکی جزیره کیش شنیده شده است که منبع آن در حال حاضر نامشخص است 🚨🚨
+@withyashar
+</div>
+
+## WithYashar — post 14386
+
+
+
+
+## mwarmonitor — post 10657
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴جنگ‌طلبان نظامی می‌گویند هیچ میزان حمله‌ای نمی‌تواند نظر تهران را تغییر دهد. یا باید برای بی‌ثبات‌سازی و سرنگونی رژیم دست به حمله بزنید، یا فقط مسئله را به آینده موکول می‌کنید — اما این‌بار با خشونت بیشتر. نیویورک پست
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10656
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💥شنیده شدن صداهای انفجار نامشخص در اطراف جزیره کیش .
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10655
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+❌ توقف و تعلیق پروازها در فرودگاه بین‌المللی اربیل در شمال عراق.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10654
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔹خبرنگار: اگر پاسخ، هدف قرار دادن پل‌ها و زیرساخت‌های برق باشد، چگونه این می‌تواند جنایت جنگی محسوب نشود؟
+
+🔸وزیر جنگ: این دقیقاً همان نوع سؤال‌های فریبنده‌ای است که از رسانه‌ها به آن عادت کرده‌ام ـ سؤالاتی که نیت افرادی را که در کنار ما ایستاده‌اند زیر سؤال می‌برد.
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 93397
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تقریبا میشه گفت حملات درحال آغازه.
+</div>
+
+## pm_afshaa — post 93396
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93396_1781125973.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴صداوسیما: صداهایی از دور در کیش شنیده میشه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93395
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93395_1781125974.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سفارت آمریکا در بغداد:
+به هیچ دلیلی به عراق سفر نکنید، اگر آنجا هستید، همین حالا ترک کنید.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93394
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کیش صدای انفجار یا پدافند گزارش شده
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93393
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93393_1781125975.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مهر: هم‌اکنون صداهایی از دور در کیش شنیده میشه که منشا اون مشخص نیست.
+
+به نظر میرسه تحرکاتی با فاصله زیاد از کیش صورت گرفته.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93392
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+میگن کلی پهباد جاسوسی تو آسمان کشوره
+احتمالا برای تیک زدن اهداف
+پدافند هم فعاله بعضی جاها
+</div>
+
+## pm_afshaa — post 93391
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پستارو شِیر کنید دوستاتونو بیارید چنل که امشب خیلی کار داریم❤️
+</div>
+
+## pm_afshaa — post 93390
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پستارو شِیر کنید دوستاتونو بیارید چنل که امشب خیلی کار داریم❤️
+</div>
+
+## kianmeli1 — post 87886
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری-حریم هوایی اقلیم کردستان عراق بسته شد. پروازها یکی یکی در حال لغو شدن هستند
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87885
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری-خبرهایی از صدای پدافند در کیش
+https://t.me/kianmeli1
+</div>
+
+## Shin_Persian — post 6872
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Wed, 10 Jun 2026 21:08:52 UTC
+
+IRIB: activities spotted from Kish island, Hormozgan Province, Southern #Iran
+
+(No reports of explosions)
+
+ترجمه خودکار فارسی
+
+صدا و سیما: فعالیت‌هایی از جزیره کیش، استان هرمزگان، جنوب #Iran رصد شده است
+
+(گزارشی از انفجار منتشر نشده است)
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6871
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Wed, 10 Jun 2026 21:06:03 UTC
+
+Intense jet activity over Babil #Iraq 🇮🇶
+
+ترجمه خودکار فارسی
+
+فعالیت شدید جنگنده‌ها بر فراز بابل #Iraq 🇮🇶
+
+𝕏 · @shin_persian
+</div>
+
+## Iliaen — post 4469
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ساعت ۰۰:۳۴ بامداد پنجشنبه؛ یک پهپاد در آسمان عسلویه مشاهده شد، پدافند مناطق شمال عسلویه نیز فعال شدند.
+
+@iliaen
+</div>
+
+## FarsiVOA — post 220291
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️بررسی دلایل افزایش تعداد کودکان کار در ایران؛ گفت‌وگو با آمنه عسگری
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 16541
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16541_1781125975.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسرائیل هیوم:
+شرکت هواپیمایی ایر کانادا تمدید لغو پروازها به اسرائیل را تا ۲۴ اکتبر اعلام کرد.
+</div>
+
+## Persian_Trend_Official — post 16540
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16540_1781125976.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+احتمالا تا دقایقی دیگه عروسی خونین داشته باشیم !
+</div>
+
+## Persian_Trend_Official — post 16539
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16539_1781125977.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صداوسیما: هم اینک صداهایی از دور در کیش شنیده می شود که منشا آن مشخص نیست
+
+به نظر می رسد تحرکاتی با فاصله زیاد از کیش صورت گرفته است.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16538
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16538_1781125977.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیت هگست: ما از آتش‌بس برای توسعه اطلاعات و به‌روزرسانی بانک اهداف خود در ایران استفاده کردیم.
+
+ایالات متحده به تأسیسات کلیدی ایران حمله خواهد کرد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16537
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیت هگست: حملاتی که امشب به ایران انجام خواهد شد، واضح و قوی خواهد بود. اگر فردا شب انجام شود، قوی و واضح خواهد بود. در طول این مدت، ایران فرصتی برای انجام معامله دارد. نکته همین است. این شروع دوباره جنگ نیست بلکه تعیین شرایط برای توافق است، پروژه آزادی…
+</div>
+
+## IranianMinds — post 22143
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 گزارشاتی از انفجار در نزدیکی کیش
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22142
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴تسنیم:
+
+نیروهای مسلح جمهوری اسلامی، امشب در حالت آماده‌باش کامل هستند.
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 391624
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ساعت ۰۰:۳۴ بامداد پنجشنبه؛ یک پهپاد در آسمان عسلویه مشاهده شد، پدافند مناطق شمال عسلویه نیز فعال شدند.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 126980
+
+<div align="center">
+  <a href="telegram/content/alonews_126980_1781125978.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈صدای انفجار در حوالی قشم شنیده شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126979
+
+<div align="center">
+  <a href="telegram/content/alonews_126979_1781125978.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تسنیم: ایران به ایالات متحده هشدار داده است که هرگونه اقدام نظامی جدید با پاسخ فوری و قوی روبرو خواهد شد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126978
+
+<div align="center">
+  <a href="telegram/content/alonews_126978_1781125979.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢فوووووووری/حمله شروع شد؟ هم اکنون هشدار در پایگاه‌های آمریکایی 
+🔴فعلا اقدامی نشده 
+🚨 @AkhbareFouri
+</div>
+
+## alonews — post 126977
+
+<div align="center">
+  <a href="telegram/content/alonews_126977_1781125979.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈گزارش‌ها از انفجار در کیش
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/21 00:32
 ---
 

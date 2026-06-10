@@ -7,6 +7,780 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/21 01:12
+---
+
+## VahidOOnLine — post 244790
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244790_1781127749.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️منابع آگاه به الجزیره اعلام کردند هیات میانجی قطری پس از گفتگوها و رایزنی‌های خود تهران را ترک کرده است. علی هاشم، خبرنگار الجزیره، چهارشنبه ۲۰ خردادماه به نقل از این منابع گزارش داد که همچنان برخی اختلاف‌ها بر سر متن نهایی توافق و تغییرات اعمال‌شده از سوی آمریکا باقی مانده است.
+این منابع همچنین هشدار دادند هرگونه حمله جدید به ایران عملا به معنای پایان اجرای آتش‌بس خواهد بود. بر اساس این گزارش، میانجی‌ها در تلاش‌اند از بروز درگیری و تنش جدید جلوگیری کنند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244789
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244789_1781127749.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری‌های داخلی گزارش دادند که صدای انفجار در شهرهای مختلف شنیده شد. در غرب تهران و عسلویه پدافند هوایی فعال شد و در سیریک و میناب صدای انفجارهایی شنیده شده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244788
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244788_1781127750.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️شبکه «آی۲۴» بامداد پنجشنبه ۲۱ خردادماه گزارش داد نیروی هوایی ایالات متحده انتظار می‌رود در ساعات آینده حملاتی را علیه طیف گسترده‌تری از اهداف جمهوری اسلامی انجام دهد.
+
+این گزارش پس از آن منتشر شد که پیت هگست، وزیر جنگ آمریکا، اعلام کرد فرماندهی مرکزی ایالات متحده (سنتکام) که هدایت عملیات نظامی آمریکا در خاورمیانه را بر عهده دارد، «امشب مشغول خواهد بود.» هگست همچنین گفت جمهوری اسلامی همچنان فرصت دستیابی به توافق را دارد، اما در صورت ادامه بن‌بست، حملات آمریکا ادامه خواهد یافت و افزود: «اگر لازم باشد با استفاده از بمب مذاکره کنیم، با استفاده از بمب مذاکره خواهیم کرد.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14406
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سنتکام: نیروهای فرماندهی مرکزی ایالات متحده امروز ساعت ۵:۱۵ بعدازظهر به وقت شرقی، به دستور فرمانده کل قوا، حملات دفاعی اضافی را علیه چندین هدف در ایران آغاز کردند. این حملات در پاسخ به تجاوزات بی‌دلیل و مداوم ایران انجام شده است.
+@withyashar
+</div>
+
+## WithYashar — post 14405
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+العربیه: پدافند هوایی در «عسلویه» در استان بوشهر فعال شد.
+@withyashar
+</div>
+
+## WithYashar — post 14404
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بندرعباس زیر زارتان زورتان شدید
+@withyashar
+</div>
+
+## WithYashar — post 14403
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فارس تایید کرد : شنیده شدن صدای انفجار در سیریک و قشم
+
+دقایقی پیش صدای انفجارهایی در قشم و سیریک به گوش رسید؛ همزمان پدافند هوایی در قشم شروع به فعالیت کرده است.
+@withyashar
+</div>
+
+## WithYashar — post 14402
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ادعای اکسیوس: حمله آمریکا به ایران آغاز شده
+@withyashar
+</div>
+
+## WithYashar — post 14401
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تسنیم : تاکنون صدای ۴ انفجار در سیریک شنیده شده است
+@withyashar
+</div>
+
+## WithYashar — post 14400
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تسنیم : تاکنون صدای ۴ انفجار در سیریک شنیده شده است
+@withyashar
+</div>
+
+## WithYashar — post 14399
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش شلیک موشک از غرب کشور
+@withyashar
+</div>
+
+## WithYashar — post 14398
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨🚨🚨🚨🚨
+
+وزیرجنگ آمریکا از آغاز حمله به ایران خبر داد.
+@withyashar
+</div>
+
+## WithYashar — post 14397
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صدای انفجار بندر عباس 🚨
+@withyashar
+</div>
+
+## mwarmonitor — post 10666
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نیروهای فرماندهی مرکزی ایالات متحده (سنتکام) امروز ساعت ۵:۱۵ بعدازظهر به وقت شرق آمریکا، به دستور فرمانده کل قوا، اجرای حملات دفاعی اضافی علیه چندین هدف در ایران را آغاز کردند. این حملات در پاسخ به تجاوزات بی‌دلیل و مستمر ایران انجام شده است.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10665
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴یک مقام ارشد آمریکایی تأیید می‌کند: حملات به ایران آغاز شده است.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10664
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شنیده شدن دو انفجار در بندرعباس.
+</div>
+
+## mwarmonitor — post 10663
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فعال شدن سامانه‌های پدافند هوایی در شهر عسلویه .
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 93421
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انفجار در کارخانه پتروشیمی در عسلویه
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93420
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93420_1781127750.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سنتکام:
+نیروهای فرماندهی مرکزی ایالات متحده حملات خود را از ساعت 5:15 بعد از ظهر امروز آغاز کردند. ET علیه اهداف متعدد در ایران به دستور فرمانده کل قوا. این حملات در پاسخ به تجاوزات بی دلیل و ادامه دار ایران است.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93419
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک مقام ارشد آمریکایی تایید کرد که حملات به ایران آغاز شده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93418
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+باراک راوید، خبرنگار آکسیوس:
+حملات آمریکا آغاز شده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93417
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پدافند عسلویه فعال
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93416
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انفجار در بندر عباس
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93415
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93415_1781127751.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴تسنیم: تا الان 4 صدا در سیریک شنیده شده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93414
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های اسرائیلی از آغار حملات خبر دادن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93413
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+میگن از تبریز موشک شلیک شده
+صبر کنید تا تایید بشه
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93412
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93412_1781127752.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴تسنیم: براساس گزارش منابع محلی، دقایقی پیش صدای انفجار در اطراف میناب و سیریک شنیده شد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5564
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ واشینگتن شبکهٔ چینی تأمین سلاح برای سپاه را هدف گرفت
+
+وزارت خزانه‌داری آمریکا ۱۱ فرد و شرکت در چین و هنگ‌کنگ را به اتهام همکاری در تأمین سلاح و تجهیزات برای سپاه پاسداران و وزارت دفاع جمهوری اسلامی تحریم کرد.
+واشینگتن اعلام‌‌ کرد این شبکه در انتقال پول و خرید تجهیزات نظامی برای جمهوری اسلامی نقش داشت.
+به گفتهٔ وزارت خزانه‌داری آمریکا، این تحریم‌ها بخشی از کارزار فشار اقتصادی علیه حکومت جمهوری اسلامی است.
+
+#خبر #دژ #تحریم #چین #سپاه_تروریستی_پاسداران
+@DEJradio
+</div>
+
+## DEJradio — post 5563
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ ترامپ گفت آمریکا با کنترل هرمز عبور بیش از ۱۰۰ میلیون بشکه نفت را تضمین کرد
+
+دونالد ترامپ اعلام کرد نیروهای آمریکایی از ماه پیشین امنیت عبور بیش از ۱۰۰ میلیون بشکه نفت و ۲۰۰ کشتی تجاری را از تنگهٔ هرمز تأمین کردند.
+رئیس جمهوری آمریکا گفت این عملیات عبور دادن کشتی‌ها بر اساس یک مأموریت محرمانه انجام شد.
+او تأکید کرد به‌خلاف ادعای رژیم حاکم بر ایران، کنترل تنگهٔ هرمز در اختیار آمریکا قرار دارد و در کنترل جمهوری اسلامی نیست.
+
+#خبر #دژ #تنگه_هرمز
+@DEJradio
+</div>
+
+## DEJradio — post 5562
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5562_1781127753.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⭕️ رسانه‌های وابسته به حکومت بامداد پنج‌شنبه از شنیده شدن صدای انفجار در غرب تهران و سیریک در استان هرمزگان خبر دادند.
+
+#خبر #دژ #حمله
+@DEJradio
+</div>
+
+## VahidOnline — post 76166
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیام‌های دریافتی:
+ساعت ۱:۰۳ بندرعباس صدای انفجار شدید اومد
+
+بندرکرگان شهرستان میناب، رو با موشک زد
+همین الان
+پاسگاه دریابانی رو زد
+
+صدای دو انفجار در بندرعباس همین الان
+
+سلام ساعت همین الان انفجار شدید در بندرعباس ساعت ۱:۴ دقیقه
+
+وحید از ساعت ۱:۰۳ دقیقه بامداد
+چهار تا انفجار بندرعباس
+
+سلام وحید،صدای چند انفجار همین الان بندرعباس
+
+سلام. همین الان صدای انفجار شدید، بندرعباس، ساعت یک و سه دقیقه شب
+صدای انفجارهای ممتد میاد
+
+صدای انفجار بندرعباس
+
+بندر عباس فکر کنم سه تا انفجار با فاصله چند ثانیه
+
+صدای انفجار بازم میاد میناب نوار ساحلی
+
+انفجار دوباره
+
+سلام،وحید جان بندرو زدننن من لرزیدمم
+
+همین الان صدای انفجار بندرعباس دو الی سه تا صدا اومد
+
+انفجارها داره زیاد و قوی‌تر میشه، بندرعباس ساعت یک و شش دقیقه شب
+
+سلام‌وحید جان بندرعباس همین الان ۱:۰۵ دقیقه صدای انفجار اومد
+
+سلام وحید جان
+همین الان ۱:۰۶صدای انفجار داره میاد بندرعباس
+پنجره خونمون لرزید
+
+درود درگهان همی پنچره ها لرزید
+
+سلام اقا وحید ۰۱:۰۶ دقیقه بندرعباس الان یه صدای بزرگ انفجار که مرکز شهر شنیده شد
+
+📡 @VahidOnline
+</div>
+
+## kianmeli1 — post 87896
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری-بندرعباس زیر آتش
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87895
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87895_1781127753.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری
+
+شروع حمله نظامی ایالات متحده علیه اهداف درون ایران
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 341588
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341588_1781127754.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری‌های داخلی گزارش دادند که صدای انفجار در شهرهای مختلف شنیده شد. در غرب تهران و عسلویه پدافند هوایی فعال شد و در سیریک و میناب صدای انفجارهایی شنیده شده است.
+https://iranintl.com/202606109695
+</div>
+
+## Shin_Persian — post 6883
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Wed, 10 Jun 2026 21:41:18 UTC
+
+AA activity in Asaluyeh, Bushehr Province, #Iran
+
+ترجمه خودکار فارسی
+
+فعالیت پدافند هوایی در عسلویه، استان بوشهر، #Iran
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6882
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Wed, 10 Jun 2026 21:38:07 UTC
+
+Several blasts was heard in Bandar Abbas (presumably same blasts that were heard in Qeshm)
+Hormozgan Province, #Iran
+
+ترجمه خودکار فارسی
+
+چندین انفجار در بندرعباس شنیده شد (احتمالاً همان انفجارهایی است که در قشم شنیده شده بود)
+استان هرمزگان، #Iran_
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6881
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Wed, 10 Jun 2026 21:37:33 UTC
+
+U.S. Central Command says it began self-defense strikes against multiple targets in Iran at 5:15 p.m. ET today, at the Commander in Chief’s direction, in response to Iran’s what it calls unwarranted and continued aggression.
+
+ترجمه خودکار فارسی
+
+فرماندهی مرکزی ایالات متحده (سنتکام/CENTCOM) اعلام کرد که به دستور فرمانده کل قوا و در پاسخ به آنچه تجاوزات بی‌دلیل و مداوم ایران می‌نامد، حملات دفاع از خود علیه اهداف متعددی در ایران را از ساعت ۲۲۱۵ زولو (۰۱:۴۵ بامداد به وقت تهران) امروز آغاز کرده است.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6880
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Wed, 10 Jun 2026 21:35:26 UTC
+
+3 Explosions just now.
+Qeshm island, Hormozgan Province, #Iran
+
+ترجمه خودکار فارسی
+
+هم‌اکنون ۳ انفجار.
+جزیره قشم، استان هرمزگان، #Iran_
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6879
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6879_1781127755.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Wed, 10 Jun 2026 21:34:16 UTC
+
+Distant blast was heard in Qeshm island, Hormozgan Province, #Iran
+
+ترجمه خودکار فارسی
+
+صدای انفجاری از دور در جزیره قشم، استان هرمزگان، #Iran شنیده شد.
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 220297
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220297_1781127756.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️حسین شریعتمداری، نماینده رهبر جمهوری اسلامی در روزنامه کیهان در مقاله‌ای خواستار خروج حکومت ایران از «پیمان منع گسترش سلاح‌های هسته‌ای» شد. خبرگزاری فارس، وابسته به سپاه، مقاله تازه شریعتمداری را منتشر کرد. دونالد ترامپ، رئیس جمهوری آمریکا گفته است هرگز به جمهوری اسلامی اجازه دستیابی به سلاح هسته‌ای را نمی‌دهد.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220296
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220296_1781127756.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️خبرگزاری مهر از شنیده شدن صدای انفجار در شهر میناب خبر داد. این خبرگزاری حکومتی توضیح بیشتری در این باره منتشر نکرد.
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 16573
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیام ارسالی : بندرعباس صداهای بسیار مهیب اما با فاصله زیاد شنیده میشه
+</div>
+
+## Persian_Trend_Official — post 16572
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16572_1781127756.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک پهپاد بر فراز قزوینِ ایران در حال پروازه
+</div>
+
+## Persian_Trend_Official — post 16571
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16571_1781127757.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آغاز حملات موشکی سپاه
+</div>
+
+## Persian_Trend_Official — post 16570
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16570_1781127758.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پرتاب موشک از استان آذربایجان شرقی، شمال غرب ایران.
+</div>
+
+## Persian_Trend_Official — post 16569
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک مقام آمریکایی: تا این لحظه، کشتی‌های نیروی دریایی به طور متمرکز در پایگاه سیرک حمله می‌کنند.
+</div>
+
+## Persian_Trend_Official — post 16568
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال ۱۲ اسرائیل: ارتش اسرائیل برای آمادگی جهت مقابله با احتمال درگیری مجدد با ایران، سطح هشدار خود را افزایش داده است.
+</div>
+
+## Persian_Trend_Official — post 16567
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تایید نشده بمباران تأسیسات نفتی جنوب کشور
+</div>
+
+## IranianMinds — post 22171
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 طبق گزارشات اطراف اسکله باهنر در بندرعباس زدن
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22169
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سنتکام بیانیه داد این حملات دفاعیه😐😐😐😐😐 @IranianMinds
+</div>
+
+## IranianMinds — post 22168
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سنتکام بیانیه داد این حملات دفاعیه😐😐😐😐😐
+
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22167
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ظاهرا به پاسگاه دریابانی شهرستان میناب حمله شده
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22166
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 صدا و سیما:
+پدافند عسلویه فعال شده است
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22165
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴اکسیوس:
+آمریکا حملات خود را آغاز کرده است
+
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22164
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 گزارشاتی از انفجار در بندرعباس
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22163
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴شلیک موشک از تبریز
+
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 391631
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هم‌اکنون؛
+
+گزارش شهروندان از وقوع انفجارهای متعدد در بندرعباس حکایت دارد.
+</div>
+
+## Dirty_Kids — post 391630
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روافض از آذربایجان شرقی آبگرمکن ول دادن.
+</div>
+
+## Dirty_Kids — post 391629
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 وزیرجنگ آمریکا از آغاز حمله به ایران خبر داد.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391628
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391628_1781127759.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴هم اکنون صدای انفجار در قشم و سیریک
+
+
+🔴کانال ۲۴ اسرائیل: شروع شد💥
+
+
+🔴فعالیت پدافند شیراز
+</div>
+
+## alonews — post 126997
+
+<div align="center">
+  <a href="telegram/content/alonews_126997_1781127759.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈چندین انفجار در بندرعباس
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126996
+
+<div align="center">
+  <a href="telegram/content/alonews_126996_1781127760.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سنتکام:
+نیروهای فرماندهی مرکزی ایالات متحده امروز ساعت ۵:۱۵ بعد از ظهر به وقت شرق آمریکا، به دستور فرمانده کل قوا، حملات دفاع شخصی بیشتری را علیه چندین هدف در ایران آغاز کردند. این حملات در پاسخ به تجاوز بی‌دلیل و مداوم ایران انجام می‌شود.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126995
+
+<div align="center">
+  <a href="telegram/content/alonews_126995_1781127760.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کانال ۱۲ اسرائیل: ارتش آماده پیوستن به ایالات متحده در کارزار جدید علیه ایران است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126994
+
+<div align="center">
+  <a href="telegram/content/alonews_126994_1781127760.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فووووری و رسمی/حملات آمریکا شروع شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126993
+
+<div align="center">
+  <a href="telegram/content/alonews_126993_1781127760.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پدافند عسلویه فعال شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126992
+
+<div align="center">
+  <a href="telegram/content/alonews_126992_1781127761.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رسایی: اینترنت رو فورا قطع کنید
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126991
+
+<div align="center">
+  <a href="telegram/content/alonews_126991_1781127761.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری/گزارش شلیک موشک از غرب کشور
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/21 01:02
 ---
 

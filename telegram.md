@@ -7,6 +7,371 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/20 03:52
+---
+
+## mwarmonitor — post 10582
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴حمله مجدد آمریکا به جزیره قشم
+</div>
+
+## mwarmonitor — post 10581
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_10581_1781050959.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✈️اکنون در حال فعالیت بر فراز عربستان سعودی:
+
+✈️دو فروند هواپیمای سوخت‌رسان نیروی هوایی آمریکا و یک فروند تانکر A330 MRTT متعلق به نیروی هوایی سلطنتی عربستان سعودی.
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 93200
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_93200_1781050960.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اخبار ثانیه ای و لحضه به لحضه جنگ رو با کانال ما دنبال کنید
+
+بــاز نــیوز مرجع کانال های خبری و مردمی 👇🏻❌
+
+t.me/BuzNewss ❗️
+t.me/BuzNewss ❗️
+t.me/BuzNewss ❗️
+t.me/BuzNewss ❗️
+</div>
+
+## pm_afshaa — post 93199
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انفجار مجدد در قشم
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93198
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+از خورستان موشک بلند شد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93197
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بی بی دلتنگتم😭
+</div>
+
+## pm_afshaa — post 93196
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صدای انفجار مجدد در قشم شنیده شده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93195
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دلم برات تنگ شده بی بی برگرد بیا بدون تو حال نمیده تهران شباش💔
+</div>
+
+## pm_afshaa — post 93194
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دلم برات تنگ شده بی بی برگرد بیا
+بدون تو حال نمیده تهران شباش💔
+</div>
+
+## pm_afshaa — post 93193
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93193_1781050960.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسمون لرستان
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93192
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انفجار مجدد در بندرعباس
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93191
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+احتمالا سایت موشکی جم هدف قرار گرفته.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93190
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+از اصفهان موشک بلند شد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93189
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_93189_1781050962.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پدافند جم در حال مقابله با پهپاد هاست
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93187
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93187_1781050963.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تصاویری از آسمان جم :
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93186
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_93186_1781050964.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تصویر منتسب به قشم همین الان :
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## kianmeli1 — post 87832
+
+<div align="center">
+  <a href="telegram/content/kianmeli1_87832_1781050964.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴تصاویر انهدام یک شیء بر فراز آسمان شهر جم، بوشهر
+https://t.me/kianmeli1
+</div>
+
+## Shin_Persian — post 6820
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Wed, 10 Jun 2026 00:21:41 UTC
+
+Initial: UAV was shot down over Bushehr province, southern Iran
+
+فارسی
+
+یک پهپاد در فراز استان بوشهر در جنوب ایران سرنگون شد.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6818
+
+<div align="center">
+  <a href="telegram/content/Shin_Persian_6818_1781050965.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Wed, 10 Jun 2026 00:19:29 UTC
+
+Unverified videos from Jam, Bushehr Province, #Iran
+(Media: Not mine)
+
+فارسی
+
+ویدیوهای تأیید نشده از جم، استان بوشهر، #Iran
+(رسانه: متعلق به من نیست)
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6817
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6817_1781050966.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Wed, 10 Jun 2026 00:15:57 UTC
+
+Several more blasts in Qeshm island, Hormozgan Province, #Iran
+
+فارسی
+
+چندین انفجار دیگر در جزیره قشم، استان هرمزگان، #Iran_
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6816
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6816_1781050966.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Wed, 10 Jun 2026 00:13:56 UTC
+
+3rd BM spotted over Shahin Shahr just now
+Isfahan Province, #Iran
+(0013Z)
+
+فارسی
+
+همین الان سومین موشک بالستیک بر فراز شاهین‌شهر دیده شد
+استان اصفهان، #Iran
+(۰۰۱۳Z (۰۳:۴۳ به وقت تهران))
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6815
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Wed, 10 Jun 2026 00:12:51 UTC
+
+2 were spotted by the eyewitness.
+
+فارسی
+
+۲ نفر توسط شاهد عینی رویت شدند.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6814
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Wed, 10 Jun 2026 00:12:10 UTC
+
+BM launch from Shahin Shahr
+Isfahan Province, #Iran
+
+فارسی
+
+شلیک موشک بالستیک از شاهین‌شهر
+استان اصفهان، #Iran
+
+𝕏 · @shin_persian
+</div>
+
+## Iliaen — post 4466
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اگر از بندرعباس، سیریک و چند شهر دیگر در جنوب که نزدیک مناطق انفجار هستند این پیام را می‌بینید، علی‌رغم اینکه انفجارها در مرکز شهر نیست، توصیه می‌شود از حضور در پشت‌بام خودداری فرمایید؛ زیرا شدّت انفجارها زیاد است و می‌تواند هزاران ترکش کوچکِ سنگی را تا کیلومتر‌ها و در جهت‌های متفاوت پرتاب کند.
+
+@iliaen
+</div>
+
+## FarsiVOA — post 220192
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220192_1781050967.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️در پی ادامه حملات آمریکا به مواضع جمهوری اسلامی، گزارش‌ها از شنیده شدن صدای انفجار در جاسک، بندرعباس، و جزیره قشم حکایت دارد. دونالد ترامپ، رئیس جمهوری آمریکا ساعاتی قبل گفت: پاسخ ما به اقدام جمهوری اسلامی در سرنگونی هلی‌کوپتر آمریکا «بسیار قوی و قدرتمند» خواهد بود.
+@FarsiVOA
+</div>
+
+## IranianMinds — post 22032
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 حمله آمریکا به جم @IranianMinds
+</div>
+
+## IranianMinds — post 22031
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شلیک موشک از لرستان
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22030
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شلیک موشک از اصفهان و خوزستان
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22029
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22029_1781050967.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حملات آمریکا به قشم
+
+@IranianMinds
+</div>
+
+---
 📅 بروزرسانی: 1405/03/20 03:42
 ---
 

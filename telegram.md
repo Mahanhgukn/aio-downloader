@@ -7,6 +7,204 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/20 23:33
+---
+
+## VahidOOnLine — post 244774
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244774_1781121833.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️به گزارش خبرگزاری صدا و سیما (IRIB)، چهارشنبه‌شب ۲۰ خرداد، یک هیئت دیپلماتیک از قطر به منظور گفتگو و رایزنی درباره روابط دوجانبه، تحولات منطقه‌ای و تلاش‌های دیپلماتیک مربوط به منازعه با ایالات متحده، وارد تهران شده است.
+
+بر اساس این گزارش، محور گفتگوهای این سفر شامل بررسی مناسبات میان دو کشور و همچنین تبادل نظر درباره آخرین تحولات در فرآیند دیپلماتیک برای پایان دادن به جنگ است.
+
+در این گزارش هنوز جزئیات بیشتری درباره اعضای این هیئت، مقام سرپرست آن و همچنین مدت زمان این سفر ارائه نشده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244773
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244773_1781121834.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️آکسیوس به نقل از یک منبع منطقه‌ای، گزارش داد که مقامات جمهوری اسلامی ایران و آمریکا طی دو روز گذشته گفتگوهای موازی و غیرمستقیمی را با میانجی‌گران قطری در دوحه انجام داده‌اند. واسطه‌های قطری تلاش کردند تا برای حل اختلافات باقی‌مانده یک نشست سه‌جانبه و مذاکره مستقیم میان طرفین ترتیب دهند، اما ایران این پیشنهاد را رد کرد. در همین راستا، میانجی‌گران قطری روز چهارشنبه برای از سرگیری و به حرکت درآوردن چرخ مذاکرات، راهی تهران شدند تا با عباس عراقچی و دیگر مقامات جمهوری اسلامی گفتگو کنند.
+
+از سوی دیگر، دو مقام آمریکایی ابراز امیدواری کردند که حملات روز سه‌شنبه و تهدیدات دونالد ترامپ، تهران را وادار به پذیرش توافق پیشنهادی کند. یک مقام دیگر نیز تاکید کرد توافق همچنان روی میز است، اما در صورت تداوم وقت‌کشی تهران، رئیس‌جمهوری آماده است تا آن‌ها را وادار به پرداخت بها کند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14377
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+استرالیا و کانادا از همه شهروندان خود در ایران خواسته‌اند فوراً کشور را ترک کنند.
+@withyashar
+</div>
+
+## WithYashar — post 14376
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه های اسراییل : ترامپ خبر از حمله بزرگ طی ساعات آینده به ایران داده است ٫ ارتش اسراییل اماده شده
+@withyashar
+</div>
+
+## WithYashar — post 14375
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش صدای انفجار از نجف‌آباد اصفهان 🚨
+@withyashar
+</div>
+
+## WithYashar — post 14374
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+24 ساعت دیگه بازی افتتاحیه جام جهانی شروع میشه
+@withyashar
+</div>
+
+## WithYashar — post 14373
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جواد خیابانی پس از ۳۵ سال فعالیت مستمر در سازمان صداوسیما بازنشسته شد
+@withyashar
+</div>
+
+## mwarmonitor — post 10644
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_10644_1781121834.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 ترامپ ؛ «اول از همه اینکه "خواهیم دید چه می‌شود" حق انحصاری و تکیه‌کلام شخصی منه، پس لطفاً اسکی نرو و برای خودت دکان باز نکن! دوم اینکه با این دست‌فرمان توهمی که پیش می‌روی، قول شرف می‌دهم نفر بعدی که افقی می‌شود و سینه قبرستان در آغوش خاک می‌خوابد، دقیقاً خود شخص شخیص و متوهمت باشد؛ آن‌قدرها هم از عمرت باقی نمانده و آن‌قدر جان نداری که بخواهی فانتزی‌های جنگ جهانی‌ات را حتی از تشک و تخت‌خوابت فراتر ببری، چه برسد به میدان واقعی!
+
+@mwarmonitor
+</div>
+
+## kianmeli1 — post 87879
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رسانه های اسراییل
+
+ترامپ خبر از حمله بزرگ طی ساعات آینده به ایران داده است ٫ ارتش اسراییل اماده شده
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 341578
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341578_1781121835.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مارک وارنر، سناتور دموکرات، به مرضیه حسینی، خبرنگار ایران‌اینترنشنال، گفت: «به نظر نمی‌رسد این آتش‌بس چندان دوام داشته باشد. ترامپ در چند هفته گذشته دست‌کم ۳۰ بار اعلام کرده جنگ تمام شده، اما شواهد نشان می‌دهد که واقعیت با این ادعا فاصله دارد. این دقیقا نتیجه ورود به یک جنگ انتخابی بدون داشتن یک برنامه جامع برای پایان آن است.»
+
+او افزود: «هنوز نشانه‌ای از پیشرفت جدی دیده نمی‌شود. چهار هدف اصلی مطرح شده بود: تغییر رفتار یا ساختار حکومت، خارج کردن اورانیوم غنی‌شده، از بین بردن توان موشکی ایران و بازگشایی تنگه هرمز. اما در حال حاضر به نظر می‌رسد حکومت ایران نه‌تنها عقب‌نشینی نکرده، بلکه مواضع تندتری اتخاذ کرده است.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 341577
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/341577" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی ‌‌‏﻿﻿۲۴ با فرداد فرحزاد: ترامپ: ضربه سختی به جمهوری‌اسلامی می‌زنیم
+@iranintlTV
+</div>
+
+## IranIntlTV — post 341576
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341576_1781121837.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در بحبوحه تنش میان تهران و واشینگتن، سناتور دموکرات کریس مورفی از نبود راهبرد روشن دولت دونالد ترامپ برای مدیریت بحران و پیامدهای اقتصادی آن انتقاد کرد. در مقابل، سناتور جمهوری‌خواه دیو مک‌کورمیک گفت اگر تهران اورانیوم غنی‌شده را واگذار و تنگه هرمز را بازگشایی کند، توافق می‌تواند دستاوردی مهم باشد.
+
+ارزیابی شایان سمیعی، کارشناس امنیت ملی
+@iranintltv
+</div>
+
+## FarsiVOA — post 220282
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺آمریکا: چین و روسیه به جمهوری اسلامی امکان داده‌‌اند قطعنامه‌های شورای امنیت را نقض کند
+
+◾️تمی بروس، معاون نماینده آمریکا در سازمان ملل متحد، در سخنانی در شورای امنیت گفت در حالی که جمهوری اسلامی «آشکارا توافقات هسته‌ای خود را نقض می‌کند و موشک‌های بالستیک به سمت متحدان ما شلیک می‌کند» روسیه و چین در سازمان ملل از آن محافظت می‌کنند.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8159435.html
+@FarsiVOA
+</div>
+
+## IranianMinds — post 22140
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 استرالیا و کانادا از شهروندان خود می‌خواهند فوراً ایران را ترک کنند.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22139
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فوری i24news :
+
+انتظار می‌رود ایالات متحده در ساعات آینده حملاتی علیه دامنه وسیع‌تری از اهداف ایرانی انجام دهد که فراتر از حملات شب گذشته است. این حملات به عنوان پیامی به تهران برای ارائه پاسخ فوری درباره توافق فعلی در دست بررسی است، نه به عنوان بازگشتی به جنگ تمام‌عیار.
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 391614
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391614_1781121838.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هرکی هرچی جنده‌تر باشه، احتمال حکومتی بودنش بیشتره.
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 126959
+
+<div align="center">
+  <a href="telegram/content/alonews_126959_1781121839.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈گوترش: وضعیت کنونی در خاورمیانه می‌تواند به از سرگیری کامل درگیری‌ها منجر شود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126958
+
+<div align="center">
+  <a href="telegram/content/alonews_126958_1781121839.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / استرالیا و کانادا از همه شهروندان خود در ایران خواسته‌اند فوراً کشور را ترک کنند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/20 23:24
 ---
 

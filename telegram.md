@@ -7,6 +7,316 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/20 04:03
+---
+
+## VahidOOnLine — post 244602
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️احمد دنیامالی، وزیر ورزش دولت مسعود پزشکیان، درباره شرایط حضور تیم ملی فوتبال ایران در جام جهانی ۲۰۲۶ گفت اگر پرچمی غیر از پرچم جمهوری اسلامی یا شعارهای هنجارشکنانه در ورزشگاه مشاهده شود، سرپرست تیم مسئولیت دارد بازی را متوقف کند.
+دنیامالی تاکید کرد برگزارکنندگان و مجموعه‌های امنیتی مسئول فراهم کردن شرایط مناسب برای تیم ملی هستند و تا زمان رفع این موارد، امکان ادامه ندادن مسابقه وجود دارد. او همچنین درباره هم‌زمان با بازی ایران و مصر با رژه روز افتخارافراد با گرایش‌های جنسی متفاوت در سیاتل گفت برگزارکنندگان به مقام‌های جمهوری اسلامی اطمینان داده‌اند که جای نگرانی وجود ندارد و این موارد در چارچوب استانداردهای میزبانی مدیریت خواهد شد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## mwarmonitor — post 10583
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 ضاحیه جنوبی بیروت خط قرمزه
+ولی استان‌های جنوبی ایران نه؛
+
+بعد همین فرقه شیطانی شیعه که مرزهای دلشون هزاران کیلومتر اون‌ورتر
+
+به ما می‌گن وطن‌فروش
+</div>
+
+## pm_afshaa — post 93212
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#ارسالی
+
+اهواز صداش وحشتناک بود اسمونم حتی چند‌ ثانیه روشن شد
+</div>
+
+## pm_afshaa — post 93211
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+موج جدید حملات آمریکا اینسری به اهواز
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93210
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93210_1781051607.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## pm_afshaa — post 93209
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ 1 ساعت دیگه
+اتش بس ادامه داره...
+</div>
+
+## pm_afshaa — post 93207
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93207_1781051608.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴صدای انفجار در اهواز
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93206
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93206_1781051609.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴آبفا هرمزگان:
+در پی حمله آمریکا به سیریک، دو مخزن استراتژیک آب شرب در بخش بمانی تخریب شده و آب‌رسانی به روستاهای این بخش و شهر کوهستک متوقف شده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93204
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سد مجید خوابه؟
+</div>
+
+## pm_afshaa — post 93203
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فکر میکردیم حملات محدوده
+ولی تو جنوب اصلا محدود نبوده
+بالای 1 ساعته داره میکوبه
+</div>
+
+## pm_afshaa — post 93202
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مدیر شرکت آب سیرک تو جنوب ایران :
+حمله آمریکا زیرساخت‌های آب شهر رو هدف قرار داده
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93201
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سکوت عجیبی شد
+</div>
+
+## VahidOnline — post 76122
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیام‌های دریافتی تایید نشده:
+
+یک صدای انفجار هم تو اهواز اومد 03:53
+
+سلام وحید جان، اهواز ساعت 3:53 صدای بمب شنیده شد.
+
+سلام همین الان اهواز رو زدن
+
+همین الان اهواز صدا انفجار زدن پنجره لریزید
+
+📡 @VahidOnline
+</div>
+
+## kianmeli1 — post 87834
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری
+
+صدای مهیب انفجار در اهواز
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87833
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴شرکت آبفا هرمزگان
+
+زیرساخت آب سیریک بصورت کامل منهدم شده است و چندین روستا و بخش آب ندارند
+https://t.me/kianmeli1
+</div>
+
+## Shin_Persian — post 6824
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6824_1781051610.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Wed, 10 Jun 2026 00:32:17 UTC
+
+Thanks for giving some light to my video with your shiny watermark :)))
+
+فارسی
+
+ممنون که با واترمارک درخشانتون به ویدیوی من جلوه دادید :)))
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6823
+
+<div align="center">
+  <a href="telegram/content/Shin_Persian_6823_1781051611.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Wed, 10 Jun 2026 00:29:53 UTC
+
+Some Telegram channels have posted this video as "Lorestan skies" (West of Iran), can't confirm at the moment.
+
+فارسی
+
+برخی کانال‌های تلگرامی این ویدیو را با عنوان «آسمان لرستان» (غرب ایران) منتشر کرده‌اند، در حال حاضر امکان تأیید آن وجود ندارد.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6822
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6822_1781051613.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Wed, 10 Jun 2026 00:26:11 UTC
+
+0024Z
+Loud explosion in Ahvaz, Khuzestan Province, #Iran
+(Eyewitness believes it was a strike)
+
+فارسی
+
+۰۰۲۴ زولو (۰۳:۵۴ به وقت تهران)
+انفجار مهیب در اهواز، استان خوزستان، #Iran
+(شاهد عینی معتقد است که این یک حمله بوده است)
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6821
+
+<div align="center">
+  <a href="telegram/content/Shin_Persian_6821_1781051614.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Wed, 10 Jun 2026 00:25:18 UTC
+
+Heading east over Tehran as per the cameraperson
+
+فارسی
+
+در حال حرکت به سمت شرق بر فراز تهران بنا بر گفته فیلم‌بردار
+
+𝕏 · @shin_persian
+</div>
+
+## Iliaen — post 4467
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ساعت حدود ۰۳:۴۰ صبح چهارشنبه؛ در مجموع حدود ۱۵ انفجار در قشم شنیده شد. مکان انفجارها مشخص نیست و برخی از فاصله‌ی دور شنیده شدند.
+
+احتمالاً برخی از انفجارها مرتبط با جزیره لارَک در نزدیک قشم هستند که محل استقرار قایق‌های تندرو سپاه و انبار پهپاد است.
+
+@iliaen
+</div>
+
+## DW_Farsi — post 125747
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125747_1781051616.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 تخریب مخازن آب در پی حملات موشکی به هرمزگان؛ قطع آب شرب در بخش بمانی و شهر کوهستک
+
+در پی حملات موشکی آمریکا به زیرساخت‌های استان هرمزگان در بامداد چهارشنبه ۲۰ خرداد، دو مخزن استراتژیک آب در بخش بمانی به طور کامل تخریب شدند و شبکه توزیع آب شرب در این منطقه و شهر کوهستک به طور کامل قطع شد.
+
+عبدالحمید حمزه‌پور، مدیرعامل شرکت آب و فاضلاب استان هرمزگان با تایید این خبر اعلام کرد، "این حمله موشکی ساعاتی پیش رخ داده و طی آن دو مخزن با ظرفیت‌های ۵۰۰ و ۲ هزار متر مکعب به طور صد درصد نابود شده‌اند".
+
+به گفته این مقام مسئول، این مخازن نقش کلیدی و حیاتی در تامین آب شرب ساکنان بخش بمانی و شهر کوهستک ایفا می‌کردند.
+
+مدیرعامل آبفای هرمزگان در ادامه تصریح کرد، در حال حاضر روند توزیع آب در تمامی روستاهای بخش بمانی و شهر کوهستک متوقف شده است.
+
+📌تصویر از آرشیو
+@dw_farsi
+</div>
+
+## IranianMinds — post 22036
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 چند انفجار مهیب در اهواز
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22035
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 حملات موشکی آمریکا به اهواز
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22034
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اهوازو زدن ؟
+</div>
+
+## IranianMinds — post 22033
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴شرکت آبفا :
+
+زیرساخت آب سیریک بصورت کامل منهدم شده است و چندین روستا و بخش آب ندارند
+
+@IranianMinds
+</div>
+
+---
 📅 بروزرسانی: 1405/03/20 03:52
 ---
 

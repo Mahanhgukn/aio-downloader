@@ -7,6 +7,289 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/20 21:55
+---
+
+## VahidOOnLine — post 244757
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244757_1781115942.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهوری آمریکا، در شبکه تروث سوشال اعلام کرد ماه گذشته به ارتش آمریکا دستور داده بود یک «ماموریت محرمانه» برای حمایت از نفتکش‌ها و کشتی‌های تجاری در تنگه هرمز اجرا کند.
+
+او افزود در نتیجه این عملیات، بیش از ۱۰۰ میلیون بشکه نفت از تنگه هرمز عبور کرده و وارد بازار آزاد شده و بیش از ۲۰۰ کشتی تجاری نیز با امنیت از این آبراه عبور کرده‌اند.
+
+ترامپ افزود: «این تلاش بسیار موفقیت‌آمیز به این دلیل بود که ایالات متحده آمریکا کنترل تنگه هرمز را در اختیار دارد، نه جمهوری اسلامی.»
+
+رییس‌جمهوری آمریکا همچنین گفت نیروهای نظامی جمهوری اسلامی «شکست خورده‌اند» و اقتصاد این کشور «از دست رفته است» و افزود: «کار جمهوری اسلامی تمام است.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244756
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244756_1781115943.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شاهزاده رضا پهلوی با انتشار پیامی ویدیویی در شبکه اجتماعی ایکس خطاب به مردم ایران گفت: «ایران ما امروز بیش از هر زمان دیگری به اتحاد نیروهای ملی نیاز دارد.»
+
+او افزود: «چه با حمایت خارجی و چه بدون آن، سرنوشت ایران در دستان خود ماست.»
+
+شاهزاده رضا پهلوی همچنین گفت: «ما از این حکومت فرسوده و درمانده نیرومندتریم. ما از مزدورانی که برای نمایش‌های تبلیغاتی به خیابان فرستاده می‌شوند، مصمم‌تر و استوارتریم.»
+
+او تاکید کرد: «نمایش‌های خیابانی حکومت نشان می‌دهد که آن‌ها به بقای خود اطمینان ندارند» و افزود: «ایران ما تشنه زندگی است.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14364
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آکسیوس: قطری‌ها امروز سعی کردن یک دیدار سه‌جانبه ترتیب بدن تا مستقیماً درباره شکاف‌های باقی‌مانده مذاکره کنن، اما ایرانی‌ها نپذیرفتن.
+@withyashar
+</div>
+
+## pm_afshaa — post 93360
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93360_1781115943.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فاکس نیوز به نقل از یک دیپلمات آگاه: پس از رایزنی با ایالات متحده، مذاکره‌کنندگان قطری امروز صبح برای دیدار با ایرانی‌ها به تهران سفر کردن تا در تلاشی برای رفع اختلافات باقی‌مانده در فرآیند مذاکره باشن. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook…
+</div>
+
+## pm_afshaa — post 93359
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93359_1781115944.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فعالیت شدید جنگنده‌ها در بخش‌های مختلف جنوب عراق گزارش شده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93358
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93358_1781115945.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴بمب‌افکن ‌ای B52H آمریکا که از ایتالیا حرکت کرده، در حال حاضر بر فراز عربستان سعودی قرار داره و دقیقاً در 1 ساعت آینده به منطقه عملیاتی ایران خواهد رسید.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 341556
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341556_1781115945.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مهدی مهدوی‌آزاد در برنامه «چشم‌انداز» گفت: «مهم‌ترین موضوع امروز نه جنگ کوتاه با آمریکا یا اسرائیل و نه مساله تحریم‌هاست، بلکه تهدیدهای دونالد ترامپ است. درست است که ترامپ بارها مواضع متناقض گرفته و گاهی از توافق و مذاکره سخن گفته و ساعاتی بعد از فشار و تهدید صحبت کرده است، اما آنچه این بار اهمیت دارد این است که به نظر می‌رسد لحن او نسبت به گذشته جدی‌تر شده است.»
+
+او افزود: «من همچنان معتقدم ترامپ اساسا تمایلی به جنگ ندارد، اما حتی اگر هدفش پرهیز از جنگ باشد، به نظر می‌رسد سطح هشدارها و فشارهای او در حال افزایش است و این همان تغیری است که نباید آن را صرفا لفاظی سیاسی تلقی کرد.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 341555
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341555_1781115947.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهوری آمریکا، در شبکه تروث سوشال اعلام کرد ماه گذشته به ارتش آمریکا دستور داده بود یک «ماموریت محرمانه» برای حمایت از نفتکش‌ها و کشتی‌های تجاری در تنگه هرمز اجرا کند.
+
+او افزود در نتیجه این عملیات، بیش از ۱۰۰ میلیون بشکه نفت از تنگه هرمز عبور کرده و وارد بازار آزاد شده و بیش از ۲۰۰ کشتی تجاری نیز با امنیت از این آبراه عبور کرده‌اند.
+
+ترامپ افزود: «این تلاش بسیار موفقیت‌آمیز به این دلیل بود که ایالات متحده آمریکا کنترل تنگه هرمز را در اختیار دارد، نه جمهوری اسلامی.»
+
+رییس‌جمهوری آمریکا همچنین گفت نیروهای نظامی جمهوری اسلامی «شکست خورده‌اند» و اقتصاد این کشور «از دست رفته است» و افزود: «کار جمهوری اسلامی تمام است.»
+https://iranintl.com/202606100169
+</div>
+
+## IranIntlTV — post 341554
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341554_1781115948.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شاهزاده رضا پهلوی با انتشار پیامی ویدیویی در شبکه اجتماعی ایکس خطاب به مردم ایران گفت: «ایران ما امروز بیش از هر زمان دیگری به اتحاد نیروهای ملی نیاز دارد.»
+
+او افزود: «چه با حمایت خارجی و چه بدون آن، سرنوشت ایران در دستان خود ماست.»
+
+شاهزاده رضا پهلوی همچنین گفت: «ما از این حکومت فرسوده و درمانده نیرومندتریم. ما از مزدورانی که برای نمایش‌های تبلیغاتی به خیابان فرستاده می‌شوند، مصمم‌تر و استوارتریم.»
+
+او تاکید کرد: «نمایش‌های خیابانی حکومت نشان می‌دهد که آن‌ها به بقای خود اطمینان ندارند» و افزود: «ایران ما تشنه زندگی است.»
+https://iranintl.com/202606109497
+</div>
+
+## Shin_Persian — post 6868
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Wed, 10 Jun 2026 18:17:21 UTC
+
+NOW @ 1817Z -
+Jet activity over eastern Iraq, #Iraq 🇮🇶
+
+ترجمه خودکار فارسی
+
+هم‌اکنون در ۱۸۱۷ زولو (۲۱:۴۷ به وقت تهران) -
+فعالیت جنگنده‌ها بر فراز شرق عراق، #Iraq 🇮🇶
+
+𝕏 · @shin_persian
+</div>
+
+## IranianMinds — post 22131
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فعالیت جنگنده های ارتش آمریکا در‌ جنوب عراق
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22130
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22130_1781115948.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 وضعیت آسمون ایران و منطقه کم کم انگار راند امشبم داره شروع میشه
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22129
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😳 هنوزم واسه کانفیگ هزینه میکنی؟ 
+🍸 با داییجون رایگان وصل شو 
+🎁 کاملا رایگان بدون نیاز به رفرال یا هزینه ای 
+🌟 به محض استارت کردن ربات کانفیگت واست ارسال میشه 
+🎁 @Daeijoonbot | استارت کن و کانفیگ رایگان بگیر 
+🌟
+</div>
+
+## IranianMinds — post 22128
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22128_1781115949.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😳 هنوزم واسه کانفیگ هزینه میکنی؟
+
+🍸 با داییجون رایگان وصل شو
+
+
+🎁 کاملا رایگان بدون نیاز به رفرال یا هزینه ای
+
+
+🌟 به محض استارت کردن ربات کانفیگت واست ارسال میشه
+
+
+🎁 @Daeijoonbot | استارت کن و کانفیگ رایگان بگیر 
+🌟
+</div>
+
+## Dirty_Kids — post 391601
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👑 پیام شاهزاده رضا پهلوی منتشر شد. ایران ما، امروز بیش از هر زمان دیگری به اتحاد نیروهای ملی نیاز دارد. چه با حمایت خارجی و چه بدون آن، سرنوشت ایران در دستان خود ماست. ما از این رژیم فرسوده و درمانده نیرومندتریم. ما از مزدورانی که برای نمایش‌های تبلیغاتی…
+</div>
+
+## Dirty_Kids — post 391600
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391600_1781115950.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👑 پیام شاهزاده رضا پهلوی منتشر شد.
+
+ایران ما، امروز بیش از هر زمان دیگری به اتحاد نیروهای ملی نیاز دارد. چه با حمایت خارجی و چه بدون آن، سرنوشت ایران در دستان خود ماست.
+ما از این رژیم فرسوده و درمانده نیرومندتریم. ما از مزدورانی که برای نمایش‌های تبلیغاتی به خیابان فرستاده می‌شوند، مصمم‌تر و استوارتریم.
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 126930
+
+<div align="center">
+  <a href="telegram/content/alonews_126930_1781115950.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ادعای عبدالخالق عبدالله مشاور سابق بن زاید: امارات در حال هموار کردن راه برای کاهش تنش با ایران است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126929
+
+<div align="center">
+  <a href="telegram/content/alonews_126929_1781115950.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈هم اکنون ، فعالیت جنگنده، شرق عراق
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126928
+
+<div align="center">
+  <a href="telegram/content/alonews_126928_1781115951.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تصاویری از شعله‌های وحشتناک حریق قیام
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126927
+
+<div align="center">
+  <a href="telegram/content/alonews_126927_1781115951.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 فروند هواپیمای سوخت‌رسان هوایی KC-135R و KC-46A نیروی هوایی آمریکا در حال حاضر بر فراز منطقه خلیج فارس و اسرائیل در پرواز هستند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126926
+
+<div align="center">
+  <a href="telegram/content/alonews_126926_1781115951.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / صدای شدید جنگنده در آسمان خرم آباد(لرستان)
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/20 21:44
 ---
 

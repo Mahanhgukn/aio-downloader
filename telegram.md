@@ -7,6 +7,367 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/20 03:42
+---
+
+## VahidOOnLine — post 244601
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_244601_1781050364.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️تسنیم، خبرگزاری وابسته به سپاه پاسداران، بامداد چهارشنبه، تصاویری از عبور یک پهپاد «شاهد» را در آسمان عراق منتشر کرد.
+ارتش ایالات متحده با انتشار بیانیه‌ای رسمی اعلام کرد که در پاسخ به سرنگونی هلیکوپتر آپاچی آمریکا، حملاتی را به جنوب ایران انجام داده است. رسانه‌های داخلی از حملات به قشم، سیریک، جاسک، کوه مبارکه، بندرعباس و میناب در جنوب ایران خبر دادند. «سی‌ان‌ان» نیز گزارش داد که سپاه حملات موشکی و پهپادی خود را به سمت اهداف ایالات متحده در منطقه آغاز کرده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## mwarmonitor — post 10580
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴هدف قرار دادن یک پهپاد در آسمان شهر جم در استان بوشهر
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10579
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴به گفته یک مقام آمریکایی، دور سوم حملات اکنون در حال انجام است.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10578
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فعال‌سازی سامانه‌های پدافند هوایی در بندرعباس
+</div>
+
+## pm_afshaa — post 93185
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اخبار جنگ به صورت اختصاصی از
+کانال «اخبار اوین » دنبال کنید 
+👑
+
+@Evin_khabar
+@Evin_khabar
+@Evin_khabar
+
+به جای کانالای حکومتی از کانالای مردمی حمایت کنید 
+👑
+</div>
+
+## pm_afshaa — post 93184
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_93184_1781050366.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تصویر منتسب به قشم همین الان :
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93183
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93183_1781050367.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## pm_afshaa — post 93182
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک مقام آمریکایی به آکسیوس:
+دور سوم حملات اکنون در حال انجامه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93181
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انفجار در بوشهر
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93180
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_93180_1781050367.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جم
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93179
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انفجار در جم
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93178
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93178_1781050368.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴طبق گزارش‌ها، صدای انفجار از محدوده پالایشگاه ستاره خلیج فارس در بندرعباس شنیده شده.
+
+پالایشگاه ستاره خلیج فارس بزرگ‌ترین پالایشگاه میعانات گازی کشور محسوب میشه و حدود 35 تا 40 درصد بنزین مصرفی کشور رو تولید میکنه.
+
+
+💧Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93177
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سپاه:اسرائیل در بخشی از حملات شرکت دارد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## mamlekate — post 103656
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 بندرعباس ۰۳:۲۴ صدای دوتا انفجار اومد بنظرم
+
+
+📝 شهر جم ساعت ۰۳:۳۲ چهارشنبه ۲۰خرداد صدای انفجار
+
+@mamlekate
+</div>
+
+## VahidOnline — post 76121
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیام‌های دریافتی:
+
+از جم شلیک کردن ساعت ۳:۳۳
+نصفش تو هوا منفجر شد،بقیه‌اش هم نمیدونم کجا قراره فرود بیاد.
+بعد از انتشار پست: وحید جان نزدن،تو آسمون منفجر شد،صدای اون بود.
+
+سلام وحید جان شهرستان جم رو همین الان ۳ و نیم صبح زدن، یه صدایی اومد ولی چون پنجره‌ بسته است لرزشش خیلی بیشتر بود
+
+ساعت ۳:۳۴ شهر جم رو زدن
+اول فکردیم موشک بلند شد
+ولی بعدش خورد زمین ترکید
+
+سلام فک کنم جم رو زدن یه صدای انفجاری اومد الان 3:35
+
+توی جم این پدافند بود فعال شد اون صدای انفجار هم پهباد زدن باهاش
+
+قشم: دوباره یه لرزش دیگه ۳:۳۹
+احتمالا بندرعباسه ما داریم حس می‌کنیم
+
+وحید هنوز صدای انفجار قشم داره حس میشه
+همین
+الان پشت سر هم
+
+سلام وقت بخیر ۳:۳۸ بندر عباس پایگاه هوایی رو زدن
+📡 @VahidOnline
+</div>
+
+## kianmeli1 — post 87831
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87831_1781050369.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری
+
+یک مقام ارشد آمریکایی به اکسیوس: موج سوم حملات در ایران آغاز شده است
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87830
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴دقایقی قبل موج دوم حملات به بندرعباس
+
+صدای چندین انفجار در بندرعباس شنیده شده است
+https://t.me/kianmeli1
+</div>
+
+## Shin_Persian — post 6813
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Wed, 10 Jun 2026 00:10:19 UTC
+
+0010Z
+Blast heard in Qeshm island just now
+Hormozgan Province, #Iran
+
+فارسی
+
+۰۰۱۰ زولو (۰۳:۴۰ به وقت تهران)
+هم‌اکنون صدای انفجاری در جزیره قشم شنیده شد
+استان هرمزگان، #Iran_
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6812
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Wed, 10 Jun 2026 00:09:44 UTC
+
+At 0001Z, a blast was heard in Jam, Bushehr Province, #Iran
+(Jam has an infamous missile city as well)
+
+فارسی
+
+در ساعت ۰۰۰۱ زولو (۰۳:۳۱ به وقت تهران)، صدای انفجاری در جم، استان بوشهر، #Iran شنیده شد.
+(جم یک شهر موشکی بدنام نیز دارد)
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6811
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Wed, 10 Jun 2026 00:02:51 UTC
+
+State-Owned Mehr News:
+
+Explosions were heard in Qeshm and Bandar Abbas
+Hormozgan Province, #Iran
+
+فارسی
+
+خبرگزاری دولتی مهر:
+
+صدای انفجارها در قشم و بندرعباس شنیده شد.
+استان هرمزگان، #Iran_
+
+𝕏 · @shin_persian
+</div>
+
+## Iliaen — post 4465
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بازه زمانی ۰۳:۰۰ الی ۰۳:۳۰ صبح چهارشنبه؛ چند انفجار مهیب در بندرعباس شنیده شد.
+
+علی‌رغم دور بودن محل انفجارها از مرکز شهر، شدّت و صدای انفجارها بسیار زیاد است و در کل مناطق شنیده می‌شود.
+
+همزمان با بندرعباس، چندین نقطه‌ی دیگر در جنوب هرمزگان هدف اصابت موشک قرار گرفت.
+
+@iliaen
+</div>
+
+## FarsiVOA — post 220191
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220191_1781050369.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️باراک راوید، خبرنگار آکسیوس به نقل از یک مقام آمریکایی گفت که اکنون «موج سوم» حملات آمریکا علیه جمهوری اسلامی آغاز شده‌است.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220190
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220190_1781050370.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️فاکس‌نیوز به نقل از سایت‌های رصد پروازها می‌گوید که دست‌کم هشت هواپیمای سوخت‌رسان هم‌زمان با عملیات نظامی آمریکا علیه جمهوری اسلامی مشغول پرواز در منطقه هستند. به‌نظر می‌رسد آن‌ها مشغول پشتیبانی از حملات سنتکام به مواضع جمهوری اسلامی هستند.
+@FarsiVOA
+</div>
+
+## DW_Farsi — post 125746
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125746_1781050370.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 عراقچی از نیروهای آمریکایی خواست برای در امان ماندن منطقه را ترک کنند
+
+عباس عراقچی، وزیر خارجه ایران در پیامی در شبکه ایکس به نیروهای آمریکایی هشدار داد که برای در امان ماندن منطقه را ترک کنند.
+
+این در حالی است که شبکه خبری الجزیره بامداد چهارشنبه ۱۰ ژوئن (۲۰ خرداد) به نقل از پایگاه اکسیوس از آغاز موج دوم حملات آمریکا علیه سیستم‌های پدافندی و راداری ایران خبر داده است.
+@dw_farsi
+</div>
+
+## IranianMinds — post 22028
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 حمله آمریکا به جم
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22027
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 کانال ۱۲ اسرائیل :
+
+موج‌ سوم حملات آمریکا به جنوب ایران آغاز شد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22026
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بندر عباسو‌ بد شخم زدن امشب
+
+@IranianMinds
+</div>
+
+---
 📅 بروزرسانی: 1405/03/20 03:32
 ---
 

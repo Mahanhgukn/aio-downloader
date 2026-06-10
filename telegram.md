@@ -7,6 +7,303 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/21 00:32
+---
+
+## VahidOOnLine — post 244783
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244783_1781125379.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری تسنیم، وابسته به سپاه پاسداران، به نقل از یک منبع نظامی نوشت نیروهای مسلح جمهوری اسلامی امشب نیز در آمادگی کامل هستند و اگر آمریکایی‌ها اقدام «تجاوزگرانه‌ای» انجام دهند، بار دیگر با «پاسخ‌های سنگین» مواجه خواهند شد.
+
+این منبع نظامی گفت جمهوری اسلامی شب گذشته به آمریکایی‌ها اثبات کرده که هرگونه «ماجراجویی و حماقت جدید» با پاسخ بدون درنگ مواجه خواهد شد و هیچ‌گونه تجاوزی را بی‌پاسخ نمی‌گذارد.
+
+او افزود در صورت اقدام آمریکایی‌ها، نیروهای مسلح جمهوری اسلامی اهداف جدیدی از منافع آمریکا را هدف قرار خواهند داد.
+
+این منبع نظامی همچنین گفت تصور آمریکایی‌ها درباره «تشدید کنترل‌شده» و به دست گرفتن ابتکار عمل، «احمقانه» است و جمهوری اسلامی برای «دیکته کردن محاسبات جدید» به آمریکایی‌ها تعلل نخواهد کرد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244782
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244782_1781125379.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیت هگست، وزیر جنگ آمریکا، در جمع خبرنگاران گفت حملاتی که امشب به ایران انجام خواهد شد، «قوی و روشن» خواهد بود و فرماندهی مرکزی آمریکا امشب درگیر عملیات خواهد بود.
+
+او افزود آمریکا تاسیسات کلیدی در جمهوری اسلامی را بمباران می‌کند و امشب «ضربه سختی» وارد خواهد کرد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14385
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزیر جنگ آمریکا:
+
+بمب هارا تق تق تق روی تاسیسات کلیدی ایران خواهیم انداخت
+@withyashar
+</div>
+
+## mwarmonitor — post 10653
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پدافندهای هوایی با اهداف در آسمان استان فارس مقابله می‌کنند.
+</div>
+
+## mwarmonitor — post 10652
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 سفارت آمریکا در بغداد:
+
+🔸با توجه به تحولات اخیر منطقه‌ای، به شهروندان آمریکایی در عراق توصیه می‌شود بالاترین سطح هوشیاری و دقت را حفظ کنند و به‌طور مداوم منابع خبری محلی را دنبال کنند. همچنین ممکن است اختلال در سفرها یا بسته شدن ناگهانی حریم هوایی بدون اطلاع قبلی رخ دهد.
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 93389
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93389_1781125380.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴هگست، وزیر جنگ آمریکا: تأسیسات اصلی در ایران رو بمباران خواهیم کرد. حملاتی که امشب رخ خواهد داد، شدید و آشکار خواهند بود. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93388
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93388_1781125381.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴تسنیم: نیروهای مسلح جمهوری اسلامی امشب در آمادگی کامل هستن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93387
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93387_1781125382.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پیت هگست، وزیر جنگ آمریکا: بمب‌ها رو تق تق تق روی تاسیسات کلیدی ایران خواهیم انداخت. (جدی گفت) 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93386
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93386_1781125382.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پیت هگست، وزیر جنگ آمریکا:
+بمب‌ها رو تق تق تق روی تاسیسات کلیدی ایران خواهیم انداخت. (جدی گفت)
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## VahidOnline — post 76164
+
+<div align="center">
+  <a href="telegram/content/VahidOnline_76164_1781125383.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیت هگست، وزیر جنگ آمریکا، در جمع خبرنگاران گفت حملاتی که امشب به ایران انجام خواهد شد، «قوی و روشن» خواهد بود و فرماندهی مرکزی آمریکا امشب درگیر عملیات خواهد بود.
+
+او افزود آمریکا تاسیسات کلیدی در جمهوری اسلامی را بمباران می‌کند و امشب «ضربه سختی» وارد خواهد کرد.
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## kianmeli1 — post 87884
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری-فعالیت پدافند در شهر مُهر در استان فارس
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87883
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری
+
+هگست: تاسیسات کلیدی ایران بمباران میشوند
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 341585
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341585_1781125384.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ستاد فرماندهی مرکزی آمریکا، سنتکام، با انتشار ویدیویی در شبکه ایکس از هدف قرار دادن یک نفتکش با پرچم پالائو به نام M/T Settebello در تاریخ سه‌شنبه ۱۹ خرداد در خلیج عمان خبر داد.
+
+سنتکام گفت این کشتی با نقض محاصره دریایی در حال انتقال نفت از ایران بود. پس از بی‌توجهی مکرر خدمه به هشدارها، یک هواپیمای آمریکایی با شلیک دقیق، موتورخانه کشتی را هدف قرار داد.
+
+به گفته سنتکام، از زمان آغاز محاصره در ۱۳ آوریل (۲۴ فروردین)، هشت کشتی از کار افتاده، ۱۳۴ کشتی تغییر مسیر داده‌اند و به ۴۲ کشتی حامل کمک‌های بشردوستانه اجازه عبور داده شده است.
+@iranintltv
+</div>
+
+## IranIntlTV — post 341584
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341584_1781125385.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری تسنیم، وابسته به سپاه پاسداران، به نقل از یک منبع نظامی نوشت نیروهای مسلح جمهوری اسلامی امشب نیز در آمادگی کامل هستند و اگر آمریکایی‌ها اقدام «تجاوزگرانه‌ای» انجام دهند، بار دیگر با «پاسخ‌های سنگین» مواجه خواهند شد.
+
+این منبع نظامی گفت جمهوری اسلامی شب گذشته به آمریکایی‌ها اثبات کرده که هرگونه «ماجراجویی و حماقت جدید» با پاسخ بدون درنگ مواجه خواهد شد و هیچ‌گونه تجاوزی را بی‌پاسخ نمی‌گذارد.
+
+او افزود در صورت اقدام آمریکایی‌ها، نیروهای مسلح جمهوری اسلامی اهداف جدیدی از منافع آمریکا را هدف قرار خواهند داد.
+
+این منبع نظامی همچنین گفت تصور آمریکایی‌ها درباره «تشدید کنترل‌شده» و به دست گرفتن ابتکار عمل، «احمقانه» است و جمهوری اسلامی برای «دیکته کردن محاسبات جدید» به آمریکایی‌ها تعلل نخواهد کرد.
+https://iranintl.com/202606106681
+</div>
+
+## Shin_Persian — post 6870
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Wed, 10 Jun 2026 20:58:48 UTC
+
+State-owned Mehr News:
+AA activity in Mohr, Fars Province, #Iran
+
+ترجمه خودکار فارسی
+
+خبرگزاری دولتی مهر:
+فعالیت پدافند هوایی در مُهر، استان فارس، #Iran_
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 220290
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺هشدار وزیر جنگ آمریکا به جمهوری اسلامی: «امشب ضربه محکمی به آنها خواهیم زد»
+
+▪️پس از آنکه پرزیدنت ترامپ گفت ایالات متحده به حمله به جمهوری اسلامی ادامه خواهد داد، پیت هگست، وزیر جنگ آمریکا چهارشنبه عصر به وقت واشنگتن اعلام کرد سنتکام امشب مشغول خواهد بود.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8159442.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220289
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220289_1781125386.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️نادر در بیکی در برنامه تفسیر خبر: جمهوری اسلامی به دنبال تضمین بقا است
+@FarsiVOA
+</div>
+
+## IranianMinds — post 22141
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پیت هگست، وزیر جنگ آمریکا در میان خبرنگاران گفت:
+
+حملاتی که امشب به ایران خواهد شد بسیار شدید و روشن خواهد بود و فرماندهی مرکزی آمریکا، امشب درگیر عملیات خواهد بود. او افزود، آمریکا تأسیسات کلیدی در ایران را بمباران خواهد کرد و ضربه سختی وارد خواهد کرد.
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 391623
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بعد از هفته‌ها انتظار بلاخره استاد تراپی جدیدش‌رو منتشر کرد که محوریت دارد بر موضوع اپستین و آخوند شیعه‌سان
+
+دوتا هندزفری روهم بزن 🔞🔞
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 126976
+
+<div align="center">
+  <a href="telegram/content/alonews_126976_1781125387.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزیر دفاع آمریکا: ما از آتش‌بس برای توسعه اطلاعات و به‌روزرسانی بانک اهداف خود در ایران استفاده کردیم
+
+
+🔴بانک اهداف و قابلیت‌های فعلی ما بسیار فراتر از آن چیزی است که در آغاز عملیات خشم حماسی وجود داشت.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126975
+
+<div align="center">
+  <a href="telegram/content/alonews_126975_1781125387.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سفارت آمریکا در بغداد به تمام شهروندان آمریکایی در عراق هشدار فوری امنیتی صادر کرده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126974
+
+<div align="center">
+  <a href="telegram/content/alonews_126974_1781125388.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری/ترور آلارم: شماره معکوس شروع شده
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126973
+
+<div align="center">
+  <a href="telegram/content/alonews_126973_1781125388.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈هگِستِ : تپ‌تپ بمب‌هایی که روی تأسیسات کلیدی ایران از طرف ایالات متحده فرود میاد
+
+- و این به این خاطر نیست که ما بخوایم چیزی رو دوباره شروع کنیم که لازم نباشه شروعش کنیم؛
+
+- بلکه چون وزارت جنگ آماده‌ست شرایط رو طوری تنظیم کنه که همون توافقی که رئیس‌جمهور ترامپ انتظار داره بهش برسیم
+
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/21 00:22
 ---
 

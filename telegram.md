@@ -7,6 +7,187 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/20 04:12
+---
+
+## VahidOOnLine — post 244603
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244603_1781052164.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️خبرنگار آکسیوس، بامداد چهارشنبه، به نقل از یک مقام آمریکایی از آغاز موج سوم حملات ایالات متحده علیه ایران خبر داد. همزمان رسانه‌های داخلی، حدود ساعت ۴ صبح ایران، از شنیده شدن صدای انفجارها در قشم، سیریک، جاسک و بندرعباس خبر می‌دهند. با وجود گذشت چندساعت از آغاز حملات آمریکا به جنوب ایران، تا این لحظه هیچکدام از مقامات جمهوری اسلامی واکنش نشان نداده‌اند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## mwarmonitor — post 10584
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_10584_1781052164.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸سناتور کارولینای جنوبی و متحد ترامپ، لیندسی گراهام، در انتخابات مقدماتی خود در برابر مارک لینچ، رقیب «انزواگرا» با رویکرد «اول آمریکا»، پیروز شد. او شانس بالایی برای پیروزی در انتخابات مجدد در ماه نوامبر دارد.
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 93216
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93216_1781052165.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ساعتی پیش در شبکه خبر، یهویی کلیپ شبیه سازی انفجار بمب هسته‌ای پخش شد! 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93215
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93215_1781052165.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ساعتی پیش در شبکه خبر، یهویی کلیپ شبیه سازی انفجار بمب هسته‌ای پخش شد!
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93214
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93214_1781052166.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی ارسالی حملات آمریکا
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93213
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93213_1781052167.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴دقایقی پیش حدود 15 انفجار در قشم گزارش شد.
+
+محل دقیق انفجارها مشخص نیست، اما احتمالا بخشی از اونا مربوط به جزیره لارک در نزدیکی قشم باشه؛ منطقه‌ای که محل استقرار قایق‌های تندرو و انبارهای پهپادی سپاهه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## kianmeli1 — post 87835
+
+<div align="center">
+  <a href="telegram/content/kianmeli1_87835_1781052168.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴دقایقی پیش در حین پخش اخبار از شبکه خبر، به‌صورت ناگهانی تصویری شبیه‌سازی‌شده از یک انفجار هسته‌ای به نمایش درآمد که موجب جلب توجه مخاطبان قرار گرفت
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 341425
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341425_1781052169.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ در گفت‌وگو با شبکه خبری «ان‌بی‌سی» گفت آمریکا به دستیابی توافق با ایران بسیار نزدیک است، اما افزود در صورت شکست مذاکرات، واشینگتن به‌گونه‌ای دیگر اقدام خواهد کرد.
+
+او با اشاره به اینکه پیش از رسیدن به توافق صلح، دارایی‌های ایران را از حالت مسدود خارج نمی‌کند، گفت در صورت توافق، آزادسازی دارایی‌های مسدودشده در مراحل بعدی و پس از رفتار مناسب جمهوری اسلامی مطرح خواهد شد.
+@iranintltv
+</div>
+
+## FarsiVOA — post 220197
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Farsi VOA pinned a photo
+</div>
+
+## FarsiVOA — post 220196
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Farsi VOA pinned a photo
+</div>
+
+## FarsiVOA — post 220195
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220195_1781052170.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📸اینستاگرام صدای آمریکا را هم اکنون فالو کنید تا از آخرین خبرها مطلع بمانید:
+https://www.instagram.com/voafarsi/
+
+📡همچنین جهت اطلاع از بروزترین فرکانسهای ماهواره‌ای صدای آمریکا به لینک زیر مراجعت فرمایید:
+https://ir.voanews.com/satellite
+
+این پست را با دوستانتان به اشتراک بگذارید
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220194
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220194_1781052170.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️در ادامه حملات ایالات متحده به مواضع جمهوری اسلامی، کانال تلگرامی وحیدآنلاین به نقل از گزارش‌های «تائيد نشده» مردمی می‌گوید صدای انفجار در اهواز به‌گوش می‌رسد. پیش‌ از این، عمده گزارش‌ها از حملات به مواضع نظامی در استان هرمزگان بود. همچنین گزارش‌هایی از شنیده‌شدن صدای انفجار در شهر جم منتشر شده است. برخی مخاطبان صدای آمریکا نیز از شنیده‌شدن صدای انفجار در اهواز خبر داده‌‌اند.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220193
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️تشدید جنگ پهپادی اوکراین و روسیه؛ ضربه به تاسیسات نفتی و افزایش فشار اقتصادی بر مسکو
+@FarsiVOA
+</div>
+
+## IranianMinds — post 22037
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 حملات مجدد آمریکا به قشم
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 283284
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وقتی ایران شامگاه یکشنبه در واکنش به حملات اسرائیل به حزب‌الله لبنان، موشک‌ها و پهپادهایی را به سوی اسرائیل پرتاب کرد، اهمیت فوری نظامی این حمله در نگاه نخست محدود به نظر می‌رسید. اما اهمیت سیاسی آن ممکن است بسیار فراتر باشد.
+
+ایران از هنگامی که درگیری نظامی مستقیم با اسرائیل داشته، حملات مستقیم خود به اسرائیل را در تلافی یا به عنوان پاسخی به حملاتی علیه خاک ایران، فرماندهان نظامی‌اش یا منافع خود انجام داده است. اما این بار ماجرا متفاوت بود.
+
+تهران در حمایت از یکی از متحدانش دست به اقدام زد؛ حمله‌ای که در پی حمله اسرائیل به ساختمانی در جنوب بیروت انجام شد که اسرائیل مدعی بود با حزب‌الله ارتباط دارد.
+
+اگرچه ایران اعلام کرد که حملات خود به اسرائیل را متوقف خواهد کرد، اما همین تصمیم برای حمله، پرسشی مهم را مطرح می‌کند: چرا رهبران ایران احساس کردند اکنون زمان مناسبی برای چنین اقدامی است، در حالی که می‌دانستند این کار خطر از سرگیری عملیات نظامی اسرائیل و حتی به خطر افتادن مذاکرات شکننده صلح با آمریکا را به همراه دارد؟
+
+بیشتر بخوانید⬇️:
+
+https://bbc.in/4v79OL8
+
+📷GettyImages/ Reuters
+@BBCPersian
+</div>
+
+---
 📅 بروزرسانی: 1405/03/20 04:03
 ---
 

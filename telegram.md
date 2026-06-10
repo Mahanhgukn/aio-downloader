@@ -7,6 +7,642 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/21 01:02
+---
+
+## VahidOOnLine — post 244787
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244787_1781127146.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️رسانه‌های داخلی ایران بامداد پنجشنبه ۲۱ خردادماه از شنیده شدن صداهای انفجار و فعالیت پدافند هوایی در چند نقطه کشور خبر دادند.
+
+خبرگزاری مهر از شنیده شدن صدای پدافند در غرب تهران و صداهای نامشخص در کیش خبر داد. همچنین گزارش‌هایی از شنیده شدن صدایی شبیه انفجار در استان فارس و مناطقی در قشم و عسلویه منتشر شده است.
+
+تا زمان انتشار این گزارش، مقام‌های رسمی درباره منشا این صداها توضیحی ارائه نکرده‌اند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14396
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فعالیت پدافند شیراز 🚨
+@withyashar
+</div>
+
+## WithYashar — post 14395
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش انفجار ‌میناب 🚨
+@withyashar
+</div>
+
+## WithYashar — post 14394
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال ۲۴ اسرائیل: شروع شد💥
+@withyashar
+</div>
+
+## WithYashar — post 14393
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قشم صدای انفجار 🚨
+@withyashar
+</div>
+
+## WithYashar — post 14392
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صدای انفجار‌ در سیریک 🚨
+@withyashar
+</div>
+
+## WithYashar — post 14391
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پدافند تهران فعال شد 🚨
+@withyashar
+</div>
+
+## WithYashar — post 14390
+
+<div align="center">
+  <img src="telegram/content/WithYashar_14390_1781127146.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این تعداد سوخترسان فقط یعنی چندین اسکادران جنگنده و جنگ حتمی.
+@withyashar
+</div>
+
+## mwarmonitor — post 10662
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انفجار در میناب
+</div>
+
+## mwarmonitor — post 10661
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انفجار در سیریک
+</div>
+
+## mwarmonitor — post 10660
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴شبکه ۱۲ اسرائیل: ارتش اسرائیل سطح آماده‌باش خود را افزایش داده است تا برای احتمال ازسرگیری درگیری با ایران آماده باشد.
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 93411
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انفجار مجدد در سیریک
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93410
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حملات آمریکا به جنوب کشور شروع شده
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93409
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سیریک و میناب انفجار شنیده شده
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93408
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93408_1781127147.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴شبکه 12 اسرائیل: ارتش اسرائیل سطح آماده‌باش خودش رو افزایش داده تا برای احتمال ازسرگیری درگیری با جمهوری اسلامی آماده باشه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93407
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صدای انفجار در سیریک
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93406
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93406_1781127147.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴طبق گزارش‌ها، انفجار های دور در جنوب کشور شنیده میشه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93405
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرودگاه‌های عراق فعالیت رو متوقف کردن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93404
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مهر: شنیده شدن صدای پدافند در غرب تهران
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## VahidOnline — post 76165
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری مهر، وابسته به سازمان تبلیغات اسلامی، بدون هیچ توضیح بیشتری نوشته:
+شنیده شدن صدای انفجار در سیریک
+
+خبرگزاری تسنیم وابسته به سپاه نوشته:
+بررسی‌ها نشان می‌دهد که تا این لحظه اخبار مربوط به صدای انفجار در جزایر کیش و قشم صحت نداشته و صداهای شنیده شده مرتبط با درگیری در خلیج‌فارس است.
+
+براساس گزارش منابع محلی، دقایقی پیش صدای انفجار در اطراف میناب و سیریک شنیده شد.
+
+📡 @VahidOnline
+</div>
+
+## kianmeli1 — post 87894
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری-انفجارهای پیاپی در جنوب کشور
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87893
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری-انفجار در میناب
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87892
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری
+
+انفجار در قشم و سیریک
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87891
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری-یگان های موشکی سپاه به حالت آماده باش در آمده اند
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 341587
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341587_1781127148.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «جمهوری اسلامی منصب حکومت را بدون رضایت اکثریت مردم اشغال کرده است. پرسشی که هیچ‌یک از مقام‌های جمهوری اسلامی پاسخی برای آن ندارند این است که اگر مردم آنها را نخواهند، که نمی‌خواهند، چگونه باید این را به حکومت بگویند و حق خود را به‌عنوان صاحبان اصلی حکومت اعمال کنند.»
+@iranintltv
+</div>
+
+## Shin_Persian — post 6878
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Wed, 10 Jun 2026 21:30:18 UTC
+
+NOW -
+BM Launch from East Azerbaijan Province, #Iran
+
+ترجمه خودکار فارسی
+
+فوری -
+شلیک موشک بالستیک از استان آذربایجان شرقی، #Iran_
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6877
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Wed, 10 Jun 2026 21:27:59 UTC
+
+2 blasts in Sirik, Hormozgan Province, #Iran
+
+ترجمه خودکار فارسی
+
+۲ انفجار در سیریک، استان هرمزگان، #Iran
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6876
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Wed, 10 Jun 2026 21:24:58 UTC
+
+Huge blast near Minab @ ~ 2118Z
+Hormozgan Province, #Iran
+
+ترجمه خودکار فارسی
+
+انفجار مهیب نزدیکی میناب @ حدود ۲۱۱۸ زولو (۰۰:۴۸ به وقت تهران)
+استان هرمزگان، #Iran
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 220295
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220295_1781127149.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️خبرگزاری حکومتی مهر از شنیده شدن صدای پدافند هوایی در غرب تهران و همچنین انفجار سیریک واقع استان هرمزگان خبر داد.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220294
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️منشه امیر در برنامه تفسیر خبر: روح الله خمینی با شعار مرگ بر اسرائیل آغاز گر این جنگ بود
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 16566
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16566_1781127150.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بمباران شدید میناب و سیریک
+</div>
+
+## Persian_Trend_Official — post 16565
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16565_1781127150.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صدای انفجار در میناب نیز شنیده شده
+</div>
+
+## Persian_Trend_Official — post 16564
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پدافند اطراف زیر ساخت پتروشیمی‌های عسلویه درحال فعالیت شدید
+</div>
+
+## Persian_Trend_Official — post 16563
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16563_1781127151.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیت هگست، وزیر جنگ آمریکا: امشب شب شلوغی خواهد بود، تاسیسات ایران را بمباران می‌کنیم.
+</div>
+
+## Persian_Trend_Official — post 16562
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16562_1781127151.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صدای انفجار در سیریک نیز شنیده شده! 📝 Amir 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16561
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تایید نشده
+انفجار در تبریز
+</div>
+
+## Persian_Trend_Official — post 16560
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16560_1781127152.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرودگاه های عراق فعالیت خود را متوقف کردند.
+</div>
+
+## Persian_Trend_Official — post 16558
+
+
+
+
+## Persian_Trend_Official — post 16557
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک دسته از تانکرهای نیروی هوایی ایالات متحده از تل‌آویو و ریاض در اطراف تنگه هرمز و خلیج فارس فعال هستند، همه آن‌ها قابل مشاهده نیستند و همراه با جنگنده‌ها در حال حرکت‌اند.
+</div>
+
+## Persian_Trend_Official — post 16556
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صدای انفجار در سیریک نیز شنیده شده!
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16555
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صدای انفجار در قشم فعلا بر مبنای فعالیت پدافندی است.
+</div>
+
+## Persian_Trend_Official — post 16554
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+غرب تهران
+</div>
+
+## IranianMinds — post 22162
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 شلیک موشک‌ از اذربایجان شرقی
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22161
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 مکان هایی که تا الان انفجار رخ داده
+
+- کیش
+- قشم
+- سیریک
+- میناب
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22160
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 کانال ۱۲ اسرائیل :
+
+آمریکا حملات خودشو‌ به ایران شروع کرده
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22158
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسما حملات آمریکا به جنوب کشور شروع شده
+باید ببینیم به پایتخت و شهر های دیگه میکشه این حملات یا چی
+
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22156
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 گزارشاتی از حمله به میناب
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22155
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 حملات مجدد آمریکا به نزدیکی‌ کیش
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22154
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+۲ انفجار مهیب در سیریک رخ داده
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22153
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 گزارشاتی از انفجار در قشم و سیریک @IranianMinds
+</div>
+
+## IranianMinds — post 22152
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 پرواز جنگنده های ارتش اسرائیل در آسمان اردن
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22151
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 گزارشاتی از انفجار در قشم و سیریک
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22150
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+همچنان پرواز جنگنده های آمریکا در آسمان عراق
+
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 283366
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+با افزایش دوباره تنش میان آمریکا و اسرائیل با ایران و در ابهام فرو رفتن سرنوشت آتش‌بس میان آنها، نگرانی‌ها در لبنان هم از شعله‌ورتر شدن آتش جنگ بیشتر شده است. از طرفی حملات اسرائیل بر جنوب لبنان هم شدت پیدا کرده است.
+
+این درحالی است که قرارگاه خاتم الانبیا در بیانیه اخیرش گفته بود که ادامه حملات بر جنوب لبنان می‌تواند با پاسخ سخت ایران مواجه شود.
+
+با همه اینها سفیر ایران در لبنان که هنوز اعتبارنامه نگرفته، در جمع خبرنگاران به بی‌بی‌سی فارسی گفت که «اوضاع را مثبت ارزیابی می‌کند».
+
+نفیسه کوهنورد خبرنگار ارشد خاورمیانه بی‌بی‌سی فارسی از بیروت از آخرین‌ها می‌گوید:
+
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 391627
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری مهر از شنیده شدن صدای انفجار در سیریک هرمزگان و فعالیت پدافند در غرب تهران خبر داد.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 126990
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوووووووری/زود بیایید اینجا
+⬇️
+
+https://t.me/+4Sqp5RRoEUE5ZGM0
+https://t.me/+4Sqp5RRoEUE5ZGM0
+</div>
+
+## alonews — post 126989
+
+<div align="center">
+  <a href="telegram/content/alonews_126989_1781127152.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خط ساحل جنوبی ایران زیر آتش
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126988
+
+<div align="center">
+  <a href="telegram/content/alonews_126988_1781127152.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈انفجار مهیب در میناب
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126987
+
+<div align="center">
+  <a href="telegram/content/alonews_126987_1781127152.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈گزارشات از انفجار های گسترده در برخی از شهر های جنوبی کشور
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126985
+
+<div align="center">
+  <a href="telegram/content/alonews_126985_1781127152.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فووووووووووووووووووووووووری
+</div>
+
+## alonews — post 126984
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فووووووووووووووووووووووووری
+</div>
+
+## alonews — post 126983
+
+<div align="center">
+  <a href="telegram/content/alonews_126983_1781127153.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری/انفجار در سیریک
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/21 00:52
 ---
 

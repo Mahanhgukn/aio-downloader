@@ -7,6 +7,219 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/20 18:43
+---
+
+## VahidOOnLine — post 244703
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244703_1781104431.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ابوالفضل شکارچی، سخنگوی ارشد نیروهای مسلح جمهوری اسلامی، در جمع خبرنگاران در پاسخ به تهدید دونالد ترامپ، رییس‌جمهوری آمریکا، برای هدف قرار دادن زیرساخت‌ها گفت که به هر تهدید او «تو دهنی» زده‌ایم و شدیدتر از قبل پاسخ می‌دهیم.
+
+او اضافه کرد که به‌هیچ‌عنوان در برابر «نظام سلطه جهانی و شیاطین عالم»، به‌ویژه ترامپ و نتانیاهو کوتاه نخواهیم آمد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## mwarmonitor — post 10620
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸سخنگوی نیروهای مسلح ایران، سرتیپ ابوالفضل شکارچی، در واکنش به اظهارات دونالد ترامپ در گفت‌وگو با فاکس‌نیوز اعلام کرد:
+
+🔸«ما ثابت کرده‌ایم که به تهدیدها به‌طور مناسب پاسخ خواهیم داد.»
+
+🔹این اظهارات را رسانه‌های دولتی ایران منتشر کرده‌اند. فاکس نیوز
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 342806
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342806_1781104432.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH LIVE: House hearing spotlights parental rights battle and disputes over school content https://twitter.com/i/broadcasts/1rGmqqbwDoNGy
+</div>
+
+## pm_afshaa — post 93309
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93309_1781104433.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴قطعنامه پیشنهادی آمریکا با همراهی سه کشور اروپایی فرانسه، انگلیس و آلمان علیه برنامه هسته‌ای جمهوری اسلامی، در نشست شورای حکام آژانس بین‌المللی انرژی اتمی به تصویب رسید. این قطعنامه با 21 رأی موافق، 10 رأی ممتنع و 3 رأی مخالف، از جمهوری اسلامی میخواد سرنوشت…
+</div>
+
+## pm_afshaa — post 93308
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آمریکا داره هواپیماهای باربریشو از قطر خارج میکنه
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93307
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سازمان ملل:درباره بازگشت جنگ فراگیر به
+خاورمیانه هشدار می‌دهیم
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 341514
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341514_1781104434.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهوری آمریکا، در اولین واکنش پس از تشدید تنش‌ها در منطقه و بی‌نتیجه ماندن مذاکرات تهران و واشینگتن، هشدار داد جمهوری اسلامی بهای وقت‌کشی در دستیابی به توافق را خواهد پرداخت.
+
+جزییات بیشتر با مرضیه حسینی، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 341513
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341513_1781104436.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ابوالفضل شکارچی، سخنگوی ارشد نیروهای مسلح جمهوری اسلامی، در جمع خبرنگاران در پاسخ به تهدید دونالد ترامپ، رییس‌جمهوری آمریکا، برای هدف قرار دادن زیرساخت‌ها گفت که به هر تهدید او «تو دهنی» زده‌ایم و شدیدتر از قبل پاسخ می‌دهیم.
+
+او اضافه کرد که به‌هیچ‌عنوان در برابر «نظام سلطه جهانی و شیاطین عالم»، به‌ویژه ترامپ و نتانیاهو کوتاه نخواهیم آمد.
+https://iranintl.com/202606106192
+</div>
+
+## FarsiVOA — post 220251
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220251_1781104437.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شورای حکام آژانس بین‌المللی انرژی اتمی قطعنامه پیشنهادی آمریکا علیه برنامه هسته‌ای جمهوری اسلامی را با ۲۱ رای موافق، ۳ رای مخالف و ۱۰ رای ممتنع تصویب کرد.
+پیشتر، رسانه‌ها گزارش دادند در پیشنویس آمریکا آمده جمهوری اسلامی باید درباره محل و وضعیت ذخایر اورانیوم غنی‌شده و مواد هسته‌ای اعلام‌نشده توضیح بدهد. همچنین جمهوری اسلامی باید دسترسی‌های لازم را فوراً در اختیار بازرسان آژانس قرار دهد.
+</div>
+
+## DW_Farsi — post 125782
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 تصویب بودجه ۷۰ میلیارد دلاری نهادهای مهاجرتی در کنگره آمریکا
+
+این لایحه که از حمایت جمهوری‌خواهان برخوردار بود، به ترامپ امکان می‌دهد تا سیاست سخت‌گیرانه دولت خود برای اخراج مهاجران را تا پایان دوره دوم ریاست‌جمهوری‌اش اجرا کند.
+
+کنگره آمریکا روز سه‌شنبه ۹ ژوئن (۱۹ خرداد) با ۲۱۴ رأی موافق در مقابل ۲۱۲ رأی مخالف لایحه تأمین بودجه برای نهادهای اجرایی قوانین مهاجرتی را تصویب کرد و به این ترتیب یک پیروزی مهم برای دونالد ترامپ، رئیس جمهور ایالات متحده در راستای سیاست‌های سختگیرانه مهاجرتی‌ اش رقم خورد.
+
+این لایحه که از حمایت جمهوری‌خواهان برخوردار بود، به ترامپ امکان می‌دهد تا سیاست سخت‌گیرانه دولت خود برای اخراج مهاجران را تا پایان دوره دوم ریاست‌جمهوری‌اش اجرا کند. او پیش از اجرایی شدن این قانون باید آن را امضا کند که این امر صرفاً اقدامی تشریفاتی محسوب می‌شود.
+
+طبق این لایحه تا سال ۲۰۲۹ نزدیک به ۷۰ میلیارد دلار بودجه به اداره مهاجرت و گمرک آمریکا و اداره گمرک و حفاظت مرزی اختصاص داده می‌شود؛ دو نهادی که مرکز اصلی اجرای برنامه‌های ترامپ برای اخراج مهاجران و تقویت امنیت مرزها به شمار می‌روند.
+@dw_farsi
+</div>
+
+## IranianMinds — post 22092
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فوری قطعنامه پیشنهادی آمریکا با همراهی سه کشور اروپایی فرانسه، انگلیس و آلمان علیه برنامه هسته‌ای جمهوری اسلامی، در نشست شورای حکام آژانس بین‌المللی انرژی اتمی به تصویب رسید. این قطعنامه که با 21 رأی موافق، 10 رأی ممتنع و 3 رأی مخالف به تصویب رسید، از جمهوری…
+</div>
+
+## IranianMinds — post 22091
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22091_1781104437.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😂😂😂😂😂😂😂
+
+@IranianMinds
+</div>
+
+## Hranews — post 113522
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک کودک دو ساله در کرمانشاه بر اثر مصرف تریاک جان باخت
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– سامیار رستمی نامداری، #کودک دو ساله اهل یکی از روستاهای کرمانشاه، پس از دسترسی به تریاک نگهداری شده در منزل و مسمومیت ناشی از مصرف آن، جان خود را از دست داد.
+
+ادامه مطلب
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## alonews — post 126848
+
+<div align="center">
+  <a href="telegram/content/alonews_126848_1781104438.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈بر اساس پایش هوش مصنوعی دریایی «ویندوارد»، پنج کشتی حامل ال‌پی‌جی که با ایران تجارت می‌کنند از محاصره دریایی آمریکا عبور کرده‌اند. در حالی که ترامپ مدعی شده بود «هیچ چیز» بدون اجازه آمریکا عبور نمی‌کند، داده‌های ماهواره‌ای کپلر نشان می‌دهد چهار کشتی محموله خود را در هند و یک کشتی در پاکستان تخلیه کرده‌اند و صادرات ال‌پی‌جی ایران ادامه دارد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126847
+
+<div align="center">
+  <a href="telegram/content/alonews_126847_1781104438.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈به گفته برخی منابع آمریکا داره هواپیماهای باربریشو از قطر خارج میکنه!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126846
+
+<div align="center">
+  <a href="telegram/content/alonews_126846_1781104439.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزارت خارجه هند: حمله به نفتکش «سیتیبیلو» در سواحل عمان را محکوم می‌کنیم.
+
+
+🔴 ۲۱ نفر از اعضای خدمه این نفتکش نجات یافته‌اند و همچنان ۳ ملوان مفقود هستند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126845
+
+<div align="center">
+  <a href="telegram/content/alonews_126845_1781104439.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تصویب قطعنامه آمریکا در شورای حکام سازمان انرژی اتمی علیه ایران 
+🔴یک روز قبل از جنگ دوازده روزه هم اتفاق مشابهی در آژانس انرژی اتمی رخ داده بود. 
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/20 18:34
 ---
 

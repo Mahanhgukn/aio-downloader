@@ -7,6 +7,47 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/20 07:33
+---
+
+## VahidOOnLine — post 244629
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244629_1781064205.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش کویت اعلام کرد که سامانه‌های پدافند هوایی این کشور چند هدف هوایی متخاصم را رهگیری و منهدم کرده‌اند. پیش‌تر قرارگاه خاتم‌الانبیا از حمله تلافی‌جویانه سپاه و ارتش به چند پایگاه آمریکا در منطقه خبر داده بود.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## pm_afshaa — post 93270
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93270_1781064205.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وسط این همه اخبار جنگ این جا موند؛
+دیشب اوکراین به شکل پشم ریزونی خط اصلی لوله گاز روسیه رو هدف قرار داد :
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 341436
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341436_1781064206.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش کویت اعلام کرد که سامانه‌های پدافند هوایی این کشور چند هدف هوایی متخاصم را رهگیری و منهدم کرده‌اند. پیش‌تر قرارگاه خاتم‌الانبیا از حمله تلافی‌جویانه سپاه و ارتش به چند پایگاه آمریکا در منطقه خبر داده بود.
+https://iranintl.com/202606108120
+</div>
+
+---
 📅 بروزرسانی: 1405/03/20 07:23
 ---
 

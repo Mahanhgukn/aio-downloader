@@ -7,6 +7,322 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/21 02:32
+---
+
+## VahidOOnLine — post 244819
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244819_1781132551.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قرارگاه مرکزی خاتم‌الانبیا اعلام کرد در پی آنچه «ادامه شرارت‌های آمریکا» و آغاز حملات ارتش این کشور به برخی مناطق جنوبی استان هرمزگان خوانده، تنگه هرمز از این لحظه به دلیل «ناامنی در منطقه» برای تردد هر نوع شناور، اعم از نفتکش و تجاری، بسته است و هرگونه عبور هدف قرار خواهد گرفت.
+
+قرارگاه خاتم‌الانبیا اظهارات مقام‌های آمریکا درباره عبور کشتی از تنگه هرمز را تکذیب کرد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14449
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارشات اولیه از حملات هواپیمای جنگی A-10 آمریکا به قایق های تندرو سپاه در جزیره لارک
+@withyashar
+</div>
+
+## WithYashar — post 14448
+
+<div align="center">
+  <a href="https://t.me/withyashar/14448" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📱 @withyashar
+
+
+📱 https://instagram.com/yashar
+</div>
+
+## WithYashar — post 14447
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مقامات آمریکایی به وال استریت ژورنال گفتند که ترامپ دیپلماسی با ایران را رها نکرده است، اگرچه صبر او به طور فزاینده‌ای کاهش یافته است.
+
+حتی پس از تأیید حملات جدید در اوایل این هفته، ترامپ به دستیارانش دستور داد پیامی را از طریق واسطه‌های قطری به تهران منتقل کنند که این حملات پاسخی به حادثه پهپاد است که تقریباً خدمه آپاچی را کشت، نه آغاز جنگ تمام‌عیار.
+@withyashar
+</div>
+
+## pm_afshaa — post 93503
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93503_1781132552.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴صداوسیما: تنگه هرمز از الان دوباره روی همه کشتی‌ها به طور کامل بسته شد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93502
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیام ساعتی قبل شاهزاده و بعد حمله ترامپ یه نشونه بزرگه....
+</div>
+
+## pm_afshaa — post 93501
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هواپیماهای مهر اباد در حال تخلیه هستن
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93500
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93500_1781132553.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴تسنیم: دقایقی پیش دو فروند کشتی متخلف که قصد عبور غیر قانونی از تنگه هرمز رو داشتن، مورد اصابت قرار گرفتن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93499
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93499_1781132554.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مقامات آمریکایی به وال استریت ژورنال: ترامپ دیپلماسی با ایران رو رها نکرده، اگرچه صبرش به‌شدت درحال اتمامه.
+
+حتی پس از تأیید حملات جدید در اوایل این هفته، ترامپ به دستیارانش دستور داد پیامی رو از طریق واسطه‌های قطری به تهران منتقل کنند که این حملات پاسخی به هدف قرار دادن بالگرد است نه آغاز جنگ تمام‌عیار.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## kianmeli1 — post 87904
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87904_1781132555.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴زیرنویس شبکه خبر
+
+تنگه هرمز به صورت کامل مسدود شد
+
+[باید ببینیم ترامپ چه میکند]
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 341599
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341599_1781132556.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قرارگاه مرکزی خاتم‌الانبیا اعلام کرد در پی آنچه «ادامه شرارت‌های آمریکا» و آغاز حملات ارتش این کشور به برخی مناطق جنوبی استان هرمزگان خوانده، تنگه هرمز از این لحظه به دلیل «ناامنی در منطقه» برای تردد هر نوع شناور، اعم از نفتکش و تجاری، بسته است و هرگونه عبور هدف قرار خواهد گرفت.
+
+قرارگاه خاتم‌الانبیا اظهارات مقام‌های آمریکا درباره عبور کشتی از تنگه هرمز را تکذیب کرد.
+https://iranintl.com/202606105271
+</div>
+
+## Shin_Persian — post 6904
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Wed, 10 Jun 2026 22:59:35 UTC
+
+Regime's IRIB: AA activity in Robat Karim, Tehran Province, #Iran
+
+ترجمه خودکار فارسی
+
+صدا و سیمای رژیم: فعالیت پدافند هوایی (AA) در رباط‌کریم، استان تهران، #Iran
+
+𝕏 · @shin_persian
+</div>
+
+## Iliaen — post 4471
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ساعت حدود ۰۲:۱۵ صبح پنجشنبه؛ چند قایق تندرو در نزدیکی جزیره لارَک هدف قرار گرفته شدند.
+
+براساس توصیف شاهدان، شلیک به صورت رگبار از آسمان به سطح دریا بود (احتمالاً توسط هواپیمای A-10)
+
+@iliaen
+</div>
+
+## FarsiVOA — post 220310
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220310_1781132556.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️گزارش نرگس صبا در برنامه تفسیر خبر از منافع جمهوری اسلامی از دامن زدن به تنش در منطقه
+@FarsiVOA
+</div>
+
+## DW_Farsi — post 125792
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 سنتکام: حملات دفاعی علیه چندین هدف در داخل ایران را آغاز کردیم
+
+فرماندهی مرکزی ایالات متحده آمریکا (سنتکام) در شبکه ایکس اعلام کرد از ساعت ۵:۱۵ عصر به وقت شرق آمریکا (بعد از نیمه شب ایران)، به دستور فرمانده کل نیروهای مسلح [دونالد ترامپ]، "حملات دفاعی" بیشتری را علیه چندین هدف در داخل ایران آغاز کرده است.
+
+به نوشته سنتکام، این حملات در پاسخ به آنچه "تجاوز بی‌دلیل و ادامه‌دار ایران" توصیف شده، انجام می‌شود.
+
+آخرین گزارش‌ها در رسانه‌های دولتی ایران حاکی از وقوع موج جدیدی از انفجارها در جنوب ایران، نزدیک تنگه هرمز است.
+
+بر اساس گزارش صداوسیمای جمهوری اسلامی (IRIB)، یک انفجار در بندرعباس ثبت شده است.
+
+همچنین در شهرهای میناب و سیریک و نیز در جزیره قشم نیز وقوع انفجار گزارش شده است.
+
+ساعاتی پیش از شروع این حملات وزیر دفاع آمریکا، پیت هگست، گفته بود که فرماندهی مرکزی ارتش آمریکا امشب حملاتی را علیه ایران آغاز خواهد کرد.
+
+او در جمع خبرنگاران گفت: «فرماندهی مرکزی امشب شب شلوغی خواهد داشت، چون رئیس‌ جمهور ترامپ گفته که ما ایران را به‌شدت هدف قرار خواهیم داد و همین کار را هم خواهیم کرد.»
+
+هگست گفت نیروهای آمریکایی به "تأسیسات کلیدی" در ایران حمله خواهند کرد، زیرا ایران برای پایان دادن به جنگ به توافقی با آمریکا نرسیده است.
+
+پیش‌تر، رئیس‌جمهور آمریکا نیز گفته بود که حملات علیه ایران ادامه خواهد داشت.
+
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 16618
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16618_1781132558.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16617
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16617_1781132558.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ تسنیم: قرارگاه مرکزی خاتم الانبیا: ادعای آمریکا مبنی بر عبور کشتی از تنگه هرمز کذب است 📝 Nick 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 22221
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22221_1781132559.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حوثی ها و انصارالله یمن به آمریکا هشدار دادن که بهتره حملاتشو متوقف کنه تا دیر نشده
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22220
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 نیروی دریایی سپاه:
+
+دو شناور که قصد عبور غیرقانونی از تنگه هرمز را داشتند، پس از نقض محدودیت‌های عبور و مرور هدف قرار گرفتند.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22219
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22219_1781132560.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 شبکه خبر :
+
+تنگه هرمز به صورت کامل مسدود شد.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 283369
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻هگست پیش از آغاز دومین شب حملات آمریکا: تأسیسات کلیدی ایران هدف قرار می‌گیرد
+
+پیت هگست، وزیر دفاع آمریکا، ساعتی پیش از آغاز عملیات آمریکا علیه اهدافی در ایران در اظهاراتی گفته بود که نیروهای این کشور در منطقۀ امشب «ضربات سختی به ایران وارد خواهند کرد و تأسیسات کلیدی این کشور را هدف قرار خواهند داد.»
+
+آقای هگست در مقر فرماندهی سنتکام در تامپا در فلوریدا سخن می‌گفت.
+
+پیش از او نیز دونالد ترامپ، رئیس جمهور آمریکا، در سخنانی تند و در جمع خبرنگاران در کاخ سفید با اشاره به حمله دیشب (سه‌شنبه) این کشور به اهدافی در ایران گفت: «ما دیروز ضربت سختی به آن‌ها وارد کردیم و امروز هم دوباره ضربت سختی خواهیم زد. اگر متوجه نشده‌اید یا تلویزیون را روشن نکرده‌اید، این را بدانید. خواهیم دید که در مورد توافق چه اتفاقی می‌افتد. ما واقعا بسیار به دستیابی به یک توافق نزدیک بودیم.»
+
+اظهارات رئیس جمهور آمریکا که تلویحا حملات دیشب و امشب را مرتبط با «تعلل» در مذاکرات با ایران دانسته در تناقض با اظهارات قبلی اوست که ساقط شدن یک بالگرد آپاچی در دریای عمان را علت حملات جدید عنوان کرده بود.
+
+آمریکا ایران را مسئول هدف قرار گرفتن این بالگرد آپاچی معرفی کرده اما تهران هنوز رسما هدف قرار دادن آن را بر عهده نگرفته است.
+https://bbc.in/4fIJPot
+@BBCPersian
+</div>
+
+## alonews — post 127020
+
+<div align="center">
+  <a href="telegram/content/alonews_127020_1781132561.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈گزارشات اولیه از حملات هواپیمای جنگی A-10(گراز وحشی) آمریکا به قایق های تندرو سپاه در جزیره لارک
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127019
+
+<div align="center">
+  <a href="telegram/content/alonews_127019_1781132561.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حمید رسایی:
+اینترنت رو قطع کنید تا دیر نشده
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127018
+
+<div align="center">
+  <a href="telegram/content/alonews_127018_1781132561.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈زیرنویس شبکه خبر
+
+
+🔴تنگه هرمز به صورت کامل مسدود شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/21 02:22
 ---
 

@@ -7,6 +7,161 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/20 16:24
+---
+
+## VahidOOnLine — post 244676
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_244676_1781096049.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند در ویدیویی که به ایران اینترنشنال فرستاد گفت که بامداد ۲۰ خرداد با وجود آغاز حمله ارتش آمریکا هنوز هواپیمای مسافربری در آسمان است و قصد نشستن در فرودگاه مهرآباد را دارد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14316
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ به فاکس نیوز گفت: تهران مذاکرات صلح را به تعویق انداخت که در نهایت منجر به پیشرفت بسیار محدودی شد‌‌
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342799
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342799_1781096051.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+The crew behind one of Washington's most recognizable restoration projects got a signature thank you from President Trump.
+
+The workers who rebuilt the Reflecting Pool near the Washington Monument were invited to the Oval Office, where Trump praised their work and signed hats for the team.
+</div>
+
+## pm_afshaa — post 93299
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+زیبا کلام دستگیر شد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 341478
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341478_1781096052.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻شکیرا، ستاره کلمبیایی موسیقی پاپ، بار دیگر نام خود را با جام جهانی فوتبال گره زد. ترانه رسمی جام جهانی ۲۰۲۶ با عنوان «دای دای» که او با همکاری برنا بوی منتشر کرده، تنها دو هفته پس از انتشار از مرز ۱۰۰ میلیون بازدید عبور کرده است.
+
+🔹شکیرا، خواننده ۴۹ ساله کلمبیایی، که سابقه حضور در چهار دوره جام جهانی را در کارنامه دارد، اکنون موفق‌ترین هنرمند تاریخ این رقابت‌ها به شمار می‌رود. او درباره ارتباطش با فوتبال گفت: «میان من و فوتبال پیوندی وجود دارد که انگار هیچ‌وقت از بین نمی‌رود.»
+
+🔹شکیرا نخستین بار در جام جهانی ۲۰۰۶ آلمان با اجرای نسخه‌ای ویژه از آهنگ «هیپس دونت لای» پیش از فینال میان ایتالیا و فرانسه روی صحنه رفت. چهار سال بعد نیز با ترانه ماندگار «واکا واکا (این تایم فور آفریقا)» به نماد جام جهانی ۲۰۱۰ آفریقای جنوبی تبدیل شد؛ موزیک‌ویدیویی که تاکنون بیش از ۴.۵ میلیارد بار دیده شده و در میان پربازدیدترین ویدیوهای موسیقی تاریخ قرار دارد.
+
+🔹او در جام جهانی ۲۰۱۴ برزیل نیز با آهنگ «لا لا لا (برزیل ۲۰۱۴)» حضور داشت؛ اثری که بیش از ۱.۳ میلیارد بازدید ثبت کرده است.
+
+🔹جزییات بیشتر را در سایت بخوانید
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 341477
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341477_1781096053.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند در ویدیویی که به ایران اینترنشنال فرستاد گفت که بامداد ۲۰ خرداد با وجود آغاز حمله ارتش آمریکا هنوز هواپیمای مسافربری در آسمان است و قصد نشستن در فرودگاه مهرآباد را دارد.
+</div>
+
+## FarsiVOA — post 220243
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺هشدار پرزیدنت ترامپ به جمهوری اسلامی درباره خودداری از توافق: شاید دستور حمله به زیرساخت‌ها را صادر کنم
+
+◾️دونالد ترامپ، رئیس جمهوری ایالات متحده، هشدار داد چنان‌چه رژیم ایران برای دستیابی به توافق با آمریکا بیش از این تعلل کند، ممکن است دستور حملات جدیدی را علیه زیرساخت‌های جمهوری اسلامی صادر کند.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/president-trump-considers-striking-irans-infrastructure/8159306.html
+</div>
+
+## RadioFarda — post 158145
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸قوه قضائیه جمهوری اسلامی روز چهارشنبه ۲۰ خرداد خبر داد که صادق زیباکلام، استاد سابق دانشگاه تهران و فعال سیاسی، بازداشت شده است. 🔸خبرگزاری میزان، وابسته به دستگاه قضائی ایران، اعلام کرد که «قرار نظارت قضائی» بر آقای زیباکلام روز ۱۷ خرداد تشدید شده بود و…
+</div>
+
+## RadioFarda — post 158144
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_158144_1781096055.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸قوه قضائیه جمهوری اسلامی روز چهارشنبه ۲۰ خرداد خبر داد که صادق زیباکلام، استاد سابق دانشگاه تهران و فعال سیاسی، بازداشت شده است.
+
+🔸خبرگزاری میزان، وابسته به دستگاه قضائی ایران، اعلام کرد که «قرار نظارت قضائی» بر آقای زیباکلام روز ۱۷ خرداد تشدید شده بود و به دلیل انجام مصاحبه‌ای جدید، علیه او اعلام جرم و سپس صبح امروز بازداشت شد.
+
+🔸این خبرگزاری گفته است که بر اساس قرار نظارت قبلی،‌ این فعال سیاسی دچار ممنوعیت «هرگونه فعالیت رسانه‌ای و تولید محتوا در شبکه‌های اجتماعی رسانه‌ای» بود.
+
+@RadioFarda
+</div>
+
+## Hranews — post 113516
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دانشگاه سجاد مشهد؛ ۱۰ دانشجو با احکام محرومیت از تحصیل مواجه شدند
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– ۱۰ تن از دانشجویان دانشگاه سجاد مشهد توسط کمیته انضباطی این دانشگاه در ارتباط با پرونده‌های مرتبط با اعتراضات سراسری دی‌ماه ۱۴۰۴، محکوم شده‌اند. احکام بدوی صادر شده برای این #دانشجویان شامل دو و نیم تا چهار سال محرومیت از تحصیل است.
+
+ادامه مطلب
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## alonews — post 126822
+
+<div align="center">
+  <a href="telegram/content/alonews_126822_1781096055.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ به فاکس نیوز: ایران فرصتی برای امضای توافق و زنده ماندن داشت‌‌
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126821
+
+<div align="center">
+  <a href="telegram/content/alonews_126821_1781096055.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ به فاکس نیوز گفت: تهران مذاکرات صلح را به تعویق انداخت که در نهایت منجر به پیشرفت بسیار محدودی شد‌‌
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/20 16:13
 ---
 

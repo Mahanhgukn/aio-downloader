@@ -7,6 +7,499 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/21 02:22
+---
+
+## VahidOOnLine — post 244818
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244818_1781131948.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️قرارگاه خاتم در بیانیه‌ای که تسنیم منتشر کرده تنگه هرمز را کاملا بسته اعلام کرد و تهدید کرد که هرگونه تردد مورد اصابت قرار خواهد گرفت. در این بیانیه آمده است که این ممنوعیت شامل کشتی‌های تجاری و نتفکش‌ها است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244817
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ پیت هگست، وزیر جنگ آمریکا، چهارشنبه عصر به وقت واشینگتن در گفت‌وگو با خبرنگاران در مقر فرماندهی مرکزی ایالات متحده (سنتکام) در شهر تمپا ایالت فلوریدا، در پاسخ به سوالی درباره توانایی آمریکا برای شناسایی و هدف قرار دادن رهبران ارشد جمهوری اسلامی و سپاه پاسداران در صورت شکست مذاکرات، گفت سنتکام از فرصت آتش‌بس برای تکمیل اطلاعات و به‌روزرسانی فهرست اهداف استفاده کرده است.
+
+هگست افزود توانایی آمریکا در هدف‌گیری، شناسایی اهداف، رصد تحرکات و نفوذ به شبکه‌ها نسبت به زمان آغاز عملیات «خشم حماسی» به شکل قابل توجهی افزایش یافته است.
+
+وزیر جنگ آمریکا همچنین گفت جمهوری اسلامی در حال حاضر از توانایی محدودی برای تولید موشک و پهپاد برخوردار است و هرگونه تجهیزات و تسلیحاتی که در اختیار داشته باشد، در صورت لزوم دوباره هدف حملات آمریکا قرار خواهد گرفت.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244816
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244816_1781131949.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+احسان جهانیان، معاون سیاسی امنیتی و اجتماعی استاندار بوشهر، به صداوسیما گفت: تاکنون هیچ انفجاری در مجتمع گازی عسلویه رخ نداده است. پیش‌تر گزارش‌هایی از هدف قرار گرفتن یک کارخانه پتروشیمی متعلق به مجتمع گاز پارس جنوبی در عسلویه منتشر شده بود.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244815
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244815_1781131950.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️به گزارش سی‌ان‌ان به نقل از یک منبع آگاه، ک هیات قطری که صبح چهارشنبه برای دیدار با مذاکره‌کنندگان حکومت ایران به تهران سفر کرده بود، همچنان در ایران حضور دارد.
+این منبع پیش‌تر به سی‌ان‌ان گفته بود که مذاکره‌کنندگان قطری «پس از رایزنی با آمریکا» به ایران رفته‌اند تا با نمایندگان جمهوری اسلامی دیدار کنند و «برای پر کردن شکاف‌های باقی‌مانده» در مذاکرات تلاش کنند.
+صداوسیما نیز گزارش داد که این سفر شامل گفت‌وگو درباره روابط دو کشور و همچنین تبادل نظر درباره آخرین تحولات آنچه «روند دیپلماتیک با هدف پایان دادن به جنگ تحمیل‌شده از سوی آمریکا علیه ایران» توصیف شده، خواهد بود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14446
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قرارگاه خاتم الانبیا: تنگه هرمز از این لحظه برای تمام شناور ها بسته اعلام میشه و هیچ شناوری حق عبور نداره
+@withyashar
+</div>
+
+## WithYashar — post 14445
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزیر خارجه یمن: نسبت به ادامه تجاوز آمریکا به ایران هشدار می‌دهیم
+@withyashar
+</div>
+
+## pm_afshaa — post 93498
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یه پیام دارم برا پاکستان عزیز
+</div>
+
+## pm_afshaa — post 93497
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93497_1781131951.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## pm_afshaa — post 93494
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پاکستان به آمریکا:ما در مورد توافق شما با ایران دست از تلاش برمی‌داریم 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93493
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پاکستان به آمریکا:ما در مورد توافق شما با ایران دست از تلاش برمی‌داریم
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93492
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93492_1781131952.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴قرارگاه مرکزی خاتم‌الانبیا:
+از این لحظه به دلیل ناامنی در منطقه، تنگه هرمز برای تردد هر نوع شناور اعم از نفتکش و تجاری بسته اعلام می گردد و هرگونه تردد مورد اصابت قرار خواهد گرفت.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## VahidOnline — post 76171
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سپاه: هرگونه تردد شناورها از تنگه هرمز مورد اصابت قرار خواهد گرفت
+
+منابع حکومتی:
+قرارگاه مرکزی حضرت خاتم‌الانبیا(ص): از این لحظه به دلیل ناامنی در منطقه، تنگه هرمز برای تردد هر نوع شناور اعم از نفتکش و تجاری بسته اعلام می گردد و هرگونه تردد مورد اصابت قرار خواهد گرفت
+
+در ادامه شرارت های آمریکای جنایتکار و با توجه به آغاز حملات ارتش متجاوز آن کشور به برخی از مناطق جنوب در استان هرمزگان، از این لحظه به دلیل ناامنی در منطقه، تنگه هرمز برای تردد هر نوع شناور اعم از نفتکش و تجاری بسته اعلام می گردد و هرگونه تردد مورد اصابت قرار خواهد گرفت.
+
+ادعای آمریکا مبنی بر عبور کشتی از تنگه یاد شده تکذیب می شود.
+
+📡 @VahidOnline
+</div>
+
+## kianmeli1 — post 87903
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری-قرارگاه خاتم
+
+تنگه هرمز برای تمام کشتی ها بسته شد
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 341598
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341598_1781131953.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+احسان جهانیان، معاون سیاسی امنیتی و اجتماعی استاندار بوشهر، به صداوسیما گفت: تاکنون هیچ انفجاری در مجتمع گازی عسلویه رخ نداده است. پیش‌تر گزارش‌هایی از هدف قرار گرفتن یک کارخانه پتروشیمی متعلق به مجتمع گاز پارس جنوبی در عسلویه منتشر شده بود.
+https://iranintl.com/202606103101
+</div>
+
+## Shin_Persian — post 6903
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Wed, 10 Jun 2026 22:47:59 UTC
+
+Intense jet activity over western Tehran
+#Tehran Province, #Iran
+
+ترجمه خودکار فارسی
+
+فعالیت شدید جنگنده‌ها بر فراز غرب تهران
+#Tehran Province, #Iran
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6902
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Wed, 10 Jun 2026 22:46:19 UTC
+
+State-owned Mehr News:
+"The Americans have so far conducted attacks on seven coastal points."
+
+ترجمه خودکار فارسی
+
+خبرگزاری دولتی مهر:
+«آمریکایی‌ها تاکنون به هفت نقطه ساحلی حمله کرده‌اند.»
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6901
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Wed, 10 Jun 2026 22:44:31 UTC
+
+IRGC Khatam Al Anbya terror HQ:
+
+"Effective immediately, due to insecurity in the region, the Strait of Hormuz is declared closed for the passage of all types of vessels, including oil tankers and commercial ships. Any transit will be targeted.
+
+Following the malicious actions of America and in light of the commencement of attacks by its aggressor military on some southern areas in Hormozgan province, effective immediately, due to insecurity in the region, the Strait of Hormuz is declared closed for the passage of all types of vessels, including oil tankers and commercial ships. Any transit will be targeted.
+
+The American claim regarding the passage of ships through the aforementioned strait is denied."
+
+ترجمه خودکار فارسی
+
+قرارگاه تروریستی خاتم‌الانبیاء سپاه پاسداران انقلاب اسلامی (IRGC):
+
+«با اثرگذاری فوری، به دلیل ناامنی در منطقه، تنگه هرمز برای تردد تمامی انواع شناورها، از جمله نفتکش‌ها و کشتی‌های تجاری، بسته اعلام می‌شود. هرگونه عبوری مورد هدف قرار خواهد گرفت.
+
+در پی اقدامات شرورانه آمریکا و با توجه به آغاز حملات ارتش متجاوز آن به برخی مناطق جنوبی در استان هرمزگان، با اثرگذاری فوری، به دلیل ناامنی در منطقه، تنگه هرمز برای تردد تمامی انواع شناورها، از جمله نفتکش‌ها و کشتی‌های تجاری، بسته اعلام می‌شود. هرگونه عبوری مورد هدف قرار خواهد گرفت.
+
+ادعای آمریکا در خصوص عبور کشتی‌ها از تنگه مذکور تکذیب می‌شود.»
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 220309
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220309_1781131954.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️سپاه پاسداران، در بیانیه‌ای که اوایل پنج‌شنبه ۲۱ خرداد صادر کرد گفت «از این لحظه» به هر نوع شناوری اعم از نفتکش و کشتی تجاری که از تنگه هرمز عبور کند، حمله خواهد کرد. سپاه در فهرست سازمان‌های تروریستی چندین کشور قرار دارد.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220308
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220308_1781131955.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️اتحاد بی سابقه کشورهای غربی در مقابل رفتارهای جمهوری اسلامی؛ گفت‌وگو با درویش رنجبر
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220307
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220307_1781131958.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️حامد آیینه وند در برنامه تفسیر خبر: تشدید تنش می‌تواند به قحطی در ایران منجر شود
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 16616
+
+
+
+
+## Persian_Trend_Official — post 16615
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ ایسنا:
+
+مدیرعامل شرکت آب و فاضلاب هرمزگان: با تلاش بی‌وقفه و خستگی‌ناپذیر مجموعه شرکت آب و فاضلاب هرمزگان، قطعی آب ناشی از حملات جنایتکارانه بامداد دیروز آمریکا در سیریک برطرف و آب مشترکان شهر کوهستک و روستا‌های بخش بمانی در کمتر از ۱۲ ساعت وصل شد.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16614
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ تسنیم: قرارگاه مرکزی خاتم الانبیا: هرگونه تردد شناورها از تنگه هرمز مورد اصابت قرار خواهد گرفت. 📝 Nick 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16613
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ تسنیم: قرارگاه مرکزی خاتم الانبیا: تنگه هرمز به طور کامل برای هر نوع شناوری، از جمله شناور تجاری بسته شد. 📝 Nick 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16612
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16612_1781131959.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ تسنیم: تنگه هرمز برای تردد هر نوع شناور اعم از نفتکش و تجاری بسته است قرارگاه مرکزی خاتم‌الانبیا(ص): 🔹 در ادامه شرارت های آمریکای جنایتکار و با توجه به آغاز حملات ارتش متجاوز آن کشور به برخی از مناطق جنوب در استان هرمزگان، از این لحظه به دلیل ناامنی در…
+</div>
+
+## Persian_Trend_Official — post 16611
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16611_1781131960.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ تسنیم:
+
+تنگه هرمز برای تردد هر نوع شناور اعم از نفتکش و تجاری بسته است
+
+قرارگاه مرکزی خاتم‌الانبیا(ص):
+🔹 در ادامه شرارت های آمریکای جنایتکار و با توجه به آغاز حملات ارتش متجاوز آن کشور به برخی از مناطق جنوب در استان هرمزگان، از این لحظه به دلیل ناامنی در منطقه، تنگه هرمز برای تردد هر نوع شناور اعم از نفتکش و تجاری بسته اعلام می گردد و هرگونه تردد مورد اصابت قرار خواهد گرفت.
+
+🔹 ادعای آمریکا مبنی بر عبور کشتی از تنگه یاد شده تکذیب می شود.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16610
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16610_1781131960.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ ایسنا: روابط عمومی سپاه: درپی تجاوز جنگنده f16 دشمن به حریم هوایی خلیج فارس و شلیک موشک سامانه پدافند هوایی سپاه به سمت آن، جنگنده متجاوز متواری گشت. 📝 Nick 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16608
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16608_1781131961.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ ایسنا: روابط عمومی سپاه: درپی تجاوز جنگنده f16 دشمن به حریم هوایی خلیج فارس و شلیک موشک سامانه پدافند هوایی سپاه به سمت آن، جنگنده متجاوز متواری گشت. 📝 Nick 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 22218
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 قرارگاه مرکزی خاتم الانبیا :
+
+دیگه قهریم و تنگه هرمز از الان برای همه ی شناور ها مسدوده و هیچکس حق عبور نداره.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22217
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22217_1781131962.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+@IranianMinds
+</div>
+
+## IranianMinds — post 22216
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22216_1781131963.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 اینفانتینو رئیس فیفا در مورد تیم جمهوری اسلامی :
+
+وقتی بعضی‌ها می‌گفتند حضور ایران در جام جهانی غیرممکن است، به آن‌ها گفتم و قول دادم که ایران به جام جهانی خواهد آمد.
+
+اگه لازم بود با اتوبوس تا تهران می‌رفتم و خودم تیم را به اینجا می‌آوردم.
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 391649
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به هر کشتی که از تنگه عبور کند شلیک می‌کنیم
+
+قرارگاه مرکزی خاتم‌الانبیای سپاه در بیانیه‌ای اعلام کرد: «در ادامه شرارت‌های آمریکای جنایتکار و با توجه به آغاز حملات ارتش متجاوز آن کشور به برخی از مناطق جنوب در استان هرمزگان، از این لحظه به دلیل ناامنی در منطقه، تنگه هرمز برای تردد هر نوع شناور، اعم از نفتکش و تجاری، بسته اعلام می‌گردد و هرگونه تردد مورد اصابت قرار خواهد گرفت. ادعای آمریکا مبنی بر عبور کشتی از تنگه هرمز نیز تکذیب می‌شود.»
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391648
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بین دو تا موج حمله چقدر فاصله‌ست؟
+می‌شه رفت مسواک زد و برگشت یا نه؟
+</div>
+
+## Dirty_Kids — post 391647
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391647_1781131965.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سپاه گفته که داشتن یک فروند F-16 آمریکا رو‌ می‌زدن که کیر شدن و نتوستن.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391646
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ:‌ «ما به توافق نزدیک بودیم، اما ناگهان همه‌چیز کاملا تغییر کرد. اکنون ایران باید انتظار حملات سنگین‌تر و شدیدتری را نسبت به ۳ ماه گذشته داشته باشد.»
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391645
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391645_1781131966.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خدایا شکرت؛ دادستانی که گفته بود نتانیاهو ظالمه و فورا باید دستگیر بشه، خودش به جرم تجاوز برکنار و بازداشت شد.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391644
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فاکس نیوز اهداف بعدی نیروگاه ها و پل ها هستن
+</div>
+
+## alonews — post 127017
+
+<div align="center">
+  <a href="telegram/content/alonews_127017_1781131966.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈مقامات آمریکایی به وال استریت ژورنال گفتند که ترامپ دیپلماسی با ایران را رها نکرده است، اگرچه صبر او به طور فزاینده‌ای کاهش یافته است.
+
+
+🔴حتی پس از تأیید حملات جدید در اوایل این هفته، ترامپ به دستیارانش دستور داد پیامی را از طریق واسطه‌های قطری به تهران منتقل کنند که این حملات پاسخی به حادثه پهپاد است که تقریباً خدمه آپاچی را کشت، نه آغاز جنگ تمام‌عیار.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127016
+
+<div align="center">
+  <a href="telegram/content/alonews_127016_1781131967.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈قیمت نفت آمریکا پس از حملات جدید نظامی آمریکا به جنوب ایران، به بالای ۹۲ دلار در هر بشکه رسید.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127015
+
+<div align="center">
+  <a href="telegram/content/alonews_127015_1781131967.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈علی قلهکی خبرنگار :
+اگه آمریکا بخواد زیرساخت های مارو بزنه و بندازتمون توی بحران برق و بنزین ما هم کاری میکنیم که اسرائیل هم دچار این بحران بشه.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127014
+
+<div align="center">
+  <a href="telegram/content/alonews_127014_1781131967.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری/ قرارگاه خاتم الانبیا: تنگه هرمز از این لحظه برای تمام شناور ها بسته اعلام میشه و هیچ شناوری حق عبور نداره
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127013
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📱لطفا توییتر الونیوز رو دنبال کنین 
+🔴پست های انگلیسی در رابطه با جنایت های حکومت به انگلیسی نوشته شده و افراد مهم منشن و هشتگ های مهم قرار داده شده. 
+🔴ریپست کنین. مهمترین کمک این روزها جلوگیری از پروپاگاندا حکومت علیه این قتل عام مردم هستش. خونشون نباید پایمال…
+</div>
+
+---
 📅 بروزرسانی: 1405/03/21 02:12
 ---
 

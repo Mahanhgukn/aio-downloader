@@ -7,6 +7,173 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/20 14:43
+---
+
+## mwarmonitor — post 10601
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_10601_1781090007.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 ترامپ در Truth Social:
+
+ارتش ایران یک آشفتگی کامل و تمام‌عیار است. بخش زیادی از آن، مانند نیروی دریایی و نیروی هوایی‌اش، دیگر حتی وجود ندارد — آن‌ها به‌طور کامل شکست خورده‌اند. ایران فقط حرف می‌زند و عمل نمی‌کند. «قلدر خاورمیانه» مرده است!!!
+
+آن‌ها بیش از حد برای مذاکره درباره یک توافقی که برایشان بسیار عالی می‌توانست باشد وقت تلف کردند، و حالا باید بهای آن را بپردازند!!!
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 342790
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342790_1781090007.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"I've made mistakes in my life, mistakes that I regret, that I live with and I continue to learn from."
+
+Democrat Graham Platner making a point to acknowledge the damage done by a campaign marked by scrutiny over past mistakes and personal controversies during his primary victory speech in Maine.
+
+Platner telling supporters he understands why some voters feel disappointed or disillusioned with him, while trying to frame his past abuse allegations and Nazi tattoo as a story of “redemption.”
+
+"It is my job to earn your trust, faith and support... Redemption is not just some simple or easy destination."
+</div>
+
+## pm_afshaa — post 93285
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: ایران فقط حرف می‌زند و عمل نمی‌کند. قلدر خاورمیانه مُرده است!
+
+آنها برای مذاکره بر سر توافقی که می‌توانست برایشان عالی باشد، خیلی دیر کرده‌اند، حالا باید بهای آن را بپردازن
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## kianmeli1 — post 87851
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87851_1781090009.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ:
+
+«ایران فقط حرف می‌زند و هیچ عملی انجام نمی‌دهد. قلدر خاورمیانه مُرد!!! آنها خیلی طول کشیدند تا برای توافقی که برایشان عالی بود مذاکره کنند، حالا باید هزینه‌اش را بپردازند!!!»
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 341467
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341467_1781090010.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در ماه‌های گذشته و به‌ویژه پس از جنگ، تجمع‌های شبانه حامیان حکومت، ایست‌های بازرسی، تفتیش تلفن‌های همراه و اختلال گسترده اینترنت از جمله مواردی بوده که به گفته شهروندان به تشدید فضای امنیتی در کشور منجر شده است.
+
+جزییات بیشتر با فرزاد فتاحی، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## Shin_Persian — post 6851
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6851_1781090011.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn Wed, 10 Jun 2026 11:05:22 UTC POTUS: "Iran’s Military is a complete and total mess. Much of it, like their Navy and Air Force, doesn’t even exist anymore - They have been completely defeated. Iran is all talk and no action. The Bully…
+</div>
+
+## Shin_Persian — post 6850
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Wed, 10 Jun 2026 11:05:22 UTC
+
+POTUS:
+"Iran’s Military is a complete and total mess. Much of it, like their Navy and Air Force, doesn’t even exist anymore - They have been completely defeated. Iran is all talk and no action. The Bully of the Middle East is DEAD!!! They’ve taken too long to negotiate a deal that would have been great for them, now they will have to pay the price!!! President DONALD J. TRUMP"
+
+ترجمه خودکار فارسی
+
+رئیس‌جمهور ایالات متحده (POTUS):
+«نظامیان ایران یک فاجعه تمام‌وعیار و مطلق هستند. بخش بزرگی از آن، مانند نیروی دریایی و نیروی هوایی‌شان، دیگر حتی وجود خارجی ندارد - آن‌ها به طور کامل شکست خورده‌اند. ایران فقط حرف می‌زند و اهل عمل نیست. قلدر خاورمیانه مرده است!!! آن‌ها برای مذاکره بر سر توافقی که می‌توانست برایشان عالی باشد، خیلی طولش دادند؛ حالا باید بهایش را بپردازند!!! رئیس‌جمهور دونالد جی. ترامپ»
+
+𝕏 · @shin_persian
+</div>
+
+## Persian_Trend_Official — post 16456
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16456_1781090012.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: ارتش ایران کاملاً آشفته و بهم ریخته است. بخش زیادی از آن، مانند نیروی دریایی و هوایی آنها، دیگر حتی وجود ندارد. آنها کاملاً شکست خورده‌اند.
+
+ایران فقط حرف می‌زند و عمل نمی‌کند. قلدر خاورمیانه مرده است!!! آنها برای مذاکره در مورد توافقی که برایشان عالی بود، خیلی وقت صرف کردند، حالا باید هزینه آن را بپردازند!!!
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Dirty_Kids — post 391567
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391567_1781090012.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حق داری چاووشی 😔😔🤣🤣🤣
+
+کاری ندارم که بخوانم نمیتونن، توازن قدرت برقرار نیست، ولی خیلی لاشین بخاطر اینکه کتلت نشن قدرت‌رو از دست ندن عاغاتونو بتخمشون گرفتن بی‌خایه‌ها
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391566
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391566_1781090012.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حالا که همش بحث آپاچی آمریکاییه،
+وقتی نبودین با برنو، ساقه‌طلایی و نوشابه
+رفته بودن خلبان آمریکایی رو بگیرن که…🤣🤣🤣🤣🤣
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 126786
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوووری/ترامپ: ایران فقط حرف می‌زند و عمل نمی‌کند. قلدر خاورمیانه مُرده است!
+
+
+🔴آنها برای مذاکره بر سر توافقی که می‌توانست برایشان عالی باشد، خیلی دیر کرده‌اند، حالا باید بهای آن را بپردازند!!!
+</div>
+
+## alonews — post 126785
+
+<div align="center">
+  <a href="telegram/content/alonews_126785_1781090014.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈دیپلمات آگاه به فاکس نیوز: پس از رایزنی‌ها با ایالات متحده، مذاکره‌کنندگان قطری صبح امروز به تهران سفر کردند تا با ایرانی‌ها دیدار کنند و با هدف پر کردن شکاف‌های باقی‌مانده در روند مذاکرات تلاش کنند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/20 14:33
 ---
 

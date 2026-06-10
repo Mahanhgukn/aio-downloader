@@ -7,6 +7,313 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/20 04:42
+---
+
+## VahidOOnLine — post 244610
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244610_1781053976.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قرارگاه مرکزی خاتم الانبیا اعلام کرد ارتش و سپاه در پاسخ به حمله‌های جدید آمریکا علیه جمهوری اسلامی، برخی از پایگاه‌های آمریکا در منطقه هدف حمله‌های قرار دادند.
+این قرارگاه تاکید کرد در صورت تکرار حملات آمریکا، جمهوری اسلامی «حملات سهمگین و گسترده‌تری» علیه بانک اهداف تعیین شده در منطقه انجام خواهد شد.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244609
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244609_1781053977.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️فرماندهی مرکزی ایالات متحده (سنتکام) با انتشار بیانیه‌ای رسمی از تکمیل حملات نظامی خود علیه ایران خبر داد و اعلام کرد: «نیروهای سنتکام به دستور فرمانده کل قوا و در پاسخ به سرنگونی روز گذشته یک هلیکوپتر آپاچی ارتش آمریکا، حملات دفاع از خود را علیه ایران به پایان رساندند.» سنتکام با تشریح اهداف این عملیات افزود: «نیروهای ما با استفاده از مهمات هوشمند و دقیق جنگنده‌های نیروی هوایی و دریایی ایالات متحده، سامانه‌های پدافند هوایی، ایستگاه‌های کنترل زمینی و سایت‌های رادار نظارتی ایران را در نزدیکی تنگه هرمز هدف قرار دادند؛ این عملیات یک پاسخ متناسب به حملات اخیر به نیروهای آمریکایی و کشتی‌های تجاری بین‌المللی در حال تردد در آب‌های منطقه بود.» در پایان این بیانیه تأکید شده است: «نیروهای آمریکایی همچنان هوشیار و در موضع آمادگی کامل برای دفاع در برابر هرگونه تهاجم توجیه‌ناپذیر از سوی ایران قرار دارند.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244608
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244608_1781053977.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سپاه پاسداران اعلام کرد در پاسخ به حمله‌های آمریکا علیه جمهوری اسلامی، نیروی دریایی سپاه ساعت ۲.۳۰ بامداد ناوگان پنجم دریایی بحرین را هدف حمله پهپادی قرار داد.
+طبق اعلام سپاه، آمریکا در اوایل بامداد چهارشنبه چند نقطه در جاسک، سیریک و قشم را مورد حمله قرار داد که به یک دکل مخابراتی در سیریک خساراتی وارد آمد و دو مخزن آب بخش بمانی این شهرستان منهدم شد.
+سپاه با اشاره به اینکه درگیری‌ها ادامه دارد و نیروهایش در حال پاسخ گفتن به حملات هستند، تاکید کرد: «در صورت ادامه حملات نیروهای متخاصم، پاسخ‌های سنگین‌تری در راه است.»
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244607
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244607_1781053978.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️فارس گزارش داد که سپاه پاسداران یک پهپاد ام‌کیو۹ را در شمال خلیج فارس و در آسمان شهرستان جم در استان بوشهر، سرنگون کرده است. هنوز ارتش آمریکا در این زمینه اظهارنظر نکرده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## pm_afshaa — post 93230
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اقا زدن مثل اینکه😂
+</div>
+
+## VahidOnline — post 76126
+
+<div align="center">
+  <a href="telegram/content/VahidOnline_76126_1781053978.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیام‌های دریافتی تایید نشده:
+
+سلام آقا وحید ساعت ۴و۳۶ دقیقه
+خمین ۳ تا موشک پرتاب شد
+
+همین الان پنج تا موشک از خمین شلیک شد ساعت ۴:۳۵
+
+سلام وحید جان همین الان ازنا لرستان زدن
+ساعت4:37
+
+ساعت ۴:۳۵ از خمین چهارتا موشک زدن
+
+از خمین حدود ۴ تا موشک فرستادنننن همین الان
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 76125
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76125_1781053979.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+"آمریکا حملات خود را در پاسخ به حمله ایران به آپاچی تکمیل کرد"
+
+پست سنتکام، ترجمه ماشین:
+تامپا، فلوریدا — نیروهای فرماندهی مرکزی ایالات متحده، سنتکام، روز ۹ ژوئن به دستور فرمانده کل قوا، حملات دفاعی خود علیه ایران را در پاسخ به سرنگونی هلیکوپتر آپاچی ارتش آمریکا در روز گذشته تکمیل کردند.
+
+نیروهای سنتکام با استفاده از مهمات هدایت‌شونده دقیق شلیک‌شده از جنگنده‌های نیروی هوایی و نیروی دریایی آمریکا، سامانه‌های پدافند هوایی ایران، ایستگاه‌های کنترل زمینی و سایت‌های راداری نظارتی در نزدیکی تنگه هرمز را هدف قرار دادند.
+
+این عملیات پاسخی متناسب به حملات اخیر علیه نیروهای آمریکایی و کشتی‌های تجاری بین‌المللی در حال عبور از آب‌های منطقه بود.
+
+نیروهای آمریکایی همچنان هوشیار و در موضع آمادگی برای دفاع در برابر تجاوزات توجیه‌ناپذیر ایران باقی می‌مانند.
+CENTCOM
+
+📡 @VahidOnline
+</div>
+
+## kianmeli1 — post 87838
+
+<div align="center">
+  <a href="telegram/content/kianmeli1_87838_1781053979.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴شلیک چندین موشک از خمین بسمت پایگاه های امریکایی
+
+ساعت ۴:۳۷ صبح
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87837
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87837_1781053980.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴گزارش نهایی عملیات سنتکام
+
+سنتکام: «نیروهای آمریکایی در پاسخ به سرنگونی دیروز یک هلیکوپتر آپاچی ارتش آمریکا، حملات دفاع از خود علیه ایران را تکمیل کردند... این نیروها با مهمات دقیق از جنگنده‌های نیروی هوایی و دریایی ایالات متحده، به پدافند هوایی، ایستگاه‌های کنترل زمینی و سایت‌های رادار نظارتی ایران در نزدیکی تنگه هرمز حمله کردند. این عملیات پاسخی متناسب به حملات اخیر به نیروهای آمریکایی و کشتی‌های تجاری بین‌المللی در حال عبور از آب‌های منطقه‌ای بود. نیروهای آمریکایی هوشیار و آماده دفاع در برابر تجاوز بی‌دلیل ایران هستند.»
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 341428
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341428_1781053981.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قرارگاه مرکزی خاتم الانبیا اعلام کرد ارتش و سپاه در پاسخ به حمله‌های جدید آمریکا علیه جمهوری اسلامی، برخی از پایگاه‌های آمریکا در منطقه هدف حمله‌های قرار دادند.
+این قرارگاه تاکید کرد در صورت تکرار حملات آمریکا، جمهوری اسلامی «حملات سهمگین و گسترده‌تری» علیه بانک اهداف تعیین شده در منطقه انجام خواهد شد.
+
+https://iranintl.com/202606100414
+</div>
+
+## IranIntlTV — post 341427
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341427_1781053982.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سپاه پاسداران اعلام کرد در پاسخ به حمله‌های آمریکا علیه جمهوری اسلامی، نیروی دریایی سپاه ساعت ۲.۳۰ بامداد ناوگان پنجم دریایی بحرین را هدف حمله پهپادی قرار داد.
+طبق اعلام سپاه، آمریکا در اوایل بامداد چهارشنبه چند نقطه در جاسک، سیریک و قشم را مورد حمله قرار داد که به یک دکل مخابراتی در سیریک خساراتی وارد آمد و دو مخزن آب بخش بمانی این شهرستان منهدم شد.
+سپاه با اشاره به اینکه درگیری‌ها ادامه دارد و نیروهایش در حال پاسخ گفتن به حملات هستند، تاکید کرد: «در صورت ادامه حملات نیروهای متخاصم، پاسخ‌های سنگین‌تری در راه است.»
+
+https://iranintl.com/202606108587
+</div>
+
+## Shin_Persian — post 6835
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://x.com/hey_itsmyturn/status/2064515668649640089?s=20
+</div>
+
+## Shin_Persian — post 6833
+
+<div align="center">
+  <a href="telegram/content/Shin_Persian_6833_1781053982.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+Shin ✓ @hey_itsmyturn
+Fri, 13 Mar 2026 02:46:44 UTC
+
+Getting some rest,
+Take care of yourselves &lt;3
+
+↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
+
+ترجمه خودکار فارسی
+
+کمی استراحت می‌کنم،
+مراقب خودتان باشید <3
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6832
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Wed, 10 Jun 2026 01:08:59 UTC
+
+IRGC claims that the downed UAV was a Reaper.
+
+ترجمه خودکار فارسی
+
+سپاه پاسداران انقلاب اسلامی (IRGC) ادعا می‌کند که پهپاد سرنگون شده از نوع ریپر (Reaper) بوده است.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6831
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Wed, 10 Jun 2026 01:08:15 UTC
+
+IRGC: A UAV was shot down over Jam, Bushehr Province, Iran
+
+ترجمه خودکار فارسی
+
+سپاه پاسداران انقلاب اسلامی (IRGC): یک پهپاد بر فراز جم در استان بوشهر ایران سرنگون شد.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6830
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Wed, 10 Jun 2026 01:04:29 UTC
+
+"U.S. Completes Strikes in Response to Iran’s Attack on Apache"
+
+- CENTCOM
+
+ترجمه خودکار فارسی
+
+«ایالات متحده حملات تلافی‌جویانه در پاسخ به حمله ایران به آپاچی را به پایان رساند»
+
+- سنتکام (ستاد فرماندهی مرکزی ایالات متحده)
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 220201
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️پاسخ اسرائيل به خط‌ ونشان جمهوری اسلامی؛ پایان مصونیت محله مسیحی‌نشین صور با فرمان تخلیه فوری
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220200
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220200_1781053983.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️سنتکام دقایقی قبل اعلام کرد که ایالات متحده در پاسخ به حمله جمهوری اسلامی به هلی‌کوپتر آپاچی، حملات خود به جمهوری اسلامی را تکمیل کرد.
+@FarsiVOA
+</div>
+
+## IranianMinds — post 22047
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22047_1781053983.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 هم اکنون سید مجید:
+
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22046
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22046_1781053984.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😤دنبال یه سایت شرط بندی بین المللی بودی که به ایرانیا خدمات بده؟!
+⛔
+
+
+👍دربی بت همون انتخاب  100%
+
+
+💎ویژگی های سایت جهانی Derby Bet:
+
+⬅️امکان شارژ امن با کارت بانکی
+
+⬅️واریز اول دوبل شارژ می شوید(بونوس۱۰۰٪)
+
+⬅️پر اپشن ترین سایت فعال در ایران
+
+⬅️تسویه حساب کمتر از 5 دقیقه
+
+⬅️برگشت بخشی از باخت به صورت هفتگی
+
+
+🚨کد هدیه ثبت نام:GG007
+
+
+⚠️برای دانلود اپلکیشن کلیک کنید
+👉
+E19
+
+🔔کانال دربی بت :
+
+🪙https://t.me/+aCbq7yy8QY80NzQ0
+</div>
+
+---
 📅 بروزرسانی: 1405/03/20 04:33
 ---
 

@@ -7,6 +7,234 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/20 05:03
+---
+
+## VahidOOnLine — post 244612
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244612_1781055225.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+منابع پاکستانی بامداد چهارشنبه به «افغانستان‌اینترنشنال» گفتند که این کشور حملات هوایی را علیه آنچه «اردوگاه‌ها و زیرساخت‌های تروریستی» خوانده‌ است، در ولایت‌های خوست، پکتیکا و کنر انجام داده‌ است.
+تاکنون درباره اهداف مورد نظر و تلفات یا خسارات احتمالی ناشی از آن‌ها جزییات دقیقی ارائه نشده است. مقامات محلی طالبان نیز تا این لحظه درباره این رویدادها ابراز نظر نکرده‌اند.
+
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342786
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342786_1781055226.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH LIVE: Graham Platner speaks at primary election headquarters in Maine https://twitter.com/i/broadcasts/1OGwbbpPvqWKB
+</div>
+
+## pm_afshaa — post 93242
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بحرین آژیر خطر حمله فعال شد. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93241
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بحرین آژیر خطر حمله فعال شد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93240
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93240_1781055227.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ساعتی پیش در شبکه خبر، یهویی کلیپ شبیه سازی انفجار بمب هسته‌ای پخش شد! 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93239
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93239_1781055228.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴یک مقام ارشد آمریکایی به فاکس نیوز: وضعیت همچنان فعاله و نیروهای نظامی آمریکا آماده پاسخگویی در صورت تصمیم ایران به تلافی هستند. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93238
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شلیک موشک از الیگودرز لرستان 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93237
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93237_1781055229.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴یک مقام ارشد آمریکایی به فاکس نیوز:
+وضعیت همچنان فعاله و نیروهای نظامی آمریکا آماده پاسخگویی در صورت تصمیم ایران به تلافی هستند.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## VahidOnline — post 76128
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76128_1781055230.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرنگار فاکس‌ نیوز، جنیفر گریفین می‌گوید که یک مقام ارشد آمریکایی به او گفت که سه‌شنبه شب به وقت واشنگتن ۲۰ هدف در داخل ایران هدف قرار گرفت. این مقام گفت اگرچه حملات آمریکا به گفته سنتکام پایان یافته است، ارتش آمریکا آماده است تا در صورت تصمیم جمهوری اسلامی برای تلافی، واکنش نشان دهد.
+@VahidHeadline
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 341431
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341431_1781055230.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های اجتماعی وابسته به جمهوری اسلامی ویدیویی منتشر کرده‌اند که نشان می‌دهد یک پهپاد جمهوری اسلامی از فراز آسمان عراق به‌سوی هدفی در حال پرواز است.
+فرماندهی مرکزی ایالات متحده، سنتکام، ساعاتی پیش با انتشار اطلاعیه‌ای در شبکه اجتماعی ایکس اعلام کرد در پاسخ به سرنگونی یک هلیکوپتر آپاچی آمریکا، حملاتی را در دفاع از خود علیه ایران آغاز کرده است.
+سنتکام تاکید کرد که این عملیات، پاسخی متناسب به تجاوز غیرموجه ایران است.
+رسانه‌های داخلی نیز از حملات به قشم، سیریک، جاسک، کوه مبارکه و بندرعباس خبر دادند.
+گزارش‌های منتشرشده حاکی است سپاه پاسداران حملات موشکی و پهپادی را در منطقه آغاز کرده است.
+</div>
+
+## IranIntlTV — post 341430
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341430_1781055231.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+منابع پاکستانی بامداد چهارشنبه به «افغانستان‌اینترنشنال» گفتند که این کشور حملات هوایی را علیه آنچه «اردوگاه‌ها و زیرساخت‌های تروریستی» خوانده‌ است، در ولایت‌های خوست، پکتیکا و کنر انجام داده‌ است.
+تاکنون درباره اهداف مورد نظر و تلفات یا خسارات احتمالی ناشی از آن‌ها جزییات دقیقی ارائه نشده است. مقامات محلی طالبان نیز تا این لحظه درباره این رویدادها ابراز نظر نکرده‌اند.
+
+
+https://iranintl.com/202606104572
+</div>
+
+## Shin_Persian — post 6838
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Wed, 10 Jun 2026 01:30:28 UTC
+
+Blasts heard in #Bahrain 🇧🇭
+
+ترجمه خودکار فارسی
+
+صدای انفجارهایی در #Bahrain 🇧🇭 شنیده شد.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6837
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Wed, 10 Jun 2026 01:28:55 UTC
+
+Bahrain MOI: Sirens sounded. Citizens and residents urged to remain calm, head to nearest safe place, and follow official channels.
+
+#Bahrain 🇧🇭
+
+Source: @moi_bahrain
+https://x.com/moi_bahrain/status/2064520099243921819
+
+ترجمه خودکار فارسی
+
+وزارت کشور بحرین: آژیرهای خطر به صدا درآمدند. از شهروندان و ساکنان درخواست می‌شود آرامش خود را حفظ کنند، به نزدیک‌ترین مکان امن بروند و کانال‌های رسمی را دنبال کنند.
+
+#Bahrain 🇧🇭
+
+منبع: @moi_bahrain
+https://x.com/moi_bahrain/status/2064520099243921819
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 220203
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220203_1781055232.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️خبرنگار فاکس‌ نیوز، جنیفر گریفین می‌گوید که یک مقام ارشد آمریکایی به او گفت که سه‌شنبه شب به وقت واشنگتن ۲۰ هدف در داخل ایران هدف قرار گرفت. این مقام گفت اگرچه حملات آمریکا به گفته سنتکام پایان یافته است، ارتش آمریکا آماده است تا در صورت تصمیم جمهوری اسلامی برای تلافی، واکنش نشان دهد.
+@FarsiVOA
+</div>
+
+## DW_Farsi — post 125750
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125750_1781055233.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 سنتکام: حملات تلافی‌جویانه آمریکا در پاسخ به سرنگونی بالگرد آپاچی پایان یافت
+
+فرماندهی مرکزی نیروهای آمریکا (سنتکام) بامداد چهارشنبه ۱۰ ژوئن با انتشار بیانیه‌ای رسمی اعلام کرد، حملات تلافی‌جویانه و تکمیلی نیروهای ارتش ایالات متحده علیه مواضعی در ایران به پایان رسیده است.
+
+بنا بر این بیانیه، این عملیات که به دستور مستقیم دونالد ترامپ، رئیس‌جمهور آمریکا انجام شد، پاسخی به سرنگونی یک فروند بالگرد آپاچی ارتش آمریکا از سوی ایران در روز سه‌شنبه ۹ ژوئن بوده است.
+
+به گزارش سنتکام، جنگنده‌های نیروی هوایی و نیروی دریایی ایالات متحده با استفاده از مهمات هوشمند و دقیق، پدافند هوایی، ایستگاه‌های کنترل زمینی و رادارهای نظارتی ایران را در نزدیکی تنگه هرمز هدف قرار دادند.
+
+ارتش آمریکا این عملیات را یک پاسخ متناسب به حملات اخیر علیه نیروهای آمریکایی و کشتی‌های تجاری بین‌المللی در حال تردد در آب‌های منطقه خواند.
+
+در پایان این بیانیه تاکید شده است که نیروهای آمریکایی همچنان در وضعیت آماده‌باش کامل قرار دارند و برای دفاع در برابر آنچه اقدامات تجاوزکارانه و توجیه‌ناپذیر ایران نامیده شده، آمادگی دارند.
+@dw_farsi
+</div>
+
+## IranianMinds — post 22055
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مثل اینکه خبری نیست موشکا ایندفه مارمولکارم نتونسن هدف قرار بدن بریم بخوابیم
+</div>
+
+## BBCPersian — post 283298
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻 قرارگاه خاتم‌الانبیاء: پایگاه‌های آمریکا در منطقه هدف قرار گرفتند
+
+قرارگاه خاتم الانبیاء که مدیریت جنگ در ایران را بر عهده دارد، ساعتی بعد از حملات آمریکا به نقاطی در جنوب ایران با صدور اطلاعیه‌ای اعلام کرد: «در پاسخ به تجاوز ارتش تروریست آمریکا در مناطقی از جنوب کشور به بهانه واهی سقوط بالگرد خود، برخی از پایگاه‌های آمریکا در منطقه هدف هجوم قدرتمند ارتش قهرمان جمهوری اسلامی و دلاورمردان سپاه پاسداران انقلاب اسلامی قرار گرفت.»
+
+در این بیانیه هشدار داده شده است که در صورت ادامه حملات آمریکا «پاسخ‌های سهمگین‌تری» از سوی ایران داده خواهد شد.
+
+https://bbc.in/3Qflqwj
+@BBCPersian
+</div>
+
+---
 📅 بروزرسانی: 1405/03/20 04:52
 ---
 

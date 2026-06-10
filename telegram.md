@@ -7,6 +7,384 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/21 03:12
+---
+
+## VahidOOnLine — post 244826
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244826_1781134933.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ترامپ مستقیما با مقامات ارشد حکومت ایران گفتگو کرده است؛ مقامات تهران از ترامپ خواستند حملات را متوقف کند
+فاکس‌نیوز به نقل از دونالد ترامپ، رئیس‌جمهوری آمریکا گزارش داد که او به‌طور مستقیم با مقامات جمهوری اسلامی گفتگو کرده است و آنها از ترامپ خواسته‌اند که حمله‌ها را متوقف کند
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14460
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: حملات امشب به پایان رسیده.
+@withyashar
+</div>
+
+## pm_afshaa — post 93521
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93521_1781134934.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سنتکام:
+
+🚫 ادعا: سپاه پاسداران مدعی شده که تنگه هرمز بسته است.
+
+✅ واقعیت: کشتی های تجاری امشب به تردد و خروج از تنگه هرمز ادامه خواهند داد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93520
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93520_1781134935.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: این آتش بس نقض شده ترین آتش بس در تاریخ جهان بود😂
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93519
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93519_1781134935.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ گفته توافق امضا نکنید فرداشبم دوباره حمله می‌کنیم.
+</div>
+
+## pm_afshaa — post 93518
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93518_1781134936.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: حملات امشب به پایان رسیده. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93517
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93517_1781134936.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: حملات امشب به پایان رسیده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## VahidOnline — post 76176
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76176_1781134937.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+☄️ ترامپ: مقامات ایرانی در تماس مستقیم خواستند بمباران متوقف شود
+
+پست خبرنگار فاکس‌نیوز، ترجمه ماشین:
+امشب با پرزیدنت ترامپ صحبت کردم؛ در حالی که او از اتاق وضعیت، حملات نظامی آمریکا علیه ایران را زیر نظر داشت.
+
+رئیس‌جمهور به من گفت که امشب مستقیماً با مقام‌های ایرانی صحبت کرده است؛ مقام‌هایی که از او خواسته‌اند بمباران را متوقف کند.
+
+در زمان گفت‌وگوی ما، ایالات متحده ۴۹ موشک تاماهاوک شلیک کرده بود و جنگنده‌ها نیز در حال بمباران بودند. نزدیک‌ترین هدف به تهران حدود ۴۰ مایل بیرون از شهر بود.
+
+ترامپ افزود که بمباران به‌زودی متوقف خواهد شد، اما اگر آن‌ها توافق را امضا نکنند، «تا سر حد نابودی بمبارانشان می‌کنیم.»
+
+پرزیدنت ترامپ این را «نقض‌شده‌ترین آتش‌بس در تاریخ جهان» خواند.
+
+جی‌دی ونس، معاون رئیس‌جمهور، به من گفت که ایالات متحده در روند مذاکرات، هم با صداهای میانه‌رو و هم با صداهای تندروتر در ایران سروکار دارد.
+
+به‌روزرسانی‌های بیشتر در فاکس‌نیوز منتشر خواهد شد.
+TreyYingst
+
+📡 @VahidOnline
+</div>
+
+## kianmeli1 — post 87909
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87909_1781134937.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فاکس نیوز-ترامپ می‌گوید اگر ایران با توافق موافقت نکند، فردا مجدد «ایران را بمباران خواهیم کرد».
+https://t.me/kianmeli1
+</div>
+
+## Shin_Persian — post 6912
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Wed, 10 Jun 2026 23:40:38 UTC
+
+Jet activity over Fardis, Alborz Province, #Iran
+
+ترجمه خودکار فارسی
+
+فعالیت جت‌ها بر فراز فردیس، استان البرز، #Iran
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6911
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet: Aaron Rupar ✓ @atrupar Wed, 10 Jun 2026 23:25:23 UTC Fox correspondent: "I asked the president what will happen if the Iranians don't sign an agreement that was put forward by American negotiators. President Trump said, 'We'll bomb the s**t…
+</div>
+
+## Shin_Persian — post 6910
+
+<div align="center">
+  <a href="telegram/content/Shin_Persian_6910_1781134938.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+Aaron Rupar ✓ @atrupar
+Wed, 10 Jun 2026 23:25:23 UTC
+
+Fox correspondent: "I asked the president what will happen if the Iranians don't sign an agreement that was put forward by American negotiators. President Trump said, 'We'll bomb the s**t out of them tomorrow night.'"
+
+↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
+
+ترجمه خودکار فارسی
+
+خبرنگار فاکس: «من از رئیس‌جمهور پرسیدم که اگر ایرانی‌ها توافقی را که توسط مذاکره‌کنندگان آمریکایی ارائه شده است امضا نکنند، چه خواهد شد. پرزیدنت ترامپ گفت، "فردا شب دهنشون رو با بمب صاف می‌کنیم."»
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6909
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6909_1781134940.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Wed, 10 Jun 2026 23:36:05 UTC
+
+Following IRGC claims that the Strait of Hormuz is closed, U.S. Central Command says commercial ships are continuing to transit the waterway tonight.
+
+Source: @CENTCOM
+https://x.com/CENTCOM/status/2064854099418390919
+
+ترجمه خودکار فارسی
+
+در پی ادعاهای سپاه پاسداران (IRGC) مبنی بر بسته بودن تنگه هرمز، فرماندهی مرکزی ایالات متحده (سنتکام/CENTCOM) اعلام کرد که کشتی‌های تجاری امشب همچنان در حال عبور از این آبراه هستند.
+
+منبع: @CENTCOM
+https://x.com/CENTCOM/status/2064854099418390919
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 220315
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220315_1781134940.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️به گزارش رویترز آقای ترامپ به فاکس نیوز گفته است که «به‌طور مستقیم» با مقامات جمهوری اسلامی صحبت کرد و افزود ایرانی‌ها از من خواستند بمباران را متوقف کنم. آقای ترامپ گفت جت‌های جنگنده آمریکایی بر فراز آسمان ایران در حال پرواز هستند.
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 16646
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ یادتون باشه، هروقت اسرائیل و نتانیاهو وارد صحنه بشن اون موقع داستان تازه شروع خواهد شد. 🙌🏻
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16645
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هم اکنون بازی والیبال تیم حکومتی جمهوری اسلامی با برزیل 📝 Nick 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16644
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ مقام آمریکایی به وال استریت ژورنال:
+هیچ تاسیسات حیاتی ایرانی ای در حملات جاری آسیب ندیده است.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16643
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ مهر: ♦️شنیده شدن صدای فعالیت پدافند در محدوده شرق بندرعباس 🔹دقایقی پیش، صدای فعالیت پدافند در شرق بندرعباس از سوی ساکنان محلی گزارش شده است. 🔹برخی منابع، خبر از انفجار مجدد در این محدوده داده بودند اما بررسی‌های خبرنگار مهر نشان می‌دهد انفجار جدیدی در…
+</div>
+
+## Persian_Trend_Official — post 16642
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♨️ ترامپ:
+آتش‌بس با ایران، نقض‌شده‌ترین و ناقض‌ترین آتش‌بس در تاریخ جهان بود.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16641
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ مهر:
+
+♦️شنیده شدن صدای فعالیت پدافند در محدوده شرق بندرعباس
+
+🔹دقایقی پیش، صدای فعالیت پدافند در شرق بندرعباس از سوی ساکنان محلی گزارش شده است.
+
+🔹برخی منابع، خبر از انفجار مجدد در این محدوده داده بودند اما بررسی‌های خبرنگار مهر نشان می‌دهد انفجار جدیدی در بندرعباس رخ نداده است اما پدافند شرق بندرعباس برای رهگیری اهداف متخاصم فعال شده است‌.
+
+🔹از اولین ساعات بامداد پنجشنبه استان هرمزگان، خط ساحلی خلیج‌فارس و تنگه هرمز صحنه درگیری‌هایی میان نیروهای مسلح کشورمان و تروریست‌های آمریکایی بوده است.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16640
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ خبرگزاری صدا و سیما به نقل از یک مقام ارشد:
+
+ادعای ترامپ در باره تماس مقامات ایرانی با وی کذب محض است.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16639
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16639_1781134941.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♨️ ترامپ:
+به ایرانی‌ها اطلاع دادم که بمباران‌های فعلی به زودی پایان خواهد یافت.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 22240
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22240_1781134941.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سنتکام:
+
+کشتی‌های تجاری امشب همچنان در حال تردد و عبور از تنگه هرمز هستند و ادعای سپاه برای هدف قرار دادن اونا کذبه
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22239
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ به فاکس نیوز:
+
+امشب ضربات سنگینی به تهران وارد کردیم و مقام‌های ارشد ایرانی شخصاً از من خواستند که بمباران‌ها را متوقف کنم.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22238
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 وال استریت ژورنال:
+
+یک مقام آمریکایی گفت در حملات آمریکا به ایران به هیچ تاسیسات زیرساختی آسیبی وارد نشد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22237
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ :
+
+آتش بس با ایران نقض شده ترین آتش بس در تاریخ جهان بود.
+
+@IranianMinds
+</div>
+
+## alonews — post 127029
+
+<div align="center">
+  <a href="telegram/content/alonews_127029_1781134941.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈صداوسیما: ترامپ بازم دروغ گفت و عقب نشینی کرد و ما پیروز شدیم، الله اکبر
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127028
+
+<div align="center">
+  <a href="telegram/content/alonews_127028_1781134942.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ در گفتگو با فاکس نیوز:
+آتش‌بس با ایران، نقض‌شده‌ترین و ناقض‌ترین آتش‌بس در تاریخ جهان بود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/21 03:02
 ---
 

@@ -7,6 +7,313 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/20 20:04
+---
+
+## VahidOOnLine — post 244729
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244729_1781109290.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیت هگست، وزیر جنگ آمریکا، چهارشنبه در سخنرانی برای ملوانان در یک پایگاه نیروی دریایی آمریکا در کوبا، گفت عاقلانه نیست که جمهوری اسلامی بیش از این آمریکا را به چالش بکشد.
+
+همزمان دونالد ترامپ، رییس جمهوری ایالات متحده گفت که توافق هسته‌ای «کاملا مذاکره و نهایی شده» و تنها کاری که جمهوری اسلامی باید انجام دهد امضای آن است، اما تهران همچنان در حال وقت‌کشی است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342815
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342815_1781109291.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Bill Gates is testifying behind closed doors on Capitol Hill today over his yearslong relationship with Jeffrey Epstein.
+
+The Microsoft founder told the House Oversight Committee he met Epstein through trusted contacts and failed to apply the scrutiny he should have.
+
+Gates claims he never witnessed criminal conduct, never went to Epstein’s island, ranch or Florida home, and says he regrets giving Epstein any credibility.
+</div>
+
+## FoxNewsTwitter — post 342814
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342814_1781109292.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: The U.S. is taking "millions of barrels of oil" out of Iran every night, President Trump announces.
+
+"I'm going to tell you because they just figured it out. So now that they figured it out, I can tell you it was very hard for me. I wanted to say it so badly."
+
+"When it's over, you will see oil drop to where it was before."
+</div>
+
+## pm_afshaa — post 93338
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_93338_1781109294.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تهران دود بلند شده
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93337
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+برین خایه مالی vpn فروشاتون زاپاس بگیرین
+</div>
+
+## pm_afshaa — post 93336
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+برین خایه مالی vpn فروشاتون زاپاس بگیرین
+</div>
+
+## pm_afshaa — post 93335
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93335_1781109295.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: به درخواست پاکستان به آنها استراحت دادم. فیلد مارشال و نخست وزیر پاکستان عالی هستند. ما آنها رو از جنگ با هند منع کردیم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## kianmeli1 — post 87865
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴یک ساعت قبل از صبحت‌های ترامپ بمب‌افکن B-۵۲ به سمت خاورمیانه حرکت کرد
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 341529
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341529_1781109295.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیت هگست، وزیر جنگ آمریکا، چهارشنبه در سخنرانی برای ملوانان در یک پایگاه نیروی دریایی آمریکا در کوبا، گفت عاقلانه نیست که جمهوری اسلامی بیش از این آمریکا را به چالش بکشد.
+
+همزمان دونالد ترامپ، رییس جمهوری ایالات متحده گفت که توافق هسته‌ای «کاملا مذاکره و نهایی شده» و تنها کاری که جمهوری اسلامی باید انجام دهد امضای آن است، اما تهران همچنان در حال وقت‌کشی است.
+https://iranintl.com/202606105648
+</div>
+
+## IranIntlTV — post 341528
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341528_1781109296.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻جام جهانی ۲۰۲۶ از پنج‌شنبه ۲۱ خرداد با دیدار مکزیک و آفریقای جنوبی آغاز خواهد شد.
+
+🔹گزارش رضا محدث، خبرنگار ایران‌اینترنشنال از حال‌ و هوای مکزیکوسیتی پیش از شروع این مسابقات را مشاهده می‌کنید.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 341527
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341527_1781109299.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻بیست و سومین دوره جام جهانی از فردا با دیدار افتتاحیه آغاز خواهد شد. این دوره از جام جهانی برای اولین بار با حضور ۴۸ تیم و در سه کشور آمریکا، کانادا و مکزیک برگزار می‌شود.
+
+🔹توضیحات مزدک میرزایی در ویژه برنامه هت‌تریک برای جام جهانی
+
+@iranintltvsport
+</div>
+
+## FarsiVOA — post 220257
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220257_1781109300.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزیر دفاع آمریکا، پیت هگست، در دیدار از یک پایگاه نیروی دریایی در خلیج گوانتانامو در کوبا با نیروهای مستقر در این پایگاه تمرینات ورزشی انجام داد.
+
+کمتر از دو هفته پیش نیز ژنرال فرانسیس داناون، فرمانده ارشد ناظر بر نیروهای ایالات متحده در آمریکای لاتین، با مقامات ارشد نظامی کوبا در حاشیه پایگاه دریایی آمریکا در خلیج گوانتانامو در کوبا دیدار و گفت‌وگو کرده بود.
+</div>
+
+## Persian_Trend_Official — post 16497
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16497_1781109303.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این ویدیو 9 ماه پیش منتشر شده بود از هوش مصنوعی پرسیدم موضع من در این ویدیو چی بوده : تو نگفتی که «ایران هیچ ابزار مزاحمت ندارد»، بلکه گفتی: ایران می‌تواند اختلال ایجاد کند، اما بستن واقعی و پایدار تنگه هرمز عملاً ممکن/عاقلانه نیست و هزینه‌اش برای ایران…
+</div>
+
+## Persian_Trend_Official — post 16496
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16496_1781109304.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سنتکام: ساعت 11:14 شب 9 ژوئن، نیروهای آمریکایی برای دومین روز متوالی یک نفتکش را در خلیج عمان پس از آنکه یک کشتی دیگر با تلاش برای انتقال نفت از ایران، محاصره مداوم را نقض کرد، از کار انداختند.
+
+فرماندهی مرکزی ایالات متحده کشتی M/T Settebello با پرچم پالائو را هنگام عبور از خلیج عمان از کار انداخت.
+
+یک هواپیمای آمریکایی پس از آنکه خدمه بارها از دستورالعمل‌های نیروهای آمریکایی پیروی نکردند، مهمات دقیق به موتورخانه کشتی شلیک کرد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 22114
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+باز نشتی گاز داریم تو‌ تهران انگار
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22113
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22113_1781109306.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴یک ساعت قبل از سخنان ترامپ، این بمب‌افکن B-52 به سمت خاورمیانه حرکت نمود.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22112
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22112_1781109307.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 سنتکام :
+
+یه تانکر نفتی ایرانی که میخواست محاصره رو‌ دور‌ بزنه و وارد بنادر ایران بشه رو‌ امروز در دریای عمان از کار انداختیم و گرفتیمش.
+
+@IranianMinds
+</div>
+
+## alonews — post 126897
+
+<div align="center">
+  <a href="telegram/content/alonews_126897_1781109309.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری/یدونه B2 داره میاد خاورمیانه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126896
+
+<div align="center">
+  <a href="telegram/content/alonews_126896_1781109309.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈علی خضریان، عضو کمیسیون امنیت ملی مجلس: براساس اطلاعات دقیق و میدانی، تعداد کشته‌های ارتش آمریکا تا به امروز ۵۰۰ نفر بوده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126895
+
+<div align="center">
+  <a href="telegram/content/alonews_126895_1781109312.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فرماندهی مرکزی ایالات متحده: ساعت 11:14 شب در 9 ژوئن، پس از اینکه کشتی دیگری با تلاش برای انتقال نفت از ایران، محاصره جاری را نقض کرد، نیروهای آمریکایی برای دومین روز متوالی یک نفتکش را در خلیج عمان از کار انداختند.
+
+
+🔴فرماندهی مرکزی ایالات متحده (CENTCOM) M/T Settebello با پرچم پالائو را هنگام عبور از خلیج عمان غیرفعال کرد.
+
+
+🔴پس از اینکه خدمه بارها از دستورات نیروهای آمریکایی پیروی نکردند، یک هواپیمای آمریکایی مهمات دقیق را به سمت موتورخانه کشتی شلیک کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126894
+
+<div align="center">
+  <a href="telegram/content/alonews_126894_1781109315.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈گزارشگر: برخی افراد نگرانند که دریافت ویزا برای جام جهانی روز به روز سخت‌تر خواهد شد.
+
+
+🔴 پرزیدنت ترامپ: ما بسیار نزدیک با هم کار می‌کنیم تا مطمئن شویم افراد درست وارد کشور ما می‌شوند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126893
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 ترامپ درباره جمهوري اسلامي ایران و پاکستان: من به درخواست پاکستان به آن‌ها (تهران) فرصتی دادم. مارشال میدان و نخست‌وزیر پاکستان افراد بزرگی هستند.
+
+
+🔴ما مانع از جنگ آن‌ها با هند شدیم
+
+﻿
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126892
+
+<div align="center">
+  <a href="telegram/content/alonews_126892_1781109317.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: وقتی جنگ تمام شود، تورم مانند سنگ پایین خواهد آمد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126891
+
+<div align="center">
+  <a href="telegram/content/alonews_126891_1781109317.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: ما میلیون‌ها بشکه نفت را خارج کرده‌ایم، که امروز برای اولین بار اعلام می‌کنم، اما ما قبلاً میلیون‌ها بشکه نفت را خارج کرده بودیم. هر شب نفت را خارج می‌کردیم.
+
+
+🔴اما حالا می‌خواهم به شما بگویم چون ایران تازه متوجه شده است. حالا که فهمیده‌اند، می‌توانم به شما بگویم. برای من خیلی سخت بود. خیلی می‌خواستم بگویم، اما نمی‌خواستم خرابش کنم.
+
+
+🔴میلیون‌ها بشکه نفت خارج شده است و به همین دلیل است که قیمت نفت ۸۵ تا ۹۰ دلار به ازای هر بشکه است نه ۲۵۰ دلار.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/20 19:54
 ---
 

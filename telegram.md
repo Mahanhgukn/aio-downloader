@@ -7,6 +7,79 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/20 17:44
+---
+
+## WithYashar — post 14322
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نتانیاهو خطاب به اردوغان: به من درس اخلاق نده!
+
+
+نتانیاهو مدعی شد: «اردوغان، دیکتاتور یهودستیز که مرتکب نسل‌کشی علیه کردها می‌شود، از سازمان تروریستی حماس حمایت می‌کند، مردم خود را سرکوب می‌کند و مخالفان سیاسی خود را زندانی می‌کند، او آخرین کسی است که می‌تواند به دولت اسرائیل درس اخلاق بدهد.»
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342802
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342802_1781100877.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+“This is not justice, this is trying to make an example!!!”
+
+Cardi B coming under fire for her reaction to Karmelo Anthony’s guilty verdict in the stabbing death of Austin Metcalf.
+
+The rapper is blasting the verdict, arguing it was less about justice and more about making an example out of the defendant.
+
+Anthony was sentenced to 35 years in prison for the murder of Metcalf after fatally stabbing him at a high school track meet in April 2025.
+</div>
+
+## VahidOnline — post 76134
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76134_1781100878.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قوه قضائیه جمهوری اسلامی روز چهارشنبه ۲۰ خرداد خبر داد که صادق زیباکلام، استاد سابق دانشگاه تهران و فعال سیاسی، بازداشت شده است.
+
+خبرگزاری میزان، وابسته به دستگاه قضائی ایران، اعلام کرد که «قرار نظارت قضائی» بر آقای زیباکلام روز ۱۷ خرداد تشدید شده بود و به دلیل انجام مصاحبه‌ای جدید، علیه او اعلام جرم و سپس صبح امروز بازداشت شد.
+
+اعلام جرم روز ۱۷ خرداد در پی انتشار مصاحبه صادق زیباکلام با شبکه بریتانیایی «کانال ۴» رخ داد.
+این فعال و تحلیلگر سیاسی در این گفت‌وگو به زبان انگلیسی، علی خامنه‌ای، رهبر سابق جمهوری اسلامی، را «ستون فقرات تندروها» در ایران خواند و گفت او در طول مدت رهبری خود به مدت ۳۶ سال ایده‌هایی مانند «آمریکاستیزی، نابودی اسرائیل، حمایت از حماس و حزب‌الله» داشت.
+زیباکلام درباره مجتبی خامنه‌ای، رهبر جدید، نیز گفت تردید دارد او ایده‌های پدرش را داشته باشد و همچنین اعلام کرد که او نمی‌تواند قدرت و جایگاه رهبر سابق جمهوری اسلامی را به دست بیاورد.
+
+او در اردیبهشت ۱۴۰۳ در پی تشکیل سه پرونده قضائی بازداشت شده بود و تیر ماه همان سال به دلیل «ابتلا به بیماری سرطان» از زندان آزاد شد.
+@VahidHeadline
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 76133
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76133_1781100879.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏🔴«از آغاز سال ۲۰۲۶، بنیاد عبدالرحمن برومند دست‌کم ۷۱۱ مورد اعدام را در ایران ثبت کرده است. این آمار شامل دست‌کم ۶۶ مورد اعدام در ماه مه و ۱۸ مورد تنها در نه روز اول ماه جون است.
+
+‏@IranRights
+</div>
+
+## IranIntlTV — post 341497
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341497_1781100880.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بنیامین نتانیاهو، نخست‌وزیر اسرائیل، از احتمال حمله به مواضع جمهوری اسلامی بدون حمایت آمریکا خبر داد و وزیر دفاع این کشور نیز درباره هرگونه اقدام تهران برای گسترش درگیری‌ها هشدار داد. جمشید برزگر، روزنامه‌نگار و تحلیلگر سیاسی، در این خصوص به ایران‌اینترنشنال گفت آنچه طی دو ماه گذشته «آتش‌بس» نامیده شده، در عمل تنها کاهش شدت درگیری‌ها بوده و تنش‌های پراکنده همچنان ادامه داشته است.
+@iranintltv
+</div>
+
+---
 📅 بروزرسانی: 1405/03/20 17:33
 ---
 

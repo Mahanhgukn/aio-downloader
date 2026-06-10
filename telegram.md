@@ -7,6 +7,274 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/20 04:23
+---
+
+## VahidOOnLine — post 244605
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244605_1781052787.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️خبرگزاری مهر، همزمان با تداوم حملات آمریکا به جنوب ایران، به نقل از منابع محلی از شنیده شدن صدای انفجار در اهواز خبر داد و نوشت:‌ «هنوز جزییاتی از علت و مکان دقیق این حادثه منتشر نشده است».
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244604
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244604_1781052788.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش‌ها از دور جدید صداهای انفجار در مناطق جنوبی ایران خبر می‌دهد. رسانه‌های جمهوری اسلامی از صداهای انفجار در بندرعباس خبر دادند. خبرگزاری مهر نیز از شنیده شدن مجدد صدای انفجار در شهرستان جاسک و چندین صدای انفجار در قشم خبر داد.
+گزارش‌های منتشر شده در فضای مجازی از شنیده شدن صداهای انفجار در جم بوشهر و اهواز خبر می‌دهد.
+همچنین طبق پیام‌های مخاطبان، حدود ساعت یک بامداد صدای چند انفجار از جزیره قشم ، سیریک و جاسک به گوش رسید.
+مخاطبان همچنین در پیام‌هایی به ایران‌اینترنشنال از صداهای چند انفجار مهیب در بندرعباس خبر دادند.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## pm_afshaa — post 93222
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93222_1781052789.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سپاه پاسداران: ناوگان پنجم دریایی آمریکا تو بحرین رو با پهپاد زدیم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93221
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اگه سپاه جواب این حمله رو نداد میشه گفت این هشدار واقعی و جدی بوده
+</div>
+
+## pm_afshaa — post 93220
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93220_1781052790.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴قرارگاه مرکزی حضرت خاتم الانبیا: در پاسخ به تجاوز ارتش آمریکا در مناطقی از جنوب کشور به بهانه واهی سقوط بالگرد خود، برخی از پایگاه‌های آمریکا در منطقه هدف هجوم قدرتمند ارتش قهرمان جمهوری اسلامی و سپاه پاسداران قرار گرفت. ارتش آمریکا بدونه که در صورت تکرار…
+</div>
+
+## pm_afshaa — post 93219
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93219_1781052791.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴قرارگاه مرکزی حضرت خاتم الانبیا:
+
+در پاسخ به تجاوز ارتش آمریکا در مناطقی از جنوب کشور به بهانه واهی سقوط بالگرد خود، برخی از پایگاه‌های آمریکا در منطقه هدف هجوم قدرتمند ارتش قهرمان جمهوری اسلامی و سپاه پاسداران قرار گرفت.
+
+ارتش آمریکا بدونه که در صورت تکرار تعرض به جمهوری اسلامی، حملات سهمگین و گسترده‌تر علیه بانک اهداف تعیین شده در منطقه انجام خواهد شد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93218
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93218_1781052792.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ساعتی پیش در شبکه خبر، یهویی کلیپ شبیه سازی انفجار بمب هسته‌ای پخش شد! 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93217
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+میگن صداوسیما رو هک کردن اینم هشدار بمب اتم توسط آمریکا بود.
+</div>
+
+## IranIntlTV — post 341426
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341426_1781052793.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش‌ها از دور جدید صداهای انفجار در مناطق جنوبی ایران خبر می‌دهد. رسانه‌های جمهوری اسلامی از صداهای انفجار در بندرعباس خبر دادند. خبرگزاری مهر نیز از شنیده شدن مجدد صدای انفجار در شهرستان جاسک و چندین صدای انفجار در قشم خبر داد.
+گزارش‌های منتشر شده در فضای مجازی از شنیده شدن صداهای انفجار در جم بوشهر و اهواز خبر می‌دهد.
+همچنین طبق پیام‌های مخاطبان، حدود ساعت یک بامداد صدای چند انفجار از جزیره قشم ، سیریک و جاسک به گوش رسید.
+مخاطبان همچنین در پیام‌هایی به ایران‌اینترنشنال از صداهای چند انفجار مهیب در بندرعباس خبر دادند.
+
+https://iranintl.com/202606105970
+</div>
+
+## Shin_Persian — post 6827
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Wed, 10 Jun 2026 00:48:06 UTC
+
+IRGC Khatam al Anbiya:
+"In response to the aggression by the terrorist U.S. military in southern regions of the country, under the false pretext of a helicopter crash, several U.S. bases in the region were subjected to a powerful assault by the heroic army of the Islamic Republic and the brave men of the Islamic Revolutionary Guard Corps."
+Adds:
+"The criminal U.S. military should be aware that any repeat aggression against the Islamic Republic of Iran will result in severe and widespread attacks against identified target banks in the region."
+
+ترجمه خودکار فارسی
+
+قرارگاه خاتم‌الانبیا سپاه پاسداران انقلاب اسلامی:
+«در پاسخ به تجاوزات ارتش تروریست ایالات متحده در مناطق جنوبی کشور، که با بهانه دروغین سقوط بالگرد صورت گرفت، چندین پایگاه آمریکا در منطقه مورد حمله قدرتمندانه ارتش قهرمان جمهوری اسلامی و دلاورمردان سپاه پاسداران انقلاب اسلامی (IRGC) قرار گرفتند.»
+می‌افزاید:
+«ارتش جنایتکار آمریکا باید بداند که هرگونه تکرار تجاوز علیه جمهوری اسلامی ایران، منجر به حملات شدید و گسترده علیه بانک‌های هدف شناسایی شده در منطقه خواهد شد.»
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6826
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6826_1781052793.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet: Shin ✓ @hey_itsmyturn Wed, 10 Jun 2026 00:26:11 UTC 0024Z Loud explosion in Ahvaz, Khuzestan Province, #Iran (Eyewitness believes it was a strike) ↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید. ترجمه خودکار فارسی ۰۰۲۴ زولو (۰۳:۵۴…
+</div>
+
+## Shin_Persian — post 6825
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6825_1781052794.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+Shin ✓ @hey_itsmyturn
+Wed, 10 Jun 2026 00:26:11 UTC
+
+0024Z
+Loud explosion in Ahvaz, Khuzestan Province, #Iran
+(Eyewitness believes it was a strike)
+
+↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
+
+ترجمه خودکار فارسی
+
+۰۰۲۴ زولو (۰۳:۵۴ به وقت تهران)
+انفجار مهیب در اهواز، استان خوزستان، #Iran
+(شاهد عینی معتقد است که این یک حمله بوده است)
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 220198
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220198_1781052795.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️دو مقام آمریکایی به شبکه سی‌بی‌اس نیوز گفتند که ارتش آمریکا در حملات روز سه‌شنبه (به وقت واشنگتن)، پدافند‌های هوایی و سایت‌های راداری جمهوری اسلامی را هدف قرار داد. این عملیات آمریکا در واکنش به حمله جمهوری اسلامی به یک هلی‌کوپتر آپاچی در هفته جاری است.
+@FarsiVOA
+</div>
+
+## DW_Farsi — post 125748
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125748_1781052795.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 "آغاز موج سوم حملات"؛ گزارش کاربران از انفجار در جم، قشم و بندرعباس
+
+باراک راوید، خبرنگار پایگاه خبری اکسیوس، اعلام کرد، "ارتش ایالات متحده موج سوم حملات خود را علیه مواضعی در ایران آغاز کرده است". این عملیات تلافی‌جویانه بنا به اعلام فرماندهی مرکزی ایالات متحده (سنتکام)، در پاسخ به سرنگونی یک بالگرد آپاچی ارتش آمریکا صورت می‌گیرد.
+
+هم‌زمان، کانال تلگرامی وحیدآنلاین پیام‌های متعددی از سوی شهروندان در جنوب ایران منتشر کرده که حاوی گزارش‌هایی از شنیده شدن صدای انفجار و فعال شدن پدافند هوایی در ساعات اولیه بامداد است.
+
+بر اساس این گزارش‌های تاییدنشده، حوالی ساعت ۳:۳۳ تا ۳:۳۵ بامداد چهارشنبه، صدای انفجار و لرزش شدید در شهرستان جم واقع در استان بوشهر احساس شده است.
+
+همچنین گزارش‌هایی از لرزش‌های پیاپی در جزیره قشم و شنیده شدن صدای انفجار در بندرعباس حوالی ساعت ۳:۳۸ بامداد منتشر شده که برخی کاربران آن را به هدف قرار گرفتن پایگاه هوایی بندرعباس نسبت می‌دهند. کاربران همچنین از شنیده شدن صدای انفجار در اهواز خبر داده‌اند.
+
+مقامات رسمی ایران هنوز درباره این اخبار اظهار نظر نکرده‌اند.
+
+📌تصویر از آرشیو
+@dw_farsi
+</div>
+
+## IranianMinds — post 22042
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22042_1781052796.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یه ساعت پیش شبکه خبر صداوسیما اینطوری هک شد :
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22041
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22041_1781052799.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وضعیت جاسک
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22040
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 قرارگاه مرکزی خاتم الانبیا :
+
+پایگاه های آمریکایی رو هدف قرار دادیم.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22039
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سید مجید خوابه ؟
+</div>
+
+## IranianMinds — post 22038
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22038_1781052800.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وضعیت پشم ریزون‌ جنوب کشور زیر بمباران سنگین
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 283294
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️گزارش‌ها از موج سوم حملات هوایی آمریکا به نقاطی در جنوب ایران
+
+باراک راوید، گزارشگر اکسیوس می‌گوید مقام های نظامی آمریکا از آغاز موج سوم حملات هوایی خود به نقاطی در جنوب ایران خبر داده‌اند.
+
+همزمان خبرگزاری‌های ایران از گزارش‌های تایید نشده مبنی بر شنیدن صدای انفجار در اهواز و همچنین سقوط یک «شیی ناشناس» در حوالی بوشهر نوشته‌اند اما هیچ کدام را تایید نکرده‌اند.
+
+خبرگزاری ایرنا هم از چندین انفجار متوالی حوالی ساعت ۳:۲۴ بامداد چهارشنبه در شهر بندرعباس خبر داد اما می‌گوید که محل این انفجارها مشخص نیست.
+
+خبرگزاری مهر هم گزارش کرده که صدای انفجار در جزیره قشم شنیده شده است.
+https://bbc.in/3Q6UZcc
+@BBCPersian
+</div>
+
+---
 📅 بروزرسانی: 1405/03/20 04:12
 ---
 

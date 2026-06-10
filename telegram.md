@@ -7,6 +7,227 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/21 00:22
+---
+
+## VahidOOnLine — post 244781
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244781_1781124743.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ابراهیم رضایی، سخنگوی کمیسیون امنیت ملی مجلس شورای اسلامی، روز چهارشنبه ۲۰ خردادماه با انتشار پیامی در شبکه اکس نوشت: «در جنگ ۱۲ روزه وسعت آب‌های سرزمینی ایران افزایش یافت، در جنگ بعدی شاید وسعت خاک ایران افزایش یابد.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14384
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزیر جنگ آمریکا درباره ایران:
+فرماندهی مرکزی امشب بسیار شلوغ خواهد بود
+@withyashar 💥
+</div>
+
+## WithYashar — post 14383
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزیر ارتباطات: از سرعت اینترنت راضی نیستم
+@withyashar 😂
+</div>
+
+## mwarmonitor — post 10651
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 وزیر جنگ آمریکا درباره ایران:
+
+🔸فرماندهی مرکزی امشب مشغول خواهد بود.
+
+🔸ایالات متحده تأسیسات اصلی در ایران را بمباران خواهد کرد.
+
+🔸حملاتی که امشب رخ خواهد داد، شدید و آشکار خواهند بود.
+
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 93385
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93385_1781124744.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وزیر دفاع آمریکا:
+حملات امشب، موضع دیپلماتیک و منافع نظامی آمریکا رو تقویت خواهد کرد و من مطمئنم بعد از این حملات ایران نرم میشه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93384
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93384_1781124744.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴هگست، وزیر جنگ آمریکا:
+تأسیسات اصلی در ایران رو بمباران خواهیم کرد. حملاتی که امشب رخ خواهد داد، شدید و آشکار خواهند بود.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93383
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امشب جنگه اماده باشید
+</div>
+
+## pm_afshaa — post 93382
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پیت هگست، وزیر جنگ آمریکا:
+سنتکام امشب کار زیادی خواهد داشت، چون ترامپ گفته که ما به ایران حمله سنگینی خواهیم کرد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93381
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فوووری
+</div>
+
+## kianmeli1 — post 87882
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری
+
+وزیر جنگ امریکا:حملات امشب قوی و شفاف خواهد بود
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87881
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87881_1781124745.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری-خبرهایی از حمله قریب الوقوع امشب به ایران است
+
+وزیر هگزت می‌گوید پس از آنکه پرزیدنت ترامپ گفت ایالات متحده به حمله به ایران ادامه خواهد داد، ستاد مرکزی ارتش امشب مشغول خواهد بود.
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 341583
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341583_1781124745.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیت هگست، وزیر جنگ آمریکا، در جمع خبرنگاران گفت حملاتی که امشب به ایران انجام خواهد شد، «قوی و روشن» خواهد بود و فرماندهی مرکزی آمریکا امشب درگیر عملیات خواهد بود.
+
+او افزود آمریکا تاسیسات کلیدی در جمهوری اسلامی را بمباران می‌کند و امشب «ضربه سختی» وارد خواهد کرد.
+https://iranintl.com/202606106813
+</div>
+
+## Shin_Persian — post 6869
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Wed, 10 Jun 2026 20:48:35 UTC
+
+Well,
+POTUS said there will be strikes on Iran today,
+Hegseth said the same thing.
+
+Let's sit and watch.
+
+ترجمه خودکار فارسی
+
+خب،
+رئیس‌جمهور ایالات متحده (POTUS) گفت که امروز حملاتی علیه ایران انجام خواهد شد،
+هگست هم همین را گفت.
+
+بیایید بنشینیم و تماشا کنیم.
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 220288
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220288_1781124746.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️کلی میر،‌خبرنگار نیوزنیشن گزارش داد پس از آنکه پرزیدنت ترامپ گفت ایالات متحده به حمله به جمهوری اسلامی ادامه خواهد داد، پیت هگست، وزیر جنگ آمریکا اعلام کرد سنتکام امشب مشغول خواهد بود.
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 16536
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16536_1781124746.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیت هگست: حملاتی که امشب به ایران انجام خواهد شد، واضح و قوی خواهد بود.
+
+اگر فردا شب انجام شود، قوی و واضح خواهد بود. در طول این مدت، ایران فرصتی برای انجام معامله دارد. نکته همین است.
+
+این شروع دوباره جنگ نیست بلکه تعیین شرایط برای توافق است، پروژه آزادی هیچ وقت متوقف نشد بلکه مخفیانه پیش رفت.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16535
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16535_1781124747.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیت هگست: سنتکام امشب سر شلوغی خواهد داشت زیرا ترامپ گفته است که ما به ایران ضربه سختی خواهیم زد، و این کار را خواهیم کرد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## alonews — post 126972
+
+<div align="center">
+  <a href="telegram/content/alonews_126972_1781124749.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزیر دفاع آمریکا: ایران طرف ضعیف‌تر است و حمله‌ای که امروز یا فردا انجام خواهیم داد، قدرتمند خواهد بود.
+
+
+🔴 تأسیسات کلیدی در ایران را بمباران خواهیم کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/21 00:12
 ---
 

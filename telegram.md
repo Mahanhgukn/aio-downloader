@@ -7,6 +7,186 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/20 18:24
+---
+
+## VahidOOnLine — post 244699
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244699_1781103297.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسماعیل کوثری، عضو کمیسیون امنیت ملی مجلس، به رسانه‌های ایران گفت طرح تنگه هرمز آماده شده و پس از بازگشایی مجلس در دستور کار قرار خواهد گرفت.
+
+او گفت همه اقدامات و بررسی‌های تخصصی در این زمینه انجام شده و کمیسیون امنیت ملی کار خود را به پایان رسانده است.
+
+کوثری افزود کشورهای جنوب خلیج فارس باید مانع «سوءاستفاده» آمریکا از امکانات منطقه شوند و هشدار داد هرگونه تنش، امنیت و منافع کشورهای منطقه را نیز تحت تاثیر قرار خواهد داد.
+
+این نماینده مجلس تاکید کرد حضور آمریکا در غرب آسیا به نفع کشورهای منطقه نیست و باید برای پایان دادن به این حضور تلاش شود.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## mwarmonitor — post 10618
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_10618_1781103298.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+BREAKING:
+
+The 21-year-old French soldier Florian Gillet died today in Lebanon after being accidentally shot during a military exercise.
+
+He had been deployed to Lebanon since June 1, as an infantry combat assistant instructor, helping to train the Lebanese Armed Forces.
+
+🇫🇷
+
+Subscribe Visegrád24
+</div>
+
+## FoxNewsTwitter — post 342805
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Streets in Northern Ireland descended into chaos as masked rioters torched vehicles, attacked police, and targeted immigrant families after a Sudanese asylum seeker was charged with attempted murder in a brutal stabbing.
+
+Officials say the suspect entered Northern Ireland from Ireland on a five-year visa while seeking asylum.
+
+Now police are doubling deployments as authorities urge locals not to return to the streets tonight, Greg Palkot reports. | @AmericaNewsroom @DanaPerino
+</div>
+
+## pm_afshaa — post 93306
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93306_1781103299.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴قطعنامه پیشنهادی آمریکا با همراهی سه کشور اروپایی فرانسه، انگلیس و آلمان علیه برنامه هسته‌ای جمهوری اسلامی، در نشست شورای حکام آژانس بین‌المللی انرژی اتمی به تصویب رسید.
+
+این قطعنامه با 21 رأی موافق، 10 رأی ممتنع و 3 رأی مخالف، از جمهوری اسلامی میخواد سرنوشت تأسیسات هسته‌ای بمباران‌شده و اورانیوم غنی‌شده‌ای رو که در این تأسیسات نگهداری میشد، به آژانس اطلاع بده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 341509
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341509_1781103300.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مصطفی خوش‌چشم کارشناس حکومتی مسائل استراتژیک در یک برنامه تلویزیونی گفت: نظامیان تحت فشارند چون تنها ده تا بیست درصد از پول‌هایی که تحت عنوان پاداش جنگ اختصاص داده شده بود به دست آن‌ها رسیده و هر وزیری که توانسته از این پول کنده است.
+@iranintltv
+</div>
+
+## IranIntlTV — post 341508
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341508_1781103301.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرخط خبرهای چهارشنبه ۲۰ خرداد
+@iranintltv
+</div>
+
+## IranIntlTV — post 341507
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341507_1781103303.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسماعیل کوثری، عضو کمیسیون امنیت ملی مجلس، به رسانه‌های ایران گفت طرح تنگه هرمز آماده شده و پس از بازگشایی مجلس در دستور کار قرار خواهد گرفت.
+
+او گفت همه اقدامات و بررسی‌های تخصصی در این زمینه انجام شده و کمیسیون امنیت ملی کار خود را به پایان رسانده است.
+
+کوثری افزود کشورهای جنوب خلیج فارس باید مانع «سوءاستفاده» آمریکا از امکانات منطقه شوند و هشدار داد هرگونه تنش، امنیت و منافع کشورهای منطقه را نیز تحت تاثیر قرار خواهد داد.
+
+این نماینده مجلس تاکید کرد حضور آمریکا در غرب آسیا به نفع کشورهای منطقه نیست و باید برای پایان دادن به این حضور تلاش شود.
+https://iranintl.com/202606106835
+</div>
+
+## FarsiVOA — post 220248
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220248_1781103304.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پرسش میدان: آیا گروه‌های اپوزیسیون جمهوری اسلامی از وقایعی مانند کشتار دی ماه و جنگ اخیر ایران درسی آموخت؟
+</div>
+
+## DW_Farsi — post 125781
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125781_1781103306.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 بقائی: آمریکا با نقض مکرر آتش‌بس به روند دیپلماتیک آسیب می‌زند
+
+سخنگوی وزارت خارجه ایران در پی حملات تلافی‌جویانه نظامی آمریکا، گفت، جمهوری اسلامی "بنا بر اقتضا از دیپلماسی و نیز نیروی نظامی استفاده خواهد کرد".
+
+حملات اخیر آمریکا در پاسخ به سرنگونی هلی‌کوپتر این کشور در سواحل عمان توسط ایران انجام شد.
+
+اسماعیل بقائی روز چهارشنبه ۲۰ خرداد درباره آخرین وضعیت مذاکرات خاتمه جنگ میان ایران و آمریکا خاطرنشان ساخت: «با توجه به تحولات دیشب [حملات آمریکا به مواضعی در ایران] باید وضعیت جاری را بررسی کنیم. روند دیپلماتیک در خلاء اتفاق نمی‌افتد و برای پیشبرد هر فرایند دیپلماتیکی، نیازمند فضای حداقلی هستید تا بتوان کار را پیش برد.»
+
+به گزارش ایرنا، بقائی در پاسخ به پرسشی درباره این که روند گفت‌وگوها با آمریکا با وجود آتش‌بس شکننده‌ای که میان دو کشور برقرار است تا چه زمانی ادامه پیدا خواهد کرد گفت: «باید بررسی شود، دیپلماسی و میدان دو امر جدا از هم نبوده و در امتداد و عرض یکدیگر برای صیانت از منافع و امنیت ایران هستند.»
+@dw_farsi
+</div>
+
+## IranianMinds — post 22089
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فوری
+
+قطعنامه پیشنهادی آمریکا با همراهی سه کشور اروپایی فرانسه، انگلیس و آلمان علیه برنامه هسته‌ای جمهوری اسلامی، در نشست شورای حکام آژانس بین‌المللی انرژی اتمی به تصویب رسید.
+
+این قطعنامه که با 21 رأی موافق، 10 رأی ممتنع و 3 رأی مخالف به تصویب رسید، از جمهوری اسلامی میخواد سرنوشت تأسیسات هسته‌ای بمباران‌شده و اورانیوم غنی‌شده‌ای رو که در این تأسیسات نگهداری میشد، به آژانس اطلاع بده.
+
+
+@IranianMinds
+</div>
+
+## alonews — post 126842
+
+<div align="center">
+  <a href="telegram/content/alonews_126842_1781103307.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈یک حمله هوایی اسرائیلی در حومه شهر سحمر در منطقه البقاع غربی، شرق لبنان.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126841
+
+<div align="center">
+  <a href="telegram/content/alonews_126841_1781103307.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تصویب قطعنامه آمریکا در شورای حکام سازمان انرژی اتمی علیه ایران 
+🔴یک روز قبل از جنگ دوازده روزه هم اتفاق مشابهی در آژانس انرژی اتمی رخ داده بود. 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126840
+
+<div align="center">
+  <a href="telegram/content/alonews_126840_1781103308.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سردار شکارچی : تو دهنی محکمی به ترامپ زدیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/20 18:14
 ---
 

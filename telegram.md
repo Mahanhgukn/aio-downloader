@@ -7,6 +7,49 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/20 06:13
+---
+
+## VahidOOnLine — post 244620
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244620_1781059390.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ارتش کویت صبح چهارشنبه اعلام کرد سامانه‌های پدافند هوایی این کشور در حال درگیری با اهداف هوایی متخاصم هستند. پیشتر، سپاه و ارتش جمهوری اسلامی از حمله به «اهداف آمریکایی» در منطقه خبر داده بودند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## pm_afshaa — post 93265
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93265_1781059390.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سخنگوی طالبان: دیشب ارتش پاکستان حریم هوایی افغانستان رو نقض کرد و چند خونه مسکونی رو در ولایت‌های کنر، خوست و پکتیکا بمباران کرد. تو این حملات 11 کودک، یک زن و یک مرد سالمند کشته شدن و 14 نفر دیگه زخمی شدن. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino &…
+</div>
+
+## pm_afshaa — post 93264
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93264_1781059391.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سخنگوی طالبان:
+دیشب ارتش پاکستان حریم هوایی افغانستان رو نقض کرد و چند خونه مسکونی رو در ولایت‌های کنر، خوست و پکتیکا بمباران کرد.
+
+تو این حملات 11 کودک، یک زن و یک مرد سالمند کشته شدن و 14 نفر دیگه زخمی شدن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+---
 📅 بروزرسانی: 1405/03/20 06:03
 ---
 

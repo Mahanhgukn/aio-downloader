@@ -7,6 +7,380 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/20 20:34
+---
+
+## VahidOOnLine — post 244733
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244733_1781111078.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گیدئون ساعر، وزیر خارجه اسرائیل، در شبکه ایکس نوشت شورای حکام آژانس بین‌المللی انرژی اتمی قطعنامه‌ای تصویب کرد که نقض تعهدات حکومت ایران در چارچوب پیمان منع گسترش سلاح‌های هسته‌ای را برجسته می‌کند.
+
+وزیر خارجه اسرائیل افزود خودداری حکومت ایران از همکاری و اعطای دسترسی نمی‌تواند ادامه یابد و ارجاع پرونده به شورای امنیت سازمان ملل ضروری و بسیار دیرهنگام است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14351
+
+<div align="center">
+  <img src="telegram/content/WithYashar_14351_1781111079.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش مردمی: آتش سوزی بزرگ میدان قیام تهران
+انبار فرش ، بغل پمپ بنزین زیر پل ری!
+@withyashar
+</div>
+
+## mwarmonitor — post 10632
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📌ارتش اسرائیل:
+در پایان ارزیابی وضعیت، سیاست‌های دفاعی فرماندهی جبهه داخلی بدون تغییر باقی می‌ماند و تا یکشنبه ۱۴ ژوئن ۲۰۲۶، ساعت ۲۰:۰۰ همچنان اجرا خواهد شد.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10631
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+من پیامی برای شما دارم، مردم لبنان.
+اسرائیل با شما در جنگ نیست. ما با حزب‌الله در جنگ هستیم؛ که کشور شما را به گروگان گرفته است، که دستورات ایران را اجرا می‌کند، که از خاک شما استفاده می‌کند تا حملات تروریستی علیه اسرائیل انجام دهد.
+آیا به یاد دارید که لبنان قبل از اینکه ایران و حزب‌الله آن را به یک کابوس تبدیل کنند، چگونه بود؟
+کافه‌ها را به یاد دارید؟ فرهنگ را به یاد دارید؟ آرامش را به یاد دارید؟
+همه این‌ها از بین رفته است، چون حزب‌الله و ایران می‌خواهند ما را بارها و بارها و بارها به جنگ بکشانند.
+شما شایسته بهتری هستید. فرزندان شما شایسته بهتری هستند. شما تا الان دیگر می‌دانید که اسرائیل هر کاری که لازم باشد انجام خواهد داد تا از خانواده‌هایمان و جوامعمان محافظت کند.
+حزب‌الله ضعیف‌تر از هر زمان دیگری است؛ اسرائیل قوی‌تر از هر زمان دیگری است. ما تاکنون نزدیک به 10,000 تروریست حزب‌الله را از پای درآورده‌ایم. ما به طور سیستماتیک در حال پاکسازی جنوب لبنان از این متعصبان هستیم. مهم نیست کجا باشند، ما آن‌ها را پیدا خواهیم کرد.
+شما همچنین می‌دانید که ما مشتاق صلح با شما هستیم، با لبنان؛ صلحی که در آن هر دو ملت ما بتوانند با هم سرمایه‌گذاری کنند، با هم بسازند و با هم شکوفا شوند.
+تنها مانع، تنها سد در برابر این چشم‌انداز زیبا، حزب‌الله است. آن‌ها جنگ می‌خواهند، نه صلح. آن‌ها مرگ می‌خواهند، نه زندگی. آن‌ها تا جایی که ممکن باشد از شما قربانی خواهند کرد تا به اهداف بیمارگونه خود برسند.
+اجازه ندهید آینده‌تان توسط تئوکرات‌های (دین‌سالاران) قرون‌وسطایی دیکته شود که کمر به نابودی تمدن مشترک ما بسته‌اند.
+اسرائیل با شما صلح می‌خواهد. آینده خود را در دست بگیرید. به اسرائیل بپیوندید. امنیت و شکوفایی را برای همه فرزندانمان بسازید.
+و هنگامی که حزب‌الله برچیده شود، امکانات بی‌پایان خواهند بود و بسیار فراتر از تصور خواهند شد.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10630
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_10630_1781111079.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## pm_afshaa — post 93341
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93341_1781111082.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴هگست، وزیر جنگ آمریکا:
+عاقلانه نیست جمهوری اسلامی بیشتر از این آمریکا رو به چالش بکشه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93340
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93340_1781111082.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سخنگوی کمیسیون انرژی مجلس:
+امسال تابستون کمبود برق کمتری نسبت به پارسال داریم اما اگه صرفه‌جویی نکنیم زمستون سختی داریم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5551
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5551_1781111083.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+👑 پیام شاهزاده رضا پهلوی خطاب به ملت ایران، امشب ساعت ۲۱ به وقت ایران از شبکه‌های اجتماعی ایشان، تلویزیون انقلاب ملی ایران و دیگر رسانه‌ها پخش خواهد شد.
+
+#شاهزاده_رضا_پهلوی
+@DEJradio
+</div>
+
+## IranIntlTV — post 341538
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341538_1781111083.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس جمهوری ایالات متحده، درباره جنگ ایران گفت وقتی این درگیری پایان یابد، قیمت نفت به‌شدت کاهش خواهد یافت.
+
+او افزود هر شب میلیون‌ها بشکه نفت (از تنگه هرمز) خارج می‌کنیم. امروز برای نخستین بار این را اعلام می‌کنم. حالا که آن‌ها متوجه شده‌اند، می‌توانم بگویم.
+
+ترامپ ادامه داد برخی پیش‌بینی می‌کردند بازار سهام پس از این حملات تا ۲۵ درصد سقوط کند، اما جلوگیری از دستیابی جمهوری اسلامی به سلاح هسته‌ای «ارزشش را داشت».
+
+او همچنین گفت نگران بود قیمت نفت تا ۲۵۰ دلار در هر بشکه افزایش یابد، اما اکنون حدود ۸۵ دلار است.
+https://iranintl.com/202606103445
+</div>
+
+## IranIntlTV — post 341537
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341537_1781111084.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس جمهوری ایالات متحده، درباره جنگ ایران گفت وقتی این درگیری پایان یابد، قیمت نفت به‌شدت کاهش خواهد یافت.
+
+او افزود هر شب میلیون‌ها بشکه نفت (از تنگه هرمز) خارج می‌کنیم. امروز برای نخستین بار این را اعلام می‌کنم. حالا که آن‌ها متوجه شده‌اند، می‌توانم بگویم.
+
+ترامپ ادامه داد برخی پیش‌بینی می‌کردند بازار سهام پس از این حملات تا ۲۵ درصد سقوط کند، اما جلوگیری از دستیابی جمهوری اسلامی به سلاح هسته‌ای «ارزشش را داشت».
+
+او همچنین گفت نگران بود قیمت نفت تا ۲۵۰ دلار در هر بشکه افزایش یابد، اما اکنون حدود ۸۵ دلار است.
+https://iranintl.com/202606103445
+</div>
+
+## IranIntlTV — post 341536
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341536_1781111085.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ گفت: «دیروز ضربه سختی به آن‌ها زدیم و امروز هم دوباره ضربه سختی خواهیم زد. ایران باید توافق را امضا کند.»
+
+گفت‌وگو با سمیرا قرایی و بابک اسحاقی، خبرنگاران ایران‌اینترنشنال، و روح‌الله رحیم‌پور، روزنامه‌نگار و تحلیلگر سیاسی
+@iranintltv
+</div>
+
+## IranIntlTV — post 341535
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341535_1781111087.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس جمهوری ایالات متحده، درباره جنگ ایران گفت وقتی این درگیری پایان یابد، قیمت نفت به‌شدت کاهش خواهد یافت.
+
+او افزود هر شب میلیون‌ها بشکه نفت (از تنگه هرمز) خارج می‌کنیم. امروز برای نخستین بار این را اعلام می‌کنم. حالا که آن‌ها متوجه شده‌اند، می‌توانم بگویم.
+
+ترامپ ادامه داد برخی پیش‌بینی می‌کردند بازار سهام پس از این حملات تا ۲۵ درصد سقوط کند، اما جلوگیری از دستیابی جمهوری اسلامی به سلاح هسته‌ای «ارزشش را داشت».
+
+او همچنین گفت نگران بود قیمت نفت تا ۲۵۰ دلار در هر بشکه افزایش یابد، اما اکنون حدود ۸۵ دلار است.
+https://iranintl.com/202606103445
+</div>
+
+## IranIntlTV — post 341534
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341534_1781111088.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گیدئون ساعر، وزیر خارجه اسرائیل، در شبکه ایکس نوشت شورای حکام آژانس بین‌المللی انرژی اتمی قطعنامه‌ای تصویب کرد که نقض تعهدات حکومت ایران در چارچوب پیمان منع گسترش سلاح‌های هسته‌ای را برجسته می‌کند.
+
+وزیر خارجه اسرائیل افزود خودداری حکومت ایران از همکاری و اعطای دسترسی نمی‌تواند ادامه یابد و ارجاع پرونده به شورای امنیت سازمان ملل ضروری و بسیار دیرهنگام است.
+https://iranintl.com/202606104874
+</div>
+
+## Shin_Persian — post 6865
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Wed, 10 Jun 2026 17:00:43 UTC
+
+Economic Fury sanctions target 9 individuals and entities facilitating weapons procurement for Iran's IRGC and MODAFL through China- and Hong Kong-based networks, including clandestine banking operations.
+
+𝐈𝐑𝐆𝐂 𝐏𝐑𝐎𝐂𝐔𝐑𝐄𝐌𝐄𝐍𝐓 𝐍𝐄𝐓𝐖𝐎𝐑𝐊
+
+Individuals:
+- 𝐋𝐢𝐮 𝐁𝐨𝐲𝐮 (Chinese national): Sole director and president of Mustad Limited, facilitated millions in IRGC weapons transactions
+- 𝐖𝐚𝐧𝐠 𝐇𝐨𝐧𝐠𝐲𝐢 (Chinese national): Mustad employee working on IRGC weapons procurement
+- 𝐗𝐮 𝐋𝐢𝐜𝐡𝐮𝐧 (Chinese national): Mustad employee supporting IRGC procurement operations
+
+Entities:
+- 𝐌𝐮𝐬𝐭𝐚𝐝 𝐒𝐡𝐚𝐧𝐠𝐡𝐚𝐢 𝐈𝐧𝐭𝐞𝐫𝐧𝐚𝐭𝐢𝐨𝐧𝐚𝐥 𝐓𝐫𝐚𝐝𝐞 𝐂𝐨 𝐋𝐭𝐝 (Shanghai-based): Wholly owned subsidiary of previously designated Mustad Limited
+- 𝐃𝐨𝐦𝐮𝐬 𝐓𝐫𝐚𝐝𝐢𝐧𝐠 𝐇𝐊 𝐋𝐢𝐦𝐢𝐭𝐞𝐝 (Hong Kong-based): Operates within Iran's clandestine banking network, facilitates payments for Iranian blocked persons and weapons procurement
+
+𝐌𝐎𝐃𝐀𝐅𝐋 𝐏𝐑𝐎𝐂𝐔𝐑𝐄𝐌𝐄𝐍𝐓 𝐍𝐄𝐓𝐖𝐎𝐑𝐊
+
+Individuals:
+- 𝐌𝐚𝐧𝐮𝐜𝐡𝐞𝐡𝐫 𝐆𝐨𝐥𝐜𝐡𝐢𝐧 (China-based Iranian national): MODAFL defense acquisitions facilitator from China, chairman of Shangshun Hong Kong Ltd
+- 𝐌𝐞𝐧𝐠 𝐒𝐡𝐚𝐨𝐩𝐞𝐢 (Chinese national): Managing director and 100% owner of Solos International Limited, accomplice of Golchin
+
+Entities:
+- 𝐒𝐨𝐥𝐨𝐬 𝐈𝐧𝐭𝐞𝐫𝐧𝐚𝐭𝐢𝐨𝐧𝐚𝐥 𝐋𝐢𝐦𝐢𝐭𝐞𝐝 (Hong Kong-based): Facilitates weapons procurement for MODAFL
+- 𝐒𝐡𝐚𝐧𝐠𝐬𝐡𝐮𝐧 𝐇𝐨𝐧𝐠 𝐊𝐨𝐧𝐠 𝐋𝐭𝐝 (Hong Kong-based): Oversees international partnerships under Golchin's direction
+
+𝐋𝐄𝐆𝐀𝐋 𝐀𝐔𝐓𝐇𝐎𝐑𝐈𝐓𝐈𝐄𝐒
+- Executive Order 13382 (WMD proliferators): Liu Boyu, Xu Lichun, Wang Hongyi, Mustad Shanghai, Golchin, Meng, Solos, Shangshun
+- Executive Order 13902 (Iran financial sector): Domus Trading
+- Concurrent State Department sanctions on 2 Iran/Belarus entities under E.O. 13949
+
+𝐄𝐂𝐎𝐍𝐎𝐌𝐈𝐂 𝐅𝐔𝐑𝐘 𝐒𝐂𝐎𝐏𝐄
+Treasury reports disrupting tens of billions in Iranian regime revenue through frozen cryptocurrency assets, shadow banking network crackdowns, shadow fleet vessel targeting, and oil trade blockade enforcement. Secondary sanctions risks identified for foreign financial institutions and China's "teapot" refineries supporting Iranian commerce.
+
+ترجمه خودکار فارسی در بخش نظرات
+
+𝕏 · @shin_persian
+</div>
+
+## Persian_Trend_Official — post 16501
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16501_1781111089.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک بمب افکن B-52 نیروی هوایی ایالات متحده پس از تهدید های دونالد ترامپ مبنی بر بمباران سخت ایران راهی خاورمیانه شد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## RadioFarda — post 158155
+
+<div align="center">
+  <a href="https://t.me/radiofarda/158155" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📻بشنوید: ایستگاه ۱۹ با رادیوفردا، ۲۰ خرداد ۱۴۰۵
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 22122
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22122_1781111090.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 نتانیاهو خطاب به مردم لبنان:
+
+سرنوشت خود را در دست بگیرید.
+به اسرائیل بپیوندید.
+برای فرزندانمان امنیت و رفاه بسازید.
+پس از برچیده شدن حزب‌الله، فرصت‌ها بی‌پایان خواهند بود.
+آینده‌ای با امکانات بسیار بزرگ در انتظار لبنان است.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 283356
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283356_1781111092.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌🔻دونالد ترامپ، رئیس‌جمهور آمریکا، که در جمع خبرنگاران در کاخ سفید صحبت می‌کرد با اشاره به حمله دیشب این کشور به اهدافی در ایران گفت: «ما دیروز ضربت سختی به آن‌ها وارد کردیم و امروز هم دوباره ضربت سختی خواهیم زد. اگر
+متوجه نشده‌اید یا تلویزیون را روشن نکرده‌اید، این را بدانید. خواهیم دید که در مورد توافق چه اتفاقی می‌افتد. ما واقعا بسیار به دستیابی به یک توافق نزدیک بودیم.»
+
+او گفت گفت که موضوع ساده است «ایران نمی‌تواند سلاح هسته‌ای داشته باشد و نخواهد داشت» و ادامه داد که ایران با این موضوع «موافقت» کرده‌ است.
+
+رئیس جمهور آمریکا افزود تنها کاری که ایران باید انجام دهد این است که سند این توافقنامه را امضا کند.
+
+آقای ترامپ گفت: «همه‌چیز کاملا مذاکره و نهایی شده است. ما یک توافق کاملا مذاکره‌ شده داریم، اما آن‌ها مدام تعلل می‌کنند» و افزود: «من می‌گویم بسیار خب، چند روز دیگر هم به آن‌ها فرصت بدهیم چون این یک سند مهم و معنادار است.»
+
+رئیس جمهور آمریکا توافق برجام که در زمان باراک اوباما با ایران امضا شد را «یکی از بدترین و یکی از احمقانه‌ترین اسناد» خواند که او تا کنون دیده است.
+📷AFP via Getty
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 391596
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ:
+اونا هلیکوپتر مارو زدن ما دوباره باید به اونا حمله کنیم.
+
+بمب افکن B52 آمریکایی در نزدیکی اسرائیل در حال حرکت به سمت ایرانه
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391595
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391595_1781111093.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👑 شاهزاده رضا پهلوی: امشب ساعت ۹ پیام مهمی دارم و می‌خوام با مردم صحبت کنم.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Hranews — post 113524
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک زندانی در زندان کرمانشاه به چوبه دار آویخته شد
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– سحرگاه روز سه‌شنبه ۱۹ خردادماه، حکم یک زندانی که پیشتر از بابت اتهام قتل به اعدام محکوم شده بود، در زندان کرمانشاه به اجرا درآمد.
+
+ادامه مطلب
+
+#عباس_زارعی
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## alonews — post 126910
+
+<div align="center">
+  <a href="telegram/content/alonews_126910_1781111093.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حنظله تهدید کرد !
+
+
+🔴گروه هکری حنظله: به تفنگداران دریایی آمریکا توصیه می‌کنیم همین حالا با خانواده‌های خود تماس بگیرند و خداحافظی کنند
+
+
+🔴 موشک‌ها آمادهٔ شلیک هستند و «حنظله» منتظر یک حماقت از سوی شماست. ضربهٔ ساعت‌های آینده تلخ خواهد بود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126909
+
+<div align="center">
+  <a href="telegram/content/alonews_126909_1781111094.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈آتش سوزی وسیع خیابان قیام تهران 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126908
+
+<div align="center">
+  <a href="telegram/content/alonews_126908_1781111094.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈آتش سوزی وسیع خیابان قیام تهران
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/20 20:24
 ---
 

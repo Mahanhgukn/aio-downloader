@@ -7,6 +7,228 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/20 13:53
+---
+
+## mwarmonitor — post 10599
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 مرگ مظلومانه و جانگداز سامیار رستمی، طفل معصوم دو ساله‌ای که در چنگال فقر جان سپرد، فراتر از یک تراژدی، سندی عریان از جنایت نظام ناپاک، غارتگر و ضدبشری جمهوری اسلامی است. لعنت و نفرین ابدی بر حکومت ضدمردمی و سفاک آخوندی که با چپاول ثروت‌های ملی و ویران کردن…
+</div>
+
+## mwarmonitor — post 10598
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_10598_1781087002.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 مرگ مظلومانه و جانگداز سامیار رستمی، طفل معصوم دو ساله‌ای که در چنگال فقر جان سپرد، فراتر از یک تراژدی، سندی عریان از جنایت نظام ناپاک، غارتگر و ضدبشری جمهوری اسلامی است. لعنت و نفرین ابدی بر حکومت ضدمردمی و سفاک آخوندی که با چپاول ثروت‌های ملی و ویران کردن اقتصاد کشور، مردم شریف و زحمت‌کش را به خاک سیاه نشانده و چنان در منجلاب فقر مفرط و فلاکت اسیر کرده است که کشاورزان درمانده برای بقای خود ناچار به کشت خشخاش شوند.
+
+🔸این رژیم تبهکار و بی‌کفایت، خون‌آشامی است که نه‌تنها زندگی و آیندهٔ جوانان، بلکه جان طفلان بی‌گناه را در کلبه‌های محرومیت می‌گیرد. مرگ سامیارِ تشنه و گرسنه در روستای نامدار عثمانوند، فریاد تظلم‌خواهی ملتی است که زیر پای استبداد و بیدادگری این حکومت دست‌وپا می‌زنند؛ فاجعه‌ای تکان‌دهنده که لکه ننگ ابدی دیگری بر پیشانی سیاه و خون‌آلود این نظام جنایت‌پیشه حک می‌کند.
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 93283
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اردوغان: حملات اسرائیل به سوریه و لبنان اکنون به تهدیدی برای ترکیه تبدیل شده
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## FarsiVOA — post 220234
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220234_1781087003.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بلومبرگ روز چهارشنبه ۱۰ ژوئن ۲۰۲۶ گزارش داد بسته‌شدن تنگه هرمز باعث افزایش عبور نفتکش‌ها از کانال سوئز مصر شده و درآمد این کشور از این مسیر را به بالاترین سطح از اوایل سال ۲۰۲۴ رسانده است.
+
+بر اساس داده‌های آژانس آمار دولتی مصر، در ماه آوریل ۲۰۲۶ در مجموع ۵۲۹ نفتکش از کانال سوئز عبور کردند. رقمی که نسبت به آوریل ۲۰۲۵ حدود ۲۸ درصد افزایش نشان می‌دهد و تقریباً معادل رشد یک‌سومی تردد نفتکش‌هاست.
+
+ترافیک کلی کانال نیز بالا رفته است به‌طوری‌که هزار و ۱۸۲ کشتی از انواع مختلف در این مسیر تردد کردند که نسبت به سال قبل ۱۴ درصد بیشتر است.
+
+بلومبرگ نوشت عبور از کانال سوئز پس از حملات حوثی‌های یمن به کشتی‌ها در جنوب دریای سرخ، طی بیش از دو سال گذشته کاهش یافته بود، اما پیامدهای جنگ آمریکا و اسرائیل علیه جمهوری اسلامی و بسته‌شدن هرمز، اکنون یک جهش غیرمنتظره برای مسیر انرژی از دریای سرخ ایجاد کرده است.
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 16452
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16452_1781087003.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به مدت چندثانیه در میانه پخش زنده شبکه خبر، کلیپی شبیه‌سازی از انفجار هسته‌ای منتشر شد
+
+برخی کاربران در فضای مجازی هک شدن را گمانه‌زنی کردند؛ با این حال تا این لحظه رسانه صدا و سیما توضیح راجب این خطا نداده است.
+
+
+👺Phantom
+
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16451
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16451_1781087005.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اردوغان، رئیس جمهور ترکیه: امنیت ترکیه نه تنها از هاتای، بلکه از حلب، دمشق و بیروت نیز آغاز می‌شود!
+
+ما هیچ گونه عمل انجام شده‌ای را در کشورهای برادر خود تحمل نخواهیم کرد و از تجاوز به آنها چشم‌پوشی نخواهیم کرد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16450
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16450_1781087007.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اردوغان، رئیس جمهور ترکیه: حملات نتانیاهو و شبکه جنایتکار او علیه سوریه و لبنان به نقطه‌ای رسیده است که نه تنها این دو کشور برادر، بلکه اکنون ترکیه را نیز تهدید می‌کند.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## RadioFarda — post 158135
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سه آمریکایی و یک ایتالیایی، فضانوردان مأموریت آرتمیس-۳
+
+🔸ناسا روز سه‌شنبه ۱۹ خرداد سه فضانورد آمریکایی و یک فضانورد ایتالیایی را به‌عنوان خدمهٔ مأموریت بعدی آرتمیس معرفی کرد.
+
+🔸مأموریت جدید آرتمیس شامل نمایش اتصال فضاپیماها در مدار زمین در سال آینده خواهد بود و برای نخستین‌بار فرودگرهای ماهِ شرکت‌های اسپیس‌ایکس متعلق به ایلان ماسک و بلو اوریجین متعلق به جف بزوس را در فضا آزمایش می‌کند.
+
+🔸جرد آیزاکمن، مدیر ناسا، در مراسمی در هیوستون، آندره داگلاس، فرانک روبیو و رندی برزنیک از آمریکا و لوکا پارمیتانو از آژانس فضایی اروپا را به‌عنوان خدمهٔ آرتمیس-۳ معرفی کرد. این مأموریت قرار است اواخر سال ۲۰۲۷ انجام شود، هرچند تاریخ دقیقی برای آن اعلام نشده است.
+
+🔸جرمی پارسونز، مدیر برنامهٔ آرتمیس ناسا، در این مراسم گفت: «آرتمیس-۳ یک عملیات چندپرتابهٔ بسیار هیجان‌انگیز، پیچیده و با هماهنگی بالا است که در یک بازهٔ زمانی کوتاه و با سه فروند از قدرتمندترین موشک‌های جهان انجام خواهد شد».
+
+🔸برزنیک ۵۸ ساله، خلبان آزمایشی سابق و کهنه‌کار سه مأموریت فضایی، به‌عنوان فرمانده مأموریت انتخاب شده است. این خدمه همچنین شامل یک رکورددار فضایی، یک تازه‌وارد به فضا و نخستین شهروند اروپایی در یک مأموریت آرتمیس است.
+
+🔸 گزارش کامل را در وب‌سایت رادیوفردا بخوانید.
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 22068
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22068_1781087008.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پزشکیان:
+
+جنگ قطعأ به نفع کشور نیست، اما اگر دشمن بخواهد به خاک ما تجاوز کند، کوتاه آمدن و تسلیم شدن ما را در خواب ببیند.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22067
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22067_1781087010.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اکانت اسرائیل به فارسی:
+
+از شبکه‌های اجتماعی😂😂😂
+
+@IranianMinds
+</div>
+
+## alonews — post 126779
+
+<div align="center">
+  <a href="telegram/content/alonews_126779_1781087010.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈اردوغان، رئیس جمهور ترکیه: امنیت ترکیه نه تنها از هاتای، بلکه از حلب، دمشق و بیروت نیز آغاز می‌شود!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126778
+
+<div align="center">
+  <a href="telegram/content/alonews_126778_1781087012.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈اردوغان: ما کاملاً آگاهیم که هدف نهایی توهم «اسرائیل بزرگ» چیست.
+
+
+🔴ان‌شاءالله هرگز اجازه نخواهیم داد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126774
+
+<div align="center">
+  <a href="telegram/content/alonews_126774_1781087013.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 اسرائیل به حملات خود به جنوب لبنان ادامه می‌دهد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126773
+
+<div align="center">
+  <a href="telegram/content/alonews_126773_1781087014.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 فیلم از آتش‌سوزی کشتی در سواحل عمان
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126772
+
+<div align="center">
+  <a href="telegram/content/alonews_126772_1781087015.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈اردوغان: اسرائیل از زمان تأسیس خود نقشی را ایفا کرده است که صلح و ثبات را در منطقه ما تهدید می‌کند و امنیت ترکیه از بیروت و دمشق آغاز می‌شود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126771
+
+<div align="center">
+  <a href="telegram/content/alonews_126771_1781087015.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈شنیده شدن صدای جنگنده در آسمان اصفهان؛ پرواز متعلق به جنگنده‌های کشور بود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/20 13:43
 ---
 

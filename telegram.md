@@ -7,6 +7,306 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/21 03:52
+---
+
+## VahidOOnLine — post 244837
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244837_1781137359.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️فاکس نیوز گزارش داد که دونالد ترامپ، جی‌دی‌ونس، معاون او و استیو ویتکاف و جرد کوشنر، مذاکره‌کنندگان با تهران از اتاق بحران کاخ سفید عملیات نظامی علیه ایران را دنبال می‌کنند. فاکس گزارش داد که ترامپ می‌گوید حکومت ایران فقط زبان زور را می‌فهمد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244836
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244836_1781137359.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روزنامه نیویورک تایمز از قول خبرنگار فاکس در تل آویو گزارش داد که دونالد ترامپ، رییس‌جمهوری آمریکا، در تماس تلفنی با او گفته، در حملات اخیر، ایالات متحده ۴۹ موشک تاماهاوک به سوی اهدافی در ایران شلیک کرده و همزمان جنگنده‌های آمریکایی نیز بمباران‌هایی انجام داده‌اند.
+
+بنا به این گزارش، ترامپ افزوده است بمباران‌ها به زودی متوقف می‌شود، اما اگر مقام‌های جمهوری اسلامی در مذاکرات با آمریکا تسلیم نشوند، حملات آمریکا، فردا شب بازهم ادامه خواهد یافت.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14466
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روابط عمومی ۳پا بعد از مصرف:
+
+رزمندگان شجاع نیروی هوافضا و قهرمانان نیروی دریایی سپاه سحرگاه امروز در تنبیه متجاوز و پاسخ به تعرض ارتش کودک کش آمریکا به بعضی از واحدهای خدماتی و پاسگاه های ساحلی سپاه و فرماندهی انتظامی و محوط فرودگاه بندرعباس طی دو موج عملیاتی هجده هدف مهم متعلق به ارتش شرور امریکا در پایگاه های هوایی علی السالم و احمدالجابر و همچنین پایگاه های هوایی شیخ عیسی را مورد اصابت قرار داده و منهدم کردند
+@withyashar 🥴
+</div>
+
+## WithYashar — post 14465
+
+<div align="center">
+  <a href="telegram/content/WithYashar_14465_1781137360.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دست پخت بی بی قالینیاهو
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342832
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342832_1781137362.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+RT @IngrahamAngle: 🚨 TRUMP'S MESSAGE TO IRAN: SIGN THE DEAL 🚨
+
+@TreyYingst : “I asked him what will happen if the Iranians do not sign an agreement.”
+
+“President Trump said, ‘We'll bomb the S*** out of them tomorrow night.’”
+</div>
+
+## pm_afshaa — post 93531
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93531_1781137362.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سپاه: سحرگاه امروز در تنبیه متجاوز و پاسخ به تعرض ارتش آمریکا به بعضی از واحدهای خدماتی و پاسگاه های ساحلی سپاه و فرماندهی انتظامی و محوط فرودگاه بندرعباس، نیروهای هوافضا و دریایی سپاه در جواب حملات آمریکا، تو دو مرحله به 18 هدف مهم آمریکایی در پایگاه‌های علی‌السالم، احمدالجابر و شیخ عیسی رو مورد هدف قرار دادن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93530
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93530_1781137363.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴گزارش‌ها از چند انفجار سنگین دیگر همراه با لرزش زمین در آبیک قزوین حکایت داره. محدوده انفجارها در کوه است. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93529
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93529_1781137363.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ارتش جمهوری اسلامی: با پهباد پایگاه‌ ناوگان پنجم آمریکا تو‌ بحرین رو زدیم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93528
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93528_1781137364.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴تسنیم: حمله ایران به برخی پایگاه‌های آمریکایی در منطقه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## VahidOnline — post 76181
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیام دریافتی از شهروندی با سابقه اخبار درست:
+"دو انفجار. نیروی دریایی سپاه سیریک"
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 76180
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پست خبرگزاری سپاهی تسنیم:
+۱۸ هدف مهم متعلق به ارتش شرور امریکا طی دو موج عملیاتی مورد هدف قرار گرفتند
+
+روابط عمومی سپاه:
+
+فَمَنِ اعْتَدَىٰ عَلَيْكُمْ فَاعْتَدُوا عَلَيْهِ بِمِثْلِ مَا اعْتَدَىٰ عَلَيْكُمْ
+
+رزمندگان شجاع نیروی هوافضا و قهرمانان نیروی دریایی سپاه سحرگاه امروز در تنبیه متجاوز و پاسخ به تعرض ارتش کودک کش آمریکا به بعضی از واحدهای خدماتی و پاسگاه های ساحلی سپاه و فرماندهی انتظامی و محوط فرودگاه بندرعباس طی دو موج عملیاتی هجده هدف مهم متعلق به ارتش شرور امریکا در پایگاه های هوایی علی السالم و احمدالجابر و همچنین پایگاه های هوایی شیخ عیسی را مورد اصابت قرار داده و منهدم کردند
+
+وَمَا النَّصرُ إِلّا مِن عِندِ اللَّهِ العَزيزِ الحَكيمِ
+
+📡 @VahidOnline
+</div>
+
+## kianmeli1 — post 87911
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴بر اساس گزارش‌های مردمی دریافتی از هشتگرد، نظرآباد، ساوجبلاغ، اشتهارد، کرج و آبیک قزوین، بامداد ۲۱ خرداد و در بازه زمانی حدود ۳:۲۰ تا ۳:۳۵، صدای چندین انفجار و امواج ناشی از آن در مناطق مختلف شرق البرز و غرب قزوین شنیده شده است.
+
+شاهدان از شنیده شدن ۵ تا ۱۰ انفجار، لرزش ساختمان‌ها و در برخی موارد مشاهده نور انفجار خبر داده‌اند.
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 341605
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341605_1781137364.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روزنامه نیویورک تایمز از قول خبرنگار فاکس در تل آویو گزارش داد که دونالد ترامپ، رییس‌جمهوری آمریکا، در تماس تلفنی با او گفته، در حملات اخیر، ایالات متحده ۴۹ موشک تاماهاوک به سوی اهدافی در ایران شلیک کرده و همزمان جنگنده‌های آمریکایی نیز بمباران‌هایی انجام داده‌اند.
+
+بنا به این گزارش، ترامپ افزوده است بمباران‌ها به زودی متوقف می‌شود، اما اگر مقام‌های جمهوری اسلامی در مذاکرات با آمریکا تسلیم نشوند، حملات آمریکا، فردا شب بازهم ادامه خواهد یافت.
+https://iranintl.com/202606112002
+</div>
+
+## Shin_Persian — post 6916
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Thu, 11 Jun 2026 00:12:10 UTC
+
+Islamic Regime's army claim they've targeted the U.S. 5th Fleet in Bahrain by drones.
+
+ترجمه خودکار فارسی
+
+ارتش رژیم اسلامی ادعا می‌کند که ناوگان پنجم ایالات متحده در بحرین را توسط پهپادها هدف قرار داده است.
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 220326
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220326_1781137365.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+طبق گزارش‌های مردمی دریافتی کانال تلگرامی وحید آنلاین از مناطق غرب استان البرز و شرق استان قزوین، از حدود ساعت ۳:۲۰ تا ۳:۴۵ بامداد ۲۱ خرداد، صدای چندین انفجار و عبور احتمالی موشک در مناطقی از هشتگرد، نظرآباد، سهیلیه، اشتهارد، ساوجبلاغ و آبیک شنیده شده است.
+
+شاهدان محلی از وقوع دست‌کم ۵ تا ۱۰ انفجار در فواصل کوتاه زمانی خبر داده‌اند و برخی نیز مشاهده نور ناشی از انفجارها را گزارش کرده‌اند.
+
+به گفته ساکنان این مناطق، شدت برخی انفجارها به حدی بوده که موجب لرزش منازل و بیدار شدن ساکنان شده است.
+
+همچنین گزارش‌هایی از شنیده شدن موج انفجار در شهر جدید هشتگرد، نظرآباد و آبیک منتشر شده است و برخی شاهدان منشأ صداها را محدوده‌های اطراف اشتهارد، هشتگرد یا کرج عنوان کرده‌اند.
+
+پیشتر دونالد ترامپ، رئيس جمهوری آمریکا به فاکس‌نیوز گفته بود ۴۹ موشک تاماهاک به مواضع جمهوری اسلامی حمله شد و برخی از این اهداف در حدود ۶۰ کیلومتری تهران قرار داشتند.
+
+او در عین حال گفت هواپیماهای آمریکایی بر فراز ایران پرواز می‌کنند.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220324
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220324_1781137365.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️خبرنگار فاکس‌نیوز، تری یینگست، که چهارشنبه شب با دونالد ترامپ، رئیس جمهوری آمریکا صحبت کرد، می‌گوید طرز فکر آقای ترامپ این است که جمهوری اسلامی دو گزنیه دارد، یا توافق می‌کند و یا باید ضربات ادامه‌دار نیروهای آمریکایی را دریافت ‌کند.
+@FarsiVOA
+</div>
+
+## DW_Farsi — post 125799
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125799_1781137365.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 سنتکام: تردد کشتی‌ها در تنگه هرمز همچنان ادامه دارد
+
+فرماندهی مرکزی ایالات متحده آمریکا (سنتکام) ادعای سپاه پاسداران درباره مسدود کردن کامل تنگه هرمز را رد کرد.
+
+سنتکام در شبکه ایکس نوشت: «کشتی‌های تجاری امشب نیز همچنان در تنگه هرمز تردد می‌کنند.»
+
+سپاه پاسداران در بیانیه‌ای اعلام کرده بود که هر کشتی تجاری یا نفتکش که از تنگه هرمز عبور کند، هدف حمله قرار خواهد گرفت.
+
+سنتکام همچنین ادعای ایران درباره هدف قرار گرفتن یک کشتی جنگی آمریکایی را نیز تکذیب کرد.
+
+@dw_farsi
+</div>
+
+## IranianMinds — post 22246
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 گزارش ها از چند انفجار شدید در کرج و آبیک قزوین
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 283373
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283373_1781137366.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+شبکه فاکس نیوز می‌گوید دونالد ترامپ در گفتگو با خبرنگار این شبکه گفته است «در پی تماس مستقیم ایران» و درخواست مقام ارشد این کشور مبنی بر توقف حملات، او دستور توقف حملات جدید به ایران را داده است.
+
+همزمان خبرگزاری‌های رسمی در ایران چنین ادعایی را تکذیب کرده و هرگونه تماس و درخواست از سوی ایران برای توقف حملات را «کذب» خواندند.
+
+همچنین خبرنگار فاکس نیوز گفته که دونالد ترامپ در تماس تلفنی با او از حملات موشکی با استفاده از موشک‌های تاماهاک به رادارها و تاسیسات پدافندی و هدایت پهپاد ایران در جریان حملات بامداد پنجشنبه گفته است و تصریح کرده این حملات تا عمق خاک ایران و «چند کیلومتری تهران» هم صورت گرفته است.
+
+آقای ترامپ در پاسخ به سوال فاکس نیوز مبنی بر احتمال مخالفت ایران با توافق پیشنهادی آمریکا، گفته است در این صورت «باز هم بمباران خواهند شد».
+
+دقایقی بعد از گزارش شبکه فاکس نیوز خبرگزاری سپاه نیوز که اخبار سپاه پاسداران را منتشر می‌کند این ادعا را تکذیب کرد.
+
+
+📷Reuters
+
+https://bbc.in/4fIJPot
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 391662
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک چیز بسته‌رو چند بار میشه بست آقای قرارگاه مرکزی خاتم‌الانبیا؟
+
+روزی سه بار اعلام میکنن تنگه رو بستیم در جواب فلان‌ کار ترامپ
+</div>
+
+## Dirty_Kids — post 391661
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391661_1781137366.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏در حال پیگیری اخبار خاورمیانه هر شب.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391660
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش چند انفجار شدید در غرب البرز
+
+حداقل ۵ انفجار در مجموع در نزدیکی آبیک گزارش شده است. آبیک در غرب تهران قرار دارد.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/03/21 03:42
 ---
 

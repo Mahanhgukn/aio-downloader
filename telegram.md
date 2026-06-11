@@ -7,6 +7,106 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/21 05:42
+---
+
+## VahidOOnLine — post 244850
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244850_1781143948.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️وزارت امور خارجه آمریکا روز چهارشنبه ۲۰ خردادماه اعلام کرد در چارچوب سیاست‌های دولت دونالد ترامپ برای مقابله با سوءاستفاده از قوانین مهاجرتی، چندین شبکه «گردشگری زایمان» را در آفریقا و اروپا شناسایی و متوقف کرده است. این وزارتخانه تاکید کرد هیچ تبعه خارجی نمی‌تواند با هدف اصلی دریافت شهروندی آمریکا برای فرزند خود از طریق زایمان در ایالات متحده، ویزای گردشگری دریافت کند.
+
+بر اساس بیانیه وزارت خارجه آمریکا، یکی از سفارتخانه‌های این کشور در غرب آفریقا شبکه‌ای متشکل از بیش از ۱۰۰ تبعه خارجی را شناسایی کرده که با استفاده از مدارک جعلی و واسطه‌های اخذ ویزا برای دریافت شهروندی آمریکا برای فرزندان خود اقدام می‌کردند. ویزاهای این افراد لغو شده و همکاری با مقام‌های محلی برای شناسایی فعالیت‌های مشابه ادامه دارد.
+
+این وزارتخانه همچنین اعلام کرد از سال ۲۰۲۴ تاکنون بیش از ۴۰۰ پرونده مشکوک به گردشگری زایمان در اروپا شناسایی شده است. تحقیقات نشان داده این پرونده‌ها به دست‌کم شش شرکت مرتبط بوده‌اند که به متقاضیان درباره مصاحبه ویزا آموزش می‌دادند، برای آنها محل اقامت در آمریکا فراهم می‌کردند و برنامه زایمان آنها را هماهنگ می‌کردند. به گفته وزارت خارجه آمریکا، ویزاهای مرتبط با این پرونده‌ها لغو شده و شماری از متخلفان برای همیشه از ورود به آمریکا محروم شده‌اند.
+
+وزارت خارجه آمریکا همچنین از لغو بیش از ۱۰۰ ویزا در شمال آفریقا برای والدینی خبر داد که با هدف زایمان در آمریکا و دریافت شهروندی این کشور برای فرزندان خود سفر کرده بودند. در این بیانیه تاکید شده است که «ویزای ایالات متحده یک امتیاز است، نه یک حق» و اقدامات برای مقابله با شبکه‌های گردشگری زایمان در سراسر جهان ادامه خواهد داشت.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342841
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342841_1781143948.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+U.S. forces have completed a new round of strikes inside Iran, according to U.S. Central Command.
+
+CENTCOM says U.S. Marine Corps, Air Force, and Navy assets targeted Iranian military surveillance capabilities, communication systems, and air defense sites at the Commander in Chief's direction.
+
+"The strikes are in response to Iran's unwarranted and continued aggression," the command said.
+
+Officials say the targets posed a threat to U.S. forces and international commercial shipping operating in the region.
+</div>
+
+## FoxNewsTwitter — post 342840
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+FOX NEWS REPORT: Clashes break out in Belfast after a Sudanese immigrant is charged with attempted murder in a brutal stabbing attack. Local officials are calling for peace as anti-immigration demonstrations intensify, FOX News' @GriffJenkins reports.
+</div>
+
+## pm_afshaa — post 93584
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93584_1781143950.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فعال شدن پدافند اردن
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## VahidOnline — post 76195
+
+<div align="center">
+  <a href="telegram/content/VahidOnline_76195_1781143951.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آسمان #تبریز
+ویدیوی دریافتی: عبور یک موشک از میان رد موشک‌های قبلی
+پنجشنبه ۲۱ خرداد
+Vahid
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 76194
+
+<div align="center">
+  <a href="telegram/content/VahidOnline_76194_1781143952.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی دریافتی: رد موشک شلیک‌شده در آسمان #ارومیه
+پنجشنبه ۲۱ خرداد
+Vahid
+
+📡 @VahidOnline
+</div>
+
+## FarsiVOA — post 220340
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220340_1781143952.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️گزار‌ش‌ها از شلیک موشک از چند استان در ایران
+گزارش‌های مردمی از شلیک موشک از زنجان، ارومیه و تبریز حکایت دارد. کانال تلگرامی وحیدآنلاین ویدیویی از شلیک موشک از زنجان را منتشر کرد.
+@FarsiVOA
+</div>
+
+---
 📅 بروزرسانی: 1405/03/21 05:32
 ---
 

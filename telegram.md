@@ -7,6 +7,221 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/21 13:22
+---
+
+## VahidOOnLine — post 244906
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_244906_1781171557.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی ارسالی به ایران اینترنشنال نشان می‌دهد که در ایست‌بازرسی محله شهران تهران، یک کودک با لباس نیروهای بسیج تردد شبانه خودروها را کنترل کرد. به گفته فرستنده ویدیو، همزمان در همین نقطه تجمعی حکومتی با حضور کمتر از ۲۰۰ نفر برگزار می‌شد که شرکت‌کنندگان در آن بن کالا و میوه دریافت کردند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## kianmeli1 — post 87924
+
+<div align="center">
+  <a href="telegram/content/kianmeli1_87924_1781171558.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴تهدید تلویحی ایران به حمله اتمی / کیث کلوگ، مشاور سابق ترامپ
+
+«داشتن یک جنگ طولانی مدت، روش جنگی آمریکایی نیست. ما باید به روشی که در جنگ جهانی دوم و جنگ جهانی اول انجام دادیم برگردیم و کار را تمام کنیم، آنها را نابود کنیم.»
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 341669
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341669_1781171559.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی ارسالی به ایران اینترنشنال نشان می‌دهد که در ایست‌بازرسی محله شهران تهران، یک کودک با لباس نیروهای بسیج تردد شبانه خودروها را کنترل کرد. به گفته فرستنده ویدیو، همزمان در همین نقطه تجمعی حکومتی با حضور کمتر از ۲۰۰ نفر برگزار می‌شد که شرکت‌کنندگان در آن بن کالا و میوه دریافت کردند.
+</div>
+
+## Persian_Trend_Official — post 16708
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16708_1781171561.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نهاد مدیریت آبراه خلیج فارس:
+
+تنگه‌هرمز تا اطلاع ثانوی بسته خواهد بود.
+
+
+👺Phantom
+
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## RadioFarda — post 158172
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_158172_1781171561.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸وزارت امور خارجه جمهوری اسلامی با صدور بیانیه‌ای در واکنش به حملات ارتش آمریکا به اهدافی در ایران، این اقدام را نقض قوانین بین‌المللی خوانده و گفته است این حملات آتش‌بس ۱۹ فروردین را عملا بی‌معنی کرده است.
+
+🔸در بیانیه وزارت خارجه ایران بار دیگر به کشورهای حاشیه خلیج‌فارس درباره استفاده ارتش آمریکا از قلمرو، امکانات و منابع آنها هشدار داده شده است.
+
+🔸این هشدار مجدد در حالی صادر شده که سپاه پاسداران بارها کشورهای عرب منطقه را هدف حملات پهپادی و موشکی قرار داده و ده‌ها تأسیسات غیرنظامی از جمله تأسیسات نفت و گاز در این کشورها آسیب دیده‌اند.
+
+🔸آمریکا اعلام کرده که حملات هدفمند و محدود دو روز اخیر در واکنش به سقوط یک بالگرد آن کشور بر اثر برخورد با یک پهپاد شاهد ایران انجام شده است.
+
+🔸دونالد ترامپ هم تاکید کرده که همچنان خواهان رسیدن به توافق با ایران است.
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 22284
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 کرملین:
+
+از واشنگتن و تهران می‌خواهیم خویشتنداری را رعایت کنند و به مذاکرات ادامه دهند.
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 391689
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391689_1781171562.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انلاین شاپای ایرانی خیلی خوبن
+اگه زیرش فارسی ننوشته بود پیرهن ساحلی محال بود باور کنم ایشون وطنیه😃
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391688
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391688_1781171563.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های حکومتی این ویدئو رو پخش کردن و نوشتن تصاویری از انسداد کامل تنگه‌ی هرمز،
+
+روزی ده بار تنگه‌ای که گفتن بسته‌ست رو دوباره می‌بندن کسمغرای خدعه‌زاده.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391687
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔤
+🔤
+🔤
+🔤
+🔤
+🔤
+🔤 
+🇲🇽
+⚽️#میدونستی با انتخاب برد #مکزیک مقابل #آفریقای_جنوبی در بازی افتتاحیه جام جهانی با هفت #میلیون به راحتی ده #میلیون تومن برنده میشی؟! 
+⚽️
+⚽️ برای پیش بینی این مسابقه به یک سایت مطمعن نیاز داری که سریع ترین پرداخت ها و بهترین طرح های تشویقی رو داشته…
+</div>
+
+## Dirty_Kids — post 391686
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391686_1781171564.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔤
+🔤
+🔤
+🔤
+🔤
+🔤
+🔤
+
+
+🇲🇽
+⚽️#میدونستی با انتخاب برد #مکزیک مقابل #آفریقای_جنوبی در بازی افتتاحیه جام جهانی با هفت #میلیون به راحتی ده #میلیون تومن برنده میشی؟! 
+⚽️
+⚽️
+
+برای پیش بینی این مسابقه به یک سایت مطمعن نیاز داری که سریع ترین پرداخت ها و بهترین طرح های تشویقی رو داشته باشه
+💖
+💖
+
+کجا بهتر از وبسایت بین المللی بت فیدو که بدون احراز هویت و مشکلات پرداخت از ایران، به کاربران ایرانی سرویس میده
+🥇
+
+
+همین حالا پیش بینیتو ثبت کن 
+👇
+https://fido874vt.click 
+💖
+https://fido874vt.click 
+💖
+(ورود با وی-پی-ان غیر اروپایی)
+
+
+📱 کانال تلگرام 
+🥅
+👇
+R21
+https://t.me/+dySI_QFj0T0xZGVk
+</div>
+
+## alonews — post 127110
+
+<div align="center">
+  <a href="telegram/content/alonews_127110_1781171565.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سقوط بالگرد ارتش پاکستان با دست‌کم ۲۲ کشته
+
+
+🔴ارتش پاکستان اعلام کرد: یک بالگرد MI-17 ارتش دیروز به دلیل نقص فنی در کشمیر تحت کنترل پاکستان سقوط کرد و تمام سرنشینان آن کشته شدند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127109
+
+<div align="center">
+  <a href="telegram/content/alonews_127109_1781171566.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کرملین: از واشنگتن و تهران می‌خواهیم خویشتنداری را رعایت کنند و به مذاکرات ادامه دهند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127108
+
+<div align="center">
+  <a href="telegram/content/alonews_127108_1781171566.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سه دریانورد هندی پس از حمله آمریکا به کشتی M/T Settebello مرتبط با ایران در خلیج عمان در روز چهارشنبه، جان خود را از دست داده‌اند، گزارش CNN.
+
+
+🔴 دهلی نو نماینده موقت آمریکا را برای اعتراض احضار کرده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/21 13:12
 ---
 

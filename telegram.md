@@ -7,6 +7,236 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/21 20:03
+---
+
+## VahidOOnLine — post 244995
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244995_1781195612.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ستاد فرماندهی مرکزی آمریکا، سنتکام، در شبکه ایکس نوشت تنگه هرمز همچنان برای عبور و مرور باز است.
+
+سنتکام افزود که مسیرهای امن برای کشتی‌های تجاری در تنگه هرمز تعیین شده و این مسیرها برای همه کشتی‌هایی که محاصره علیه ایران را نقض نمی‌کنند در دسترس است.
+
+بر اساس اعلام سنتکام، طی دو ماه گذشته صدها کشتی از تنگه هرمز عبور کرده‌اند و نیروهای آمریکا آماده دفاع در برابر اقدام‌های جمهوری اسلامی هستند.
+
+سنتکام تاکید کرد جمهوری اسلامی کنترل تنگه هرمز را در اختیار ندارد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244994
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244994_1781195612.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسماعیل قاآنی، فرمانده نیروی قدس سپاه پاسداران، در پیامی نوشت: «حزب‌الله به عنوان نماد مقاومت و عزت امت اسلامی، همچنان در خط مقدم دفاع از لبنان و مقابله با زیاده‌خواهی‌های اسرائیل باقی خواهد ماند و وعده الهی مبنی بر پیروزی حق بر باطل تحقق خواهد یافت.»
+
+او افزود: «اسرائیل باید بداند که اشغالگری، تجاوز و جنایات علیه مردم جنوب لبنان هرگز اراده ملت مقاوم لبنان و رزمندگان حزب‌الله را در هم نخواهد شکست.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244993
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244993_1781195613.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️باستان‌شناسان در عربستان سعودی یک کوزه سفالی باستانی حاوی بیش از ۱۰۰ قطعه جواهر طلا، نقره و سنگ‌های قیمتی را کشف کردند که احتمالا در قرن نخست هجری توسط زائری در مسیر مکه دفن شده بود.
+
+این گنجینه بی‌نظیر که «گنجینه درعیه» نام گرفته، در جریان ششمین فصل کاوش‌ها در منطقه القصیم و در یک ایستگاه کلیدی از مسیر حج بصره (بین عراق و مکه) یافت شد؛ منطقه‌ای که قدمت سکونتگاه‌های آن به سال‌های ۷۴۳ تا ۷۵۳ میلادی برمی‌گردد.
+
+به گفته کمیسیون میراث عربستان سعودی، این خمره سرامیکی شامل قطعات طلای دوران اوایل خلافت عباسی (حدود سال ۷۵۰ میلادی)، آثار نقره‌ای و مس اکسیدشده است. طلاهای یافت‌شده با نقوش اسلیمی پیچیده و طرح‌های هندسی ظریفی تزیین شده‌اند که حکایت از مهارت بالای فلزکاران آن دوران در ساخت، برجسته‌کاری و مرصع‌کاری با سنگ‌های نیمه‌قیمتی دارد.
+
+این یافته‌های ارزشمند علاوه بر نمایش هنر برجسته صدر اسلام، دانش ما را درباره سکونتگاه‌های انسانی و رونق مسیرهای کلیدی زیارتی و تجاری باستان افزایش می‌دهد. قطعات کشف‌شده اکنون در آزمایشگاه‌های مرمت عربستان سعودی در حال بازسازی هستند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342865
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342865_1781195614.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NEW: Video released by the Philadelphia Police Department shows the two suspects wanted in the murder of a Penn State student who was shot while returning home from an NBA Finals watch party.
+
+22-year-old Billy Schmidt was killed during what investigators say was an armed robbery attempt early Saturday morning, suffering a shot to the chest and pronounced dead shortly after arriving at a hospital.
+
+Authorities also say the two suspects discarded their sweatshirts and masks as they fled the scene.
+
+The Philadelphia Police Department is offering a $20,000 reward for information that leads to an arrest and conviction, asking anyone with information about the suspects to contact it.
+</div>
+
+## FoxNewsTwitter — post 342864
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌Fox News (Twitter/X)
+
+https://www.foxnews.com/us/vance-boelter-changes-plea-guilty-minn-lawmaker-shootings-killed-rep-melissa-hortman-husband
+</div>
+
+## pm_afshaa — post 93636
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93636_1781195615.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سخنگوی سپاه:
+کسی که یک مورد تجربه شده رو دوباره بخواد تجربه کنه، پشیمان میشه. اگر آمریکا میخواد شکست‌های قبلی خودش رو دوباره تجربه کنه، پشیمان خواهد شد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93635
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شاعر میگه که منو از چی میترسونی از جنگ تن به تن!؟
+من یک به هزار جنگیدم بیا چنگ بزن به من
+</div>
+
+## IranIntlTV — post 341751
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341751_1781195616.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ستاد فرماندهی مرکزی آمریکا، سنتکام، در شبکه ایکس نوشت تنگه هرمز همچنان برای عبور و مرور باز است.
+
+سنتکام افزود که مسیرهای امن برای کشتی‌های تجاری در تنگه هرمز تعیین شده و این مسیرها برای همه کشتی‌هایی که محاصره علیه ایران را نقض نمی‌کنند در دسترس است.
+
+بر اساس اعلام سنتکام، طی دو ماه گذشته صدها کشتی از تنگه هرمز عبور کرده‌اند و نیروهای آمریکا آماده دفاع در برابر اقدام‌های جمهوری اسلامی هستند.
+
+سنتکام تاکید کرد جمهوری اسلامی کنترل تنگه هرمز را در اختیار ندارد.
+https://iranintl.com/202606112612
+</div>
+
+## IranIntlTV — post 341750
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341750_1781195616.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسماعیل قاآنی، فرمانده نیروی قدس سپاه پاسداران، در پیامی نوشت: «حزب‌الله به عنوان نماد مقاومت و عزت امت اسلامی، همچنان در خط مقدم دفاع از لبنان و مقابله با زیاده‌خواهی‌های اسرائیل باقی خواهد ماند و وعده الهی مبنی بر پیروزی حق بر باطل تحقق خواهد یافت.»
+
+او افزود: «اسرائیل باید بداند که اشغالگری، تجاوز و جنایات علیه مردم جنوب لبنان هرگز اراده ملت مقاوم لبنان و رزمندگان حزب‌الله را در هم نخواهد شکست.»
+https://iranintl.com/202606119256
+</div>
+
+## Shin_Persian — post 6957
+
+<div align="center">
+  <a href="telegram/content/Shin_Persian_6957_1781195617.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Zaryon OSINT ✓ @zarGEOINT
+Thu, 11 Jun 2026 16:26:33 UTC
+
+🇮🇷🛰️ Today's satellite imagery shows an aircraft destroyed at Iran's Bandar Abbas Airport following the latest U.S. strikes.
+
+📍 Geolocation: 27.20909, 56.36896
+
+@GeoConfirmed @FaytuksNetwork @EpicFuryMap
+
+ترجمه خودکار فارسی
+
+🇮🇷🛰️ تصاویر ماهواره‌ای امروز هواپیمایی را نشان می‌دهد که در پی آخرین حملات ایالات متحده در فرودگاه بندرعباس ایران منهدم شده است.
+
+📍 موقعیت جغرافیایی: 27.20909, 56.36896
+
+@GeoConfirmed @FaytuksNetwork @EpicFuryMap
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 220396
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220396_1781195618.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل ویدیویی منتشر کرده که به گفته این نهاد، اعضای حزب‌الله در داخل یک تونل زیرزمینی در جنوب لبنان را نشان می‌دهد.
+
+ارتش اسرائیل می‌گوید این تونل در جریان عملیات در منطقه بوفور شناسایی شده و در آن انواع سلاح‌ها از جمله خمپاره، نارنجک، راکت‌انداز آر‌پی‌جی، موشک‌های کورنت، تیربار و سلاح کلاشنیکف کشف شده است.
+
+در این ویدیو فردی نیز دیده می‌شود که به گفته ارتش اسرائیل به سمت یک پهپاد اسرائیلی شلیک می‌کند.
+
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220395
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺کایا کالاس پس از تماس با وزیران امور خارجه کویت و جمهوری اسلامی: حملات رژیم به کشورهای منطقه غیرقابل قبول است
+
+▪️نماینده عالی اتحادیه اروپا در امور خارجی تداوم حملات رژیم ایران به کشورهای خلیج فارس را غیرقابل قبول دانست و بر لزوم پرهیز از جنگ تمام‌عیار و پایبندی به دیپلماسی تاکید کرد.
+
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/kaya-kallas-iranian-regime-attacks-persian-gulf-countries-iran/8159761.html/?nocach=1
+</div>
+
+## FarsiVOA — post 220394
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺هشدار پرزیدنت ترامپ به جمهوری اسلامی: توافق نشود حملات تشدید خواهد شد
+
+▪️دونالد ترامپ، رئیس جمهوری ایالات متحده، روز پنجشنبه ۲۱ خرداد در گفت‌وگویی با فاکس نیوز اعلام کرد حملات آمریکا علیه رژیم ایران ادامه خواهد یافت و حتی ممکن است در ساعات آینده گسترش پیدا کند. او همچنین گفت جمهوری اسلامی به دنبال توافق است، اما رسانه‌های آمریکا تصویر نادرستی از وضعیت ارائه می‌دهند.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/president-trump-military-operation-fox-news-interview/8159755.html/?nocach=1
+</div>
+
+## Persian_Trend_Official — post 16746
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: ترجیح من تصرف جزیره خارک است. اما مطمئن نیستم که ایالات متحده توانایی یا تمایل آن را داشته باشد. من از ایران ناامید نیستم، این توافق خوب است و ممکن است بزرگترین توافق تاریخ باشد. ایران در تبلیغات خوب است اما در جنگیدن خوب نیست. هواپیماهای ما بر فراز…
+</div>
+
+## alonews — post 127186
+
+<div align="center">
+  <a href="telegram/content/alonews_127186_1781195619.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ایران تو گروهش در جام جهانی دوم بشه و آمریکا هم دوم بشه در مرحله یک شانزدهم نهایی جام جهانی باید باهم تقابل داشته باشن
+
+
+🔴و بدین شکل ایران و آمریکا در 3 تورنمنت متفاوت با یکدیگر رقابت خواهند داشت :
+
+
+🔴جنگ ایران و آمریکا؛ هرشب ساعت 12 شب به بعد؛ از جنوب ایران
+
+
+🔴والیبال ایران و آمریکا پنجشنبه 4 تیر
+
+
+🔴 فوتبال ایران و آمریکا: جمعه 12 تیر
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/21 19:56
 ---
 

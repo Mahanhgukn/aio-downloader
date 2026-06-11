@@ -7,6 +7,182 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/22 00:23
+---
+
+## VahidOOnLine — post 245055
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245055_1781211199.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️اسماعیل بقایی، سخنگوی وزارت خارجه، پنجشنبه ۲۱ خردادماه، در یک برنامه تلویزیونی گفت تا این لحظه ایران به جمع‌بندی نهایی درباره توافق نرسیده است.
+بقایی افزود بخش عمده متن توافق نهایی شده بود، اما آمریکا در جریان مذاکرات بارها مواضع خود را تغییر داده است.
+او با اشاره به نقش قطر و پاکستان به عنوان میانجی گفت اقدامات آمریکا روند دیپلماتیک را تحت تاثیر قرار می‌دهد و وضعیت مذاکرات از ابتدا برای ایران روشن بوده است.
+سخنگوی وزارت خارجه جمهوری اسلامی همچنین تاکید کرد ایران درباره مواردی که به عنوان خطوط قرمز تعیین کرده، هیچ‌گونه مماشاتی نخواهد داشت.
+بقایی درباره گزارش‌های منتشرشده پیرامون توافق نیز گفت مواردی که مطرح می‌شود در حد گمانه‌زنی است و هنوز هیچ موضوعی نهایی نشده است. او همچنین افزود وضعیت تنگه هرمز به دلیل اقدامات آمریکا ناامن‌تر شده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245054
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245054_1781211199.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ابراهیم رضایی، سخنگوی کمیسیون امنیت ملی مجلس، در شبکه ایکس نوشت: «احتمال فریب از سوی ترامپ بالاست، او فردا معامله بزرگی در پیش دارد و می‌خواهد فعلا اوضاع را آرام نگه دارد. محکم‌تر بزنید، زیرساخت‌ها و مراکز اقتصادی و هوش مصنوعی دشمن در منطقه را ویران و نابود کنید تا بیشتر دردشان بگیرد.»
+
+این در حالی است که دونالد ترامپ اعلام کرده توافق با جمهوری اسلامی تا چند روز دیگر امضا خواهد شد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14582
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرنگار: دیروز گفتید که ایران ممکن است در حال همکاری با ایالات متحده باشد. آیا شما معتقدید که این بار در خواست خود برای پیگیری دیپلماسی صادق هستند؟
+
+ترامپ: این به سطح هیجان آغاز شده در آن بستگی دارد. ما در سه روز گذشته به شدت به آن‌ها فشار آوردیم. امشب حتی سخت‌تر به آن‌ها ضربه خواهیم زد. آن‌ها این را می‌دانستند.
+ما دقیقاً به آن‌ها گفتیم که قصد داریم چه کاری انجام دهیم.
+@withyashar
+</div>
+
+## WithYashar — post 14581
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+️واشنگتن پست: توافق بزودی در رم یا ژنو امضا میشه
+@withyashar
+</div>
+
+## WithYashar — post 14580
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ درباره رهبری ایران:
+
+من این افراد را بسیار منطقی‌تر از کسانی که دیگر در میان ما نیستند می‌یابم.
+
+این گروه متفاوتی است و فکر می‌کنم گروهی باهوش‌تر و دارای دلیل و منطق است.
+
+همه آنها این توافق را تأیید کرده‌اند.
+@withyashar
+</div>
+
+## kianmeli1 — post 87949
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبرنگار: آیا رژیم ایران عوض شده؟
+
+ترامپ: بله، نه یک بار بلکه دو بار
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87948
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ
+
+عملیات تصرف جزیره خارک از دستور کار خارج شد.
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 341806
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341806_1781211200.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ابراهیم رضایی، سخنگوی کمیسیون امنیت ملی مجلس، در شبکه ایکس نوشت: «احتمال فریب از سوی ترامپ بالاست، او فردا معامله بزرگی در پیش دارد و می‌خواهد فعلا اوضاع را آرام نگه دارد. محکم‌تر بزنید، زیرساخت‌ها و مراکز اقتصادی و هوش مصنوعی دشمن در منطقه را ویران و نابود کنید تا بیشتر دردشان بگیرد.»
+
+این در حالی است که دونالد ترامپ اعلام کرده توافق با جمهوری اسلامی تا چند روز دیگر امضا خواهد شد.
+https://iranintl.com/202606119566
+</div>
+
+## FarsiVOA — post 220427
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220427_1781211200.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️جنگ پنهان روسیه؛ استفاده از دختران برای ترور نظامیان و ایجاد ناامنی در اوکراین
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 16779
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16779_1781211201.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دفتر نخست وزیری اسرائیل: رئیس جمهور ترامپ عصر امروز با نخست وزیر نتانیاهو در مورد تفاهم نامه در حال شکل گیری با ایران برای ورود به مذاکرات صحبت کرد.
+
+اگرچه اسرائیل طرف این تفاهم نامه نیست، نخست وزیر از تعهد رئیس جمهور ترامپ مبنی بر اینکه توافق نهایی در پایان مذاکرات شامل حذف مواد غنی شده، برچیدن زیرساخت های غنی سازی، محدود کردن تولید موشک و توقف حمایت ایران از نیروهای نیابتی تروریستی خود در منطقه خواهد بود، ابراز قدردانی کرد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16778
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بقایی، سخنگوی امور خارجه: آمریکایی‌‌ها درحال القا هستند که جمهوری اسلامی تحت فشار به توافق رضایت داده، در حالیکه ما به هیچ عنوان از خطوط قرمز خود کوتاه نخواهیم آمد.
+
+اگر قرار بود ایران تحت فشار و تهدید از مواضع اصولی خود کوتاه بیاید، یک‌سال قبل این کار را انجام می‌داد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## alonews — post 127271
+
+<div align="center">
+  <a href="telegram/content/alonews_127271_1781211202.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خبرنگار: آیا رژیم ایران عوض شده؟
+
+
+🔴ترامپ: بله، نه یک بار بلکه دو بار
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127270
+
+<div align="center">
+  <a href="telegram/content/alonews_127270_1781211202.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈واشنگتن پست: توافق قطعی شده و بزودی در ژنو یا رم امضا خواهد شد 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127269
+
+<div align="center">
+  <a href="telegram/content/alonews_127269_1781211202.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈واشنگتن پست: توافق قطعی شده و بزودی در ژنو یا رم امضا خواهد شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/22 00:13
 ---
 

@@ -7,6 +7,106 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/21 13:33
+---
+
+## VahidOOnLine — post 244907
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244907_1781172184.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️وقوع زمین‌لرزه به بزرگی چهار در نورآباد ممسنی
+
+♦️رسانه‌های داخلی ایران صبح پنجشنبه ۲۱ خردادماه از وقوع زمین‌‌لرزه‌ای به بزرگی چهار در نورآباد ممسنی استان فارس خبر دادند.
+
+به گزارش مرکز لرزه‌نگاری کشوری وابسته به مؤسسه ژئوفیزیک دانشگاه تهران، زمان دقیق وقوع این زمین‌لرزه را ساعت ۹:۴۹اعلام کرد.
+
+براساس این گزارش، این زلزله در عمق ۱۰ کیلومتری زمین روی داد.
+
+هنوز گزارشی از خسارات احتمالی این زمین‌لرزه منتشر نشده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## DEJradio — post 5583
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5583_1781172185.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🔸 #رقص_اعتراض
+برنامه «زیرصدا» با آرش
+
+#زیرصدا
+@DEJradio
+</div>
+
+## Shin_Persian — post 6927
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6927_1781172185.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet: H. Memarian @HEMemarian Thu, 11 Jun 2026 06:59:03 UTC Evidence suggests that Iran used Acoustic UAV-detection microphone array as an early-warning system during the recent conflict! ↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید. …
+</div>
+
+## Shin_Persian — post 6926
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6926_1781172186.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+H. Memarian @HEMemarian
+Thu, 11 Jun 2026 06:59:03 UTC
+
+Evidence suggests that Iran used Acoustic UAV-detection microphone array as an early-warning system during the recent conflict!
+
+↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
+
+ترجمه خودکار فارسی
+
+شواهد نشان می‌دهد که ایران در طول درگیری‌های اخیر، از آرایه میکروفونی تشخیص صوتی پهپاد به عنوان یک سیستم هشدار زودهنگام استفاده کرده است!
+
+𝕏 · @shin_persian
+</div>
+
+## BBCPersian — post 283420
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283420_1781172187.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+داده‌های رهگیری کشتی‌ها نشان می‌دهد که سه نفتکش حامل گاز طبیعی مایع (ال‌ان‌جی) که مدتی با سامانه‌های موقعیت‌یاب خاموش حرکت می‌کردند، از تنگه هرمز عبور کرده و راهی مقاصدی در آسیا شده‌اند.
+
+به گزارش رویترز این تحول در حالی است که آمریکا و ایران برای دومین روز متوالی حملات هوایی علیه یکدیگر انجام داده‌اند و نگرانی‌ها درباره امنیت کشتیرانی در منطقه افزایش یافته است.
+
+دو کشتی «لبریثه» و «رشیده» تحت مدیریت قطر انرژی و نفتکش «مری‌گلد» تحت مدیریت شرکت ملی نفت ابوظبی، پس از عبور از تنگه هرمز در مسیر پاکستان، هند و جنوب شرق آسیا قرار گرفته‌اند.
+
+بر اساس این داده‌ها، از زمان آغاز جنگ در اواخر فوریه تاکنون دست‌کم ۱۲ محموله گاز طبیعی مایع از تنگه هرمز عبور کرده‌اند.
+
+📸 Reuters
+
+https://bbc.in/4v5B0d7
+@BBCPersian
+</div>
+
+## alonews — post 127111
+
+<div align="center">
+  <a href="telegram/content/alonews_127111_1781172188.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سی‌ان‌ان: هیئت قطری امروز صبح پس از برگزاری مذاکرات شبانه با مقامات ایرانی که با هماهنگی ایالات متحده انجام شد، تهران را ترک کرد، در حالی که حملات آمریکا به ایران در همان بازه زمانی مذاکرات شبانه صورت گرفت
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/21 13:22
 ---
 

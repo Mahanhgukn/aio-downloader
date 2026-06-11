@@ -7,6 +7,223 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/21 12:22
+---
+
+## VahidOOnLine — post 244898
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_244898_1781167951.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بر اساس ویدیوی رسیده به ایران اینترنشنال، حدود ساعت ۴ بامداد ۲۱ خردادماه محدوده پایگاه نظامی حصارک در کمالشهر کرج، پیاپی هدف گرفته شد. بنا بر گزارش‌ها این نقطه دست‌کم ۵ بار مورد اصابت قرار گرفت و در زمان وقوع حمله، نشانه‌ای از حضور جنگنده‌ها مشاهده نشد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244897
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244897_1781167953.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️خبرگزاری ایرنا، صبح پنجشنبه ۲۱ خرداد به نقل از رئیس اورژانس تهران گزارش کرد که در پی حملات بامداد پنجشنبه آمریکا، سه نفر در استان تهران مصدوم و به بیمارستان منتقل شدند.
+
+ایالات متحده بامداد پنجشنبه و برای نخستین بار پس از آتش‌بس ۱۹ فروردین، علاوه بر جنوب ایران، مناطقی در مرکز و استان تهران را هم بمباران کرد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244896
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_244896_1781167953.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+استرالیا و بریتانیا در بیانیه‌ای مشترک حمله‌های جمهوری اسلامی را در منطقه محکوم کردند و گفتند که نباید به سلاح هسته‌ای دست یابد. همزمان ۲۲ کشور اعلام کردند نهادهای امنیتی جمهوری اسلامی در طرح‌های ترور و آدم‌ربایی در غرب دست دارند
+
+گفت‌وگو با علیرضا محبی، خبرنگار ایران‌اینترنشنال
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14493
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مهر: یک حملهٔ آمریکایی به یک کشتی باربری 150 تنی ایران، در خلیج عمان در اوایل امروز انجام شد، این کشتی حامل کالاهای ضروری را از خصب، عمان، به ایران حمل می‌کرد
+@withyashar
+</div>
+
+## mamlekate — post 103678
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 فری‌پرس: دولت ترامپ اخراج تریتا پارسی، رییس پیشین نایاک، از آمریکا را بررسی می‌کند
+
+وب‌سایت فری‌پرس به نقل از منابع آگاه گزارش داد وزارت امور خارجه آمریکا تحقیقات خود را درباره فعالیت‌های تریتا پارسی، بنیان‌گذار و رییس پیشین نایاک، آغاز کرده و ممکن است اقدامات لازم را برای اخراج او از ایالات متحده در دستور کار قرار دهد.
+
+@mamlekate
+</div>
+
+## IranIntlTV — post 341652
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻برنامه هفته اول جام جهانی ۲۰۲۶
+
+🔹همه ساعت‌ها به وقت ایران
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 341651
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341651_1781167955.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بر اساس ویدیوی رسیده به ایران اینترنشنال، حدود ساعت ۴ بامداد ۲۱ خردادماه محدوده پایگاه نظامی حصارک در کمالشهر کرج، پیاپی هدف گرفته شد. بنا بر گزارش‌ها این نقطه دست‌کم ۵ بار مورد اصابت قرار گرفت و در زمان وقوع حمله، نشانه‌ای از حضور جنگنده‌ها مشاهده نشد.
+</div>
+
+## IranIntlTV — post 341650
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341650_1781167957.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرزین ندیمی، پژوهشگر ارشد امور دفاعی و امنیتی در موسسه واشینگتن، به ایران‌اینترنشنال گفت جمهوری اسلامی و ایالات متحده در حال جنگ هستند و این یک جنگ محدود است
+@iranintltv
+</div>
+
+## IranIntlTV — post 341649
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341649_1781167959.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+استرالیا و بریتانیا در بیانیه‌ای مشترک حمله‌های جمهوری اسلامی را در منطقه محکوم کردند و گفتند که نباید به سلاح هسته‌ای دست یابد. همزمان ۲۲ کشور اعلام کردند نهادهای امنیتی جمهوری اسلامی در طرح‌های ترور و آدم‌ربایی در غرب دست دارند
+
+گفت‌وگو با علیرضا محبی، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## Persian_Trend_Official — post 16703
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16703_1781167960.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇮🇷 وزارت امور خارجه ایران: ایران به شدت حملات آمریکا به خاک ایران در طول شب را محکوم کرده و اعلام کرده است که مسئولیت پیامدهای خطرناک تشدید تنش‌ها بر عهده دولت آمریکا است. این بیانیه آتش‌بس ۸ آوریل را به دلیل این حملات عملاً بی‌اعتبار اعلام می‌کند.
+
+ایران به نقض منشور سازمان ملل و حقوق بین‌الملل در خصوص حاکمیت ملی و تمامیت ارضی اشاره کرده است. وزارت امور خارجه همچنین به همه کشورهای منطقه هشدار داده است که اجازه ندهند نیروهای آمریکایی از خاک، تأسیسات یا منابع آن‌ها برای انجام عملیات علیه ایران استفاده کنند و حق ایران برای حمله به مبدأ هرگونه حمله تحت حق دفاع مشروع را مجدداً تأیید کرده است.
+
+
+👺Phantom
+
+📌@persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16702
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16702_1781167961.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ شریعتمداری: فورا از ان‌پی‌تی خارج بشیم.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## alonews — post 127097
+
+<div align="center">
+  <a href="telegram/content/alonews_127097_1781167961.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈چندوقت پیش یه زنه بعداز این‌که ۱۰ روز از ازدواجشون می‌گذره، شوهرش رو گول میزنه با دوست‌پسرش پا میشه میره شمال؛ وقتی برمیگرده شوهرش میفهمه و زنه با کلی التماس شوهرشو قانع میکنه که دیگه تکرار نمیشه
+
+
+🔴چند روز بعد شوهرش حین تماس تصویری زنش با دوس‌پسرش میرسه خونه و مچشونو میگیره.
+
+
+🔴این سری با دوست‌پسر زنش (امیر) یه قرار میذاره و وقتی میرن سرقرار، یه چاقو به امیر فرو میکنه و میکشتش و بعد خودش رو تحویل پلیس میده
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127096
+
+<div align="center">
+  <a href="telegram/content/alonews_127096_1781167961.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رویترز: مذاکره‌کنندگان قطری پس از مذاکرات با مقامات ایرانی که تا ساعات اولیه صبح پنج‌شنبه ادامه داشت، روز پنج‌شنبه تهران را ترک کردند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127095
+
+<div align="center">
+  <a href="telegram/content/alonews_127095_1781167961.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزارت امور خارجه کویت: ما تأکید می‌کنیم که کویت حق خود را برای اتخاذ اقدامات لازم برای حفظ امنیت و دفاع از خاک و تأسیسات خود محفوظ می‌دارد.
+
+
+🔴 حملات مکرر ایران نشان دهنده رویکردی سیستماتیک و تهاجمی است که کویت نه آن را می‌پذیرد و نه تحمل می‌کند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127094
+
+<div align="center">
+  <a href="telegram/content/alonews_127094_1781167962.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈مخبر: اگر دشمنان شروط ایران را بپذیرند جنگی در کار نخواهد بود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127093
+
+<div align="center">
+  <a href="telegram/content/alonews_127093_1781167962.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈الجزیره: حملات هوایی اسرائیل شهرهای سریفا، برج قلاویه و طولین در جنوب لبنان را هدف قرار داد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127092
+
+<div align="center">
+  <a href="telegram/content/alonews_127092_1781167962.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وال استریت ژورنال: کاهش شدید واردات نفت خام چین در طول جنگ ایران، در پایین نگه داشتن قیمت نفت و حفظ رونق اقتصاد جهانی نقش مهمی داشته است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/21 12:12
 ---
 

@@ -7,6 +7,220 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/21 04:42
+---
+
+## VahidOOnLine — post 244845
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️تب و التهاب مسابقه نهایی لیگ بسکتبال «ان‌بی‌ای» (NBA) بین دو تیم نیویورک نیکس و سن‌آنتونیو اسپرز به اوج خود رسیده و شهر نیویورک را در وضعیت آماده‌باش قرار داده است. نیکس که پس از ۲۷ سال بار دیگر به مسابقه نهایی NBA راه یافته، امشب در بازی چهارم فینال به مصاف سن‌آنتونیو اسپرز می‌رود؛ دیداری حساس که پس از شکست ۱۱۵ بر ۱۱۱ نیکس در بازی سوم برگزار می‌شود. با این حال، نیکس همچنان با برتری ۲ بر ۱ در مجموع سری، شرایط بهتری نسبت به حریف دارد و در صورت قهرمانی می‌تواند به انتظار ۵۳ ساله هوادارانش پایان دهد.
+شهردار نیویورک اعلام کرده است برای تماشای این مسابقه نهایی، نمایشگرهای بزرگی در پارک‌های شهر نصب شده و بین ۵۰۰ تا ۹۹۰ هزار هوادار می‌توانند بازی را به صورت عمومی دنبال کنند. از ساعات ابتدایی روز نیز خیابان‌های اطراف مدیسن اسکوئر گاردن مملو از هواداران نیکس بوده است.
+همزمان پلیس نیویورک تدابیر امنیتی گسترده‌ای را در اطراف ورزشگاه به اجرا گذاشته است. موانع امنیتی، ایست‌های بازرسی، کنترل تردد و محدودیت‌های ترافیکی در خیابان‌های منتهی به مدیسن اسکوئر گاردن برقرار شده و بخشی از خیابان‌های مرکزی منهتن تحت کنترل نیروهای پلیس قرار گرفته‌اند.
+این تدابیر پس از آن تشدید شد که در روزهای گذشته و همزمان با برگزاری مسابقات این سری، درگیری‌هایی میان برخی هواداران در سطح شهر رخ داد و شماری از پارک‌ها و فضاهای عمومی شاهد خسارت و ناآرامی بودند. مقام‌های شهری نگران تکرار این حوادث پس از پایان مسابقه امشب هستند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244844
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244844_1781140346.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️وزارت کشور بحرین بامداد پنجشنبه ۲۱ خردادماه اعلام کرد آژیر هشدار در سراسر این کشور به صدا درآمده است و از شهروندان و ساکنان خواست آرامش خود را حفظ کرده و به نزدیک‌ترین مکان امن مراجعه کنند.
+
+این هشدار پس از آن صادر شد که سپاه پاسداران اعلام کرد در واکنش به حملات بامداد پنجشنبه آمریکا، طی دو موج عملیاتی اهدافی متعلق به ارتش آمریکا در پایگاه‌های علی السالم و احمد الجابر در کویت و پایگاه شیخ عیسی در بحرین را هدف قرار داده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14484
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سنتکام: نیروهای فرماندهی مرکزی ایالات متحده (CENTCOM) حملات دفاع شخصی بیشتری را علیه اهداف متعدد در ایران در 10 ژوئن به دستور فرمانده کل انجام دادند.
+
+نیروهای سنتکام حملاتی را به قابلیت‌های نظارتی نظامی، سیستم‌های ارتباطی و سایت‌های دفاع هوایی ایران در سراسر ایران انجام دادند. نیروهای تفنگداران دریایی، نیروی هوایی و نیروی دریایی ایالات متحده، مهمات دقیقی را به سمت اهداف ایرانی شلیک کردند که تهدیدی برای نیروهای آمریکایی و کشتی های تجاری بین المللی در حال عبور از آب های منطقه بود.
+
+این حملات در پاسخ به تجاوزات بی مورد و ادامه دار ایران است. نیروهای آمریکایی هوشیار، کشنده و آماده هستند.
+@withyashar
+</div>
+
+## WithYashar — post 14483
+
+
+
+
+## WithYashar — post 14482
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صداوسیما: انفجارهای مهیب در اطراف استان البرز، هشتگرد و نظرآباد در کرج.
+@withyashar
+</div>
+
+## pm_afshaa — post 93568
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93568_1781140347.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سنتکام:
+
+نیروهای فرماندهی مرکزی ایالات متحده (CENTCOM) حملات دفاع شخصی بیشتری را علیه اهداف متعدد در ایران در 10 ژوئن به دستور فرمانده کل انجام دادند.
+
+نیروهای سنتکام حملاتی را به قابلیت‌های نظارتی نظامی، سیستم‌های ارتباطی و سایت‌های دفاع هوایی ایران در سراسر ایران انجام دادند. نیروهای تفنگداران دریایی، نیروی هوایی و نیروی دریایی ایالات متحده، مهمات دقیقی را به سمت اهداف ایرانی شلیک کردند که تهدیدی برای نیروهای آمریکایی و کشتی های تجاری بین المللی در حال عبور از آب های منطقه بود.
+
+این حملات در پاسخ به تجاوزات بی مورد و ادامه دار ایران است. نیروهای آمریکایی هوشیار، کشنده و آماده هستند.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## mamlekate — post 103675
+
+<div align="center">
+  <img src="telegram/content/mamlekate_103675_1781140347.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📞 الو اینجا تیپ سپاه هست. بین فرودگاه امام و دریاچه شور قم. توش ماشین ها با آسانسور میرفتن میومدن. به ریل قطار وصله. جنگ عید نزدنش الان زدنش
+
+@mamlekate
+</div>
+
+## FarsiVOA — post 220334
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220334_1781140348.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️خبرگزاری حکومتی مهر دقایقی پیش گفت از ادامه انفجارها در بندرعباس خبر داد. طبق این گزارش، این انفجارها احتمالا در مناطقی در غرب شهر بندرعباس است. ایالات متحده مشغول انجام دور دیگری از حملات به مواضع جمهوری اسلامی است.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220333
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️قطعنامه جدید شورای حکام علیه جمهوری اسلامی ایران
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 16675
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16675_1781140348.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ سنتکام پایان حملات ایالات متحده به سراسر ایران را اعلام کرد.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16674
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16674_1781140348.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♨️ گزارش انفجار در بحرین
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 22275
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22275_1781140349.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ورامین
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22274
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 انفجار شدید در جاسک
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22273
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 سید جقی فرمانده هوا فضای سپاه : تنگه ی مقدس هرمز رو ناامن میکنید ؟ کل‌ منطقه رو براتون تبدیل به جهنم میکنیم. @IranianMinds
+</div>
+
+## Dirty_Kids — post 391674
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🙂همه شنیدید --> ترامپ قمار باز <-- میدونی سرمایه چند صد ملیون دلاری ترامپ از شرط بندی چطور جمع شده 
+⁉️ 
+✔️من بهت نه چیزی میخوام بفروشم نه پولی ازت میگیرم من بهت پول دراوردن رو رایگان آموزش میدم https://t.me/+lCR7HeYTU15iNjM0 https://t.me/+lCR7HeYTU15iNjM0…
+</div>
+
+## Dirty_Kids — post 391673
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391673_1781140349.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🙂همه شنیدید --> ترامپ قمار باز <--
+
+میدونی سرمایه چند صد ملیون دلاری ترامپ از شرط بندی چطور جمع شده 
+⁉️
+
+
+✔️من بهت نه چیزی میخوام بفروشم نه پولی ازت میگیرم من بهت پول دراوردن رو رایگان آموزش میدم
+
+https://t.me/+lCR7HeYTU15iNjM0
+https://t.me/+lCR7HeYTU15iNjM0
+A20
+کافیه تو کانال بالا عضو بشی 
+🔥
+</div>
+
+## Dirty_Kids — post 391672
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391672_1781140350.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#بخوابیم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391671
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391671_1781140350.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اینجا تیپ سپاه هست بین فرودگاه امام و دریاچه شور قم توش ماشین ها با اسانسور میرفتن میومدن. به ریل قطار وصله. جنگ عید نزدنش الان زدنش
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/03/21 04:32
 ---
 

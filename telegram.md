@@ -7,6 +7,81 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/22 03:03
+---
+
+## VahidOOnLine — post 245069
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245069_1781220828.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️به گزارش تسنیم، زمین‌لرزه‌ای با بزرگی ۴.۱ بامداد جمعه ۲۲ خرداد حوالی کهنوج در استان کرمان را لرزاند. این زمین‌لرزه در عمق ۱۹ کیلومتری زمین رخ داده است. تا لحظه انتشار این خبر، گزارشی از خسارات احتمالی یا تلفات ناشی از این زمین‌لرزه منتشر نشده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245068
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_245068_1781220829.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️سفارت جمهوری اسلامی در سارایوو، ویدیویی از دیدار شینزو آبه، نخست‌وزیر سابق ژاپن با علی خامنه‌ای، رهبر سابق جمهوری اسلامی منتشر کرده است که تاریخ آن به ۲۲ خرداد شش سال قبل بازمی‌گردد. آبه در آن زمان پیامی از دونالد ترامپ، رئیس‌جمهوری وقت آمریکا به تهران آورده بود. علی خامنه‌ای نیز در واکنش گفت، «ترامپ را حتی شایسته مبادله پیام هم نمی‌دانم.» شینزو آبه سه سال پس از این ملاقات در تیرماه ۱۴۰۱ ترور شد. علی خامنه‌ای در ۹ اسفند ۱۴۰۴ در حمله آمریکا و اسرائیل کشته شد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245067
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_245067_1781220831.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️حسین سیمایی صراف، وزیر علوم، روز پنجشنبه ۲۱ خردادماه با اشاره به برافراشته شدن پرچم شیروخورشیدنشان ایران در دانشگاه‌ها، گفت دانشجویانی که به پرچم جمهوری اسلامی توهین کرده‌اند، مجازات می‌شوند.
+
+وزیر علوم افزود: «کسانی که پرچم جمهوری اسلامی را آتش زدند، پرونده آن‌ها در کمیته‌ها و شوراهای انضباطی بررسی شده و در مراجع قضایی به مجازات خواهند رسید.»
+
+در جریان خیزش ملی دی‌ماه ۱۴۰۴، دانشجویان در دانشگاه‌های شریف، امیرکبیر، بهشتی، تهران و شماری از دانشگاه‌های علوم پزشکی، پرچم ملی شیروخورشیدنشان ایران را برافراشتند و با سر دادن شعارهایی خواستار بازگرداندن نام‌های اولیه دانشگاه‌هایی شدند که در دوران پهلوی آغاز به کار کرده بودند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## IranIntlTV — post 341824
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341824_1781220833.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سعید از ونکوور: همه دنیا برای شادی به جام جهانی می‌روند، اما مردم من زیر فشار له می‌شوند
+
+«یک ایران صدای شما را می‌شنود»
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/x7UesvMnjhM
+@iranintltv
+</div>
+
+## Persian_Trend_Official — post 16821
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16821_1781220834.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 احمد خمینی: به امید خدا شیطان بزرگ زیر لگدهای ملت ما له خواهد شد...
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+---
 📅 بروزرسانی: 1405/03/22 02:53
 ---
 

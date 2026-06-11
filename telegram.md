@@ -7,6 +7,356 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/21 16:43
+---
+
+## VahidOOnLine — post 244947
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244947_1781183594.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ محسن رضایی، عضو مجمع تشخیص مصلحت نظام و مشاور نظامی مجتبی خامنه‌ای، روز پنجشنبه ۲۱ خرداد، با انتشار پیامی در شبکه اجتماعی ایکس، موقعیت آمریکا در جنگ با ایران را به «باتلاق» تشبیه کرد و نوشت: «رئیس‌جمهور مجنون آمریکا تصور می‌کند که بمب‌ها می‌توانند او را از باتلاقی که خودش ایجاد کرده نجات دهند؛ اما موشک‌های ایرانی او را حتی بیشتر از قبل در آن غرق خواهند کرد.»
+
+او در پایان با هشدار به دولتمردان آمریکایی افزود: «واشنگتن باید میان پذیرش شروط ایران و از دست دادن آخرین بقایای اعتبار خود در جهان، یکی را انتخاب کند.»
+
+این اظهارات پس از تبادل آتش سنگین میان آمریکا و جمهوری اسلامی ایران در چهارشنبه‌شب و بامداد پنجشنبه بیان شد. همزمان دونالد ترامپ، رئیس‌جمهوری آمریکا نیز هشدار داد که حملات سنگین‌تری در راه است و آمریکا «در آینده‌ای نه‌چندان دور» جزیره خارگ و زیرساخت‌های نفتی ایران را در اختیار خواهد گرفت.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244946
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_244946_1781183595.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روز ۲۱ خرداد سالگرد تولد کیان پیرفلک است؛ کودک اهل ایذه که در جریان اعتراضات ۱۴۰۱ با گلوله کشته شد و نام و روایت زندگی کوتاهش با عبارت «به نام خدای رنگین کمان» در حافظه بسیاری از ایرانیان جای گرفت
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14515
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: مسئله ایران تمام شده است و ما می‌توانیم فردا نیروهایمان را بیاوریم، اما نمی‌خواهم نیروی زمینی اعزام کنم مطمئن نیستم
+@withyashar
+</div>
+
+## WithYashar — post 14514
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: دیشب ۲۵۰ میلیون دلار بمب روی سرشان ریختیم
+
+امشب وحشتناک حمله خواهیم کرد
+@withyashar
+</div>
+
+## WithYashar — post 14513
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: ما برای معترضان ایرانی سلاح فرستادیم، اما از کردها بسیار ناامید شدیم زیرا آنها سلاح ها را به معترضان تحویل ندادند
+@withyashar
+</div>
+
+## WithYashar — post 14512
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: ایرانی‌ها بسیار مغرور هستن حتی در مذاکرات، اما من دوست دارم همین الان با هم توافق کنیم.
+
+اگر ایرانی ها توافق رو امضا نکنند، بشدت بمباران خواهند شد؛ عجله کنید، هنوز می‌توانیم به بزرگترین توافق تاریخ برسیم!
+
+ما هواپیماهایمان را بر فراز قلب تهران به پرواز در می‌آوریم
+
+تاکنون به اندازه کافی به ایران حمله نکرده‌ایم.
+
+پل‌ها هدف بعدی حملات ما هستند! اما من نمی‌خواهم این کار را انجام دهم زیرا وقتی این کار را می‌کنم، مردم رنج می‌برند.
+@withyashar
+</div>
+
+## mwarmonitor — post 10713
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مجری (برایان کیلمید):
+«و یک موردی که دیروز به آن اشاره کردید این است که اهداف بعدی، پل‌ها و نیروگاه‌های برق خواهند بود. آیا گام بعدی همین است؟ و...»
+دونالد ترامپ:
+«بله، اما من ترجیح می‌دهم این کار را نکنم، چون وقتی این کار را با مردم می‌کنی، آن‌ها زجر می‌کشند. مثلاً شنیدم که به آب اشاره کردی؛ قطع کردن آب واقعاً یک ضربه ویران‌کننده برای آن‌هاست. من می‌توانم این کار را در یک دقیقه انجام دهم، آن‌ها سیستم آب را قطع می‌کنند...»
+مجری (برایان کیلمید):
+«پیام شما برای مردم ایران چیست؟»
+دونالد ترامپ:
+«اما مشکل اینجاست که مردم دیگر قادر نخواهند بود آب بنوشند. منظورم این است که، می‌دانی، پس آن‌ها چکار باید بکنند؟»
+مجری (برایان کیلمید):
+«اما پیام شما به مردم ایران چیست؟ آقای رئیس‌جمهور، آن‌ها اکنون به اینترنت دسترسی دارند.»
+دونالد ترامپ:
+«خب، پیام من به مردم ایران این است که آن‌ها ترسیده‌اند. چون آن‌ها هیچ اسلحه‌ای ندارند و طرف مقابل اسلحه دارد. آن‌ها تجمع (تظاهرات) برگزار می‌کنند و به آن‌ها شلیک می‌شود. آن‌ها آن کشتی‌گیر و دو نفر از دوستانش را دار زدند؛ باور بکنید یا نه، آن‌ها را با جرثقیل به دار آویختند؛ با خشونت تمام. او یک کشتی‌گیر بسیار مطرح بود و آن‌ها او را دار زدند.»
+«آن‌ها حداقل ۴۰ تا ۵۰ هزار نفر را کشته‌اند و مردم ترسیده‌اند. می‌دانی، وقتی یک مسلسل به سمت صورتت نشانه رفته باشد، یا وقتی چهار تک‌تیرانداز روی چهار ساختمان مختلف مستقر باشند و به سر مردم شلیک کنند، سخت است که تجمع برگزار کنی؛ متوجهی؟»
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10712
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_10712_1781183597.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## mwarmonitor — post 10711
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+«این می‌تواند بزرگترین توافق در تاریخ باشد. آنها می‌توانند پرچم سفید تسلیم را تکان دهند. آنها می‌توانند بگویند ما تسلیم شدیم، ما تسلیم شدیم، کارمان تمام است، دیگر کشش نداریم، ایالات متحده بزرگترین قدرت است، الحمدلله (سپاس از آنِ الله). و آنها می‌توانند همه این‌ها را انجام دهند، می‌توانند آن را بلند و واضح بگویند و رسانه‌های دروغگو خواهند گفت این یک پیروزی بزرگ برای ایران بود! منظورم اینه که این احمقانه‌ترین چیزیه که تا به حال دیدم.
+ما داریم نابودشون می‌کنیم. داریم نابودشون می‌کنیم. آنها هیچ نیروی دریایی ندارند، هیچ نیروی هوایی ندارند، هیچ پدافند ضد هوایی ندارند. می‌دانید، ما داریم با هواپیماها وسط تهران پرواز می‌کنیم و آنها هیچ، هیچ ایده‌ای ندارند که ما آنجا هستیم. ما تمام رادارهای آنها و تمام پدافند ضد هوایی‌شان را از کار انداخته‌ایم. بیشتر موشک‌های آنها... احتمالا کمتر از ۲۰ درصد باقی مانده، خب فکر می‌کنیم حدود ۲۰ درصد. بیشترِ پرتابگرهای آنها، پرتابگرهای موشکی که بسیار هم مهم هستند.
+ظرفیت پهپادی آنها به شدت کاهش یافته است. شما دارید این را می‌بینید. منظورم اینه که خیلی افت کرده، حملات آنها بسیار جزئی هستند. کارشان تمام است.»
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10710
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_10710_1781183599.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## FoxNewsTwitter — post 342850
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342850_1781183601.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: President Trump says Iran could “wave the white flag of surrender” whenever they want after the U.S. took out the Islamic Republic’s Navy, air force, and anti-aircraft, but slams the mainstream media on how they would cover the victory.
+
+“It could be the greatest deal in history. They could wave the white flag of surrender. They could say, ‘We surrender, we surrender. We're finished. We've had it. The United States is the greatest power. Praise be to Allah.’ And they could do all of this. They could say it loud and clear. And the fake news would say it was a great victory for Iran.” | @foxandfriends
+</div>
+
+## pm_afshaa — post 93623
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93623_1781183602.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: امشب هم بشدت بمباران خواهند شد!
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93622
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93622_1781183603.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: دیشب 250 میلیون دلار بمب روی آن‌ها ریختیم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93621
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93621_1781183603.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: ترجیح میدم پل‌ها و نیروگاه‌ها رو هدف قرار ندم چون مردم نمیتونن آب بنوشند و رنج می‌برن، من نمیخوام این کار رو کنم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93620
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93620_1781183604.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ به فاکس نیوز: ترجیح میدم جزیره خارک رو تصرف کنیم، اما مطمئن نیستم که تمایلی به انجام این کار داشته باشیم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 341703
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341703_1781183604.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+همزمان با افزایش تنش‌ها میان ایران و آمریکا، وضعیت مبهم «نه جنگ، نه صلح» به یکی از موضوعات پرتکرار در شبکه‌های اجتماعی تبدیل شده است. در این فضا، بسیاری از کاربران با لحنی انتقادی و گاه طنزآمیز به این بلاتکلیفی طولانی‌مدت و پیامدهای آن در زندگی روزمره واکنش نشان داده‌اند.
+
+آیه دریس، عضو تحریریه ایران‌اینترنشنال، از واکنش کاربران می‌گوید
+@iranintltv
+</div>
+
+## Shin_Persian — post 6939
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Thu, 11 Jun 2026 13:07:51 UTC
+
+Islamic Regime source denies CNN report on new Iran-US negotiations amid Thursday morning clashes as per state-owned Mehr News
+
+ترجمه خودکار فارسی
+
+منبع رژیم اسلامی گزارش سی‌ان‌ان (CNN) درباره مذاکرات جدید ایران و آمریکا در بحبوحه درگیری‌های صبح پنجشنبه را طبق گزارش خبرگزاری دولتی مهر تکذیب کرد.
+
+𝕏 · @shin_persian
+</div>
+
+## Persian_Trend_Official — post 16730
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ در مصاحبه با فاکس نیوز: ما در حال مذاکره با ایران هستیم. 📝 Amir 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16729
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16729_1781183606.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ در مصاحبه با فاکس نیوز: ما در حال مذاکره با ایران هستیم. 📝 Amir 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 22306
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22306_1781183607.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🌈 امروز ۲۱ خرداد، سالگرد تولد کیان پیرفلک...
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22305
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ :
+
+پل‌ها هدف بعدی حملات ما هستند! اما من نمی‌خواهم این کار را انجام دهم زیرا وقتی این کار را می‌کنم، مردم رنج می‌برند
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 283436
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🖌نازنین کیان، روزنامه‌نگار
+
+🔻جانی اینفانتینو، رییس فیفا، ۲۰ اسفند ۱۴۰۴ در کاخ سفید با دونالد ترامپ دیدار کرد. موضوع اصلی این نشست، به گفته خود اینفانتینو، ایران بود؛ کشوری که تیم ملی‌اش قرار است در جام جهانی ۲۰۲۶ که میزبانی آن را آمریکا، کانادا و مکزیک برعهده دارند، حضور داشته باشد.
+
+ترامپ در پایان این دیدار اعلام کرد که تیم ملی ایران می‌تواند در رقابت‌ها شرکت کند. یک هفته پیش از این اما رئیس‌جمهور آمریکا گفته بود که «واقعا مناسب نمی‌بیند» ایران در جام جهانی حضور داشته باشد؛ دلیلی که برای این موضع آورده بود، نگرانی از «امنیت جانی» بازیکنان ایرانی بود.
+
+این تغییر موضع ده روزه، نه یک چرخش ساده سیاسی، بلکه نشانه‌ای از یک بازی پیچیده دیپلماتیک است که پشت صحنه رقابت‌های فوتبال جریان دارد. جریانی که این روزها در یک شهر مرزی در شمال مکزیک به چشم می‌آید.
+
+📸GettyImages
+
+https://bbc.in/4gjXSki
+@BBCPersian
+</div>
+
+## BBCPersian — post 283435
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283435_1781183607.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻سفارت روسیه در تهران اعلام کرده است که از کلیسای سنت نیکولای ارتدوکس روسیه در تهران سرقت شده است. این کلیسا در جریان دور اول حملات آمریکا و اسرائیل علیه ایران خسارت دیده بود.
+
+سفارت روسیه در تهران در بیانیه‌ای گفت: «از همه از کسانی که راه خطا پیموده و مرتکب این اقدام موهن و هتک‌حرمت‌آمیز شده‌اند، درخواست می‌کند که شمایل‌ها و اشیای مقدس ربوده‌شده را به کلیسا بازگردانند و بار گناه را بیش از این بر دوش خود نیفزایند.»
+
+این کلیسا در نزدیکی سفارت سابق ایالات متحده در تهران قرار دارد و گزارش شده بود که در جریان حملات آمریکا و اسرائیل به ایران خسارات‌هایی به آن وارد شده بود.
+
+سفارت روسیه می‌گوید که «ما هرگز باور نمی‌کردیم که در ایران افرادی پیدا شوند که چنین رفتاری با مقدسات مسیحی داشته باشند و به ایمانی به خدای یگانه که این کلیسا دهه‌ها پاسدار و حافظ آن بوده است، اهانت کنند.»
+
+روسیه کلیسای سنت نیکولا در تهران را «یکی از قدیمی‌ترین عبادتگاه‌های مسیحی در ایران و تنها کلیسای ارتدوکس روسی در پایتخت ایران» توصیف کرده است.
+
+📸 ایسنا
+
+https://bbc.in/4v5B0d7
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 391702
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رویترز: لشکر 82 هوابرد آمریکا ملقب به لشکر شیطان به‌زودی جزایر نفتی ایران رو تصرف خواهند کرد
+💥
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Hranews — post 113538
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صدور احکام انضباطی برای ۲۲ دانشجوی دانشگاه سوره؛ دستکم ۴ دانشجو با اخراج مواجه شدند
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– حدود ۲۲ دانشجو دانشگاه سوره، با صدور احکام بدوی کمیته انضباطی مواجه شده‌اند. این احکام شامل دستکم چهار مورد اخراج و شماری احکام منع موقت از تحصیل است.
+
+#دانشجویان
+
+ادامه مطلب
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## alonews — post 127146
+
+<div align="center">
+  <a href="telegram/content/alonews_127146_1781183608.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ به فاکس نیوز: پل‌ها هدف بعدی حملات ما هستند
+
+
+🔴ما برای معترضان ایرانی سلاح فرستادیم، اما از کردها بسیار ناامید شدیم زیرا آنها سلاح ها را به معترضان تحویل ندادند.
+
+
+🔴مسئله ایران تمام شده است و ما می‌توانیم فردا نیروهایمان را بیاوریم، اما نمی‌خواهم نیروی زمینی اعزام کنم.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/21 16:33
 ---
 

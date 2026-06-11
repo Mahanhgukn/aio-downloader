@@ -7,6 +7,263 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/21 15:03
+---
+
+## VahidOOnLine — post 244931
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_244931_1781177581.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️محمد مخبر، مشاور مجتبی خامنه‌ای روز پنجشنبه ۲۱ خردادماه و ساعاتی پس از حملات «گسترده آمریکا» به جنوبِ و مرکز ایران و حومه تهران گفت: «ترامپ غیر از یاوه‌گویی چیزی بلد نیست و این هم هیچ تاثیری بر ما ندارد.»
+
+مخبر که در مراسم اولین سالگرد کشته شدن حسین سلامی، فرمانده کل پیشین سپاه شرکت کرده بود، در پاسخ به خبرنگاران گفت: «موضع ما در مذاکرات این است که یک سر سوزن از منافع نظام کوتاه نمی‌آییم.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244930
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_244930_1781177584.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پس از تصویب قطعنامه شورای حکام علیه برنامه هسته‌ای جمهوری اسلامی، میخائیل اولیانوف، نماینده روسیه در آژانس در گفت‌وگویی اختصاصی با ایران‌اینترنشنال این قطعنامه را «شرم‌آور» و «ریاکارانه» توصیف کرد و آمریکا و اسرائیل را مسئول تضعیف همکاری میان جمهوری اسلامی و آژانس دانست
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244922
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_244922_1781177585.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شب گذشته آمریکا اهدافی را عمدتا در نزدیکی تنگه هرمز هدف قرار داد. این حملات در میانه مذاکرات با جمهوری اسلامی انجام شد و به نظر می‌رسد هدف آن افزایش فشار بر تهران باشد. حالا پرسش اصلی این است که بحران تنگه هرمز به کجا خواهد انجامید؟
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14501
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شنیده شدن چهار صدای انفجار از تنگه هرمز در قشم🚨
+@withyashar
+</div>
+
+## mwarmonitor — post 10700
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 وزارت امور خارجه هند: سه کشتی هندی هدف حملاتی قرار گرفته‌اند که توسط نیروی دریایی آمریکا انجام شده است.
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 342843
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342843_1781177586.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"We'll bomb the s--- out of them."
+
+President Trump's blunt warning to Iran came during a call with @TreyYingst, alongside VP Vance and special envoys Steve Witkoff and Jared Kushner from the Situation Room.
+
+The administration believes Iran is continuing to drag its feet at the negotiating table, even as U.S. forces demonstrate overwhelming military leverage.
+
+Trump's message: Iran cannot even control the skies over its own country. The U.S. launched 49 Tomahawk missiles, with some strikes reportedly hitting targets roughly 40 miles outside Tehran, while fighter jets targeted positions along Iran's southwestern coast.
+
+At the center of the standoff is a proposed deal that would reopen the Strait of Hormuz and place limits on Iran's nuclear program. The question now is whether Tehran comes to the table before the pressure escalates further.
+</div>
+
+## FoxNewsTwitter — post 342842
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342842_1781177589.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+RT @FoxUSNews: Family of convicted killer Karmelo Anthony raised nearly $634,000 through a crowdfunding campaign that paid for moving expenses, living costs, and 'security measures' — less than two weeks after Anthony stabbed a 17-year-old to death at a Texas high school track meet.
+
+The fundraiser has since been taken down.
+</div>
+
+## pm_afshaa — post 93604
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شنیده شدن صدای انفجار در قشم
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## kianmeli1 — post 87927
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴دقایقی پیش-صدای انفجار در محدوده سیریک و از سمت دریا شنیده شد
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 341689
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341689_1781177589.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پس از تصویب قطعنامه شورای حکام علیه برنامه هسته‌ای جمهوری اسلامی، میخائیل اولیانوف، نماینده روسیه در آژانس در گفت‌وگویی اختصاصی با ایران‌اینترنشنال این قطعنامه را «شرم‌آور» و «ریاکارانه» توصیف کرد و آمریکا و اسرائیل را مسئول تضعیف همکاری میان جمهوری اسلامی و آژانس دانست
+@iranintltv
+</div>
+
+## IranIntlTV — post 341688
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341688_1781177591.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آسیه امینی، تحلیلگر مسائل اجتماعی، درباره خارج شدن برخی اقلام کالاهای اساسی از سبد خرید خانواده‌های ایرانی به دلیل گرانی و فقر، در گفت‌وگو با ایران‌اینترنشنال گفت سبک زندگی مردم به دلیل مشکلات اقتصادی تغییر کرده و اولویت جمهوری اسلامی بقای خویش است
+@iranintltv
+</div>
+
+## IranIntlTV — post 341687
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341687_1781177593.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایران‌اینترنشنال کارزار مردمی تازه‌ای را برای ثبت و پیگیری سرکوب معترضان در نورآباد ممسنی آغاز کرده است. این کارزار با هدف روایت ناگفته‌های سرکوب‌های خشن دی‌ماه، ثبت روایت خانواده‌های جاویدنامان و پیگیری ابعاد مختلف این رویداد، در پی کشف حقیقت درباره جزییات سرکوب در جریان اعتراضات این منطقه است.
+
+جزییات بیشتر با فرنوش فرجی، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## Shin_Persian — post 6928
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Thu, 11 Jun 2026 11:27:17 UTC
+
+"CENTCOM disables Guinea-Bissau flagged M/T Jalveer as it attempts to transport oil from Iran through the Gulf of Oman, June 10, 2026."
+
+https://x.com/CENTCOM/status/2065032634908987869/video/1
+
+ترجمه خودکار فارسی
+
+ستاد فرماندهی مرکزی ایالات متحده (سنتکام) نفت‌کش ام/تی جالویر با پرچم گینه بیسائو را در حالی که قصد داشت نفت را از ایران از طریق دریای عمان منتقل کند، در تاریخ ۱۰ ژوئن ۲۰۲۶ از کار انداخت.
+
+https://x.com/CENTCOM/status/2065032634908987869/video/1
+
+𝕏 · @shin_persian
+</div>
+
+## ManotoTV — post 106009
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شب گذشته آمریکا اهدافی را عمدتا در نزدیکی تنگه هرمز هدف قرار داد. این حملات در میانه مذاکرات با جمهوری اسلامی انجام شد و به نظر می‌رسد هدف آن افزایش فشار بر تهران باشد. حالا پرسش اصلی این است که بحران تنگه هرمز به کجا خواهد انجامید؟
+</div>
+
+## manototv — post 106009
+
+<div align="center">
+  <a href="telegram/content/manototv_106009_1781177596.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شب گذشته آمریکا اهدافی را عمدتا در نزدیکی تنگه هرمز هدف قرار داد. این حملات در میانه مذاکرات با جمهوری اسلامی انجام شد و به نظر می‌رسد هدف آن افزایش فشار بر تهران باشد. حالا پرسش اصلی این است که بحران تنگه هرمز به کجا خواهد انجامید؟
+</div>
+
+## alonews — post 127128
+
+<div align="center">
+  <a href="telegram/content/alonews_127128_1781177597.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚫
+🏆 به دنیای هیجان‌انگیز فوتبال خوش اومدی!
+
+
+⭐️اینجا قراره باهم لحظه‌به‌لحظه‌ی جام جهانی رو زندگی کنیم؛
+از بازی‌های حساس و نتایج داغ گرفته تا حاشیه‌ها، کری‌خونی‌ها و اتفاقاتی که همه درباره‌ش حرف میزنن! 
+🔥
+🔥
+
+
+✅ پوشش کامل مسابقات
+
+💀ترول تیم‌ها و بازیکن‌ها
+
+🎥ویدیوها و لحظه‌های فان فوتبالی
+
+📊آمار، ترکیب‌ها و اخبار فوری
+
+🌍حواشی جذاب از سراسر جام جهانی
+
+
+📢اینجا فقط یک کانال خبری نیست؛
+یک جمع فوتبالیه برای کسایی که فوتبال رو با هیجان، شوخی و احساس واقعی دنبال میکنن 
+📛
+💟
+
+
+🆘
+🔞 آماده باش چون قراره جام جهانی رو متفاوت تجربه کنیم!
+
+
+⚡ @Vaarzesh_Plus
+
+⚡ @Vaarzesh_Plus
+</div>
+
+## alonews — post 127127
+
+<div align="center">
+  <a href="telegram/content/alonews_127127_1781177598.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رئیس جمهور لبنان: با وجود فشارها از مذاکرات عقب‌نشینی نخواهیم کرد و تا رسیدن به آنچه به نفع ملت ماست، به این مسیر ادامه خواهیم داد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127126
+
+<div align="center">
+  <a href="telegram/content/alonews_127126_1781177598.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈آخرین قیمت نفت ۹۲.۰۳ دلار
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127125
+
+<div align="center">
+  <a href="telegram/content/alonews_127125_1781177598.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خبرنگار صداوسیما: لحظاتی پیش صدای انفجار در محدوده سیریک و از سمت دریا شنیده شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/21 14:52
 ---
 

@@ -7,6 +7,131 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/22 00:33
+---
+
+## VahidOOnLine — post 245056
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245056_1781211815.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دفتر نخست‌وزیر اسرائیل اعلام کرد این کشور طرف تفاهم‌نامه در حال شکل‌گیری میان آمریکا و جمهوری اسلامی نیست. این نهاد همچنین گفت بنیامین نتانیاهو در تماس با دونالد ترامپ از شروط مورد نظر او برای توافق نهایی با تهران حمایت کرده است.
+بر اساس بیانیه دفتر نخست‌وزیری اسرائیل، این شروط شامل حذف مواد غنی‌شده، برچیدن زیرساخت‌های غنی‌سازی، محدود کردن تولید موشک و پایان دادن به حمایت جمهوری اسلامی از نیروهای نیابتی در منطقه است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14584
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اکسیوس، به نقل از یک منبع: نتانیاهو هیچ اطلاع قبلی نداشت و وقتی ترامپ بیانیه اولیه خود را در مورد توافق با ایران منتشر کرد، غافلگیر شد.
+@withyashar
+</div>
+
+## WithYashar — post 14583
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/boost/withyashar
+
+بوست داره میریزه…
+</div>
+
+## mwarmonitor — post 10746
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسرائیل بعد از دیدن پست ترامپ @mwarmonitor
+</div>
+
+## kianmeli1 — post 87952
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87952_1781211815.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴اکسیوس، به نقل از یک منبع:
+
+نتانیاهو هیچ اطلاع قبلی نداشت و وقتی ترامپ بیانیه اولیه خود را در مورد توافق با ایران منتشر کرد، غافلگیر شد.
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87951
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سخنگوی وزارت خارجه:
+توافقی در کار نیست
+
+هرگاه به جمع‌بندی برسیم که متن تفاهم تامین‌کنندهٔ منافع ملت ایران است آن را اعلام می‌کنیم.
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87950
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴واشنگتن پست مدعی شد:
+
+توافق قطعی شده و بزودی در ژنو یا رم امضا خواهد شد
+https://t.me/kianmeli1
+</div>
+
+## Persian_Trend_Official — post 16781
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📰 : آمریکا دسترسی به دارایی‌های مسدودشده ایران را تسهیل خواهد کرد.
+
+به نقل از خبرگزاری انتخاب
+Phantom
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16780
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+واشنگتن پست: توافق ایران و آمریکا نهایی شده است
+بر اساس ادعای واشنگتن پست، توافق میان ایران و ایالات متحده به مرحله نهایی رسیده و قرار است به‌زودی در یکی از دو شهر ژنو یا رم به امضا برسد.
+🔹 این گزارش مدعی است مقامات عالی‌رتبه دو کشور پس از دیداری رو در رو، توافق را در برابر رسانه‌ها به‌صورت رسمی امضا خواهند کرد.
+🔹 تاکنون هیچ مقام رسمی در تهران یا واشنگتن این ادعا را تأیید نکرده است.
+Phantom
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## alonews — post 127273
+
+<div align="center">
+  <a href="telegram/content/alonews_127273_1781211815.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈اکسیوس، به نقل از یک منبع: نتانیاهو هیچ اطلاع قبلی نداشت و وقتی ترامپ بیانیه اولیه خود را در مورد توافق با ایران منتشر کرد، غافلگیر شد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127272
+
+<div align="center">
+  <a href="telegram/content/alonews_127272_1781211815.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خوش چشم دیشب تو شبکه افق گفته بود فکر نکنم توافق بشه و یکی دو هفته جنگ رو داریم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/22 00:23
 ---
 

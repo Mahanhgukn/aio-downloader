@@ -7,6 +7,153 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/22 01:23
+---
+
+## mwarmonitor — post 10751
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انفجار در سیریک
+</div>
+
+## mwarmonitor — post 10750
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_10750_1781214808.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✈️یک فروند هواپیمای گشت دریایی P-8A Poseidon نیروی دریایی آمریکا که پیش‌تر در پایگاه هوایی شیخ عیسی در بحرین مستقر بود، به پایگاه هوایی ملک سلطان در عربستان سعودی منتقل شده و اکنون در مأموریتی جدید به سمت خلیج فارس در حال پرواز است.
+
+🔸پایگاه شیخ عیسی در بحرین امروز چندین بار توسط سپاه هدف قرار گرفته است.
+
+@mwarmonitor
+</div>
+
+## VahidOnline — post 76251
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ادعای تسنیم: آمریکا از اصلاحیه‌های اخیر خود کوتاه آمده!
+
+خبرگزاری تسنیم، وابسته به سپاه، نوشته:
+متن تفاهم تا این لحظه در مراجع ذی‌صلاح ایران به تایید نهایی نرسیده است
+
+▪️ پیگیری‌های خبرنگار تسنیم از منابع مطلع حاکیست: آخرین تحول رخ داده این است که فشار نظامی و دیپلماتیک آمریکا برای تغییر در متن ۱۴ ماده‌ای پاسخ نداده و آمریکا از طریق واسطه قطری اعلام کرده است که نیازی به اصلاحیه‌های اخیر آمریکا نیست.
+
+▪️ به گفته این منابع، ترامپ طی روزهای اخیر با شروع به فشار و تهدید و اقدام نظامی و از طریق دیگر با فشار میانجی قطری تلاش کرد تا از دو سو مواضع ایران را تغییر دهد که در نهایت ایران تغییرات جدید را نپذیرفت.
+
+▪️ با این حال این متن همچنان نیازمند بررسی و نهایی شدن در نهادهای ذیربط در ایران است و تا آن زمان سایر گمانه زنی‌ها و خبرها، معتبر نیست.
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 341810
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341810_1781214809.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ گفت: «ما به‌تازگی به یک توافق اولیه برای پایان دادن به جنگ با ایران دست یافته‌ایم و اکنون در مرحله نهایی‌سازی اسناد هستیم. انتظار داریم این روند طی چند روز آینده تکمیل شود و احتمالاً مراسم امضای توافق در اروپا برگزار خواهد شد. این اتفاق بسیار بزرگی است.»
+
+او افزود: «بر اساس این توافق، تنگه هرمز بلافصله پس از امضای رسمی آن بازگشایی خواهد شد.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 341809
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341809_1781214811.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ اعلام کرد پس از تایید گفت‌وگوها در بالاترین سطح میان ایران و آمریکا، حملات برنامه‌ریزی‌شده امشب علیه ایران لغو شده و زمان و مکان امضای توافق به‌زودی اعلام خواهد شد؛ این در حالی است که او پیش‌تر از حملات شدید و حتی احتمال تصرف جزیره خارک سخن گفته بود.
+@iranintltv
+</div>
+
+## Persian_Trend_Official — post 16798
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16798_1781214814.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این مهمه!! E-3G AEW&C
+</div>
+
+## Persian_Trend_Official — post 16797
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16797_1781214814.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این مهمه!!
+E-3G AEW&C
+</div>
+
+## Persian_Trend_Official — post 16796
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16796_1781214815.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📡۸ هواپیمای سوخت‌رسانی هوایی نیروی هوایی ایالات متحده در حال حاضر بر فراز عربستان سعودی و خلیج فارس در حال فعالیت هستند،
+</div>
+
+## Persian_Trend_Official — post 16795
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16795_1781214816.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+غیررسمی/پدافند ماهشهر
+</div>
+
+## Persian_Trend_Official — post 16794
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16794_1781214817.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک کشتی که تلاش داشت وارد تنگه هرمز شود هدف قرار گرفت..
+</div>
+
+## IranianMinds — post 22350
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22350_1781214817.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 8 فروند هواپیمای سوخت‌رسان نیروی هوایی آمریکا در حال حاضر بر فراز عربستان سعودی و خلیج فارس در حال عملیات هستن .
+
+
+@IranianMinds
+</div>
+
+## alonews — post 127280
+
+<div align="center">
+  <a href="telegram/content/alonews_127280_1781214818.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تسنیم: تاکنون هیچ برخورد موشکی یا درگیری در سیریک ثبت نشده است!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127279
+
+<div align="center">
+  <a href="telegram/content/alonews_127279_1781214818.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خبرگزاری معتبر تسنیم :
+تا این لحظه، متن تفاهم‌نامه هنوز به تأیید نهایی نهادهای مربوطه تو ایران نرسیده
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/22 01:15
 ---
 

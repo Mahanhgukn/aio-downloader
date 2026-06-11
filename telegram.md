@@ -7,6 +7,112 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/21 05:12
+---
+
+## VahidOOnLine — post 244849
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_244849_1781142157.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس‌جمهوری ایالات متحده، چهارشنبه ۲۰ خردادماه در مراسم امضای قانون «آمریکای امن» در کاخ سفید، در پاسخ به سوال خبرنگاری که از او پرسید «جدا از صلح در خاورمیانه، برای روز تولدتان چه آرزویی دارید؟» گفت: «بگذارید یک قدم فراتر بروم؛ صلح برای جهان.»
+
+ترامپ در ادامه با اشاره به خاورمیانه افزود: «بله، صلح برای تمام جهان.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342838
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342838_1781142158.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Karmelo Anthony is being held in isolation following his conviction in the murder of Texas high school student Austin Metcalf.
+
+A Collin County jury sentenced Anthony to 35 years in prison after rejecting his claim of self-defense in the fatal stabbing at a Frisco track meet. He is expected to eventually be transferred to a state prison.
+
+Anthony has since filed a notice of appeal following his conviction, according to court records.
+
+The case drew national attention after Metcalf, 17, was killed during an altercation at a school track meet in 2025.
+</div>
+
+## VahidOnline — post 76189
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76189_1781142159.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+ساعتی بعد از حملات بامداد پنجشنبه آمریکا، خبرگزاری‌های رسمی به نقل از ارتش جمهوری اسلامی ایران نوشتند: «ناوگان پنجم آمریکا در بحرین، آماج حملات پهپادی ارتش، قرار گرفت. در این موج از حملات پهپادی ارتش، آنتن‌های ارتباطی و تاسیسات راداری سامانه پاتریوت ناوگان پنجم مورد هدف قرار گرفت.»یییی
+
+همزمان وزارت کشور بحرین در پیامی در شبکه اجتماعی ایکس از ساکنان خواست تا با حفظ آرامش به نزدیک‌ترین مکان امن بروند.
+
+سپاه پاسداران از حمله به« ۱۸ موضع نیروهای آمریکا» در منطقه خبر داده است.
+
+کانال تلگرامی سپاه نیوز نوشت که طی «دو موج عملیاتی ۱۸ هدف مهم» متعلق به ارتش امریکا در پایگاه‌های هوایی «علی السالم» و «احمدالجابر» و همچنین پایگاه‌های هوایی «شیخ عیسی» را هدف قرار داده و منهدم کرده است.
+@VahidHeadline
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 76188
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76188_1781142160.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فاکس نیوز به نقل از ترامپ گزارش داد که اسرائیل در حمله نخستین ساعات بامداد پنجشنبه به اهدافی در جنوب ایران مشارکت نداشت اما به‌طور حتم ارتش اسرائیل در سطح آمادگی بالا قرار دارد. او در عین حال گفت که آمریکا بیش از ۵۰ هزار نیرو در منطقه دارد که بسیاری از آنها در عملیات مشارکت داشتند.
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## FarsiVOA — post 220338
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220338_1781142160.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️شلیک موشک تاماهاک به مواضع جمهوری اسلامی از ناو جنگی یواس‌اس مایکل مورفی - ۲۰ خرداد به وقت واشنگتن (ویدئوی نیروی دریایی ایالات متحده)
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220337
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺دونالد ترامپ به فاکس‌نیوز: اگر جمهوری اسلامی توافق نکند فردا شب هم به‌شدت بمباران می‌شود؛ سنتکام: عملیات امشب پایان یافت
+
+▪️دونالد ترامپ، رئیس‌جمهوری آمریکا چهارشنبه شب در مصاحبه‌‌ای با فاکس نیوز، در پاسخ به این سوال که اگر جمهوری اسلامی با او توافق نکند چه اتفاقی می‌افتد؟ گفت که فردا شب هم به‌شدت بمباران خواهند شد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8159688.html
+@FarsiVOA
+</div>
+
+## BBCPersian — post 283378
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️سنتکام از پایان دور جدید حملات به ایران خبر داد
+
+ستاد فرماندهی مرکزی ارتش آمریکا - سنتکام - دقایقی پیش، از پایان دور جدید حملات خود به ایران خبر داد.
+
+دونالد ترامپ، رئیس جمهور آمریکا، ساعتی پیش در گفت‌وگو با فاکس نیوز مدعی شده بود که بنا بر «درخواست مستقیم» ایران حملات متوقف خواهد شد.
+
+اما ایران فورا این ادعا را رد کرد و گفت در پاسخ به حملات متقابل نیروهای مسلح این کشور بوده که نیروهای آمریکایی به حملات خود پایان داده‌اند.
+
+همزمان ایران از حملات پهپادی و موشکی خود به پایگاه‌های آمریکایی در منطقه خبر داده و گفته با توجه به حملات جدید آمریکا تنگه هرمز را به طور کامل بسته است.
+https://bbc.in/4egMao7
+@BBCPersian
+</div>
+
+---
 📅 بروزرسانی: 1405/03/21 05:02
 ---
 

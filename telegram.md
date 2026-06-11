@@ -7,6 +7,240 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/21 04:32
+---
+
+## VahidOOnLine — post 244843
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244843_1781139768.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️حدود ساعت چهار بامداد پنجشنبه در ایران، خبرگزاری مهر از شنیده شدن صدای انفجار در اشتهارد در غرب استان البرز خبر داد و نوشت صدا در هشتگرد و سهیلیه نیز شنیده شده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244842
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244842_1781139769.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های ایران گزارش دادند که انفجارهایی در اطراف استان البرز از جمله هشتگرد، نظرآباد و اشتهارد در غرب و ورامین در جنوب تهران شنیده شده است. همچنین گزارش‌هایی از انفجار در آبیک قزوین منتشر شده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244841
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_244841_1781139770.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ اعلام کرد جمهوری اسلامی فرصت کافی برای توافق داشت اما از آن استفاده نکرد. هم‌زمان، آمریکا حملات محدودی را در خاک ایران انجام داد. گزارش‌ها حاکی است این حملات با هدف افزایش فشار بر جمهوری اسلامی، بدون بستن کامل مسیر بازگشت به مذاکرات، انجام شده است.
+سمیرا قرایی، خبرنگار ایران‌اینترنشنال، گزارش می‌دهد
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## pm_afshaa — post 93567
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93567_1781139772.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴صداوسیما: انفجارهای مهیب در اطراف استان البرز، هشتگرد و نظرآباد در کرج.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93566
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93566_1781139772.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پادگان حصارک کرج
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93565
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انفجار در قزوین
+</div>
+
+## pm_afshaa — post 93563
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93563_1781139774.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تصاویری از کرج :
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93562
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دقایقی پیش صدای انفجار در کنگان
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93561
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93561_1781139775.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سید مجید موسوی فرمانده هوافضا سپاه:
+تنگه مقدس هرمز رو ناامن می‌کنید؟! از سراسر ایران، منطقه رو برایتان جهنم می‌کنیم.
+
+این پاسخ جسارت آمریکایی‌ها در منطقه است باذن الله.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## kianmeli1 — post 87923
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری-ریزپرنده ها به هشتگرد حمله کرده اند
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87922
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری-برق و مخابرات بخشی از شهر کرج قطع شده است
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87921
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری-بندر کنگان صدای چندین انفجار ۴:۱۷ صبح
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 341608
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341608_1781139776.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های ایران گزارش دادند که انفجارهایی در اطراف استان البرز از جمله هشتگرد، نظرآباد و اشتهارد در غرب و ورامین در جنوب تهران شنیده شده است. همچنین گزارش‌هایی از انفجار در آبیک قزوین منتشر شده است.
+https://iranintl.com/202606114616
+</div>
+
+## IranIntlTV — post 341607
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341607_1781139776.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ اعلام کرد جمهوری اسلامی فرصت کافی برای توافق داشت اما از آن استفاده نکرد. هم‌زمان، آمریکا حملات محدودی را در خاک ایران انجام داد. گزارش‌ها حاکی است این حملات با هدف افزایش فشار بر جمهوری اسلامی، بدون بستن کامل مسیر بازگشت به مذاکرات، انجام شده است.
+سمیرا قرایی، خبرنگار ایران‌اینترنشنال، گزارش می‌دهد
+</div>
+
+## FarsiVOA — post 220332
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220332_1781139778.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️با ادامه حملات ایالات متحده به مواضع جمهوری اسلامی، دور دیگری از حملات در کنگان گزارش شد. به گزارش کانال تلگرامی وحیدآنلاین، صدای انفجار در کنگان، استان بوشهر، در حدود ساعت ۴:۱۷ دقیقه بامداد پنج‌شنبه شنیده شد.
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 16673
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ صداوسیما: انفجارهای مهیب در اطراف استان البرز، هشتگرد و نظرآباد در کرج.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16671
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16671_1781139778.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارشات از هدف قرار گرفتن پادگان‌ حصارک
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 22272
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 هشتگرد با پهپاد هدف قرار گرفته شده !
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22271
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22271_1781139780.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیویی از حملات هوایی به کرج
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 391670
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391670_1781139781.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حالا که بیدار موندید اینو گوش کنید کل آمار منطقه میاد دستتون
+
+گلمراد قیصی اتاق طبر
+اولین تحلیلگر جنگی در تاریخ که تمام سوالارو از ما میپرسه
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/03/21 04:22
 ---
 

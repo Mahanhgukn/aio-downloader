@@ -7,6 +7,240 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/21 03:32
+---
+
+## VahidOOnLine — post 244831
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244831_1781136150.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صدا و سیما به نقل از یک مقام ارشد جمهوری اسلامی اعلام کرد اظهارات ترامپ درباره تماس او با مقامات ایرانی دروغ است.
+این مقام افزود: این اظهارات پوششی برای فرار از جنگ علیه جمهوری اسلامی است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244830
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244830_1781136151.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ صداوسیما بامداد پنجشنبه ۲۱ خردادماه به نقل از یک مقام ارشد گزارش فاکس‌نیوز مبنی بر اینکه مقامات تهران با دونالد ترامپ تماس گرفته و از او خواسته‌اند حمله‌ها متوقف شود را تکذیب کرد و آن را «کذب محض» خواند.
+این واکنش پس از آن مطرح شد که فاکس‌نیوز به نقل از دونالد ترامپ، رئیس‌جمهوری آمریکا، گزارش داد او به‌طور مستقیم با مقام‌های جمهوری اسلامی گفت‌وگو کرده و آنها از ترامپ خواسته‌اند حملات آمریکا متوقف شود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14464
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ : این آتش بس، بیشترین آتش‌بسِ نقض‌شده تو تاریخ جهان بود. @withyashar
+</div>
+
+## WithYashar — post 14463
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ :
+این آتش بس، بیشترین آتش‌بسِ نقض‌شده تو تاریخ جهان بود.
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342831
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342831_1781136151.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Democrats' defensive disaster leads to two runs for Republicans after a hit by Rep. Bill Huizenga that didn't leave the infield in the annual Congressional Baseball Game for Charity.
+
+Republican and Democratic lawmakers took the field in one of Washington's longest-running traditions, with the GOP looking to extend a multi-year winning streak.
+
+The matchup has raised millions for charity over the years and offers a rare moment where political rivals compete side-by-side outside the halls of Congress.
+</div>
+
+## FoxNewsTwitter — post 342830
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+RT @TreyYingst: Spoke with President Trump tonight as he oversaw the U.S. military strikes against Iran from the Situation Room.
+
+The President told me he spoke directly with Iranian officials tonight who asked him to stop bombing.
+
+49 Tomahawk missiles had been fired by the United States at the time we spoke, along with bombing from fighter jets. Closest target to Tehran was approximately 40 miles outside of the city.
+
+Trump added that the bombing will stop shortly, but that if they don't sign the agreement, "we'll bomb the shit out of them."
+
+President Trump called this "the most violated ceasefire in the history of the world."
+
+Vice President JD Vance told me the United States is dealing with both moderate and more extreme voices in Iran as part of the negotiation process.
+
+More updates to follow on @FoxNews.
+</div>
+
+## VahidOnline — post 76178
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76178_1781136153.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صدا و سیما به نقل از یک مقام ارشد جمهوری اسلامی اعلام کرد اظهارات ترامپ درباره تماس او با مقامات ایرانی دروغ است.
+این مقام افزود: این اظهارات پوششی برای فرار از جنگ علیه جمهوری اسلامی است.
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 341603
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341603_1781136154.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صدا و سیما به نقل از یک مقام ارشد جمهوری اسلامی اعلام کرد اظهارات ترامپ درباره تماس او با مقامات ایرانی دروغ است.
+این مقام افزود: این اظهارات پوششی برای فرار از جنگ علیه جمهوری اسلامی است.
+</div>
+
+## FarsiVOA — post 220320
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220320_1781136154.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️خبرنگار فاکس‌نیوز دقایقی قبل گزارش داد که رئيس جمهوری آمریکا، دونالد ترامپ، همراه با جی‌دی ونس، دامادش جرد کوشنر، و استیو ویتکاف، در «اتاق وضعیت» کاخ سفید حضور داشت. آقای ترامپ به فاکس‌نیوز گفت ۴۹ موشک تاماهاک برای زدن اهدافی در ایران استفاده شد. آقای ترامپ گفت برخی از این اهداف فقط حدود ۶۰ کیلومتر با پایتخت، تهران، فاصله داشتند.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220319
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220319_1781136154.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ستاد فرماندهی مرکزی آمریکا، سنتکام، ادعای تازه سپاه پاسداران را که «تنگه هرمز بسته است» رد کرد و گفت «حقیقت» این است که «کشتی‌های تجاری امشب همچنان به ورود و خروج از تنگه هرمز ادامه می‌دهند.»
+@FarsiVOA
+</div>
+
+## DW_Farsi — post 125797
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125797_1781136155.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 سی‌ان‌ان: هیأت قطری همچنان در تهران است
+
+شبکه خبری سی‌ان‌ان به نقل از یک منبع دیپلماتیک مطلع نوشت هیأت قطری که صبح چهارشنبه ۱۰ ژوئن (۲۰ خرداد) برای دیدار با مذاکره‌کنندگان ایرانی به تهران سفر کرده بود، هم‌زمان با آغاز دور تازه‌ای از حملات آمریکا علیه ایران، همچنان در این کشور حضور دارد.
+
+این منبع پیش‌تر به این شبکه گفته بود که مذاکره‌کنندگان "پس از مشورت با آمریکا" به ایران رفته‌اند تا با طرف ایرانی دیدار کرده و "برای پر کردن شکاف‌های باقی‌مانده" تلاش کنند.
+
+رسانهٔ دولتی صداوسیمای جمهوری اسلامی (IRIB) گزارش داد که این سفر شامل گفت‌وگو دربارهٔ روابط دو کشور و همچنین تبادل نظر دربارهٔ آخرین تحولات در روندی دیپلماتیک خواهد بود که آن را تلاشی برای پایان دادن به "جنگ تحمیلی آمریکا" علیه ایران توصیف کرده است.
+
+@dw_farsi
+</div>
+
+## IranianMinds — post 22245
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22245_1781136155.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 صداوسیما :
+
+ترامپ دوباره عقب نشینی کرد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22244
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22244_1781136156.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📢توم میخوای از مسابقات جام جهانی فوتبال پول دربیاری؟
+🥇
+
+
+✅کانال ورسوس بت کارش تحلیل و پیش بینی مسابقات جام جهانی به صورت حرفه ای
+🍑
+
+
+⚠️توم میتونی از پیش بینی جام جهانی خیلی راحت پول دربیاری فقط کافیه با کانال ورسوس بت همراه شی
+📣
+
+
+🌐ادرس عضویت کانالشون:e20
+👇
+
+🔪https://t.me/+vEPd1hF2Y38yMWI0
+
+🔪https://t.me/+vEPd1hF2Y38yMWI0
+</div>
+
+## IranianMinds — post 22243
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22243_1781136156.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 پست محمد مرندی:
+
+هیچ مقامی با دلقک در کاخ سفید تماس نگرفته است.
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 391655
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تری یینگست خبرنگار فاکس‌نیوز با ترامپ مصاحبه کرده: «ترامپ در حال حاضر به‌همراه معاونش جی‌دی ونس و فرستاده‌های ویژه کوشنر و ویتکاف، توی اتاق وضعیت حضور داره. ترامپ اطلاعات جدیدی درباره اتفاقاتی که همین الان داره می‌افته به ما داد. یک کمپین بمباران علیه رژیم…
+</div>
+
+## Dirty_Kids — post 391654
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391654_1781136157.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تری یینگست خبرنگار فاکس‌نیوز با ترامپ مصاحبه کرده:
+
+«ترامپ در حال حاضر به‌همراه معاونش جی‌دی ونس و فرستاده‌های ویژه کوشنر و ویتکاف، توی اتاق وضعیت حضور داره.
+ترامپ اطلاعات جدیدی درباره اتفاقاتی که همین الان داره می‌افته به ما داد.
+یک کمپین بمباران علیه رژیم روافض در حال انجامه.
+
+
+ترامپ به فاکس نیوز گفت که از ۴۹ موشک تاماهاک برای زدن اهدافی در داخل ایران استفاده شده که فاصله بعضی از این اهداف تا تهران پایتخت ایران حتی به ۴۰ مایلی [حدود ۶۴ کیلومتری] هم می‌رسه.
+
+ترامپ گفت که جنگنده‌های آمریکایی هم بر فراز آسمان ایران در حال عملیات هستن و سیستم‌های راداری و پدافند هوایی رو در بخش جنوب غربی کشور، یعنی نزدیک خلیج فارس، نابود کردن.
+
+همه این اتفاقات در حالی داره می‌افته که شیعه‌سانان دارن تلاش می‌کنن ایالات متحده رو مجبور کنن تا این حملات و بمباران‌ها رو متوقف کنه.
+
+ترامپ به من گفت که شیعه‌های رافضی‌ امشب باهاش تماس گرفته. به گفته فرمانده کل قوا، امشب در حالی که ترامپ در اتاق وضعیت نشسته بود، مقامات ارشد روافض و ترامپ مستقیم با هم صحبت کردن.
+
+ترامپ به من گفت که روافض قحبه‌ ازشون خواستن بمباران رو متوقف کنن. رئیس‌جمهور هم به من گفت:‌بمباران به‌زودی متوقف می‌شه.
+
+ازش پرسیدم اگه روافض‌ توافقی رو که توسط مذاکره‌کننده‌های آمریکایی ارائه شده امشب امضا نکنن چی می‌شه؟
+ترامپ گفت، نقل‌قول می‌کنم: فردا شب دهنشون رو می‌گاییم ‌و تا جا دارن بمبارانشون می‌کنیم.
+
+بنابراین رئیس‌جمهور گزینه نظامی رو روی میز نگه داشته، اونم برای زمانی که روافض‌ حاضر نشن این توافق از روی حسن نیت رو امضا کنن. توافقی که در نهایت تنگه گ‌ی هرمز رو باز نگه می‌داره و تضمین می‌کنه که اون‌ها نمی‌تونن برنامه هسته‌ای خودشون رو به سمت ساخت بمب اتمی پیش ببرن. این حرف آخر و اصلیه که ترامپ که بارها و بارها روش تأکید کرده. »
+
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/03/21 03:22
 ---
 

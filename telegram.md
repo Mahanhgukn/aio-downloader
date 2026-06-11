@@ -7,6 +7,217 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/21 22:04
+---
+
+## VahidOOnLine — post 245029
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_245029_1781202841.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️پنتاگون به قرنطینه و تدابیر امنیتی شدیدی که به دلیل وجود یک «مشکل در کیفیت هوا» ایجاد شده بود، پایان داد.
+
+شان پارنل، سخنگوی ارشد پنتاگون، با انتشار پیامی در شبکه‌های اجتماعی اعلام کرد: «آزمایش‌های بعدی تایید کرد که هیچ خطری وجود ندارد و فعالیت‌های عادی ساختمان از سر گرفته شده است.»
+
+این قرنطینه حدود دو ساعت به طول انجامید و منجر به اعزام تیم‌های مقابله با مواد خطرناک (Hazmat) وابسته به نیروی پلیس داخلی پنتاگون و همچنین تیم امداد و نجات منطقه مجاور یعنی آرلینگتون در ایالت ویرجینیا به محل حادثه شد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245028
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245028_1781202843.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری فارس، وابسته به سپاه پاسداران، به نقل از یک منبع آگاه نوشت جمهوری اسلامی هنوز هیچ متنی را برای توافق تایید نکرده است.
+
+فارس افزود این منبع آگاه نزدیک به تیم مذاکره‌کننده گفته بر خلاف اظهارات ترامپ، هیچ متنی برای یادداشت تفاهم اولیه با آمریکا تایید نشده است.
+
+پیش‌تر دونالد ترامپ گفته بود توافق با تهران تقریبا نهایی شده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14546
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فارس به نقل از یک منبع آگاه نزدیک به تیم مذاکره‌کننده اعلام کرد که جمهوری اسلامی هنوز هیچ متنی را برای توافق با آمریکا تایید نکرده است.
+
+این منبع اظهارات دونالد ترامپ درباره نهایی شدن قریب‌الوقوع توافق را رد کرده و گفته تاکنون هیچ یادداشت تفاهمی میان دو طرف مورد تایید قرار نگرفته است..
+@withyashar
+</div>
+
+## WithYashar — post 14545
+
+
+
+
+## mwarmonitor — post 10736
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚠️اطلاعیه رسمی کانال ⚠️ 🔸بدین‌وسیله به اطلاع همراهان گرامی می‌رسد که کانال خبری ما در پلتفرم X (توییتر سابق) راه‌اندازی شد. 🔸از این پس، آخرین اخبار و تحلیل‌های نظامی، سیاسی و همچنین مسائل اجتماعی ایران و جهان به‌صورت منظم در آن منتشر خواهد شد. 🔸از شما عزیزان…
+</div>
+
+## mwarmonitor — post 10735
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بر اساس این واقعیت که گفتگوها با جمهوری اسلامی ایران به بالاترین سطح رهبری ایران ارجاع داده شده و مورد موافقت قرار گرفته است، من به عنوان رئیس‌جمهور ایالات متحده آمریکا، حملات و بمباران‌های برنامه‌ریزی‌شده علیه ایران برای امشب را لغو کردم. گفتگوها و نکات نهایی،…
+</div>
+
+## FoxNewsTwitter — post 342872
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342872_1781202843.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+The Trump administration is cutting off tens of millions of dollars in federal funding to a Los Angeles agency that provides services to the homeless as it investigates potential fraud.
+
+According to a letter first obtained by Fox News, the Los Angeles Homeless Services Authority (LAHSA) has received nearly $1 billion in taxpayer funding from the Department of Housing and Urban Development since 2021.
+
+Federal funding for the agency has now been halted while HUD investigates potential offenses by the agency and its leadership, @davidspunt reports.
+</div>
+
+## IranIntlTV — post 341768
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341768_1781202846.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری فارس، وابسته به سپاه پاسداران، به نقل از یک منبع آگاه نوشت جمهوری اسلامی هنوز هیچ متنی را برای توافق تایید نکرده است.
+
+فارس افزود این منبع آگاه نزدیک به تیم مذاکره‌کننده گفته بر خلاف اظهارات ترامپ، هیچ متنی برای یادداشت تفاهم اولیه با آمریکا تایید نشده است.
+
+پیش‌تر دونالد ترامپ گفته بود توافق با تهران تقریبا نهایی شده است.
+https://iranintl.com/202606111151
+</div>
+
+## FarsiVOA — post 220412
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+از تنگه هرمز تا اوکراین؛ بحران‌هایی که بر اجلاس جی۷ سایه انداخته‌اند
+</div>
+
+## Persian_Trend_Official — post 16762
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: با توجه به اینکه مذاکرات با جمهوری اسلامی ایران به بالاترین سطح رهبری ایران رسیده و تأیید شده است. من به عنوان رئیس جمهور ایالات متحده آمریکا، حملات و بمباران‌های برنامه‌ریزی شده علیه ایران را امشب لغو کردم. مذاکرات و نکات نهایی، هم از نظر مفهومی و…
+</div>
+
+## Persian_Trend_Official — post 16761
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فارس به نقل از منبع آگاه: ایران هنوز هیچ متنی را برای توافق تایید نکرده است.
+
+هیچ متنی برای یادداشت تفاهم اولیه با آمریکا تایید نشده است؛ این را یک منبع آگاه نزدیک به تیم مذاکره‌کننده جمهوری اسلامی ایران به خبرنگار فارس گفت.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16760
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به گزارش I24News، مقامات اسرائیلی از اعلام توقف بمباران ایران توسط رئیس جمهور ترامپ غافلگیر شدند. یک مقام اسرائیلی به i24news گفت که مقامات در حال حاضر به اظهارات عمومی ترامپ تکیه می کنند و گفت که اسرائیل باید قبل از تعیین دقیق بودن ارزیابی رئیس جمهور، پاسخ…
+</div>
+
+## Persian_Trend_Official — post 16759
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16759_1781202846.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مارکو روبیو، وزیر امور خارجه امریکا: امروز من شرکت انرژی دولتی کوبا (CUPET) را طبق فرمان اجرایی 14404 رئیس جمهور ترامپ تحریم می‌کنم.
+
+نخبگان کمونیست کوبا، انرژی را به عنوان ابزاری برای کنترل اجتماعی و سود دزدسالارانه به سلاح تبدیل کرده‌اند. رئیس جمهور ترامپ آینده‌ای جدید با آزادی و فرصت‌های اقتصادی و سیاسی بیشتر برای مردم کوبا می‌خواهد.
+
+تا آن زمان، ما به هدف قرار دادن توانایی رژیم کمونیستی در استفاده از تجارت انرژی خود برای پیشبرد دستور کار فاسد خود و سرکوب خشونت‌آمیز مردم کوبا ادامه خواهیم داد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 22331
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22331_1781202847.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+@IranianMinds
+</div>
+
+## BBCPersian — post 283467
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻 نخستین مراسم افتتاحیه جام جهانی در مکزیکوسیتی، پایتخت مکزیک برگزار شد.
+شکیرا و برنا بوی از جمله خواننده‌هایی بودند که در ورزشگاه آزتکا اجرا کردند.
+از آن‌جا که جام جهانی ۲۰۲۶ در سه کشور برگزار می‌شود، سه مراسم افتتاحیه خواهد داشت. دو مراسم دیگر در کانادا و آمریکا نیز برنامه‌ریزی شده است.
+نخست مسابقه جام جهانی ۲۰۲۶ بین مکزیک و آفریقای جنوبی امشب برگزار می‌شود.
+
+📸Getty Images
+@BBCPersian
+</div>
+
+## alonews — post 127212
+
+<div align="center">
+  <a href="telegram/content/alonews_127212_1781202847.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رسانه اسرائیلی : همه چیز در پست رئیس‌جمهور درست نیست!
+
+
+🔴هیچ توافقی بین سپاه پاسداران و اسرائیل وجود ندارد و اسرائیل ۱۰۰٪ هرگز آن را تأیید نکرده است.
+
+
+🔴تنها چیزی که برای گفتن باقی می‌ماند این است - به اعمال او قضاوت کنید نه به کلماتش!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127211
+
+<div align="center">
+  <a href="telegram/content/alonews_127211_1781202848.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈طبق منابع العربیه، عباس عراقچی، وزیر امور خارجه ایران، ممکن است در ۱۳ ژوئن به پاکستان سفر کند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127210
+
+<div align="center">
+  <a href="telegram/content/alonews_127210_1781202848.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فارس : منبع آگاه: ایران هنوز هیچ متنی را برای توافق تایید نکرده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/21 21:53
 ---
 

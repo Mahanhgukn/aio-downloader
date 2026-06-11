@@ -7,6 +7,387 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/21 16:53
+---
+
+## VahidOOnLine — post 244948
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244948_1781184197.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسکات بسنت، وزیر خزانه‌داری آمریکا در شبکه ایکس نوشت که حکومت ایران در بازی حاصل‌جمع صفر که در پیش گرفته، شکست خواهد خورد.
+
+او افزود: «هر خسارتی که جمهوری اسلامی به متحدان آمریکا در خلیج فارس وارد کند، با برداشت از حساب‌های ایرانی جبران خواهد شد.»
+
+بسنت گفت که هر عوارضی بابت تنگه هرمز پرداخت شود، با برداشت از حساب‌های آن‌ها (جمهوری اسلامی) جبران خواهد شد.
+
+او ادامه داد: «هر حمله جمهوری اسلامی پیامدهای اقتصادی و مالی بیشتری برای تهران به دنبال خواهد داشت.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14518
+
+
+
+
+## WithYashar — post 14517
+
+
+
+
+## WithYashar — post 14516
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: ایران بزودی به پایان می‌رسد، امشب هم بشدت بمباران خواهند شد!
+@withyashar
+</div>
+
+## mwarmonitor — post 10717
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارشگر:
+«خب، شما می‌گویید... یعنی دارید اعلام می‌کنید که امشب ضربه بسیار سختی به آن‌ها خواهید زد. چه عواملی باعث شد این پست را بگذارید؟»
+دونالد ترامپ:
+«خب، این هم یکی از همان چیزهاست، آن‌ها هیچ دفاعی ندارند، هیچ کاری نمی‌توانند در موردش بکنند. آن‌ها... تنها چیزی که دارند اخبار جعلی است. می‌دانید، مثلاً نیویورک تایمز طوری می‌نویسد که انگار وضعیت آن‌ها عالی است، در حالی که اینطور نیست، آن‌ها نابود شده‌اند.
+سی‌ان‌ان (CNN) و... آن ام‌اس‌ان‌بی‌سی (MSNBC) یا هر چیزی که این روزها صدایش می‌کنند... ان‌بی‌سی (NBC) مجبور شد خودش را از شر آن خلاص کند چون برای شهرتشان بد بود.
+اما... تبلیغات و رسانه‌ای که در اختیار دارند باورنکردنی است. انگار دارند خوب عمل می‌کنند، در حالی که دارند تارومار می‌شوند، دقیقاً تارومار می‌شوند. آن‌ها به‌شدت تشنه توافق هستند، خیلی زیاد می‌خواهند توافق کنند.
+اما خب، وقتی نیویورک تایمز را می‌خوانید، یا وال استریت ژورنال را می‌خوانید که خیلی جعلی است... منظورم این است، می‌دانم که این رسانه متعلق به شماست [خطاب به فاکس نیوز]، اما واقعاً یک تکه زباله است. وقتی وال استریت ژورنال را می‌خوانید، می‌بینید که امروز سرمقاله‌ای نوشتند درباره اینکه ما به اندازه کافی به آن‌ها ضربه نمی‌زنیم! منظورم این است... به اندازه کافی ضربه نمی‌زنیم؟ ما دیشب به ارزش ۲۵۰ میلیون دلار بمب روی سرشان ریختیم. می‌دانید، کل این ماجرا دیوانه‌کننده است.
+و آن‌ها واقعاً تسلیم شده‌اند. فقط خودشان هنوز این را نمی‌دانند! خب؟ برای اینکه با شما صادق باشم، آن‌ها هنوز این را نمی‌دانند.
+و ما داریم با آن‌ها صحبت می‌کنیم و همه این‌ها... اما می‌دانید... ببینید، ترجیح من همیشه این بوده که کارگیل (Cargill) و... را بگیریم. برایان این را می‌داند، خیلی وقت پیش با او صحبت کردم. لارنس هم این را می‌داند، خیلی وقت پیش با او هم صحبت کردم. گفتم ترجیح من این خواهد بود.
+اما برای اینکه صادق باشم، نمی‌دانم آیا آمریکا طاقت و تحملش را دارد یا نه. می‌دانید، ثروت زیادی به دست می‌آید، اما نمی‌دانم آمریکا این طاقت را دارد یا نه. فکر می‌کنم آن‌ها دوست دارند بازگشت ما به خانه را ببینند.»
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10716
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_10716_1781184197.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## mwarmonitor — post 10715
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مجری شبکه فاکس نیوز:
+اما آیا امشب بمباران بیشتری صورت خواهد گرفت؟
+دونالد ترامپ:
+بله، امشب بمباران بیشتری در کار خواهد بود. این بار بزرگ‌تر و قدرتمندتر خواهد بود. فراموش نکنید، ما تمام پدافند ضدهوایی آن‌ها را از کار انداخته‌ایم. آن‌ها هیچ ضدهوایی ندارند، هیچ‌چیز ندارند. منظورم این است که شاید با یک سلاح دوش‌پرتاب یا چیزی شبیه به آن شانس بیاورند، اما در کل، می‌دانید که آن‌ها هیچ دفاعی ندارند.
+مجری دیگر:
+نمایندگان در تماس تلفنی‌شان با شما چه گفتند؟
+دونالد ترامپ:
+کار آن‌ها تمام است. معذرت می‌خواهم، کارشان تمام است. اما روزنامه‌ها و رسانه‌ها از نوشتن این موضوع خودداری می‌کنند؛ کار آن‌ها تمام است. ما می‌توانیم همین فردا وارد آنجا شویم. ما می‌توانیم سرباز بفرستیم؛ البته من مایل به اعزام نیروی زمینی نیستم، اما اگر می‌خواستم، می‌توانستیم گروه کوچکی از سربازان را بفرستیم و کنترل کل منطقه را به دست بگیریم.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10714
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_10714_1781184199.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## FoxNewsTwitter — post 342852
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342852_1781184200.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: President Trump confirms that “bigger, more powerful” bombings against Iran will take place tonight.
+
+The president also telling @foxandfriends the U.S. could go into Iran with a small group of soldiers and “take over the whole place,” but also says he doesn’t want to have American boots on the ground.
+
+"There will be more bombing tonight. It'll be bigger, bigger, more powerful."
+
+"We can walk in there tomorrow. We could take soldiers - I don't want to have boots on the ground - but if I wanted to, we could put a small group of soldiers and take over the whole place."
+</div>
+
+## FoxNewsTwitter — post 342851
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342851_1781184202.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: "My message to the Iranian people is they're afraid because they have no guns, and the other side has guns, and they have a rally and they get shot."
+
+President Trump expressed sympathy for the Iranian people while discussing the U.S. pressure campaign against Tehran, arguing ordinary citizens are the ones living under the regime's repression.
+
+When @kilmeade asked whether bridges, power plants, or other infrastructure could be targeted next, Trump emphasized the human cost.
+
+"I'd rather not do it because once you do that the people suffer."
+</div>
+
+## pm_afshaa — post 93626
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93626_1781184204.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: مردم ایران میترسن چون اسلحه ندارن، و طرف مقابل اسلحه داره، و آنها تجمع میکنن و تیر می‌خورن..
+
+آنها حداقل ۴۰٬۰۰۰ تا ۵۰٬۰۰۰ نفر رو کشتن و مردم می‌ترسن. میدونید، وقتی یک مسلسل روبروی صورت شما باشه یا وقتی چهار تک‌تیرانداز در چهار ساختمان مختلف به سر مردم شلیک می‌کنند، برگزاری تجمع سخته.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93625
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93625_1781184204.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: کار ایران تمام شده و میتونیم از فردا نیروهامون رو وارد کنیم، اما فعلا قصد اعزام نیروی زمینی ندارم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93624
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93624_1781184204.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وزیر خزانه‌داری آمریکا: واشنگتن از پول‌های ایران برای جبران خسارات متحدانش در خلیج استفاده خواهد کرد.
+
+ایران بازی‌ای که انجام میده رو خواهد باخت و هر آسیبی که به متحدان ما در خلیج فارس وارد کنه، از حساب‌هایش پرداخت خواهد شد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## kianmeli1 — post 87932
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87932_1781184205.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری-ترامپ در تماس تلفنی با فاکس نیوز تأیید کرد که حملات «بزرگتر، بزرگتر و قدرتمندتر» امشب انجام خواهد شد.
+
+همچنین گفت در صورت نیاز، نیروهای آمریکایی می‌توانند برای «تسخیر کل منطقه» مورد استفاده قرار گیرند و اظهارات قبلی خود در مورد استفاده از نیروهای زمینی علیه ایران را تکرار کرد.
+</div>
+
+## IranIntlTV — post 341704
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341704_1781184206.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسکات بسنت، وزیر خزانه‌داری آمریکا در شبکه ایکس نوشت که حکومت ایران در بازی حاصل‌جمع صفر که در پیش گرفته، شکست خواهد خورد.
+
+او افزود: «هر خسارتی که جمهوری اسلامی به متحدان آمریکا در خلیج فارس وارد کند، با برداشت از حساب‌های ایرانی جبران خواهد شد.»
+
+بسنت گفت که هر عوارضی بابت تنگه هرمز پرداخت شود، با برداشت از حساب‌های آن‌ها (جمهوری اسلامی) جبران خواهد شد.
+
+او ادامه داد: «هر حمله جمهوری اسلامی پیامدهای اقتصادی و مالی بیشتری برای تهران به دنبال خواهد داشت.»
+https://iranintl.com/202606111472
+</div>
+
+## Shin_Persian — post 6945
+
+<div align="center">
+  <a href="telegram/content/Shin_Persian_6945_1781184206.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔁 Quoting above tweet:
+Shin ✓ @hey_itsmyturn
+Thu, 11 Jun 2026 13:14:43 UTC
+
+Idk man, “ALL” is a big word, wingmen of IRIAF Phantoms were spotted over Bandar Abbas earlier today
+
+ترجمه خودکار فارسی
+
+نمی‌دانم پسر، «همه» واژه بزرگی است، وینگ‌من‌های فانتوم‌های نیروی هوایی ارتش جمهوری اسلامی ایران (نهاجا) اوایل امروز بر فراز بندرعباس دیده شدند.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6944
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6944_1781184207.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet: Shin ✓ @hey_itsmyturn Thu, 11 Jun 2026 12:25:46 UTC POTUS: "The United States will be hitting Iran (Whose Navy, Air Force, Radar, Anti Aircraft, and all other forms of Defense, together with most of its offensive capability, are GONE!),…
+</div>
+
+## Shin_Persian — post 6943
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+Shin ✓ @hey_itsmyturn
+Thu, 11 Jun 2026 12:25:46 UTC
+
+POTUS:
+"The United States will be hitting Iran (Whose Navy, Air Force, Radar, Anti Aircraft, and all other forms of Defense, together with most of its offensive capability, are GONE!), VERY HARD TONIGHT. At some point in the not too distant future, we will be taking Kharg
+
+↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
+
+ترجمه خودکار فارسی
+
+رئیس‌جمهور ایالات متحده (POTUS):
+«ایالات متحده امشب بسیار سخت به ایران (که نیروی دریایی، نیروی هوایی، رادار، پدافند هوایی و تمام اشکال دیگر دفاعی آن، به همراه بیشتر توانمندی تهاجمی‌اش از بین رفته است!) ضربه خواهد زد. در مقطعی در آینده‌ای نه‌چندان دور، ما جزیره خارگ را خواهیم گرفت.»
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6940
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+Shin ✓ @hey_itsmyturn
+Thu, 11 Jun 2026 12:25:46 UTC
+
+POTUS:
+"The United States will be hitting Iran (Whose Navy, Air Force, Radar, Anti Aircraft, and all other forms of Defense, together with most of its offensive capability, are GONE!), VERY HARD TONIGHT. At some point in the not too distant future, we will be taking Kharg
+
+↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
+
+ترجمه خودکار فارسی
+
+رئیس‌جمهور ایالات متحده:
+«ایالات متحده امشب بسیار سخت به ایران (که نیروی دریایی، نیروی هوایی، رادار، ضدهوایی و تمام اشکال دیگر دفاعی آن، به همراه بیشتر توانایی تهاجمی‌اش از بین رفته است!) ضربه خواهد زد. در مقطعی در آینده نه‌چندان دور، ما جزیره خارگ را خواهیم گرفت.»
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 220381
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220381_1781184208.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پرسش میدان: تحولات به کدام سو می‌رود؟ توافق یا جنگ؟ و وضعیت مردم در هر یک از این سناریوها چه خواهد بود؟
+</div>
+
+## FarsiVOA — post 220380
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220380_1781184209.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرماندهی مرکزی ایالات متحده، سنتکام، اعلام کرد نیروهای آمریکایی یک نفتکش حامل نفت را در خلیج عمان هدف قرار داده و از کار انداخته‌اند.
+
+در این گزارش آمده است که نفتکش « جَلویر» با پرچم گینه بیسائو پس از نادیده گرفتن دستورات نیروهای آمریکایی هدف قرار گرفت.
+
+این بیانیه همچنین می‌گوید از آغاز اجرای محاصره در ۲۴ فرودین، ۹ شناور از کار افتاده، ۱۳۵ کشتی تغییر مسیر داده‌اند و ۴۲ شناور حامل کمک‌های بشردوستانه اجازه عبور دریافت کرده‌اند.
+
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 16732
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ در مصاحبه با فاکس نیوز: ما در حال مذاکره با ایران هستیم. 📝 Amir 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16731
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16731_1781184209.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ابراهیم رضایی سخنگوی کمیسیون امنیت ملی مجلس: ملت بزرگ ایران تسلیم‌ناپذیر است، قطعاً آنکه در این نبرد باید تسلیم شود آمریکاست. ترامپ هم دو راه بیشتر ندارد: یا باید تسلیم شود یا باید تسلیم شود.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## RadioFarda — post 158181
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_158181_1781184210.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸وزیر خزانه‌داری ایالات متحده می‌گوید که «رژیم ایران در بازی حاصل جمع صفر» که به گفتهٔ او، در پیش گرفته است، «شکست خواهد خورد».
+
+🔸اسکات بسنت روز پنجشنبه ۲۱ خرداد در پیامی در شبکهٔ اجتماعی ایکس نوشت: هر خسارتی که ایران به متحدان ما در خلیج فارس وارد کند، از محل منابعی که از حساب‌های ایران برداشت می‌شود جبران خواهد شد.
+
+🔸به گفتهٔ او، هرگونه عوارضی که به «سازمان تنگهٔ خلیج فارس» پرداخت شود، با برداشت از حساب‌های آن‌ها جبران می‌گردد.
+
+🔸وزیر خزانه‌داری آمریکا افزود: هر حمله‌ای که ایران انجام دهد، تنها پیامدهای اقتصادی و مالی را که با آن روبه‌روست، عمیق‌تر خواهد کرد.
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 22307
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ :
+
+امشب بمباران بیشتری خواهیم داشت. بزرگ‌تر، بزرگ‌تر و خیلی قدرتمندتر. فراموش نکنید که ما تمام پدافند هوایی‌شان را از بین برده‌ایم. آن‌ها هیچ چیزی ندارند.
+
+یعنی شاید با یک سلاح شانه‌ای یا چیزی شبیه آن خوش‌شانس باشند، اما در کل هیچ دفاعی ندارند.
+
+آن‌ها تمام شده‌اند. ولی رسانه‌ها این را نمی‌نویسند. ما می‌توانیم فردا آنجا برویم.
+
+می‌توانستیم سرباز ببریم. من دوست ندارم نیروهای زمینی داشته باشیم، اما اگر بخواهم می‌توانیم یک گروه کوچک از سربازان را بفرستیم و کل آنجا را تصرف کنیم.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 283444
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283444_1781184210.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻دونالد ترامپ، رئیس جمهور آمریکا می‌گوید که آمریکا امشب ایران را هدف حمله «بسیار شدید» قرار خواهد داد.
+
+او در در پستی جدید در سوشال تروٍث نوشت: «ایالات متحده امشب ایران را (که نیروی دریایی، هوایی، رادار، سامانه‌های پدافند هوایی و سایر اشکال دفاعی آن، همراه با بیشتر توان تهاجمی‌اش، از بین رفته‌اند!) به‌شدت هدف حمله قرار خواهد داد.»
+
+آقای ترامپ همچنین گفت: «در آینده‌ای نه چندان دور، ما جزیره خارگ و سایر نقاط زیرساختی نفتی را تصرف خواهیم کرد و کنترل کامل بازارهای نفت و گاز آن‌ها را در دست خواهیم گرفت؛ همان کاری که با ونزوئلا انجام دادیم که برای هر دو کشور ونزوئلا و ایالات متحده آمریکا به‌خوبی در حال نتیجه دادن است.»
+
+از آغاز این درگیری، آقای ترامپ بارها تهدید کرده است که جزیره خارک را که در سواحل ایران که محل یک پایانه بزرگ نفتی است، تصرف خواهد کرد.
+
+📸 Getty
+
+https://bbc.in/4v5B0d7
+@BBCPersian
+</div>
+
+## alonews — post 127147
+
+<div align="center">
+  <a href="telegram/content/alonews_127147_1781184211.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزیر خزانه‌ داری آمریکا:
+هر آسیبی که به متحدان ما در خلیج فارس وارد کند، با وجوهی که از حساب‌ های ایرانی برداشت می‌شود، جبران خواهد شد!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/21 16:43
 ---
 

@@ -7,6 +7,66 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/21 05:22
+---
+
+## pm_afshaa — post 93575
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+همین الان از تبریز و ارومیه موشک زدن 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93572
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+همین الان از تبریز و ارومیه موشک زدن
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## VahidOnline — post 76190
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شلیک موشک از زنجان، تبریز و ارومیه
+
+الان از شبستر تبریز سه تا موشک زدن نمیدونم به کجا
+صداش خیلی زیاد بود
+الان یدونه دیگه زد
+
+سلام 5:16
+همین الان تبریز صدای انفجار قوی اومد
+
+از ارومیه موشک بلند کردن
+
+5.18 ارومیه صدای 4 - 5 انفجار
+
+سلام وحید جان تو ارومیه ساعت ۵.۱۷ چهار بار صدای انفجار شدید اومد
+
+هنوزم ادامه داره
+3 تا دیگه زدن
+
+📡 @VahidOnline
+</div>
+
+## FarsiVOA — post 220339
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220339_1781142743.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ملانیا ترامپ، بانوی اول آمریکا، در کاخ سفید مراسم جوایز اولین چالش هوش‌مصنوعی ریاستی را برگزار کرد. این رویداد نخبگان جوان آمریکا را گرد هم آورد و نشان داد چگونه هوش‌مصنوعی در آموزش، فناوری و حل مسائل جامعه نقش می‌سازد.
+@FarsiVOA
+</div>
+
+---
 📅 بروزرسانی: 1405/03/21 05:12
 ---
 

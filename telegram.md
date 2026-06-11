@@ -7,6 +7,138 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/22 02:43
+---
+
+## VahidOOnLine — post 245066
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245066_1781219626.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرماندهی مرکزی ارتش آمریکا (سنتکام) اعلام کرده در حال بررسی گزارش‌هایی است که بر اساس آنها حملات آمریکا ممکن است یک تاسیسات آبی در جنوب ایران را هدف قرار داده باشد.
+
+تیم هاوکینز، سخنگوی سنتکام، با بیان این مطلب به شبکه خبری سی‌بی‌اس افزوده: «از این گزارش‌ها آگاه شده و در حال بررسی آنها هستیم.»
+
+این اظهارات پس از آن مطرح شد که مقام‌های حکومت ایران اعلام کردند حمله به یک تاسیسات آبی باعث شده که حدود ۲۰ هزار نفر به آب آشامیدنی دسترسی نداشته باشند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245065
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245065_1781219627.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️اسماعیل بقایی، سخنگوی وزارت امور خارجه جمهوری اسلامی ایران، با اشاره به روند بررسی توافق احتمالی میان تهران و واشنگتن، بر لزوم تایید قطعی تمامی مفاد این سند از سوی نهادهای بالادستی تاکید کرد و گفت: «ابتدا باید مراجع ذی‌ربط نظام درباره جزءبه‌جزء هرگونه تفاهمی به جمع‌بندی برسند.» به گزارش فارس، او با رد شایعات و گمانه‌زنی‌های رسانه‌ای درباره حصول توافق نهایی، تصریح کرد که فرآیند تصمیم‌گیری پله‌پله و با نظارت دقیق در حال انجام است و افزود: «به‌محض اینکه به جمع‌بندی نهایی برسیم، موضوع را رسما اعلام می‌کنیم.»
+این اظهارات سخنگوی وزارت خارجه در شرایطی مطرح می‌شود که دونالد ترامپ، رئیس‌جمهوری آمریکا، پیش‌تر گفت بود اسناد توافق در وضعیت تقریبا نهایی قرار دارد و مراسم امضای آن به‌زودی و شاید ظرف چند روز آینده برگزار خواهد شد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342885
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+One of the most recognizable lawns in the world is nearly ready for fight night.
+
+The UFC Octagon is in place outside the White House for the "UFC Freedom 250" celebration on June 14th — which is also President Trump's birthday.
+
+Preparations have been underway for weeks, including the installation of a roughly 90-foot-tall steel arch, dubbed the "claw." The event is expected to attract 4,000 spectators.
+</div>
+
+## IranIntlTV — post 341823
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341823_1781219627.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرماندهی مرکزی ارتش آمریکا (سنتکام) اعلام کرده در حال بررسی گزارش‌هایی است که بر اساس آنها حملات آمریکا ممکن است یک تاسیسات آبی در جنوب ایران را هدف قرار داده باشد.
+
+تیم هاوکینز، سخنگوی سنتکام، با بیان این مطلب به شبکه خبری سی‌بی‌اس افزوده: «از این گزارش‌ها آگاه شده و در حال بررسی آنها هستیم.»
+
+این اظهارات پس از آن مطرح شد که مقام‌های حکومت ایران اعلام کردند حمله به یک تاسیسات آبی باعث شده که حدود ۲۰ هزار نفر به آب آشامیدنی دسترسی نداشته باشند.
+https://iranintl.com/202606118442
+</div>
+
+## IranIntlTV — post 341822
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341822_1781219628.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمدرضا از تهران: این تیم ملی ما نیست؛از دوره قبل که برای دست‌بوسی رفتند، دیگر تیم ما نبود
+
+«یک ایران صدای شما را می‌شنود»
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/x7UesvMnjhM
+@iranintltv
+</div>
+
+## FarsiVOA — post 220444
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️تفاوت فعالیت‌های دانشجویی در جامعه امروز ایران با دهه‌های گذشته چیست؟ گفت‌وگو با با ایمان آقایاری
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 16819
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16819_1781219631.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ کارشناس شبکه خبر: با صراحت میگویم که متاسفانه بخش عمده ای از شروط ده‌گانه رهبری در توافق وجود ندارد.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16818
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16818_1781219633.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انتصاب شکننده در کابینه استارمر
+
+▪️ دن جارویس وزیر دفاع انگلیس شد
+
+🔹 «کی‌یر استارمر» نخست‌وزیر انگلیس، در بحبوه بحران رهبری حزب کارگر و فشارهای فزاینده بر دولتش، «دن جارویس» را به عنوان وزیر دفاع جدید منصوب کرد.
+
+🔹 این انتصاب ساعاتی پس از استعفای ناگهانی «جان هیلی»، وزیر دفاع پیشین، و «آل کارنز»، وزیر نیروهای مسلح، انجام شد و نشان‌دهنده شکاف عمیق در کابینه بر سر بودجه و برنامه سرمایه‌گذاری دفاعی است.
+
+🔹 جان هیلی روز پنج شنبه در نامه‌ای تند به استارمر استعفا داد و اعلام کرد که برنامه سرمایه‌گذاری دفاعی دولت «به طور قابل توجهی کمتر از آنچه برای دفاع و امنیت کشور در این زمان خطرناک لازم است» تأمین شده است. / تسنیم
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 22359
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴صدا و سیما:
+
+دقایقی پیش زلزله‌ای به مقیاس ۴.۱ ریشتر در حوالی کهنوج استان کرمان.
+
+@IranianMinds
+</div>
+
+---
 📅 بروزرسانی: 1405/03/22 02:33
 ---
 

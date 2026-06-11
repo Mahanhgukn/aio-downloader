@@ -7,6 +7,320 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/22 00:03
+---
+
+## VahidOOnLine — post 245050
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245050_1781210007.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسماعیل بقائی، سخنگوی وزارت خارجه جمهوری اسلامی در یک برنامه تلویزیونی گفت: «مواردی که درباره توافق مطرح می‌شود، گمانه‌زنی است و موضوع نهایی نشده است.»
+
+او اضافه کرد: «وضعیت مذاکرات از ابتدا برای ما روشن بود و بخش عمده متن نهایی شده بود، اما آمریکایی‌ها مواضع خود را تغییر می‌دادند.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245049
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245049_1781210007.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس جمهوری آمریکا درباره توافق با تهران گفت: «جمهوری اسلامی سلاح هسته‌ای نخواهد داشت.»
+
+زمانی که یک خبرنگار از ترامپ در کاخ سفید پرسید که آیا مجتبی خامنه‌ای این توافق را تایید کرده، او گفت: «تا جایی که من می‌دانم، پاسخ بله است.»
+
+ترامپ اضافه کرد که تفاهم‌نامه بسیار مفصل و دارای جزییات است و این توافق نهایی خواهد شد.
+
+او افزود: «عملیات جزیره خارک از دستور کار خارج شده و دیگر مطرح نیست.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14575
+
+<div align="center">
+  <a href="telegram/content/WithYashar_14575_1781210008.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: عملیات جزیره خارک دیگر روی میز نیست. می‌خواهید آشوب ببینید؟ می‌خواهید مرگ و ویرانی ببینید بگذارید ایران سلاح هسته‌ای داشته باشد نمی‌خواهم برای دستیابی به توافق با ایران ضرب‌الاجل تعیین کنم. @withyashar
+</div>
+
+## WithYashar — post 14574
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: عملیات جزیره خارک دیگر روی میز نیست.
+
+می‌خواهید آشوب ببینید؟ می‌خواهید مرگ و ویرانی ببینید بگذارید ایران سلاح هسته‌ای داشته باشد
+
+نمی‌خواهم برای دستیابی به توافق با ایران ضرب‌الاجل تعیین کنم.
+@withyashar
+</div>
+
+## WithYashar — post 14573
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت امور خارجه ایران:
+ما قبلاً گفتیم که بیشتر مفاد توافق‌نامه حل و فصل شده است، اما طرف آمریکایی می‌خواست خواسته‌های جدیدی را اضافه کند.
+@withyashar
+</div>
+
+## mwarmonitor — post 10745
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نتانیاهو: اگرچه اسرائیل طرف این یادداشت تفاهم نیست، اما من از تعهد ترامپ قدردانی کردم که هر توافق نهایی شامل حذف مواد غنی‌شده، برچیدن زیرساخت‌های غنی‌سازی، محدود کردن تولید موشک‌ها و پایان دادن به حمایت ایران از نیروهای نیابتی‌اش در منطقه خواهد بود.
+
+@mwarmonitor
+</div>
+
+## VahidOnline — post 76246
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76246_1781210009.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در بیانیه دفتر نخست‌وزیر اسرائیل، نتانیاهو، آمده:
+"توافق نهایی در پایان مذاکرات شامل
+-حذف مواد غنی‌شده
+-برچیدن زیرساخت‌های غنی‌سازی
+-محدودیت‌های تولید موشک
+- و توقف حمایت ایران از گروه‌های تروریستی نیابتی خود در منطقه
+خواهد بود"
+
+📡 @VahidOnline
+</div>
+
+## kianmeli1 — post 87947
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ :
+
+ما پیروز شدیم بزرگترین ارتش دنیا پیروز شد.
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87946
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴صداوسیما به نقل از سخنگوی وزارت خارجه:
+
+تا الان ایران به جمع‌بندی نهایی درباره توافق نرسیده است
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 341801
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/341801" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی ۲۴ با فرداد فرحزاد: چرخش ۱۸۰ درجه‌ای ترامپ
+@iranintlTV
+</div>
+
+## IranIntlTV — post 341800
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341800_1781210009.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسماعیل بقائی، سخنگوی وزارت خارجه جمهوری اسلامی در یک برنامه تلویزیونی گفت: «مواردی که درباره توافق مطرح می‌شود، گمانه‌زنی است و موضوع نهایی نشده است.»
+
+او اضافه کرد: «وضعیت مذاکرات از ابتدا برای ما روشن بود و بخش عمده متن نهایی شده بود، اما آمریکایی‌ها مواضع خود را تغییر می‌دادند.»
+https://iranintl.com/202606115319
+</div>
+
+## IranIntlTV — post 341799
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341799_1781210010.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس جمهوری آمریکا درباره توافق با تهران گفت: «جمهوری اسلامی سلاح هسته‌ای نخواهد داشت.»
+
+زمانی که یک خبرنگار از ترامپ در کاخ سفید پرسید که آیا مجتبی خامنه‌ای این توافق را تایید کرده، او گفت: «تا جایی که من می‌دانم، پاسخ بله است.»
+
+ترامپ اضافه کرد که تفاهم‌نامه بسیار مفصل و دارای جزییات است و این توافق نهایی خواهد شد.
+
+او افزود: «عملیات جزیره خارک از دستور کار خارج شده و دیگر مطرح نیست.»
+https://iranintl.com/202606119753
+</div>
+
+## Shin_Persian — post 6963
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Thu, 11 Jun 2026 20:25:13 UTC
+
+Trump celebrating a deal while the Iranian embassy accounts are tweeting TACO.
+Quite a timeline.
+
+ترجمه خودکار فارسی
+
+ترامپ در حال جشن گرفتن یک توافق است، در حالی که حساب‌های کاربری سفارت ایران در حال توییت کردن تصویر تاکو (TACO) هستند.
+عجب دوره و زمانه‌ای شده است.
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 220424
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220424_1781210011.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️زوال قدرت چانه‌زنی جمهوری اسلامی پس از هربار درگیری با آمریکا؛ گفت‌وگو با احمد وخشیته
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220423
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220423_1781210012.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️امیر طاهری در برنامه تفسیر خبر: هزینه تصرف جزیره خارک بسیار بالا خواهد بود
+@FarsiVOA
+</div>
+
+## IranianMinds — post 22341
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 خبرنگار: شما قبلاً گفته‌اید که ایران و آمریکا به توافق نزدیک بودند. هنوز این اتفاق نیفتاده است. چرا این‌قدر مطمئن هستید که این بار متفاوت است؟
+
+ترامپ: چون آن‌ها ضربه سختی خورده‌اند. آن‌ها ضربه‌ای خورده‌اند که خیلی کم‌کسی می‌تواند تحمل کند. و آن‌ها خیلی بیشتر از من می‌خواهند توافق کنند.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22340
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 سخنگوی وزارت امور خارجه رژیم جمهوری اسلامی، اسماعیل بقایی:
+تا کنون، ایران به نتیجه نهایی در خصوص توافق نرسیده است.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22339
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فوری
+
+جمهوری اسلامی دیگر نمیتواند موشک بالستیک تولید کند یا از نیابتی ها حمایت کند.
+
+رئیس‌جمهور ترامپ امشب با نخست‌وزیر نتانیاهو درباره تفاهم‌نامه در حال شکل‌گیری با ایران برای ورود به مذاکرات گفت‌وگو کرد.
+
+اگرچه اسرائیل طرف این تفاهم‌نامه نیست، اما نخست‌وزیر از تعهد رئیس‌جمهور ترامپ قدردانی کرد که توافق نهایی در پایان مذاکرات شامل خارج کردن مواد غنی‌شده، برچیدن زیرساخت‌های غنی‌سازی، محدود کردن تولید موشک و توقف حمایت ایران از نیروهای نیابتی خود در منطقه خواهد بود.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 283478
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283478_1781210013.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌ ‌ ‌ ‌
+دونالد ترامپ، رئیس‌جمهور آمریکا در ادامه سخنانش در دفتر بیضی کاخ‌ سفید در پاسخ به سوال خبرنگاری که پرسیده آیا رهبر ایران با این توافق موافقت کرده است، او گفت: «آنگونه که من متوجه شدم، پاسخ او مثبت است.»
+
+خبرنگاری از رئیس‌جمهور آمریکا پرسید که چقدر مطمئن است که این آخر هفته با ایران توافقی امضا خواهد شد، پاسخ داد: «به زودی، شاید همین آخر هفته.»
+
+ترامپ گفت به محض امضای توافق، محاصره دریایی تنگه هرمز توسط ایالات متحده فورا برداشته خواهد شد و افزود که ایران همچنین با عدم تولید سلاح هسته‌ای موافقت کرده است.
+
+خبرنگاری اشاره کرد که آقای ترامپ در گذشته گفته بود که آمریکا و ایران به توافق نزدیک هستند و می‌پرسد چرا این بار فرق دارد.
+
+رئیس جمهور آمریکا پاسخ داد: «چون آنها ضربه سختی را تحمل کرده‌اند. ضربه‌ای که کمتر کسی می‌تواند تحمل کند و آنها خیلی بیشتر از من می‌خواهند به توافق برسند.»
+
+آقای ترامپ در پاسخ به سؤالی جداگانه گفت آنچه تغییر کرده «میزان اشتیاق» ایران برای توافق است.
+
+https://bbc.in/4e3FUkL
+📷EPA/Shutterstock
+@BBCPersian
+</div>
+
+## alonews — post 127265
+
+<div align="center">
+  <a href="telegram/content/alonews_127265_1781210013.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈بقایی: تا الان ایران به جمع‌بندی نهایی درباره توافق نرسیده است 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127264
+
+<div align="center">
+  <a href="telegram/content/alonews_127264_1781210013.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ : تنگه بازه؛ ولی این تنگه‌ها از چند ماه پیش هم باز بودن، فقط شما خبر نداشتید
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127263
+
+<div align="center">
+  <a href="telegram/content/alonews_127263_1781210014.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈بقایی: تا الان ایران به جمع‌بندی نهایی درباره توافق نرسیده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127262
+
+<div align="center">
+  <a href="telegram/content/alonews_127262_1781210014.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈اسپویل نوحه جدید در تجمعات:
+
+برادر برادر امضای آخرو بزن
+
+به رسم عقیله امضای آخرو بزن
+
+غیور دلاور امضای آخرو بزن
+
+به امداد زهرا امضای آخرو بزن
+
+بگو یا علی و امضای آخرو بزن
+
+به اذن ابالفظل امضای آخرو بزن
+
+تموم برگه‌ها رو بزن
+
+از هیچی نگذر و بزن
+
+جای مقررو بزن
+
+حیدر یا حیدر
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/21 23:53
 ---
 

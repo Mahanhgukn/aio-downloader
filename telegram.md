@@ -7,6 +7,125 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/21 09:52
+---
+
+## VahidOOnLine — post 244874
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244874_1781158964.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ارتش جمهوری اسلامی روز پنجشنبه ۲۱ خردادماه با انتشار بیانیه‌ای اعلام کرد با «انواع پهپادهای انهدامی» به مقر ناوگان پنجم نیروی دریای آمریکا در بحرین حمله کرده است.
+
+در بیانیه ارتش جمهوری اسلامی ایران آمده است: «آنتن‌های ارتباطی و تاسیسات راداری سامانه پاتریوت ناوگان پنجم مورد هدف قرار گرفت.»
+
+همزمان رسانه‌های دولتی ایران تصاویر و ویدیوهایی از برخاستن دود در نزدیکی پایگاه هوایی شیخ عیسی در بحرین را منتشر کرده‌اند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## Shin_Persian — post 6924
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Thu, 11 Jun 2026 06:15:26 UTC
+
+#Bahrain 🇧🇭
+
+Source: @moi_bahrain
+https://x.com/moi_bahrain/status/2064954587614728417
+
+ترجمه خودکار فارسی
+
+#بحرین 🇧🇭
+
+منبع: @moi_bahrain
+https://x.com/moi_bahrain/status/2064954587614728417
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6921
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Thu, 11 Jun 2026 06:15:26 UTC
+
+Bahrain Ministry of Interior reports interception of Iranian drones over Hamad Town and Manama.
+
+Falling debris caused damage to homes and vehicles. An 11-year-old girl sustained minor injuries and was treated on-site. Civil Defense and emergency services are responding.
+
+ترجمه خودکار فارسی
+
+وزارت کشور بحرین از رهگیری پهپادهای ایرانی بر فراز شهر حمد و منامه خبر داد.
+
+سقوط قطعات متلاشی شده منجر به خسارت به منازل و خودروها شده است. یک دختر ۱۱ ساله دچار جراحات جزئی شد و در محل تحت مداوا قرار گرفت. دفاع مدنی و خدمات اضطراری در حال رسیدگی هستند.
+
+𝕏 · @shin_persian
+</div>
+
+## RadioFarda — post 158166
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_158166_1781158964.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸 در پی حملات تازۀ آمریکا و ایران به یکدیگر، بهای نفت شاهد افزایش دیگری بود و ارزش دلار و شاخص‌های بازار سهام دچار افت شد.
+
+🔸 در نخستین ساعات آغاز به‌کار بازارهای مالی شرق آسیا، ارزش دلار در مقابل سایر ارزهای عمده از جمله پوند بریتانیا، یورو، و ین ژاپن شاهد کاهشی جزئی بود.
+
+🔸 از سوی دیگر بهای نفت بار دیگر افزایش یافت؛‌ از جمله هر بشکه نفت خام برنت دریای شمال با ۱.۷ درصد افزایش، به ۹۴ دلار و ۶۸ سنت رسید و نفت شاخص میانۀ غرب تگزاس هم با رشدی ۲ درصدی به ۹۱ دلار و ۸۴ سنت افزایش یافت.
+
+🔸 همزمان نرخ تورم سالانۀ ایالات متحده هم با ۴ دهم درصد رشد نسبت به ماه گذشته به ۴.۲ درصد رسید. تورمی که از بیش از سه سال پیش سابقه نداشته است.
+
+🔸 در همین حال انتظار می‌رود که بانک مرکزی اروپا و فدرال ریزور یا بانک مرکزی ایالات متحده برای نخستین بار طی بیش از سه سال اخیر، نرخ بهره را افزایش دهند. پیش‌بینی شده که بانک مرکزی اروپا طی پنج ماه باقی‌مانده از سال جاری میلادی، دست‌کم دو بار دیگر هم نرخ بهره را افزایش دهد.
+
+@RadioFarda
+</div>
+
+## BBCPersian — post 283403
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻ژاپن خواستار کاهش تنش میان آمریکا و ایران شد
+
+ژاپن ابراز امیدواری کرده است که دور جدید حملات میان ایالات متحده و ایران بیش از این تشدید نشود.
+
+مینورو کیهارا، دبیر ارشد کابینه ژاپن، در یک نشست خبری اعلام کرد که «تضمین عبور آزاد و ایمن از تنگه هرمز برای ثبات تأمین انرژی، موضوعی فوری و حیاتی است...ژاپن تلاش خواهد کرد از همه ظرفیت‌های دیپلماتیک خود برای دستیابی به توافقی زودهنگام میان ایالات متحده و ایران استفاده کند.»
+
+https://bbc.in/4v5B0d7
+@BBCPersian
+</div>
+
+## alonews — post 127050
+
+<div align="center">
+  <a href="telegram/content/alonews_127050_1781158965.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈اسرائیل هیوم: شرکت هواپیمایی ایر کانادا تعلیق پروازهای خود به تل‌آویو را تا ۲۴ اکتبر تمدید کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127049
+
+<div align="center">
+  <a href="telegram/content/alonews_127049_1781158966.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ارتش اسرائیل تخریب خانه‌ها در روستای غندوریه را آغاز کرده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/21 09:42
 ---
 

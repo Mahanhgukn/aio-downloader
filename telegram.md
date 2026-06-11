@@ -7,6 +7,281 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/21 19:03
+---
+
+## VahidOOnLine — post 244984
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244984_1781192021.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مقام‌های آتش‌نشانی و امداد شهرستان آرلینگتون اعلام کردند آتش‌نشانان روز پنجشنبه، در حال بررسی یک حادثه مرتبط با مواد خطرناک در ساختمان پنتاگون هستند.
+
+سی‌ان‌ان به نقل از چند منابع گزارش داد این ساختمان در وضعیت قرنطینه قرار گرفته و چندین طبقه آن تخلیه شده است.
+
+سخنگوی پنتاگون تایید کرد سامانه‌های داخلی «مشکل کیفیت هوا» را شناسایی کرده‌اند که مستلزم اقدامات احتیاطی تا زمان روشن شدن اهمیت آن است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244983
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244983_1781192022.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ مقامات آتش‌نشانی و امداد و نجات شهرستان آرلینگتون در شبکه اجتماعی ایکس اعلام کردند که ماموران آتش‌نشانی در حال بررسی حادثه‌ای مربوط به مواد خطرناک (Hazardous Materials) در ساختمان پنتاگون هستند.
+
+شبکه خبری سی‌ان‌ان نیز به نقل از منابع ناشناس گزارش داد که این ساختمان تحت قرنطینه و تدابیر شدید امنیتی قرار گرفته و کارکنان چندین طبقه از آن تخلیه شده‌اند.
+
+در همین حال، سخنگوی پنتاگون در این باره اعلام کرد: «پنتاگون متوجه مشکلی در کیفیت هوای ساختمان شده است که تا زمان تعیین میزان اهمیت و خطر آن، اتخاذ اقدامات پیشگیرانه را ضروری ساخته است.»
+
+او در ادامه افزود: «وزارت دفاع در حال اجرای پروتکل‌های حفاظتی استاندارد است؛ این اقدامات شامل صدور دستور پناه‌گیری در محل (Shelter-in-place) برای بخش‌های آسیب‌دیده ساختمان می‌شود.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342860
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342860_1781192023.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH LIVE: First Lady Melania Trump launches Fostering the Future Accounts for youth in foster care https://twitter.com/i/broadcasts/1RJjppRjERoKw
+</div>
+
+## FoxNewsTwitter — post 342859
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: 'Hazardous materials incident' reported at Pentagon by emergency officials in Arlington, Virginia
+</div>
+
+## pm_afshaa — post 93632
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93632_1781192023.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴الحدث: پاکستان، قطر، عربستان سعودی، مصر و ترکیه برای ارزیابی تلاش‌های میانجی‌گری تشکیل جلسه میدن.
+
+نشست پنج‌جانبه به دنبال یافتن تضمین‌هایی برای اجرای توافق بین آمریکا و ایران است.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## VahidOnline — post 76223
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76223_1781192024.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ مقامات آتش‌نشانی و امداد و نجات شهرستان آرلینگتون در شبکه اجتماعی ایکس اعلام کردند که ماموران آتش‌نشانی در حال بررسی حادثه‌ای مربوط به مواد خطرناک (Hazardous Materials) در ساختمان پنتاگون هستند.
+
+شبکه خبری سی‌ان‌ان نیز به نقل از منابع ناشناس گزارش داد که این ساختمان تحت قرنطینه و تدابیر شدید امنیتی قرار گرفته و کارکنان چندین طبقه از آن تخلیه شده‌اند.
+
+در همین حال، سخنگوی پنتاگون در این باره اعلام کرد: «پنتاگون متوجه مشکلی در کیفیت هوای ساختمان شده است که تا زمان تعیین میزان اهمیت و خطر آن، اتخاذ اقدامات پیشگیرانه را ضروری ساخته است.»
+
+او در ادامه افزود: «وزارت دفاع در حال اجرای پروتکل‌های حفاظتی استاندارد است؛ این اقدامات شامل صدور دستور پناه‌گیری در محل (Shelter-in-place) برای بخش‌های آسیب‌دیده ساختمان می‌شود.»
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## kianmeli1 — post 87937
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴هلال احمر
+
+امشب در آماده باش کامل هستیم
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 341741
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341741_1781192024.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مقام‌های آتش‌نشانی و امداد شهرستان آرلینگتون اعلام کردند آتش‌نشانان روز پنجشنبه، در حال بررسی یک حادثه مرتبط با مواد خطرناک در ساختمان پنتاگون هستند.
+
+سی‌ان‌ان به نقل از چند منابع گزارش داد این ساختمان در وضعیت قرنطینه قرار گرفته و چندین طبقه آن تخلیه شده است.
+
+سخنگوی پنتاگون تایید کرد سامانه‌های داخلی «مشکل کیفیت هوا» را شناسایی کرده‌اند که مستلزم اقدامات احتیاطی تا زمان روشن شدن اهمیت آن است.
+https://iranintl.com/202606111419
+</div>
+
+## Shin_Persian — post 6950
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6950_1781192025.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Thu, 11 Jun 2026 15:32:08 UTC
+
+Fire broke out in southeastern Qom, nature is unclear as of now
+
+ترجمه خودکار فارسی
+
+
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6949
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6949_1781192026.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Thu, 11 Jun 2026 15:23:05 UTC
+
+. @Vahid has the same idea
+
+ترجمه خودکار فارسی
+
+.@Vahid هم همین ایده را دارد
+
+𝕏 · @shin_persian
+</div>
+
+## DW_Farsi — post 125826
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125826_1781192026.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 سنتکام: یک نفتکش را به دلیل تلاش برای انتقال نفت ایران از کار انداختیم
+
+فرماندهی مرکزی ایالات متحده آمریکا (سنتکام) در بیانیه‌ای تأیید کرد که چهارشنبه ۱۰ ژوئن یک نفتکش به نام "ام‌/‌تی جالویر" (M/T Jalveer) که با پرچم گینه‌ بیسائو در دریای عمان در حرکت بود را متوقف کرده است.
+ 
+سنتکام در این بیانیه گفت که به این نفتکش به این دلیل حمله کرده که تلاش داشت نفت ایران را منتقل کرده و به این ترتیب محاصره دریایی آمریکا علیه بنادر ایران را نقض کند.
+ 
+سنتکام اعلام کرد: «خدمه این کشتی به‌طور مکرر از اجرای دستورات نیروهای آمریکایی خودداری کردند؛ در پی آن، یک هواپیمای آمریکایی دو موشک هلفایر به بخش موتورخانه کشتی شلیک کرد.»
+ 
+به گفته سنتکام، این سومین کشتی تجاری است که در این هفته توسط نیروهای آمریکا، در چارچوب عملیات محدودکردن انتقال نفت ایران، از کار انداخته شده است.
+ 
+آمریکا پیش‌تر دو کشتی "ماریوکس" و "سته‌بلو" را در این چارچوب از کار انداخته بود.
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 16739
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16739_1781192027.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حزب‌الله لبنان ویدیویی از لحظه برخورد یک پرتابه FPV به یک سرباز ارتش اسرائیل در خیام منتشر کرد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16738
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ساختمان پنتاگون در وضعیت قرنطینه قرار گرفت! به گزارش CNN، ساختمان پنتاگون در وضعیت قرنطینه قرار گرفته است، همچنین نیروهای واحدهای مواد خطرناک و آتش نشانی به محل اعزام شده‌اند و در حال رسیدگی به وضعیت هستند. 📝 Amir 📌 @persian_trend_official پرشین ترند |…
+</div>
+
+## Persian_Trend_Official — post 16737
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16737_1781192028.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ساختمان پنتاگون در وضعیت قرنطینه قرار گرفت!
+
+به گزارش CNN، ساختمان پنتاگون در وضعیت قرنطینه قرار گرفته است، همچنین نیروهای واحدهای مواد خطرناک و آتش نشانی به محل اعزام شده‌اند و در حال رسیدگی به وضعیت هستند.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 22316
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22316_1781192029.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پس خودت چی؟
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 391720
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391720_1781192030.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+داداش اون دیگه پیرشده
+دختراتو فدا کن😑😂😂😂
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391719
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391719_1781192030.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴بسنت، وزیر خزانه‌داری آمریکا:
+
+رژیم ایران داره یه بازی باخت-باخت بازی می‌کنه و قطعاً می‌بازه؛
+
+هر آسیبی که به متحدان ما در خلیج فارس بزنن و هر عوارضی که برای تنگه هرمز بگیرن، جبرانش رو با پول‌های بلوکه‌ شدشون پرداخت میکنیم.
+
+هر حمله‌ای که ایران انجام بده، فقط عمق فاجعه اقتصادی و مالی خودش رو بیشتر می‌کنه.
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 127173
+
+<div align="center">
+  <a href="telegram/content/alonews_127173_1781192031.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈الحدث: ترکیه، مصر، پاکستان، عربستان سعودی و قطر قراره جلسه‌ای فوری برای جلوگیری از شعله‌ور شدن جنگ میان ایران و آمریکا و پیدا کردن راهی برای توافق بین این دو کشور، تشکیل بدن.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127172
+
+<div align="center">
+  <a href="telegram/content/alonews_127172_1781192031.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پست جدید ترامپ در تروث سوشال!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/21 18:53
 ---
 

@@ -7,6 +7,54 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/21 07:42
+---
+
+## VahidOOnLine — post 244870
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244870_1781151167.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سفارت آمریکا در بغداد به شهروندان این کشور هشدار داد عراق را فورا ترک کنند و از آنان خواست در شرایط کنونی به این کشور سفر نکنند. در بیانیه سفارت آمریکا همچنین آمده است امکان اختلال در سفرها یا بسته شدن ناگهانی حریم هوایی بدون اطلاع قبلی وجود دارد. iranintl
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## mwarmonitor — post 10689
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_10689_1781151167.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✈️۳ فروند هواپیمای سوخت‌رسان هوایی نیروی هوایی آمریکا در اطراف پایگاه هوایی پرنس سلطان در عربستان سعودی در حال فعالیت هستند؛ احتمالاً برای پشتیبانی از جنگنده‌هایی که به‌منظور دفاع از این پایگاه در برابر تهدیدات احتمالی پهپادی، مأموریت گشت رزمی هوایی (CAP) انجام می‌دهند.
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 93590
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بلند شدن دود ازپایگاه هوایی موفق السلطي در اردن در اثر بر خورد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 341621
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341621_1781151168.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سفارت آمریکا در بغداد به شهروندان این کشور هشدار داد عراق را فورا ترک کنند و از آنان خواست در شرایط کنونی به این کشور سفر نکنند. در بیانیه سفارت آمریکا همچنین آمده است امکان اختلال در سفرها یا بسته شدن ناگهانی حریم هوایی بدون اطلاع قبلی وجود دارد. iranintl.com/202606117215
+</div>
+
+---
 📅 بروزرسانی: 1405/03/21 07:32
 ---
 

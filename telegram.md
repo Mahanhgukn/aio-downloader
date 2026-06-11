@@ -7,6 +7,113 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/21 05:32
+---
+
+## FoxNewsTwitter — post 342839
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342839_1781143373.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+“Epstein was working to use information about my infidelities... to pressure me to re-engage with him.”
+
+Bill Gates testified before the House Oversight Committee about his relationship with Jeffrey Epstein, saying the disgraced financier tried to use details of his affairs as leverage and denied knowing about any ongoing criminal misconduct. https://twitter.com/JesseBWatters/status/2064874679165222948#m
+</div>
+
+## pm_afshaa — post 93583
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_93583_1781143376.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آسمان اردن :
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93582
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+میگن سمت اردن زدن
+</div>
+
+## pm_afshaa — post 93581
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+همین الان از تبریز و ارومیه موشک زدن 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93580
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اگه گذاشتید بخوابیم
+</div>
+
+## pm_afshaa — post 93579
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93579_1781143376.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+زنجان شلیک موشک
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93577
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+از زنجان هم موشک پرتاب کردن :
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93576
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93576_1781143377.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پرتاب موشک از تبریز :
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## VahidOnline — post 76193
+
+<div align="center">
+  <a href="telegram/content/VahidOnline_76193_1781143380.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شلیک موشک از استان زنجان
+ویدیوی دریافتی پنجشنبه ۲۱ خرداد
+Vahid
+
+📡 @VahidOnline
+</div>
+
+---
 📅 بروزرسانی: 1405/03/21 05:22
 ---
 

@@ -7,6 +7,227 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/21 20:43
+---
+
+## VahidOOnLine — post 245002
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245002_1781198017.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علی عبداللهی، فرمانده قرارگاه مرکزی خاتم‌الانبیا، در خصوص تهدید زیرساخت‌های نفتی ایران از سوی دونالد ترامپ گفت: «یا صادرات نفت و گاز برای همه برقرار خواهد بود یا برای هیچ‌کس امکان‌پذیر نخواهد بود.»
+
+او ادامه داد: «در صورت تکرار حملات آمریکا، پاسخی شدیدتر خواهیم داد و آتش جنگ می‌تواند گسترده‌تر شود.»
+
+فرمانده قرارگاه مرکزی خاتم‌الانبیا اضافه کرد: «تناقض در گفتار و رفتار آمریکا عامل اصلی ناامنی در منطقه است و امنیت تجارت بین‌المللی، به‌ویژه در تنگه هرمز، را به خطر انداخته است.»
+
+او گفت سران آمریکا با «عدم شناخت ملت ایران و نیروهای مسلح» در دور باطل قرار دارند و با جنگ رسانه‌ای نمی‌توانند «شکست‌های پی‌درپی» خود را پنهان کنند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14535
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبکه ۱۳ اسرائیل : نتانیاهو یه جلسه امنیتی فوری با مقاماتش برگزار می‌کنه
+@withyashar
+</div>
+
+## mwarmonitor — post 10729
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_10729_1781198018.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ساعت دست رفیق‌دوست مدل Rado Integral ؟
+</div>
+
+## pm_afshaa — post 93639
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93639_1781198018.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴شبکه 13 اسرائیل: نتانیاهو یه جلسه امنیتی فوری با مقاماتش برگزار میکنه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## kianmeli1 — post 87942
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴قرارگاه خاتم
+
+حمله جدید به ایران به معنای جنگ فراتر از منطقه ای خواهد بود
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87941
+
+<div align="center">
+  <a href="telegram/content/kianmeli1_87941_1781198019.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ به فاکس نیوز:
+
+«این می‌تواند بزرگ‌ترین معامله در تاریخ باشد.
+
+آنها می‌توانند پرچم سفید تسلیم را بالا ببرند و بگویند «الحمدلله»، و رسانه‌های جعلی خواهند گفت که این یک پیروزی بزرگ برای ایران بود.
+
+این دیوانه‌کننده‌ترین چیزی است که دیده‌ام. ما آنها را نابود می‌کنیم.»
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 341760
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341760_1781198021.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+۲۲ کشور، از جمله ایالات متحده، بریتانیا، آلمان و فرانسه، در بیانیه‌ای مشترک خواستار توقف اقدامات مرگبار جمهوری اسلامی در خاک کشورهای خود شدند. در این بیانیه، طرح‌ها و اقدامات سازمان اطلاعات سپاه، نیروی قدس و وزارت اطلاعات علیه ایرانیان مخالف حکومت، روزنامه‌نگاران و جوامع و منافع یهودی به‌شدت محکوم شده است.
+
+گزارش مرضیه حسینی، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 341759
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341759_1781198022.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزیر خزانه‌داری آمریکا گفت ایران با مسیری که انتخاب کرده، در نهایت بازنده خواهد بود. اسکات بسنت هشدار داد هرگونه خسارت به متحدان آمریکا در خلیج فارس و هرگونه عوارض پرداختی بابت تردد از تنگه هرمز از دارایی‌های ایران جبران خواهد شد.
+
+گزارش اردوان روزبه، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 341758
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341758_1781198023.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻سکوت اعضای تیم ملی فوتبال در برابر جنایات جمهوری اسلامی در دی‌ماه سال گذشته، این تیم را در پایین‌ترین سطح از محبوبیت در بین مردم قرار داده اما گروهی نیز اعتقاد دارند نتایج این تیم در تاریخ صرف‌نظر از مواضع اعضای آن، با نام ایران گره خواهد خورد. این دوگانگی حتی بازتاب‌هایی در رسانه‌های نیوزیلند داشته است.
+
+🔹توضیحات رها پوربخش در هت‌تریک
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 341757
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341757_1781198024.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علی عبداللهی، فرمانده قرارگاه مرکزی خاتم‌الانبیا، در خصوص تهدید زیرساخت‌های نفتی ایران از سوی دونالد ترامپ گفت: «یا صادرات نفت و گاز برای همه برقرار خواهد بود یا برای هیچ‌کس امکان‌پذیر نخواهد بود.»
+
+او ادامه داد: «در صورت تکرار حملات آمریکا، پاسخی شدیدتر خواهیم داد و آتش جنگ می‌تواند گسترده‌تر شود.»
+
+فرمانده قرارگاه مرکزی خاتم‌الانبیا اضافه کرد: «تناقض در گفتار و رفتار آمریکا عامل اصلی ناامنی در منطقه است و امنیت تجارت بین‌المللی، به‌ویژه در تنگه هرمز، را به خطر انداخته است.»
+
+او گفت سران آمریکا با «عدم شناخت ملت ایران و نیروهای مسلح» در دور باطل قرار دارند و با جنگ رسانه‌ای نمی‌توانند «شکست‌های پی‌درپی» خود را پنهان کنند.
+https://iranintl.com/202606118048
+</div>
+
+## FarsiVOA — post 220401
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺بسنت: غرامت آسیب‌های وارده به متحدان آمریکا از محل «حساب‌های» رژیم پرداخت خواهد شد
+
+▪️مسابقات جام جهانی فیفا ۲۰۲۶ روز پنجشنبه ۲۱ خرداد، با مراسم افتتاحیه‌ای باشکوه آغاز می‌شود و پس از آن اولین دیدار این رقابت‌ها بین مکزیک، یکی از کشورهای میزبان، و آفریقای جنوبی برگزار می‌شود.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/opening-of-the-world-cup-fifa-mexico-city-usa/8159744.html
+</div>
+
+## Persian_Trend_Official — post 16749
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16749_1781198025.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رادیو ارتش اسرائیل: نیروی هوایی اسرائیل هنوز در حال بررسی دقیق این است که دقیقاً چه چیزی به پایگاه رامات دیوید برخورد کرده است، اگرچه ارزیابی‌های اولیه نشان می‌دهد که احتمالاً یک قطعه رهگیری شده بوده است. این برخورد در یک منطقه غیر عملیاتی پایگاه که برای…
+</div>
+
+## BBCPersian — post 283463
+
+<div align="center">
+  <a href="telegram/content/BBCPersian_283463_1781198026.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+داور جام جهانی فوتبال از سومالی که از ورود به ایالات متحده منع شده بود، به موگادیشو بازگشت و مورد استقبال مردم و مقام‌های رسمی قرار گرفت.
+عمر ارتان که قرار بود نخستین سومالیایی باشد که در مرحله نهایی جام جهانی قضاوت می‌کند، روز دوشنبه (۸ ژوئن) با وجود داشتن گذرنامه دیپلماتیک و ویزای یک‌بار ورود، در فرودگاه بین‌المللی میامی از ورود به آمریکا منع شد و از فهرست داوران کنار گذاشته شد.
+مقام‌های مهاجرتی ایالات متحده دلیلی برای بازگرداندن آقای آرتان اعلام نکرده‌اند، اما سومالی یکی از چند کشوری است که در فهرست ممنوعیت سفر دولت دونالد ترامپ قرار دارد.
+ارتان گفت که در بدو ورود به آمریکا ۱۱ ساعت مورد «مصاحبه مهاجرتی» قرار گرفته و چندین ساعت در بازداشت بوده است.
+فدراسیون جهانی فوتبال (فیفا) پس از گفت‌وگو با مقام‌های آمریکا اعلام کرد که ارتان این رقابت‌ها را از دست خواهد داد.
+
+@BBCPersian
+https://bbc.in/4e2JNX8
+</div>
+
+## BBCPersian — post 283462
+
+<div align="center">
+  <a href="telegram/content/BBCPersian_283462_1781198027.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️کارلیسا پردومو، معلمی در لس‌آنجلس، عاشق پروپاقرص فوتبال است؛ عشقی که از جام جهانی ۱۹۹۴ و ظهور یک ستاره جهانی مثل دیوید بکام شکل گرفته است.
+
+او می‌گوید بکام باعث شد لیگ برتر آمریکا بیشتر دیده شود و تیم محبوبش، ال‌ای گلکسی، رنگ‌و‌بوی جهانی بگیرد.
+@bbcpersian
+</div>
+
+## BBCPersian — post 283461
+
+<div align="center">
+  <a href="https://t.me/bbcpersian/283461" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پادکست برنامه جام جهان‌نما، پنج‌شنبه ۲۱ خرداد ۱۴۰۵
+
+این برنامه رادیویی را می‌توانید هر شب ساعت ۲۰ به وقت ایران، روی موج متوسط ۷۰۲ کیلوهرتز و موج کوتاه ۹۴۶۵ کیلوهرتز بشنوید.
+
+تکرار برنامه را هم می‌توانید ساعت ۲۱:۳۰ روی موج متوسط ۷۰۲ کیلوهرتز و موج کوتاه ۵۳۹۵ کیلوهرتز گوش کنید.
+
+@BBCPersian
+</div>
+
+## alonews — post 127192
+
+<div align="center">
+  <a href="telegram/content/alonews_127192_1781198030.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / انتقال تعداد زیادی از ادوات زرهی توسط ارتش سوریه به مرز لبنان!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127191
+
+<div align="center">
+  <a href="telegram/content/alonews_127191_1781198031.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈شبکه ۱۳ اسرائیل : نتانیاهو یه جلسه امنیتی فوری با مقاماتش برگزار می‌کنه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/21 20:34
 ---
 

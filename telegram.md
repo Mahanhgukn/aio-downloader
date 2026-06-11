@@ -7,6 +7,321 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/21 16:23
+---
+
+## VahidOOnLine — post 244943
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244943_1781182386.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری فارس، وابسته به سپاه پاسداران، نوشت قرار گرفتن منافع مرتبط با هلدینگ‌های اقتصادی تحت مدیریت ایلان ماسک در غرب آسیا، از جمله در کشورهای عربی و اسرائیل، در «بانک اهداف» جدید جمهوری اسلامی در حال بررسی است.
+این رسانه افزود این اقدام پس از آن مطرح شده که به نوشته فارس، استفاده ارتش آمریکا و اسرائیل از زیرساخت‌های تحت مدیریت ایلان ماسک، از جمله استارلینک، اثبات شده است.
+فارس همچنین نوشت ایستگاه‌های زمینی استارلینک در اسرائیل، قطر، اردن، امارات متحده عربی و عمان و نیز برخی سهام‌داران اسپیس‌ایکس از جمله زیرساخت دو شرکت «آلفاظبی» و «مبادله» از اهداف جدید جمهوری اسلامی محسوب می‌شوند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244942
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244942_1781182387.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ عباس عراقچی، وزیر امور خارجه جمهوری اسلامی ایران، روز پنجشنبه ۲۱ خرداد، در یک تماس تلفنی با کایا کالاس، مسئول سیاست خارجی اتحادیه اروپا، به بررسی آخرین تحولات پس از حملات ایالات متحده به ایران و حملات متقابل تهران به اردن، بحرین و کویت پرداخت.
+
+عراقچی در این گفتگو با محکومیت شدید حملات واشنگتن، این اقدامات را نقض آشکار منشور سازمان ملل متحد و قوانین بین‌المللی دانست. او بار دیگر تاکید کرد که اقدامات آمریکا عملا آتش‌بس را بی‌اثر کرده و ایالات متحده مسئول عواقب و پیامدهای خطرناک آن است.
+
+وزیر امور خارجه جمهوری اسلامی همچنین با انتقاد از سکوت کشورهای عضو سازمان ملل در قبال حملات ایالات متحده، هشدار داد که انفعال جامعه جهانی به تشدید ناامنی در سطوح منطقه‌ای و جهانی منجر خواهد شد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14508
+
+
+
+
+## mwarmonitor — post 10709
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: گزینه من تصرف کردن جزیره خارک است.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10708
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ می‌گوید ایالات متحده در حال گفت‌وگو با ایران است - فاکس نیوز
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 342848
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌Fox News (Twitter/X)
+
+https://www.foxnews.com/live-news/us-iran-war-trump-israel-june-11
+</div>
+
+## FoxNewsTwitter — post 342847
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342847_1781182388.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: President Trump says the U.S. will hit Iran ‘VERY HARD TONIGHT,’ claiming the regime’s Navy, Air Force, radar, air defenses and much of its offensive capability are completely “GONE.”
+
+Trump also floated taking Kharg Island and other oil infrastructure points, saying the U.S. would “assume total control” of Iran’s oil and gas markets.
+
+The statement marks a sharp escalation as tensions remain centered on Iran’s military infrastructure, oil exports, and the Strait of Hormuz.
+</div>
+
+## FoxNewsTwitter — post 342846
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: Trump vows to hit Iran 'VERY HARD TONIGHT,' take Kharg Island in the future
+</div>
+
+## FoxNewsTwitter — post 342845
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342845_1781182389.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: U.S. forces disabled an oil tanker in the Gulf of Oman overnight after it allegedly violated the naval blockade against Iran.
+
+CENTCOM says the Guinea-Bissau flagged tanker M/T Jalveer was attempting to transport Iranian oil through the Gulf of Oman when U.S. aircraft fired two Hellfire missiles into the ship’s engine room after the crew repeatedly failed to comply with instructions.
+
+The action follows similar operations against two other tankers earlier this week as the U.S. ramps up enforcement of the blockade.
+</div>
+
+## pm_afshaa — post 93614
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93614_1781182390.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رویترز: لشکر 82 هوابرد آمریکا ملقب به لشکر شیطان به‌زودی جزایر نفتی ایران رو تصرف خواهند کرد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93613
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خلاصه توییت ترامپ: امشب هم به ایران ضربه سخت و سنگینی میزنیم و بزودی زود جزیره خارک و دیگر مراکز زیرساختی نفتی رو در اختیار و کنترل میگیریم. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93612
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93612_1781182391.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نتانیاهو: نیروهای حزب‌الله رو از بین میبریم و امنیت رو به مناطق شمالی برمیگرونیم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## kianmeli1 — post 87930
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87930_1781182392.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴در اخرین پست ترامپ سه هدف را به وضوح و شفاف نوشت
+
+۱-نفت ایران را می خواهم
+۲-زمین میخواهم(خاک)
+۳-روش ونزوئلا نفت را بدهید حکومت کنید
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 341700
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341700_1781182392.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری فارس، وابسته به سپاه پاسداران، نوشت قرار گرفتن منافع مرتبط با هلدینگ‌های اقتصادی تحت مدیریت ایلان ماسک در غرب آسیا، از جمله در کشورهای عربی و اسرائیل، در «بانک اهداف» جدید جمهوری اسلامی در حال بررسی است.
+این رسانه افزود این اقدام پس از آن مطرح شده که به نوشته فارس، استفاده ارتش آمریکا و اسرائیل از زیرساخت‌های تحت مدیریت ایلان ماسک، از جمله استارلینک، اثبات شده است.
+فارس همچنین نوشت ایستگاه‌های زمینی استارلینک در اسرائیل، قطر، اردن، امارات متحده عربی و عمان و نیز برخی سهام‌داران اسپیس‌ایکس از جمله زیرساخت دو شرکت «آلفاظبی» و «مبادله» از اهداف جدید جمهوری اسلامی محسوب می‌شوند.
+https://iranintl.com/202606110815
+</div>
+
+## Shin_Persian — post 6938
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+الان ثبت نامی های کمپین جان فدا دارن بدو بدو دنبال نامه از پزشک میگردن
+</div>
+
+## FarsiVOA — post 220379
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220379_1781182393.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️دونالد ترامپ، رئیس جمهوری آمریکا، پنج‌شنبه ۲۱ خرداد با اشاره به از بین رفتن توان نظامی و دفاعی رژیم ایران، اعلام کرد که ایالات متحده «امشب به ایران ضربه بسیار سختی خواهد زد» و «در آینده‌ای نه چندان دور، جزیره خارک و سایر نقاط زیرساخت نفتی را» مانند ونزوئلا «تصرف خواهیم کرد.»
+</div>
+
+## Persian_Trend_Official — post 16727
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16727_1781182393.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ در مصاحبه با فاکس نیوز: ما در حال مذاکره با ایران هستیم.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16726
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16726_1781182394.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بنظر می‌رسد نیازی به تصاویر ماهواره ای نیست، رادار مستقر در این منطقه در جریان حملات پهپادی صبح ارتش منهدم شده است.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16725
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16725_1781182395.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسکات بسنت، وزیر خزانه‌داری ایالات متحده: رژیم ایران بازی حاصل جمع صفری را که در پیش گرفته خواهد باخت.
+
+هرگونه خسارتی که به متحدان ما در خلیج فارس وارد کند، با برداشت وجه از حساب‌های ایران جبران خواهد شد.
+
+هرگونه عوارضی که به اداره تنگه خلیج فارس پرداخت شود، با برداشت وجه از حساب‌های آنها جبران خواهد شد. هر حمله‌ای که ایران انجام دهد، تنها عواقب اقتصادی و مالی پیش روی آن را تشدید خواهد کرد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16722
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تهاجم پهپادی ارتش علیه ناوگان پنجم آمریکا در بحرین ارتش: در پی نقض آتش‌بس و تجاوز ارتش تروریستی آمریکا به مناطقی از جنوب کشور، ارتش جمهوری اسلامی ایران با انواع پهپادهای انهدامی، ناوگان پنجم این کشور در بحرین را آماج حملات پهپادی خود، قرار داد. در این موج…
+</div>
+
+## RadioFarda — post 158180
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_158180_1781182395.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸رئیس‌جمهور آمریکا روز پنجشنبه اعلام کرد که ارتش این کشور امشب بار دیگر ایران را به سختی مورد حمله قرار خواهد داد و از برنامه ایالات متحده برای به دست آوردن کنترل جزیره خارگ ایران خبر داد.
+
+🔸دونالد ترامپ با انتشار پیامی در شبکه اجتماعی تروث سوشال نوشت: «ایالات متحده امشب ضربات بسیار سختی به ایران وارد خواهد کرد؛ کشوری که نیروی دریایی، نیروی هوایی، سامانه‌های راداری، پدافند ضدهوایی و تمامی دیگر اشکال دفاعی آن، به همراه بخش عمده توان تهاجمی‌اش، از بین رفته‌اند!»
+
+🔸این اعلام در حالی است که آمریکا طی دو شب گذشته نیز نقاطی در مناطق مختلف ایران را در تلافی سرنگون شدن یک بالگرد آپاچی ارتش این کشور در تنگه هرمز هدف قرار داده بود.
+
+🔸آقای ترامپ در ادامه پیام خود نوشت: «در مقطعی در آینده‌ای نه‌چندان دور، ما جزیره خارگ و دیگر زیرساخت‌های نفتی را در اختیار خواهیم گرفت و کنترل کامل بازارهای نفت و گاز ایران را به دست خواهیم آورد؛ همان‌گونه که در مورد ونزوئلا انجام داده‌ایم، اقدامی که نتایج فوق‌العاده‌ای هم برای ونزوئلا و هم برای ایالات متحده آمریکا داشته است».
+@RadioFarda
+</div>
+
+## IranianMinds — post 22299
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 وزیر خزانه‌داری آمریکا، اسکات بسنت:
+
+رژیم ایران در بازی مجموع صفری که در حال انجام آن است، بازنده خواهد شد.
+
+هر آسیبی که به متحدان ما در خلیج وارد کند، از محل وجوه برداشت‌شده از حساب‌های ایرانی جبران خواهد شد.
+
+هرگونه عوارضی که به سازمان تنگه خلیج فارس پرداخت شود، با برداشت از حساب‌های آن‌ها جبران خواهد شد.
+
+هر حمله‌ای که ایران انجام دهد، تنها پیامدهای اقتصادی و مالی آن را عمیق‌تر خواهد کرد.
+
+@IranianMinds
+</div>
+
+## alonews — post 127145
+
+<div align="center">
+  <a href="telegram/content/alonews_127145_1781182396.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ به فاکس نیوز:
+ما در حال مذاکره با ایران هستیم
+
+
+🔴ترجیح می‌دهم جزیره خارک را در اختیار داشته باشم
+
+
+🔴ما هنوز به اندازه کافی به ایران ضربه نزده‌ایم
+
+
+🔴من از ایران ناامید نیستم، این توافق خوب است و ممکن است بزرگترین توافق تاریخ باشد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127144
+
+<div align="center">
+  <a href="telegram/content/alonews_127144_1781182396.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ونس، درباره نتانیاهو : ببین، قطعاً یه جاهایی اشتباهاتی داشته
+
+
+🔴ولی راستش بعضی از این بحث‌ها بهتره توی فضای خصوصی بمونه
+
+
+🔴چیزی که می‌خوام بگم اینه که در کل شریک خوبی بوده
+
+- ما به همکاری ادامه می‌دیم، ولی هر جا منافع‌مون از هم جدا بشه،
+
+
+🔴آمریکا کار خودش رو بر اساس بهترین منافع کشورش جلو می‌بره
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/21 16:13
 ---
 

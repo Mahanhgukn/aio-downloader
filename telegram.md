@@ -7,6 +7,52 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/21 10:02
+---
+
+## pm_afshaa — post 93596
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وال استریت ژورنال: فشار نظامی آمریکا تا زمانی که ایران شرایط مورد نظر ترامپ را نپذیرد، افزایش خواهد یافت
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## BBCPersian — post 283404
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🖌کین پی‌یری:
+
+🔻معترضان در تیرانا، پایتخت آلبانی، برای چندین روز در خیابان‌ها راهپیمایی کرده‌اند و هزاران نفر را به خیابان کشانده‌اند تا خواستار لغو یک پروژه گردشگری لوکس شوند که گفته می‌شود با ایوانکا ترامپ و جرد کوشنر مرتبط است.
+
+در صحنه تظاهرات، پرچم‌های آلبانی و شعارهای ضد فساد به چشم می‌خورد، اما در کنار آن تصاویر متعددی از ایوانکا ترامپ، دختر رئیس‌جمهور آمریکا، و فلامینگوهای صورتیِ درخشان نیز دیده می‌شود؛ بخشی از کارزاری رو به گسترش که از او و همسرش، جرد کوشنر، می‌خواهد «به کشورشان برگردند».
+
+درگیری میان پلیس و معترضان در منطقه گسترده بوده است. مردم شعار «طرح را لغو کنید» سر می‌دهند و پلاکاردهایی در دست دارند که روی آن‌ها نوشته شده است: «آلبانی برای فروش نیست.»
+
+📸GettyImages/ Reuters/ Anadolu via Getty Images/ AFP via Getty Images/ NurPhoto via Getty Images/ Bloomberg via Getty Images/ For The Washington Post via Getty Images/ EPA
+
+https://bbc.in/4ol0PmE
+@BBCPersian
+</div>
+
+## alonews — post 127051
+
+<div align="center">
+  <a href="telegram/content/alonews_127051_1781159570.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سفارت آمریکا در اردن و عراق امروز از اتباع خود خواست تا در اماکن امن پناه بگیرند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/21 09:52
 ---
 

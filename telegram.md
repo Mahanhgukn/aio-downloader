@@ -7,6 +7,221 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/21 22:52
+---
+
+## VahidOOnLine — post 245037
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245037_1781205771.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️نیویورک‌تایمز به نقل از یک مقام ارشد دولت آمریکا گزارش داد که دونالد ترامپ، رئیس‌جمهوری این کشور، مدت کوتاهی پیش از لغو حملات پنجشنبه‌شب علیه ایران، با مقامات پاکستانی که نقش میانجی را میان واشینگتن و تهران ایفا می‌کنند، گفتگو کرده است. این مقام مسئول اظهار داشت که طرف پاکستانی در این گفتگو به ترامپ اعلام کرده است: «ما با ایران به توافق رسیده‌ایم.»
+
+با این حال، هنوز مقام‌های جمهوری اسلامی واکنشی به اظهارات ترامپ درباره توافق احتمالی نشان نداده‌اند و مشخص نیست این توافق شامل چه بندهایی خواهد بود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14554
+
+
+
+
+## mwarmonitor — post 10739
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_10739_1781205772.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اولین گل جام جهانی زده شد.
+
+@mwarmonitor
+</div>
+
+## VahidOnline — post 76239
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76239_1781205773.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری فارس در پستی جدید نوشته:
+"بنظر می رسد با توجه به اینکه امریکا متن پیشنهادی ایران را پذیرفته است احتمال تایید این متن در مراجع اصلی‌نظام بالا است‌."
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 76238
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+الحدث به نقل از یک مقام ارشد گزارش داد هیات قطری که از تهران بازگشت، موافقت جمهوری اسلامی با پیش‌نویس نهایی توافق را اعلام کرد
+IranIntlbrk
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 341785
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341785_1781205773.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری فارس، وابسته به سپاه پاسداران، گزارش داد که چهارشنبه، تیم قطری برای میانجی‌گری وارد میدان شد و خبر از «عقب‌نشینی آمریکا از اضافه بندهای جدید» داد و این یعنی بازگشت به همان متن اولیه‌ای که هنوز منتظر تایید نهایی در ایران بود.
+
+فارس اضافه کرد که متن فعلی قابل توافق میان جمهوری اسلامی و آمریکا، متعلق به دو هفته پیش است.
+
+این رسانه وابسته به سپاه ادامه دا که تا این لحظه، نه تنها جمهوری اسلامی پاسخ نهایی نداده، بلکه این آمریکا بوده که به خواسته قبلی خود بازگشته است.
+
+خبرگزاری فارس افزود: «با توجه به اینکه آمریکا متن پیشنهادی جمهوری اسلامی را پذیرفته، احتمال تایید این متن در مراجع اصلی نظام بالا است.»
+https://iranintl.com/202606115012
+</div>
+
+## IranIntlTV — post 341784
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341784_1781205773.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ران جانسون، سناتور جمهوری‌خواه، به مرضیه حسینی، خبرنگار ایران‌اینترنشنال، گفت: «دستیابی ایران به سلاح هسته‌ای را یک تهدید موجودیتی برای آمریکا می‌دانم. همه روسای‌جمهور آمریکا، از زمان بیل کلینتون تا امروز، گفته‌اند که ایالات متحده نمی‌تواند اجازه دهد ایران به یک قدرت هسته‌ای تبدیل شود، اما به اعتقاد من هیچ‌یک از آنها اقدام موثری در این زمینه انجام ندادند. به همین دلیل بود که دونالد ترامپ ناچار شد تصمیمی سخت بگیرد.»
+
+او افزود: «امیدوارم بتوانیم سرانجام این آیت‌الله‌ها را به قعر تاریخ بسپاریم. فقط تصور کنید نبودن آنها چه تاثیری می‌تواند بر صلح و ثبات جهانی داشته باشد.»
+@iranintltv
+</div>
+
+## FarsiVOA — post 220419
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺استعفای وزیر دفاع بریتانیا؛ اشاره به تهدیدهای امنیتی فزاینده جهانی و کاهش بودجه
+
+◾️جان هیلی، وزیر دفاع بریتانیا، روز پنج‌شنبه ۲۰ خرداد از مقام خود استعفا کرد و گفت که دولت در زمانی که تهدیدها افزایش یافته‌اند، بودجه کافی برای ارتش اختصاص نمی‌دهد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/britain-healey-defense-budget-nato-uk-military/8159819.html
+@FarsiVOA
+</div>
+
+## DW_Farsi — post 125835
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📸 افتتاح جام جهانی فوتبال ۲۰۲۶ با جشنی رنگارنگ در مکزیک
+
+ورزشگاه آزتکا در مکزیکو سیتی میزبان جشن افتتاحیه جام جهانی فوتبال ۲۰۲۶ بود. در این مراسم ۸۰ هزار تماشاگر حضور داشتند. شکیرا، ستاره معروف کلمبیایی ترانه رسمی جام جهانی را در این مراسم اجرا کرد.
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 16765
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16765_1781205775.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بچه ها بلند شدن
+مجتبی امضا نکنی ... 😄
+</div>
+
+## Persian_Trend_Official — post 16764
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تا دقایقی دیگه لایو رو آغاز میکنیم
+</div>
+
+## Dirty_Kids — post 391746
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391746_1781205776.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بله از کشور استانبول تشریف اوردن خانم دکتر پرستو
+فقط زول زولای فیک و تغییر مود ثانیه ایش :))
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391745
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391745_1781205778.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حتما ایرانیها توو جنگ خیلی استرس دارن!!!!
+ایرانی‌ها 👆
+
+
+@Dirty_Kids 👻
+</div>
+
+## Hranews — post 113549
+
+<div align="center">
+  <img src="telegram/content/Hranews_113549_1781205779.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فروغ خسروی، معلم از آموزش و پرورش اخراج شد
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– فروغ خسروی، معلم مقطع ابتدایی اهل بهبهان و شاغل در مدارس آغاجاری، با حکم «لغو پیمان» از آموزش و پرورش اخراج شد. این تصمیم در حالی ابلاغ شده که وی پیش‌تر به چهار ماه انفصال موقت از خدمت محکوم شده بود.
+
+به گزارش هرانا، ارگان خبری مجموعه فعالان حقوق بشر در ایران، آموزش و پرورش آغاجاری حکم ۴ ماه انفصال از خدمت خانم خسروی را به «لغو پیمان» تبدیل کرده است.
+
+یک منبع مطلع در این رابطه به هرانا گفت: «روند اخراج خانم خسروی بدون طی مراحل قانونی با فشار مستقیم نهادهای امنیتی و تنها طی یک نامه محرمانه انجام شده است که مسئولان مربوطه حتی از ارائه آن به خود این معلم خودداری کرده‌اند. در حکم کارگزینی جدید وی نیز عبارت “لغو پیمان” درج شده است.»
+
+ادامه مطلب
+
+#فروغ_خسروی
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## alonews — post 127227
+
+<div align="center">
+  <a href="telegram/content/alonews_127227_1781205780.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری/فارس: احتمال تایید توافق توسط رهبری بالاست
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127226
+
+<div align="center">
+  <a href="telegram/content/alonews_127226_1781205780.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزیر امور خارجه مارکو روبیو و مدیر عامل یو‌اف‌سی دانا وایت در وزارت امور خارجه بر سر دیپلماسی ورزشی و گسترش هنرهای رزمی ترکیبی در سراسر جهان، یک یادداشت تفاهم امضا کردند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127225
+
+<div align="center">
+  <a href="telegram/content/alonews_127225_1781205782.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزیر امور خارجه مارکو روبیو شوخی می‌کند دربارهٔ رینگ یو‌‌اف‌سی در کاخ سفید: دونالد ترامپ تهدید می‌کند که آن را رها کند.
+
+
+🔴شاید فقط میزبان مبارزات هفتگی بین افراد در سیاست باشیم و امتیازاتمان را به این روش تسویه کنیم.
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/21 22:43
 ---
 

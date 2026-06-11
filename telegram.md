@@ -7,6 +7,187 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/21 12:02
+---
+
+## VahidOOnLine — post 244894
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_244894_1781166757.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روایت زنان بازداشت‌شده در هرات از برخوردهای خشن و تحقیرآمیز نیروهای طالبان حکایت دارد. این زنان می‌گویند با آن‌ها با خشونت رفتار شده و شماری نیز در زندان طالبان مورد تعرض و شکنجه قرار گرفته‌اند. الهام کریمی در گزارشی به این روایت‌ها پرداخته است
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244893
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_244893_1781166759.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+طبق ویدیوها و گزارش رسیده به ایران اینترنشنال، حدود ساعت پنج بامداد ۲۱ خرداد از محدوده پایگاه نظامی ازناب در ابهر، دست‌کم یک پرتابه شلیک شد. به گفته شهروندان، این دومین بار در سه روز گذشته است که از این نقطه شلیک انجام گرفته است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## IranIntlTV — post 341644
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341644_1781166761.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روح‌الله رحیم‌پور، تحلیلگر سیاسی، به ایران‌اینترنشنال گفت هدف اصلی آمریکا از جنگ محدود فعلی، تحت فشار گذاشتن جمهوری اسلامی برای امضای توافق است، اما در صورت افزایش تبادل حمله‌ها خطر گسترش جنگ بیشتر می‌شود
+@iranintltv
+</div>
+
+## IranIntlTV — post 341643
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341643_1781166762.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روایت زنان بازداشت‌شده در هرات از برخوردهای خشن و تحقیرآمیز نیروهای طالبان حکایت دارد. این زنان می‌گویند با آن‌ها با خشونت رفتار شده و شماری نیز در زندان طالبان مورد تعرض و شکنجه قرار گرفته‌اند. الهام کریمی در گزارشی به این روایت‌ها پرداخته است
+@iranintltv
+</div>
+
+## IranIntlTV — post 341642
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341642_1781166764.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻تیم ملی فوتبال روز گذشته در یک بازی تدارکاتی،‌ تیم زیر ۲۱ سال تیخوانا را با نتیجه سه بر صفر شکست داد. قرار بود شاگردان امیر قلعه‌نویی در دیداری دوستانه به مصاف گرانادا بروند، اما این مسابقه به دلیل «آماده نبودن تیم حریف» برگزار نخواهد شد.
+
+🔹پیش از این نیز مسابقه برنامه‌ریزی‌شده برابر پورتوریکو پس از تغییر محل استقرار تیم ملی از آمریکا به مکزیک منتفی شده بود.
+
+🔹از سوی دیگر جیانی اینفانتینو، رئیس فیفا یک روز پیش از شروع جام جهانی ۲۰۲۶ ضمن خوشحالی از حضور تیم فوتبال ایران در جام جهانی گفت: «وقتی برخی می‌گفتند حضور ایران در جام جهانی غیرممکن است، به آنها گفتم و قول دادم که ایران خواهد آمد؛ حتی اگر لازم باشد با اتوبوس به تهران بروم و خودم آنها را اینجا بیاورم، این کار را خواهم کرد.»
+
+🔹گزارش علیرضا مدیری، خبرنگار ایران اینترنشنال از لس آنجلس درباره آخرین خبرهای تیم ملی در جام جهانی
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 341641
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341641_1781166766.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+طبق ویدیوها و گزارش رسیده به ایران اینترنشنال، حدود ساعت پنج بامداد ۲۱ خرداد از محدوده پایگاه نظامی ازناب در ابهر، دست‌کم یک پرتابه شلیک شد. به گفته شهروندان، این دومین بار در سه روز گذشته است که از این نقطه شلیک انجام گرفته است.
+</div>
+
+## FarsiVOA — post 220361
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220361_1781166768.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دولت قطر حملات اخیر جمهوری اسلامی علیه اردن، بحرین و کویت را به‌شدت محکوم کرد و آن را نقض آشکار حاکمیت این کشورها و قوانین بین‌المللی دانست.
+
+وزارت خارجه قطر با صدور بیانیه‌ای، بر ضرورت کاهش تنش در منطقه و پرهیز از اقدامات تشدیدکننده تأکید کرد و خواستار بازگشت ثبات و امنیت شد.
+
+در این بیانیه همچنین بر همبستگی کامل قطر با اردن، بحرین و کویت و حمایت از اقدامات آن‌ها برای حفظ امنیت و حاکمیت ملی تأکید شده است.
+
+سپاه پاسداران اعلام کرد که حملات متقابلی را علیه آن چه «اهداف نظامی آمریکا» در کویت و بحرین و اردن خوانده شد، انجام داد.
+
+ارتش کویت از مقابله با «اهداف هوایی متخاصم» خبر داد و وزارت کشور بحرین نیز اعلام کرد که یک دختر ۱۱ ساله در این حملات مجروح شد.
+@FarsiVOA
+</div>
+
+## alonews — post 127089
+
+<div align="center">
+  <a href="telegram/content/alonews_127089_1781166768.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزارت خارجه چین درباره حمله آمریکا به ایران: باید امنیت کشورهای منطقه محترم شمرده شده و حفظ شود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127088
+
+<div align="center">
+  <a href="telegram/content/alonews_127088_1781166769.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خبرگزاری مهر: یک حملهٔ آمریکایی به یک کشتی باربری 150 تنی ایران، در خلیج عمان در اوایل امروز انجام شد، این کشتی حامل کالاهای ضروری را از خصب، عمان، به ایران حمل می‌کرد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127087
+
+<div align="center">
+  <a href="telegram/content/alonews_127087_1781166769.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سپاه پنج پایگاه نظامی در اردن، کویت و بحرین را هدف قرار داده است
+
+
+🔴 پایگاه هوایی موفق السلط (اردن)
+
+🔴پایگاه هوایی احمد الجابر (کویت)
+
+🔴پایگاه هوایی علی السالم (کویت)
+
+🔴 مقر ناوگان پنجم آمریکا (بحرین)
+
+🔴 پایگاه هوایی شیخ عیسی (بحرین)
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127086
+
+<div align="center">
+  <a href="telegram/content/alonews_127086_1781166769.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈یه وکیل: دارک ترین پرونده ای که داشتم؟
+
+۱۰۰ تا زن متاهل با یه پسر ۲۴ ساله خیلی زیبا رابطه داشتن که شاید بچشون به اون پسر بره و خوشگل بشه!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127085
+
+<div align="center">
+  <a href="telegram/content/alonews_127085_1781166770.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پاکستان درباره درگیری‌ها میان ایران و آمریکا: میانجی‌گری ما برای دستیابی به صلح پایدار ادامه خواهد یافت
+
+
+🔴 عمیقاً نسبت به رویداد‌های اخیر که حاکی از شکنندگی آتش‌بس موقت است، نگران هستیم
+
+
+🔴 چرخه خصومت‌ها را نمی‌توان رد کرد
+
+
+🔴 از همه طرف‌ها می‌خواهیم که به تعاملات دیپلماتیک ادامه داده و به صلح فرصت بیشتری بدهند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127083
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اخبار جنگ الونیوز AloNews pinned a photo
+</div>
+
+---
 📅 بروزرسانی: 1405/03/21 11:52
 ---
 

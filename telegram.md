@@ -7,6 +7,142 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/21 09:02
+---
+
+## VahidOOnLine — post 244872
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244872_1781155951.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️سفارت روسیه در تهران چهارشنبه ۲۰ خردادماه با انتشار پیامی از دستبرد سارقان به کلیسای سنت نیکولای، تنها کلیسای ارتدوکس پایتخت ایران خبر داد.
+
+سفارت روسیه با اعلام این خبر نوشت: «با نهایت تاسف و تاثر به اطلاع می‌رسانیم که در تاریخ ۲۰ خرداد از سرقت کلیسای سنت نیکولای ارتدوکس روسیه در تهران که یکی از قدیمی‌ترین عبادتگاه‌های مسیحی در ایران و تنها کلیسای ارتدوکس روسی در پایتخت ایران به شمار می‌رود، مطلع گشتیم.»
+
+سفارت روسیه افزود: «هرگز باور نمی‌کردیم که در ایران افرادی پیدا شوند که چنین رفتاری با مقدسات مسیحی داشته باشند و به ایمانی به خدای یگانه که این کلیسا دهه‌ها پاسدار و حافظ آن بوده است، اهانت کنند.»
+
+سفارت روسیه در تهران در پایان این پیام با درخواست از سارقان برای بازگردان اشیای ربوده شده نوشت: «پیش از همه از کسانی که راه خطا پیموده و مرتکب این اقدام موهن و هتک‌حرمت‌آمیز شده‌اند، درخواست می‌کند که شمایل‌ها و اشیای مقدس ربوده‌شده را به کلیسا بازگردانند و بار گناه را بیش از این بر دوش خود نیفزایند. باشد که خداوند این خطاکاران را مورد بخشش و آمرزش قرار دهد.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## pm_afshaa — post 93595
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سفارت امریکا در عراق از شهروندانش خواست فوری خاک عراق را ترک کنن
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93594
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کویت حریم هوایی خود را موقتا بست
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DW_Farsi — post 125803
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125803_1781155952.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶بسته شدن حریم هوایی کویت به طور موقت در پی حملات ایران
+
+این اقدام در پی حملات ایران به کویت و خطرات احتمالی ناشی از آن برای هوانوردی غیرنظامی در منطقه صورت می‌گیرد.»
+
+به گفته مقامات اداره کل هواپیمایی کشوری کویت تردد هوایی به محض پایان یافتن وضعیت کنونی و رفع شدن عوامل خطر از سر گرفته خواهد شد.
+
+از سوی دیگر ارتش کویت اعلام کرد سامانه دفاع هوایی این کشور فعال شده است. در سراسر بحرین نیز صدای آژیرهای خطر شنیده شد. مقامات بحرین شهروندان خود را فراخواندند تا آرامش خود را حفظ کرده و به اماکن امن پناه ببرند.
+
+پیش از آن نیروهای مسلح جمهوری اسلامی اعلام کردند که در پی حملات آمریکا علیه ایران دست به اقدامات تلافی‌جویانه زده و کویت و بحرین را که نیروهای ایالات متحده در آنجا مستقر هستند، مورد حمله قرار داده‌اند.
+
+رسانه‌های حکومتی ایران مدعی شدند که یک پایگاه نیروی دریایی آمریکا در بحرین و سامانه دفاعی پاتریوت که در آنجا مستقر بوده، هدف حمله یک پهپاد انتحاری ایران قرار گرفته است. سپاه پاسداران نیز از حمله به دو پایگاه هوایی ایالات متحده در کویت خبر داد.
+
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 16687
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16687_1781155952.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تصاویری بیشتر از رد رهگیری موشک های ایرانی در نزدیکی پایگاه موفق السلطی اردن
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16685
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16685_1781155953.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دیده شدن ستون دود در بحرین به احتمال زیاد در اثر حملات موشکی و پهپادی سپاه
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16684
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16684_1781155954.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کاهش قیمت نفت پس اعلام پایان حملات آمریکا به ایران
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## alonews — post 127040
+
+<div align="center">
+  <a href="telegram/content/alonews_127040_1781155955.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈صدور حکم دوومیدانی‌کاران ایرانی در پرونده اتهام تجاوز به دختر کره‌ای:
+
+
+🔴 حبس ۴ ساله دو نفر از ورزشکاران؛ دو نفر دیگر نیز تبرئه شدند و می‌توانند به کشور بازگردند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127039
+
+<div align="center">
+  <a href="telegram/content/alonews_127039_1781155955.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈گوترش، دبیرکل سازمان ملل متحد، گفته است که آتش‌بس در خاورمیانه «بیشتر شبیه به یک آتشِ کمتر است تا یک آتش‌بس واقعی.»
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/21 08:52
 ---
 

@@ -7,6 +7,258 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/22 01:15
+---
+
+## VahidOOnLine — post 245059
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245059_1781214310.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️خبرگزاری مهر بامداد جمعه ۲۲ خردادماه، به نقل از منابع محلی در استان هرمزگان گزارش داد صدای انفجاری در دریا و در فاصله حدود دو کیلومتری ساحل سیریک شنیده شده است.
+
+بر اساس این گزارش، هنوز علت و منبع این صدا تایید نشده و جزئیات دقیقی درباره ماهیت این انفجار در دست نیست.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14593
+
+<div align="center">
+  <img src="telegram/content/WithYashar_14593_1781214310.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اتاق جنگ با یاشار : هر کی میگه الان تو جنوب کشور جنگ نیست، ببرش کنار یکی بخابون زیر گوشش.
+@withyashar
+</div>
+
+## WithYashar — post 14592
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صدای انفجار در بندر عباس 🚨
+@withyashar
+</div>
+
+## mwarmonitor — post 10749
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_10749_1781214311.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✈️۴ فروند هواپیمای سوخت‌رسان نیروی هوایی آمریکا اکنون بر فراز منطقه خلیج فارس در حال پرواز هستند، در حالی که ۴ فروند دیگر نیز به‌تازگی از تل‌آویو پرواز کرده‌اند. ✈️همچنین یک فروند هواپیمای هشدار زودهنگام و کنترل هوایی E-3B Sentry آواکس متعلق به نیروی هوایی…
+</div>
+
+## pm_afshaa — post 93661
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صداوسیما : نترسید صداهای انفجار مربوط به مدیریت و بستن تنگه ی هرمزه
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93660
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انفجار مجدد در سیریک
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93659
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_93659_1781214312.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ما اومدیم توافق
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93658
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پرواز 8 هواپیمای سوخت‌رسان آمریکایی به علاوه یک هواپیمای هشدار زودهنگام در آسمان عربستان و نزدیک تنگه هرمز
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## Shin_Persian — post 6966
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Thu, 11 Jun 2026 21:37:05 UTC
+
+Another blast near Sirik, Hormozgan Province, Iran
+
+ترجمه خودکار فارسی
+
+انفجار دیگری در نزدیکی سیریک، استان هرمزگان، ایران
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 220433
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220433_1781214312.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️خبرگزاری حکومتی مهر از شنیده شدن صدای انفجار در نزدیکی ساحل سیریک خبر داده و گمانه‌زنی کرده است که این امر به «بسته بودن تنگه هرمز» مربوط می‌شود. جمهوری اسلامی پیشتر کشتی‌های تجاری در تنگه هرمز را تهدید به حمله کرده بود.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220432
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️پوشش ویژه | پرزیدنت ترامپ: توافق با جمهوری اسلامی شاید آخرهفته امضا شود
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 16793
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16793_1781214313.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک کشتی که تلاش داشت وارد تنگه هرمز شود هدف قرار گرفت..
+</div>
+
+## Persian_Trend_Official — post 16792
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16792_1781214313.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+• امروز سه فروند بمب افکن B-1B آمریکایی از مبدا پایگاه هوایی Dyess، در پایگاه هوایی Fairford انگلیس بر زمین نشستند. با رسیدن این سه، هم اکنون ۱۸ فروند بمب افکن B1-B در فیرفورد حضور دارند.
+</div>
+
+## Persian_Trend_Official — post 16791
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تایید نشده/گزارش ها از انفجار در بندر گناوه و بندر عباس
+</div>
+
+## Persian_Trend_Official — post 16790
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16790_1781214316.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پدافند هوایی در خرم‌آباد فعال شد
+</div>
+
+## IranianMinds — post 22349
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مجدد صدای انفجار سیریک
+
+
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22348
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 انفجار مجدد در بندرعباس
+
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22347
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 تسنیم :
+
+متن تفاهم تا این لحظه در مراجع ذی‌صلاح  جمهوری اسلامی به تایید نهایی نرسیده.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22346
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 صداوسیما : صداهای انفجار مربوط به مدیریت و بستن تنگه ی هرمزه.
+
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22345
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبرگزاری مهر:
+
+صدای مجدد انفجار در سیریک
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22344
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22344_1781214316.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فعالیت آواکس E3 آمریکا
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22343
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فکر کنم توافق رو دارن جنوب کشور انجام میدن
+
+
+
+صداهای افنجار باز داره میاد از بندر گناوه و بندرعباسو بوشهر
+
+@IranianMinds
+</div>
+
+## alonews — post 127278
+
+<div align="center">
+  <a href="telegram/content/alonews_127278_1781214317.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈صداوسیما: برخی منابع آگاه صدای انفجار را مرتبط با مدیریت و بسته نگه داشتن تنگه هرمز می‌دانند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/22 01:04
 ---
 

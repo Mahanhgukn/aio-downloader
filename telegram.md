@@ -7,6 +7,138 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/21 14:43
+---
+
+## WithYashar — post 14498
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مسکو: آمریکا پیش از آنکه درخواست دسترسی بازرسان آژانس به تأسیسات هسته‌ای ایران را دنبال کند، باید تضمین دهد که به تهران هیچ حمله جدیدی نمی کند.
+@withyashar
+</div>
+
+## mwarmonitor — post 10698
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_10698_1781176394.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴بحرین اعلام کرد در پی سقوط ترکش‌های ناشی از رهگیری و انهدام پهپادهای ایرانی، یک کودک زخمی شده و چند خودرو آتش گرفته و تعدادی خانه در شهر حمد و پایتخت، منامه، آسیب دیده‌اند.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10697
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 خبرنگار الجزیره: یک حمله هوایی اسرائیل به شهرک منصوری در شهرستان صور در جنوب لبنان انجام شده است.
+
+@mwarmonitor
+</div>
+
+## kianmeli1 — post 87925
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سپاه پاسداران از دیشب پنج پایگاه نظامی در اردن، کویت و بحرین را هدف قرار داده است
+
+-پایگاه هوایی موفق السلط (اردن)
+-پایگاه هوایی احمد الجابر (کویت)
+-پایگاه هوایی علی السالم (کویت)
+-مقر ناوگان پنجم آمریکا (بحرین)
+-پایگاه هوایی شیخ عیسی (بحرین)
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 341684
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341684_1781176395.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایران‌اینترنشنال کارزار مردمی تازه خود را به سرکوب معترضان در نورآباد ممسنی، در جریان اعتراضات دی‌ماه، اختصاص داده است. این کارزار با هدف روایت ناگفته‌های سرکوب، ثبت روایت خانواده‌های جان‌باختگان و پیگیری ابعاد این رویداد، در پی کشف حقیقت درباره آنچه در جریان اعتراضات رخ داد، است.
+
+گزارش محسن ظهوری، ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## BBCPersian — post 283426
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻هشدار ۲۲ کشور به ایران درباره حمله علیه افراد در خاکشان
+
+۲۲ کشور، از جمله ایالات متحده و شماری از کشورهای اروپایی، روز پنجشنبه در بیانیه‌ مشترکی به ایران هشدار دادند که حمله به افراد «در خاک» کشورهایشان را متوقف کند. این کشورها همچنین با «توطئه» خواندن فعالیت گروه‌های تحت حمایت ایران برای حمله به افراد در خاک کشورهایشان، این اقدامات را محکوم کرده‌اند.
+
+https://bbc.in/4eoUlyW
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 391691
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391691_1781176397.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پرامپت 4K کردن تصویر بی‌کیفیت
+تست شده با Gemini
+
+
+Remaster the provided image into a flawless, 8K ultra-photorealistic masterpiece. STRICT REQUIREMENT: Maintain absolute 100% fidelity to the original. The subject’s identity, exact facial features, micro-expressions, pose, wardrobe, and the entire background composition must remain perfectly intact with zero hallucinations or added elements. Deeply enhance micro-textures: restore authentic skin pores, individual hair strands, iris depth, and intricate fabric details. Apply high-end HDR cinematic studio lighting that perfectly respects the original light source to boost dimensional depth and contrast. The final output must look like a premium DSLR raw photograph—pristine clarity, perfect texture accuracy, and absolutely zero stylistic deviation.
+
+﻿
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 127121
+
+<div align="center">
+  <a href="telegram/content/alonews_127121_1781176398.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نخست‌وزیر ایتالیا: اروپا باید در صورت تمایل ایران به مذاکره، تحریم‌ها را کاهش دهد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127120
+
+<div align="center">
+  <a href="telegram/content/alonews_127120_1781176398.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نتانیاهو : ما تو همه جبهه‌ها پیشرفت قابل‌توجهی می‌بینیم
+
+
+🔴 هر هفته صدها نفر از نیروهای مسلح دشمن رو از بین می‌بریم
+
+
+🔴همچنان چالش‌های دیگه‌ای هم پیش رو داریم
+
+
+🔴یه چالش ویژه هم موضوع ربوده‌شده‌ها (گروگان‌ها)هست که روی اون کار می‌کنیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127119
+
+<div align="center">
+  <a href="telegram/content/alonews_127119_1781176401.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 ویدئویی از حملات امروز اسرائیل به لبنان.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/21 14:32
 ---
 

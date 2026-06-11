@@ -7,6 +7,108 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/21 11:32
+---
+
+## VahidOOnLine — post 244878
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244878_1781164979.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️مرکز عملیات تجارت دریایی بریتانیا صبح پنجشنبه ۲۱ خرداد با انتشار بیانیه‌ای از بروز یک حادثه دریایی دیگر در نزدیکی آب‌های ساحلی عمان خبر داد.
+
+به گفته این سازمان نظارت بر تجارت دریایی، موتورخانه یک کشتی در ۲۱ مایلی دریایی شمال شرقی عمان دچار حریق شده است.
+
+هنوز گزارشی درباره وضعیت خدمه این کشتی آسیب دیده منتشر نشده است.
+
+این خبر در حالی منتشر می‌شود که روز گذشته و در پی حمله هوایی آمریکا به یک کشتی هندی در نزدیکی آب‌های ساحلی عمان، سه نفر از خدمه کشتی جان خود را از دست دادند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## DEJradio — post 5578
+
+<div align="center">
+  <img src="telegram/content/DEJradio_5578_1781164980.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💀
+🚨 یک بـ.ـسیجی به نام «امید بختیاری» ۱۸ خرداد ۱۴۰۵ در حمله اسرائیل به مراکز نظامی سـ.ـپاه پاسداران کشته شد.
+
+منابعی در شهرداری تهران می‌گویند او کارمند شهرداری بوده و «هنگام انجام عملیات آواربرداری» کشته شده است.
+در این حملات دو عضو پدافند ارتش نیز کشته شده بودند.
+
+#جنگ #بسیجی
+@DEJradio
+</div>
+
+## IranIntlTV — post 341628
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341628_1781164981.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد که ساعت ۵ بامداد ۲۱ خرداد یک پرتابه از تبریز عبور کرد و رد موشک در آسمان این شهر مشاهده شد. تا کنون جزئیات بیشتری درباره مبدا، مقصد یا پیامدهای احتمالی این رویداد منتشر نشده است.
+</div>
+
+## DW_Farsi — post 125808
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125808_1781164984.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📸 عکس روز: مشارکت بیننده در اثر هنری
+
+نمایشگاه "خلیو له‌پارک: نور، رنگ، کنش" نخستین مرور جامع آثار این هنرمند آرژانتینی در گالری تیت لندن در جریان است.
+
+له‌پارک که از پیشگامان هنر جنبشی و هنر اپتیکال (دیداری) شناخته می‌شود در استفاده از نور، حرکت و مشارکت دادن بیننده در اثر هنری نقش نوآورانه داشته است.
+
+او با استفاده از پلکسی‌گلاس، آینه‌ها و فلزات معلق آثاری آفرید که با حرکت بیننده یا جریان هوا تغییر شکل می‌دهند.
+
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 16696
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری CNN: مذاکرات برای رسیدن به توافق بین ایالات متحده و ایران پس از درگیری شبانه همچنان در مسیر خود قرار دارد.
+
+با وجود تبادل حملات شبانه که خطر پیچیده شدن تلاش‌های دیپلماتیک را به همراه داشت، مذاکرات ادامه یافت.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## alonews — post 127080
+
+<div align="center">
+  <a href="telegram/content/alonews_127080_1781164985.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تصویری از آتش سوزی نفتکش هندی
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127079
+
+<div align="center">
+  <a href="telegram/content/alonews_127079_1781164987.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزارت امور خارجه قطر: ما حملات مجدد ایران به اردن، بحرین و کویت را محکوم می‌کنیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/21 11:22
 ---
 

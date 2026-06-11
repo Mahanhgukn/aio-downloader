@@ -7,6 +7,65 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/21 13:52
+---
+
+## pm_afshaa — post 93602
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+منابع داخلی:گفت و گوها با آمریکا متوقف شده
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5585
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5585_1781173360.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺🎥 شعارنویسی در تهرانسر: تا کی ایرانی‌ها باید قربانی حزب‌الله شوند؟
+
+#تهرانسر #حزب_الله_لبنان
+@DEJradio
+</div>
+
+## BBCPersian — post 283422
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻خبرگزاری فرانسه به نقل از یک دیپلمات: هیئت قطری پس از مذاکره تهران را ترک کردند
+
+خبرگزاری فرانسه به نقل از یک دیپلمات گفته است که هیئت مذاکره‌کننده قطر پس از گفت‌وگو درباره جنگ در خاورمیانه، تهران را ترک کرده است؛ این در حالی است که شب گذشته آمریکا و ایران بار دیگر به تبادل حملات پرداختند.
+
+این دیپلمات که نخواست نامش فاش شود، گفت: «هیئت قطری صبح امروز پس از دیدار و گفت‌وگو با مقام‌های ایرانی، تهران را ترک کرد.»
+
+به گفته او، این مذاکرات که تا ساعات اولیه بامداد صبح امروز ادامه داشت «با هماهنگی ایالات متحده» انجام شده است.
+
+https://bbc.in/4v5B0d7
+@BBCPersian
+</div>
+
+## alonews — post 127114
+
+<div align="center">
+  <a href="telegram/content/alonews_127114_1781173361.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رئیس سازمان اورژانس کشور: ۵ نفر در حملات بامداد امروز مصدوم شدند که ۳ نفر در تهران و ۲ نفر در هرمزگان بودند.
+
+
+🔴همه مصدومان پس از درمان مرخص شدند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/21 13:42
 ---
 

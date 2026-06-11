@@ -7,6 +7,263 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/22 00:13
+---
+
+## VahidOOnLine — post 245053
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245053_1781210608.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دفتر نخست‌وزیر اسرائیل اعلام کرد دونالد ترامپ پنجشنبه ۲۱ خردادماه در تماس با بنیامین نتانیاهو درباره تفاهم‌نامه‌ای که با جکومت ایران در حال شکل‌گیری است و زمینه ورود به مذاکرات را فراهم می‌کند، گفتگو کرده است.
+
+بر اساس این بیانیه، با وجود آنکه اسرائیل طرف این تفاهم‌نامه نیست، نتانیاهو از تعهد ترامپ نسبت به مفاد توافق نهایی قدردانی کرده است.
+
+دفتر نخست‌وزیری اسرائیل افزود تعهد ترامپ شامل حذف مواد غنی‌شده، برچیدن زیرساخت‌های غنی‌سازی، محدود کردن تولید موشک و پایان دادن به حمایت ایران از نیروهای نیابتی در منطقه است.
+
+این اظهارات در حالی مطرح شد که دونالد ترامپ، رئیس‌جمهوری آمریکا، در گفتگو با خبرنگاران در دفتر بیضی کاخ سفید از توافقی احتمالی سخن گفت که می‌تواند به جنگ با ایران پایان دهد و افزود این توافق ممکن است ظرف روزهای آینده نهایی شود.
+
+ترامپ گفت: «اسناد در وضعیت تقریبا نهایی هستند، پس باید ببینیم چه می‌شود.» او همچنین تاکید کرد این روند باید «خیلی سریع» انجام شود و ابراز امیدواری کرد مراسم امضای این سند به‌زودی و احتمالا در اروپا برگزار شود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245052
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245052_1781210608.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس‌جمهوری آمریکا، پنجشنبه ۲۱ خردادماه در گفت‌وگو با خبرنگاران در کاخ سفید گفت جمهوری اسلامی هرگز به سلاح هسته‌ای دست نخواهد یافت و توافق میان تهران و واشنگتن به زودی نهایی می‌شود.
+ترامپ در پاسخ به سوالی درباره تایید این توافق از سوی مجتبی خامنه‌ای گفت: «تا جایی که من می‌دانم، پاسخ بله است.»
+رئیس‌جمهوری آمریکا افزود این توافق بسیار مفصل و دارای جزییات فراوان است و در صورت امضا، محدودیت‌ها و محاصره اعمال‌شده علیه ایران لغو خواهد شد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245051
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245051_1781210609.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دفتر نخست‌وزیری اسرائیل، اعلام کرد که دونالد ترامپ، رییس‌جمهوری آمریکا، درباره یک یادداشت تفاهم در حال شکل‌گیری با حکومت ایران برای ورود به مذاکرات، با بنیامین نتانیاهو گفت‌وگو کرده است.
+
+این دفتر افزود نتانیاهو از تعهد ترامپ درباره شرایط هر توافق نهایی با ایران ابراز قدردانی کرده، هرچند اسرائیل طرف این تفاهم‌نامه نیست.
+
+دفتر نتانیاهو نوشت: «تعهد ترامپ شامل حذف مواد غنی‌شده، برچیدن زیرساخت‌های غنی‌سازی، محدود کردن تولید موشک و پایان دادن به حمایت ایران از نیروهای نیابتی در منطقه بوده است.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14579
+
+<div align="center">
+  <a href="telegram/content/WithYashar_14579_1781210610.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرنگار: آیا رهبر ایران این توافق را تأیید کرده است؟
+
+ترامپ: تا جایی که می‌دانم پاسخ بله است.
+@withyashar
+</div>
+
+## WithYashar — post 14578
+
+
+
+
+## WithYashar — post 14577
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ : ما این جنگ رو از نظر نظامی خیلی زود بردیم، تنها چیزی که نبردیم، رسانه‌های فیک‌نیوزه
+
+تنگه بازه؛ ولی این تنگه‌ها از چند ماه پیش هم باز بودن، فقط شما خبر نداشتید
+@withyashar
+</div>
+
+## WithYashar — post 14576
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دفتر نتانیاهو: رئیس جمهور ترامپ با نخست وزیر نتانیاهو در مورد نهایی شدن یادداشت تفاهم با ایران برای ورود به مذاکرات صحبت کرد.اگرچه اسرائیل طرف این یادداشت تفاهم نیست،نخست وزیر از تعهد رئیس جمهور ترامپ برای اطمینان از اینکه توافق نهایی که در پایان مذاکرات شامل…
+</div>
+
+## FoxNewsTwitter — post 342879
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342879_1781210611.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NEW: Sec. Rubio touts the upcoming White House UFC event as a "gift to the American people":
+
+"The America 250 celebration belongs to the people of the United States."
+
+"It's a gift to the American people. They're going to see their White House and their capital on their nation's birthday celebrating with a historic event."
+
+"We could've had a band... We could've done a Shakespeare in the park production... A billion people all over the world will be watching America celebrate its 250th birthday."
+
+"We're happy to be a part of that."
+</div>
+
+## FoxNewsTwitter — post 342878
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342878_1781210613.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+“You have done more for this nation in the seafood space than any president before you in my lifetime.”
+
+American fishermen came to the Oval Office to thank President Trump for cutting Biden-era regulations they say were crushing their industry — and even made him an honorary crew member: "You're one of us now."
+
+"We support you 100%."
+</div>
+
+## VahidOnline — post 76248
+
+<div align="center">
+  <a href="telegram/content/VahidOnline_76248_1781210615.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ درباره مقامات جمهوری اسلامی:
+من این افراد را بسیار منطقی‌تر از افرادی می‌دانم که دیگر با ما نیستند. این یک گروه متفاوت است و من فکر می‌کنم گروهی باهوش‌تر است که منطق دارد. همه آنها توافق را تأیید کرده‌اند.
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 76247
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76247_1781210615.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسماعیل بقائی، سخنگوی وزارت خارجه جمهوری اسلامی در یک برنامه تلویزیونی گفت: «مواردی که درباره توافق مطرح می‌شود، گمانه‌زنی است و موضوع نهایی نشده است.»
+
+او اضافه کرد: «وضعیت مذاکرات از ابتدا برای ما روشن بود و بخش عمده متن نهایی شده بود، اما آمریکایی‌ها مواضع خود را تغییر می‌دادند.»
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 341803
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻اسپه‌هلو سیتوله، مدافع تیم ملی فوتبال آفریقای جنوبی، در دقیقه ۵۸ بازی افتتاحیه جام جهانی برابر مکزیک، در حالی که گوتیرز در موقعیت تک‌به‌تک بود، از پشت سر روی او خطا کرد و با دریافت نخستین کارت قرمز مستقیم جام، از بازی اخراج شد.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 341802
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341802_1781210616.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دفتر نخست‌وزیری اسرائیل، اعلام کرد که دونالد ترامپ، رییس‌جمهوری آمریکا، درباره یک یادداشت تفاهم در حال شکل‌گیری با حکومت ایران برای ورود به مذاکرات، با بنیامین نتانیاهو گفت‌وگو کرده است.
+
+این دفتر افزود نتانیاهو از تعهد ترامپ درباره شرایط هر توافق نهایی با ایران ابراز قدردانی کرده، هرچند اسرائیل طرف این تفاهم‌نامه نیست.
+
+دفتر نتانیاهو نوشت: «تعهد ترامپ شامل حذف مواد غنی‌شده، برچیدن زیرساخت‌های غنی‌سازی، محدود کردن تولید موشک و پایان دادن به حمایت ایران از نیروهای نیابتی در منطقه بوده است.»
+https://iranintl.com/202606116113
+</div>
+
+## FarsiVOA — post 220426
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220426_1781210617.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️در حالی که آمریکا برای دومین شب پیاپی مواضع جمهوری اسلامی را هدف حملات هوایی قرار داد، مقام‌های حکومت تهران از «انتقام نهایی» سخن می‌گویند و همزمان تلاش‌ها برای تمدید آتش‌بس و دستیابی به توافق ادامه دارد.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220425
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220425_1781210618.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️شکریا برادوست در برنامه تفسیر خبر: معلوم نیست در باقی‌مانده جمهوری اسلامی چه کسی حرف آخر را می‌زند
+@FarsiVOA
+</div>
+
+## RadioFarda — post 158199
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸رئیس‌جمهور ایالات متحده روز پنج‌شنبه ۲۱ خرداد اعلام کرد که انتظار می‌رود مراسم امضای توافق میان آمریکا و ایران این آخر هفته در اروپا برگزار شود و جی‌دی ونس، معاون رئیس‌جمهور، در این مراسم شرکت خواهد کرد.
+
+🔸دونالد ترامپ از دستیابی به یک «توافق بزرگ» با ایران برای پایان دادن به جنگ خاورمیانه خبر داد و در دفتر بیضی کاخ سفید به خبرنگاران گفت: «ما به‌تازگی به یک توافق بزرگ درباره جنگ با ایران دست یافتیم».
+
+🔸او افزود که «مشروط به نهایی شدن اسناد، که باید طی چند روز آینده انجام شود، احتمالاً مراسم امضا، در اروپا برگزار خواهد شد».
+
+🔸ترامپ اعلام کرد که به محض امضای توافق با ایران «تنگه هرمز به شکل رسمی باز خواهد شد».
+
+🔸رئیس‌جمهور آمریکا با اشاره به این که خودش نمی‌تواند در مراسم امضای این توافق شرکت کند، گفت جی‌دی ونس به این منظور به اروپا سفر خواهد کرد.
+
+🔸ترامپ از اواسط ماه مارس بارها گفته که دستیابی به توافقی با ایران برای پایان دادن به جنگ نزدیک است.
+
+@RadioFarda
+</div>
+
+## BBCPersian — post 283479
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻 ترامپ می‌گوید «یادداشت تفاهم قوی» با ایران «کمی مفهومی» است
+
+دونالد ترامپ در ادامه گفت‌وگویش با خبرنگاران در کاخ سفید در پاسخ به سوالی که آیا این «مفهوم» توافق، همانطور که قبلا گفته بود، فقط زمینه را برای مذاکرات عمیق‌تر فراهم می‌کند یا خیر.
+
+پاسخ داد: «این یک یادداشت تفاهم بسیار قوی است که کمی مفهومی است، اما چیزی است که قرار است انجام شود.»
+
+او افزود: «این یک یادداشت تفاهم بسیار دقیق است که مورد توافق بسیاری از کشورهای دیگر که نفوذ زیادی بر آنها (ایران) دارند نیز قرار گرفته است و همه می‌خواهند که انجام شود.»
+
+https://bbc.in/449qeXb
+@BBCPersian
+</div>
+
+## alonews — post 127268
+
+<div align="center">
+  <a href="telegram/content/alonews_127268_1781210619.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈العربیه: آمریکا دسترسی به دارایی‌های مسدودشده ایران را تسهیل خواهد کرد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127267
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+الان یعنی با قاتل حضرت سید علی خامنه‌ای 💔، قاتل خانواده‌ی رهبر جدیدمون 💔 قاتل سردار سلیمانی 💔، قاتل سید مقاومت حسن نصرالله💔، قاتل شهید فقید اسماعیل هنیه💔، قاتل دانشمندمون محسن فخری‌زاده💔، قاتل سردار حسین سلامی💔، قاتل سردار محمد باقری غلامعلی رشید💔، قاتل سردار…
+</div>
+
+## alonews — post 127266
+
+<div align="center">
+  <a href="telegram/content/alonews_127266_1781210619.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ : ما این جنگ رو از نظر نظامی خیلی زود بردیم، تنها چیزی که نبردیم، رسانه‌های فیک‌نیوزه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/22 00:03
 ---
 

@@ -7,6 +7,244 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/21 23:53
+---
+
+## WithYashar — post 14572
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دفتر نتانیاهو: رئیس جمهور ترامپ با نخست وزیر نتانیاهو در مورد نهایی شدن یادداشت تفاهم با ایران برای ورود به مذاکرات صحبت کرد.اگرچه اسرائیل طرف این یادداشت تفاهم نیست،نخست وزیر از تعهد رئیس جمهور ترامپ برای اطمینان از اینکه توافق نهایی که در پایان مذاکرات شامل حذف مواد غنی شده،برچیدن زیرساخت‌های غنی سازی،محدودیت تولید و برد موشک و توقف حمایت ایران از گروه‌های تروریستی وابسته به آن در منطقه باشد، ابراز قدردانی کرد.
+@withyashar
+</div>
+
+## WithYashar — post 14571
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ادعای نورالدین الدغیر خبرنگار الجزیره در تهران:
+دیگر همه چیز قطعی و تمام شده
+@withyashar
+</div>
+
+## WithYashar — post 14570
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨🚨🚨🚨🚨🚨🚨
+
+دو فروند هواپیمای آواکس E-3B Sentry یکی بر فراز عربستان سعودی دیگری بر فراز خلیج فارس رادار خود را خاموش کرد ﻿
+@withyashar
+</div>
+
+## DEJradio — post 5598
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5598_1781209396.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🌞
+🔺 ممنوعه شیرین؛ عاشقانه سگ‌ها در برلین
+
+گزارش: ملیکا رضاپور
+
+#سگ #تابستان_برلین
+@DEJradio
+</div>
+
+## VahidOnline — post 76245
+
+<div align="center">
+  <a href="telegram/content/VahidOnline_76245_1781209396.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارشگر: ضرب‌الاجل شما برای رسیدن از این مرحله به یک توافق نهایی چیست؟
+
+ترامپ: نمی‌خواهم ضرب‌الاجل بگویم چون بعدش می‌گویید من ضرب‌الاجل را رعایت نکردم.
+
+خیلی مهم نخواهد بود چون قرار است امضا شود.
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 76244
+
+<div align="center">
+  <a href="telegram/content/VahidOnline_76244_1781209398.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: تنگه باز است. تنگه برای چندین ماه است که باز بوده، اما شما فقط از آن خبر نداشتید.
+
+📡 @VahidOnline
+</div>
+
+## kianmeli1 — post 87945
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87945_1781209399.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نتانیاهو، نخست وزیر اسرائیل، می‌گوید اسرائیل «طرف» تفاهم‌نامه بین ایالات متحده و ایران نیست.
+https://t.me/kianmeli1
+</div>
+
+## IranianMinds — post 22338
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22338_1781209400.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ :
+شاید تا آخر همین هفته (شنبه ، یکشنبه) توافق امضا بشه ، تا اونجایی که من میدونم، مجتبی خامنه‌ای هم تایید کرده.
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 391754
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391754_1781209401.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لباسای محرم رو آماده کردی؟
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391753
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391753_1781209402.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شکیرای وطنی هم رسید
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391752
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391752_1781209404.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به وقت مادر جندگی
+
+جمهوری عسلامی و عرزشی به تنظیمات کارخانه برگشت
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 127261
+
+<div align="center">
+  <a href="telegram/content/alonews_127261_1781209404.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: می‌خواهید آشوب ببینید؟ می‌خواهید مرگ و ویرانی ببینید بگذارید ایران سلاح هسته‌ای داشته باشد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127260
+
+<div align="center">
+  <a href="telegram/content/alonews_127260_1781209405.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 ترامپ: آن‌ها در سومالیه قانون اساسی ندارند. آن‌ها پلیس ندارند. همه‌ی چیزی که دارند مردمی است که دور می‌دوند و به یکدیگر شلیک می‌کنند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127259
+
+<div align="center">
+  <a href="telegram/content/alonews_127259_1781209405.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈دفتر نتانیاهو: رئیس جمهور ترامپ با نخست وزیر نتانیاهو در مورد نهایی شدن یادداشت تفاهم با ایران برای ورود به مذاکرات صحبت کرد.اگرچه اسرائیل طرف این یادداشت تفاهم نیست،نخست وزیر از تعهد رئیس جمهور ترامپ برای اطمینان از اینکه توافق نهایی که در پایان مذاکرات شامل حذف مواد غنی شده،برچیدن زیرساخت‌های غنی سازی،محدودیت تولید و برد موشک و توقف حمایت ایران از گروه‌های تروریستی وابسته به آن در منطقه باشد، ابراز قدردانی کرد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127258
+
+<div align="center">
+  <a href="telegram/content/alonews_127258_1781209405.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈مجری شبکه دو:
+ما باید از دشمن بفهمیم چه خبر شده
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127257
+
+<div align="center">
+  <a href="telegram/content/alonews_127257_1781209405.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ در مورد ایران : این یک تفاهم‌نامه بسیار قوی است. این کمی مفهومی است، اما چیزی است که قرار است انجام شود.
+
+
+🔴و اگر به هر دلیلی انجام نشود، که نمی‌توانم تصور کنم که این اتفاق نیفتد، آن‌ها به اندازه من یا بیشتر می‌خواهند آن را امضا کنند. من می‌گویم آن‌ها بیشتر، شاید خیلی بیشتر می‌خواهند آن را امضا کنند.
+
+
+🔴این یک تفاهم‌نامه بسیار دقیق است که توسط بسیاری از کشورهای دیگر که تأثیر زیادی بر آن‌ها دارند نیز مورد توافق قرار گرفته است. و همه می‌خواهند که انجام شود. پس قرار است انجام شود.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127256
+
+<div align="center">
+  <a href="telegram/content/alonews_127256_1781209405.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / نورالدین الدغیر خبرنگار الجزیره در تهران: دیگر همه چیز قطعی و تمام شده
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127255
+
+<div align="center">
+  <a href="telegram/content/alonews_127255_1781209406.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ : ایران به‌هیچ‌عنوان و تحت هیچ شرایطی، سلاح هسته‌ای نخواهد ساخت و اقدام به خرید آن نخواهد کرد.»
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127254
+
+<div align="center">
+  <a href="telegram/content/alonews_127254_1781209406.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ درمورد توافقی که از آن حرف میزند: آنها به اندازه من یا حتی بیشتر می‌خواهند آن را امضا کنند. می‌توانم بگویم آنها شاید خیلی بیشتر بخواهند آن را امضا کنند.
+
+
+🔴این یک یادداشت تفاهم بسیار دقیق است که توسط بسیاری از کشورهای دیگر که نفوذ زیادی بر آنها دارند نیز پذیرفته شده است. و همه می‌خواهند این کار انجام شود. پس این کار انجام خواهد شد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/21 23:43
 ---
 

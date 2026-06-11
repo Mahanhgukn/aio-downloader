@@ -7,6 +7,263 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/22 00:53
+---
+
+## VahidOOnLine — post 245057
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245057_1781213037.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ابراهیم رضایی، سخنگوی کمیسیون امنیت ملی مجلس شورای اسلامی، با انتشار پیامی در شبکه اجتماعی اکس نوشت: «احتمال فریب از سوی ترامپ بالاست، او فردا معامله بزرگی در پیش دارد و می‌خواهد فعلا اوضاع را آرام نگه دارد.»
+رضایی در ادامه خواستار تشدید حملات شد و نوشت: «محکم‌تر بزنید، زیرساخت‌ها و مراکز اقتصادی و هوش مصنوعی دشمن در منطقه را ویران و نابود کنید تا بیشتر دردشان بگیرد.»
+اظهارات او در حالی مطرح می‌شود که دونالد ترامپ، رئیس‌جمهوری آمریکا، روز پنجشنبه ۲۱ خرداد در گفتگو با خبرنگاران اعلام کرد توافق با جمهوری اسلامی تا چند روز دیگر امضا خواهد شد. ترامپ با بیان اینکه «اسناد در وضعیت تقریبا نهایی هستند، پس باید ببینیم چه می‌شود؛ خواهیم دید»، افزود: «این کار باید خیلی سریع انجام شود.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14589
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پدافند خرم اباد برای مقابله با پهپاد ها فعال شد
+@withyashar
+</div>
+
+## WithYashar — post 14588
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش درگیری و تبادل آتش هم اکنون در تنگه هرمز🚨
+@withyashar
+</div>
+
+## WithYashar — post 14587
+
+
+
+
+## pm_afshaa — post 93654
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پدافند خرم اباد برای مقابله با ریز پرنده ها فعال شد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93653
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: ایالات متحده به محض امضای توافق، تحریم‌ها علیه ایران را لغو خواهد کرد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93652
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فارس:با توجه به اینکه آمریکا پیشنهاد ایران رو پذیرفته؛ احتمال قبول توافق توسط مراجع اصلی نظام بالاست
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93651
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93651_1781213038.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🤔 بعضی قیمت‌ها ارزونن... 
+💸بعضی قیمت‌ها مشکوکن... 
+😅 ولی این یکی فقط غیرقابل باوره 
+💎 هر گیگ فقط ۳ هزار تومن 
+💎 
+👎نه کیفیت کم شده 
+👎نه سرعت قربانی شده 
+👎نه قراره چیزی از دست بدی 
+👍فقط قراره کمتر پول بدی. 
+🚀 @LexVipBot 
+⚡️ @Lex_Server
+</div>
+
+## pm_afshaa — post 93650
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انفجار در سیریک 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5600
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ دولت اسرائیل بدون مشارکت در توافق، از تضمین‌های ترامپ برای محدود کردن جمهوری اسلامی، پشتیبانی می‌کند
+
+دفتر بنیامین نتانیاهو، نخست‌وزیر اسرائیل اعلام کرد این کشور در توافق میان آمریکا و جمهوری اسلامی مشارکتی ندارد.
+بنا بر بیانیهٔ دفتر نتانیاهو، اسرائیل از تضمین‌های دونالد ترامپ دربارهٔ شروط محدود‌کنندهٔ جمهوری اسلامی در توافق نهایی پشتیبانی می‌کند.
+بر پایهٔ این بیانیه، نتانیاهو در گفت‌وگو با دونالد ترامپ از تعهد او برای گنجاندن خروج اورانیوم غنی‌شدهٔ جمهوری اسلامی، برچیدن زیرساخت‌های غنی‌سازی، محدودیت برنامهٔ موشکی تهران و محدودیت در پشتیبانی جمهوری اسلامی از گروه‌های نیابتی، در توافق احتمالی نهایی، قدردانی کرد.
+
+#خبر #دژ #توافق #اسرائیل
+@DEJradio
+</div>
+
+## VahidOnline — post 76250
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری مهر در پستی نوشته:
+♦️شنیده شدن صدای انفجار در نزدیکی ساحل سیریک؛ جزئیات همچنان مبهم
+
+🔹منابع محلی در استان هرمزگان از شنیده شدن صدای انفجاری در دریا، حدود دو کیلومتری ساحل سیریک، خبر می‌دهند. هنوز علت و منبع این صدا تأیید نشده است.
+
+🔹منابع محلی در منطقه سیریک (استان هرمزگان) می‌گویند صدای انفجاری در دریا، در فاصله حدود دو کیلومتری ساحل، به گوش رسیده است.
+
+🔹هنوز از ماهیت و علت این انفجار اطلاعات دقیقی در دست نیست، اما با توجه به دستورالعمل‌های مربوط به بسته بودن تنگه هرمز، این وضعیت احتمالی می‌تواند در همین راستا باشد.
+
+🔹 با این حال، این فرضیه تاکنون به طور رسمی تأیید نشده است و‌ خبرنگار مهر در تلاش است تا جزئیات بیشتری را از مقامات محلی و رسمی پیگیری کند. /مهر
+
+"خبرگزاری صدا و سیما" در پستی نوشته:
+خبرنگار صداو سیما در سیریک:
+دقایقی پیش صدای انجار در سیریک شنیده شد.
+
+🔹منشا و‌ مکان آن هنوز مشخص نیست.
+
+
+📡 @VahidOnline
+</div>
+
+## kianmeli1 — post 87955
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ‌ در چندماه اخیر برای کنترل بازار و کشاندن جمهوری اسلامی پای میز به انواع دروغ ها و بلوف ها متوسل شده
+
+فقط در یک فقره٫ ۱۱ عدد دروغ در یک روز اعلام کرد
+
+با حمله دیشب و پریشب به ایران٫ احتمالا چند روز دست نگه می دارد و مجدد اعلام جنگ میکند
+
+ترامپ در حال بازی قلاب و ماهی است…
+ماهیگرها میفهمند چیست
+https://t.me/kianmeli1
+</div>
+
+## FarsiVOA — post 220430
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️آینده مبهم و صداهای انفجار؛ نگاه مخاطبان شبکه‌های اجتماعی به تحولات اخیر
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 16785
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16785_1781213039.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+موج جدید سوخت‌رسان‌های آمریکایی از اروپا به سمت خاورمیانه
+
+
+تصاویر منتشرشده از سامانه ردیابی پروازها نشان می‌دهد دست‌کم ۳ فروند هواپیمای سوخت‌رسان KC-135R نیروی هوایی آمریکا بامداد امروز از پایگاه هوایی میلدنهال بریتانیا برخاسته و در مسیر شرق اروپا و خاورمیانه قرار گرفته‌اند.
+🔹 این هواپیماها با شناسه‌های مختلف عملیاتی در فاصله زمانی کوتاهی از یکدیگر به پرواز درآمده‌اند؛ اقدامی که معمولاً در چارچوب تقویت پشتیبانی هوایی، افزایش گشت‌های رزمی یا آماده‌سازی برای عملیات‌های گسترده‌تر انجام می‌شود.
+🔹 این تحرکات همزمان با افزایش فعالیت سوخت‌رسان‌ها و هواپیماهای آواکس آمریکا در منطقه خلیج فارس مشاهده شده است.
+
+Phantom
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16784
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16784_1781213039.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 دقایقی قبل صدای انفجار تو سیریک شنیده شد. 📝 Nick 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Dirty_Kids — post 391758
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ گفته مجتبی خامنه‌ای رهبر مسلمین جهان با آمریکا به توافق رسیده.
+خاک بر سرت عرزشی.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391757
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+الان ترامپ قلبشو بگیره بیفته زمین بگه سکته زدم هم کسی باور نمیکنه و به آمبولانس زنگ نمیزنه
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391756
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391756_1781213040.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وقت نکرد تسلیم شه
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391755
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 به گفته بعضی از کاربران؛
+تو سیریک صدای امضایِ توافق به گوش میرسه.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 127276
+
+<div align="center">
+  <a href="telegram/content/alonews_127276_1781213040.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈امواج مدیا به نقل از منبع آگاه سیاسی در تهران:
+
+
+🔴متن توافق شامگاه چهارشنبه آماده و نهایی شد
+
+
+🔴دوحه با ایران و آمریکا در تماس بوده تا زمینه دستیابی به توافق را فراهم کند
+روند اجرای تفاهم در صورت تایید نهایی، آغاز خواهد شد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/22 00:43
 ---
 

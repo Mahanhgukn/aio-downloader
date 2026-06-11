@@ -7,6 +7,510 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/21 04:12
+---
+
+## VahidOOnLine — post 244839
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244839_1781138530.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️روابط عمومی سپاه اعلام کرد که در واکنش به حمله‌های بامداد پنجشنبه آمریکا به «بعضی از واحدهای خدماتی و پاسگاه های ساحلی سپاه و فرماندهی انتظامی و محوط فرودگاه بندرعباس»، طی دو موج حمله عملیاتی علیه ۱۸ هدف متعلق به ارتش آمریکا در پایگاه‌های هوایی علی السالم (در کویت نزدیکی مرز عراق)، احمد الجابر (کویت) و شیخ عیسی (بحرین) حمله کرده است. هنوز مقامات کویت یا بحرین یا سنتکام در این زمینه اظهارنظر نکرده‌اند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14476
+
+<div align="center">
+  <img src="telegram/content/WithYashar_14476_1781138530.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+الان کرج
+@withyashar
+</div>
+
+## WithYashar — post 14475
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کرج انفجار پشت انفجار
+@withyashar
+</div>
+
+## WithYashar — post 14474
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شنیده‌شدن آژیر هشدار و انفجار در بحرین
+@withyashar
+</div>
+
+## WithYashar — post 14473
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هم اکنون موج حملات ۳پا به بحرین 🚨
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342833
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342833_1781138531.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+“Why are we terrorizing children?”
+
+Children’s entertainer Ms. Rachel is drawing praise from immigration activists — and criticism from supporters of stricter enforcement — after visiting a New Jersey ICE detention facility and speaking with families of detainees.
+
+The YouTube star shared emotional stories from children whose parents had been detained, including one family she says was torn apart by immigration enforcement.
+
+But the Department of Homeland Security pushed back, arguing critics ignore children exploited by smugglers and traffickers and insisting ICE does not separate families.
+
+The clash highlights the growing political battle over immigration enforcement and who pays the price for it.
+</div>
+
+## pm_afshaa — post 93550
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ورامین 2 انفجار گزارش شده
+</div>
+
+## pm_afshaa — post 93549
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بندرعباس و قشم صدای انفجار
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93546
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کرج هم‌اکنون :
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93545
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هم‌اکنون 5 انفجار در بندرعباس گزارش شده
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93544
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_93544_1781138532.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ستون دود در کرج هم‌اکنون :
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93543
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انفجار در اشتهارد گزارش شده
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93542
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بیش از 15 انفجار در کرج
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93541
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آژیر خطر حمله در بحرین فعال شد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## mamlekate — post 103674
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 دوتا انفجار دیگه بندرعباس ساعت ۴:۰۶ دوتا انفجار شد ۶ تا، ۴:۰۸ شیشه خونه لرزید واقعا
+
+
+
+📝 پیشوا ورامین رو چند دقیقه پیش زد
+</div>
+
+## mamlekate — post 103673
+
+<div align="center">
+  <a href="telegram/content/mamlekate_103673_1781138532.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 محمدشهر کرج از ساعت۳:۴۵ بالای ده تا انفجار داشتیم. بعضیاش واقعا خونه میلرزه
+
+
+📝 اوه اوه یا خدا راس ۴:۰۰ انفجار بی نهایت وحشتناک مهرشهر فاز ۳. قطعا موشک. هیچ جنگنده ای در کار نیست.
+</div>
+
+## VahidOnline — post 76184
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سلام از پیشوا صدای دوتا انفجار شدید
+
+ساعت 4:۰۶ ورامین
+۲ تا صدای انفجار
+سلام آقا وحید، ساعت ۴:۰۶ صبح پیشوا ورامین صدای دو تا انفجار اومد و مثل اینکه سپاه پیشوا رو زدن
+
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 76183
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیام‌های دریافتی:
+سلام وحید جان
+بندرعباس همین الان ساعت 4:06 صدای انفجار نسبتا شدیدی اومدی
+
+
+سلام وحید
+بندرعباس رو الان زد
+صدای انفجار شدید
+
+
+صدای انفجار بندرعباس
+
+
+سلام اقا وحید ۰۱:۰۶ دقیقه بندرعباس الان یه صدای بزرگ انفجار که مرکز شهر شنیده شد
+سلام مجدد ٠٤:٠٥ دقيقه بندر دو صداي انفجار اومد
+٠٤:٠٧ دو صداي ديگه مجددد بندرعباس
+
+سلام اقا وحید ۰۱:۰۶ دقیقه بندرعباس الان یه صدای بزرگ انفجار که مرکز شهر شنیده شد
+
+بندرعباس همین الان ساعت 4:06 صدای انفجار نسبتا شدیدی اومدی
+
+سلام خوب هستین من بندرعباس زندگی میکنم ساعت 4:6 دقیقه صبح دوتا انفجار مهیب پشت سر همدیگه صداهاش به گوشمون میرسه
+
+داداش وحید بندرعباس همین الان زدن
+دوتا انفجار به فاصله یک دقیقه سمت دریا
+
+۴:۰۶ یه انفجار دیگه قشم احساس شد
+
+همین الان بندرعباس چند تا انفجار پشت سر هم شد
+
+📡 @VahidOnline
+</div>
+
+## kianmeli1 — post 87918
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴چهارصبح-صدای جنگنده آسمان کرج
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87916
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری-گلشهر کرج شهرک مترو صدای ممتد انفجار-چهارصبح
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87915
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری-چهارصبح
+ما هشتگردیم ، از اشتهارد و آبیک ۲۰ تا صدای انفجار اومده تو ۱ ساعت گذشته
+
+محمدشهر کرج چند انفجار مهیب
+https://t.me/kianmeli1
+</div>
+
+## Iliaen — post 4475
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ساعت ۰۴:۱۰ صبح پنجشنبه؛ هم‌اکنون موج جدید حملات در چند شهر گزارش می‌شود.
+
+اهداف اغلب در استان قزوین، البرز و بندرعباس هستند، همچنین انفجارها مهیب و “غیر عادی” توصیف می‌شوند.
+
+مکان انفجارها تا لحظه‌ی نگارش این پیام خارج از محدوده شهری (متمرکز بر سایت‌های نظامی، موشکی و پدافند) هستند و صدای جنگنده نیز در نقاط مختلف شنیده می‌شود.
+
+@iliaen
+</div>
+
+## FarsiVOA — post 220329
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220329_1781138533.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️گزارش‌‌های مردمی و رسانه‌های حکومتی در ایران از وقوع انفجارهای «شدید» خبر داند. برخی از گزارش‌های مردمی منتشر شده در کانال وحیدآنلاین می‌گویند صدای انفجار از سمت «فرودگاه پیام» شنیده شد.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220328
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220328_1781138533.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️وزارت کشور بحرین از به صدا درآمدن آژیر خطر حمله هوایی خبر داد. این در حالی است که ایالات متحده مشغول حمله به مواضع جمهوری اسلامی بوده است.
+@FarsiVOA
+</div>
+
+## DW_Farsi — post 125801
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125801_1781138533.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 سپاه: به پایگاه‌های آمریکا در کویت و بحرین حمله کردیم
+
+سپاه پاسداران اعلام کرد در تلافی حملات آمریکا به "بعضی از واحدهای خدماتی و پاسگاه‌های ساحلی سپاه و فرماندهی انتظامی و محوطه فرودگاه بندرعباس" نیروی هوافضای این ارگان نظامی به "۱۸ هدف" متعلق به آمریکا در پایگاه‌های هوایی علی السالم و احمدالجابر در کویت و همچنین پایگاه‌ هوایی شیخ عیسی در بحرین حمله کرده است.
+
+بحرین و کویت هنوز نسبت به این خبر واکنش رسمی نشان نداده‌اند.
+
+@dw_farsi
+</div>
+
+## DW_Farsi — post 125800
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125800_1781138534.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 ارتش ایران مدعی حمله به ناوگان پنجم آمریکا در بحرین شد
+
+ساعاتی پس از حملات ارتش آمریکا به اهدافی در ایران، ارتش جمهوری اسلامی اعلام کرد ناوگان پنجم آمریکا در بحرین را هدف حملات خود قرار داده است.
+
+به گزارش روابط عمومی ارتش ایران، ارتش "با انواع پهپادهای انهدامی، ناوگان پنجم این کشور [آمریکا] در بحرین را آماج حملات پهپادی خود، قرار داد".
+
+بنا بر ادعای ارتش، در این حملات، "آنتن‌های ارتباطی و تاسیسات راداری سامانه پاتریوت ناوگان پنجم" آمریکا هدف حمله قرار گرفتند.
+
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 16662
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16662_1781138535.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کرج
+</div>
+
+## Persian_Trend_Official — post 16659
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ هم اکنون کرج:
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16658
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چندین انفجار ممتد در بندرعباس گزارش شده
+</div>
+
+## Persian_Trend_Official — post 16657
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بندرعباس رو دوباره زدن
+</div>
+
+## Persian_Trend_Official — post 16656
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16656_1781138535.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ وزارت کشور بحرین از به صدا در آمدن آژیرهای هشدار خبر داد.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16654
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16654_1781138536.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 انفجار های ممتد در کرج. 📝 Nick 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16653
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 اژیر حمله پهپادی و موشکی در بحرین و اربیل
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 22266
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22266_1781138536.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کرج
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22265
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 انفجار شدید در بندرعباس
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22263
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 انفجار‌ مجدد در بندرعباس
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22260
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کرج هم اکنون
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22259
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 صدای جنگنده زعفرانیه
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22258
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22258_1781138537.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 کرج
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22257
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیویی دارید دایرکت بفرستین
+</div>
+
+## Dirty_Kids — post 391668
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ساعت ۰۴:۱۰ صبح پنجشنبه؛ هم‌اکنون موج جدید حملات در چند شهر گزارش می‌شود.
+
+اهداف اغلب در استان قزوین، البرز و بندرعباس هستند، همچنین انفجارها مهیب و “غیر عادی” توصیف می‌شوند.
+
+مکان انفجارها تا لحظه‌ی نگارش این پیام خارج از محدوده شهری (متمرکز بر سایت‌های نظامی، موشکی و پدافند) هستند و صدای جنگنده نیز در نقاط مختلف شنیده می‌شود.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391667
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391667_1781138537.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴محمدشهر کرج از ساعت۳:۴۵ بالای ده تا انفجار داشتیم. بعضیاش واقعا خونه میلرزه
+
+
+🔴اوه اوه یا خدا راس ۴:۰۰ انفجار بی نهایت وحشتناک مهرشهر فاز ۳. قطعا موشک. هیچ جنگنده ای در کار نیست.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391666
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391666_1781138538.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دود ناشی از حمله به نقطه‌ای در کرج؛ ساعت ۴ صبح پنجشنبه ۲۱ خرداد.
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/03/21 04:02
 ---
 

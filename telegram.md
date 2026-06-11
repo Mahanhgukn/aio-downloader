@@ -7,6 +7,102 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/21 10:12
+---
+
+## pm_afshaa — post 93598
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴دولت لبنان ممنوعیت کامل فعالیت‌های سپاه جمهوری اسلامی (IRGC) در داخل خاک لبنان را اعمال کرده است. به نیروهای امنیتی دستور داده شده است که هر عضو سپاه را که در آنجا فعالیت می‌کند، تعقیب، دستگیر و اخراج کنن
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93597
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ خواستار تصویب بودجه 350 میلیارد دلاری برای پنتاگون شد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## FarsiVOA — post 220356
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220356_1781160164.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+برآورد شرکت اطلاعات کالا، کپلر، نشان می‌دهد بارگیری نفت ایران در ماه گذشته به ۲۶۰ هزار بشکه سقوط کرده که یک ششم دوران قبل از محاصره دریایی جمهوری اسلامی توسط ایالات متحده آمریکا است.
+
+بر اساس این گزارش، جمهوری اسلامی مجبور به انبار کردن نفت در تانکرهای لنگر انداخته در آب‌های جنوب، همچنین تأسیسات ذخیره نفت خشکی شده است.
+
+ایران ۹۵ میلیون بشکه ظرفیت ذخیره نفت در خشکی دارد.
+
+کپلر می‌نویسد تأسیسات خشکی ذخیره نفت ایران تقریباً پر شده و تنها ۱۳.۵ میلیون بشکه ظرفیت خالی مانده است. این رقم معادل یک هفته صادرات نفت ایران در دوران قبل از محاصره دریایی است و جمهوری اسلامی مجبور به کاهش تولید شده است.
+
+در همین زمینه بررسی خبرگزاری بلومبرگ نشان می‌دهد تولید روزانه نفت ایران در ماه گذشته با افتی ۷۱۰ هزار بشکه‌ای به ۲ میلیون و ۳۴۰ هزار بشکه سقوط کرده که کمترین رقم طی پنج سال گذشته است.
+@FarsiVOA
+</div>
+
+## Dirty_Kids — post 391677
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391677_1781160165.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ببخشید من حس میکنم ته گلوم یجوریه آدرس مطب کجاست؟
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391676
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391676_1781160165.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یعنی ساعدی‌نیا سر گرسنگی هزینه داد توماج قحبه ‎؟!!
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391675
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391675_1781160165.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+باورم نمیشه سر چند ثانیه تصمیم گرفت با یک گلوله بدون تعلل، به زندگی اون زن چادر رنگی پایان بده. زنی کشته شد و زنان دیگر شاهد این صحنه بودند.
+
+#هرات
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 127052
+
+<div align="center">
+  <a href="telegram/content/alonews_127052_1781160166.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزیر دریانوردی هند: سه ملوان هندی دیروز در حمله ارتش آمریکا به یک نفتکش نزدیک تنگه هرمز کشته شدند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/21 10:02
 ---
 

@@ -7,6 +7,218 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/22 00:43
+---
+
+## WithYashar — post 14586
+
+
+
+
+## WithYashar — post 14585
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انفجار در سیریک🚨
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342880
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342880_1781212401.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Inspiring a nation: Chesley 'Sully' Sullenberger, former Air Force fighter pilot and US Airways captain, became a hero in 2009 after safely landing Flight 1549 on the Hudson River, saving all 155 aboard in the 'Miracle on the Hudson.'
+</div>
+
+## pm_afshaa — post 93649
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انفجار در سیریک
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5599
+
+<div align="center">
+  <img src="telegram/content/DEJradio_5599_1781212402.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👑 شاهزاده رضا پهلوی:
+ملتی که یک‌بار بر ترس غلبه کند، هرگز به گذشته بازنمی‌گردد.
+
+پیام به ملت ایران
+۲۰ خرداد ۲۵۸۵/۱۴۰۵
+
+#شاهزاده_رضا_پهلوی #ایران_را_پس_میگیریم
+@DEJradio
+</div>
+
+## VahidOnline — post 76249
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76249_1781212403.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+منابعی در جمهوری اسلامی نوشته‌اند که: با میانجی‌گری قطر، آمریکا به شبکه beIN Sports معافیت داده تا مسابقات جام جهانی را در ایران پخش کند.
+
+تاکید هم کردند که: این امتیاز توسط دولت ایران و کاملاً جدا از هرگونه یادداشت تفاهم (MoU) به دست آمده.
+
+📡 @VahidOnline
+</div>
+
+## kianmeli1 — post 87954
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴لحظاتی قبل صدای انفجار در سیریک شنیده شد
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87953
+
+<div align="center">
+  <a href="telegram/content/kianmeli1_87953_1781212403.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سخنگوی وزارت امور خارجه ایران: هنوز به جمع‌بندی نهایی [در مورد متن تفاهم‌نامه] نرسیده‌ایم. مسئولین ذی‌ربط نظام باید در مورد تک تک جزئیات متن به جمع‌بندی برسند. به محض رسیدن به جمع‌بندی نهایی، آن را رسما اعلام خواهیم کرد.
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 341807
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341807_1781212404.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻تیم ملی فوتبال مکزیک در نخستین بازی جام جهانی ۲۰۲۶، آفریقای جنوبی را با نتیجه دو بر صفر شکست داد و نخستین پیروزی تورنمنت بیست و سوم را به نام خود ثبت کرد.
+
+🔹مکزیک، یکی از سه میزبان جام جهانی درحالی در استادیوم آزتکا بر آفریقای جنوبی غلبه کرد که ۱۶ سال پیش، در افتتاحیه جام جهانی ۲۰۱۰، به مصاف این تیم رفته بود.
+
+🔹گل‌های مکزیک را خولیان کینیونس در دقیقه ۹ و رائول خیمنس در دقیقه ۶۷ بازی به ثمر رساندند.
+
+🔹دو بازیکن آفریقای جنوبی در این بازی، با کارت قرمز مستقیم، اخراج شدند؛ اسپه‌هلو سیتوله در دقیقه ۴۹ و تمبا زوانه در دقیقه ۸۴ کارت قرمز دریافت کردند.
+
+🔹مکزیک، در گروه A جام جهانی ۲۰۲۶ با کره جنوبی، جمهوری چک و آفریقای جنوبی، هم‌گروه است.
+
+@iranintltvsport
+</div>
+
+## Shin_Persian — post 6964
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6964_1781212405.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Thu, 11 Jun 2026 21:11:00 UTC
+
+An explosion was heard in Sirik, Hormozgan Province, #Iran as per state-affiliated Daneshjoo news.
+
+ترجمه خودکار فارسی
+
+بنا بر گزارش خبرگزاری دولتی دانشجو، صدایی شبیه به انفجار در سیریک واقع در استان هرمزگان، #Iran شنیده شده است.
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 220429
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220429_1781212405.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️گزارش نرگس صبا در برنامه تفسیر خبر از چرایی چرخش موضع جهان عرب نسبت به اسرائیل و ایران
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220428
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺نتانیاهو و ترامپ در مورد «تفاهم‌نامه ورود به مذاکرات» با حکومت ایران صحبت کردند؛ محدودیت‌های موشکی و توقف حمایت از نیابتی‌‌ها در توافق نهایی
+
+▪️دفتر نخست وزیر اسرائيل، بنیامین نتانیاهو،‌ عصر پنج‌شنبه ۲۱ خرداد اعلام کرد که دونالد ترامپ رئیس جمهوری آمریکا، عصر همین روز با آقای نتانیاهو در مورد «تفاهم‌نامه در حال شکل‌گیری» با جمهوری اسلامی ایران «برای ورود به مذاکرات» صحبت کرد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8159848.html
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 16783
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16783_1781212406.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ خوش چشم دیشب گفت احتمالا دور جدید جنگ تو راهه و امروز توافق شد.‌ (بشنوید ولی باور نکنید) 📝 Nick 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16782
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16782_1781212407.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ خوش چشم دیشب گفت احتمالا دور جدید جنگ تو راهه و امروز توافق شد.‌ (بشنوید ولی باور نکنید)
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## BBCPersian — post 283480
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283480_1781212407.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻دفتر بنیامین نتانیاهو، نخست‌وزیر اسرائیل، اعلام کرد که او با دونالد ترامپ، رئیس جمهور آمریکا، تلفنی درباره توافق احتمالی با ایران صحبت کرده است.
+
+به نوشته تایمز اسرائیل دفتر آقای نتانیاهو در بیانیه‌ای که «سعی در کم‌اهمیت جلوه دادن توافق احتمالی» داشت، می‌گوید که آنها درباره «یادداشت تفاهم قریب‌الوقوع با ایران در مورد ورود به مذاکرات» صحبت کردند.
+
+به گفته دفتر آقای نتانیاهو، در این مکالمه، نخست‌وزیر اسرائیل دیدگاه نسبتا خوش‌بینانه‌ای نسبت به توافق ابراز کرده است.
+
+دفتر نخست‌وزیری می‌گوید: «اگرچه اسرائیل طرف تفاهم‌نامه نیست، نخست‌وزیر از تعهد رئیس‌جمهور ترامپ مبنی بر اینکه توافق نهایی حاصل شده در پایان مذاکرات شامل حذف مواد غنی‌شده، برچیدن زیرساخت‌های غنی‌سازی، محدودیت‌های تولید موشک و توقف حمایت ایران از گروه‌های تروریستی نیابتی‌اش در منطقه خواهد بود، قدردانی کرد.»
+📷Reuters
+@BBCPersian
+</div>
+
+## alonews — post 127275
+
+<div align="center">
+  <a href="telegram/content/alonews_127275_1781212408.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈صدای انفجار در سیریک
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127274
+
+<div align="center">
+  <img src="telegram/content/alonews_127274_1781212408.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔥مکزیک فاتح افتتاحیه شد
+
+مکزیک 2 _ آفریقای جنوبی 0
+
+@AloSport
+</div>
+
+---
 📅 بروزرسانی: 1405/03/22 00:33
 ---
 

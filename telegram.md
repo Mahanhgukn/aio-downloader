@@ -7,6 +7,86 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/21 04:52
+---
+
+## VahidOOnLine — post 244846
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244846_1781140940.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️به گزارش مهر، مجید موسوی، فرمانده نیروی هوا فضا سپاه پاسداران در صفحه شخصی خود در شبکه های اجتماعی نوشت: «تنگه مقدس هرمز را ناامن می‌کنید؟! از سراسر ایران منطقه را برایتان جهنم می‌کنیم.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## pm_afshaa — post 93570
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93570_1781140941.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ویدیو منتشر شده توسط سنتکام از پرتاب موشک تاماهاوک به سمت ایران :
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93569
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93569_1781140941.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+موج انفجار در شاهین ویلا کرج
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## FarsiVOA — post 220335
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220335_1781140943.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ ستاد فرماندهی مرکزی ایالات متحده (سنتکام) اعلام کرد دور تازه‌ای از حملات دفاعی به جمهوری اسلامی که عصر چهارشنبه (به وقت واشنگتن) به دستور فرمانده کل قوا علیه جمهوری اسلامی آغاز شده بود، تکمیل شد.
+
+سنتکام در بیانیه‌ای گفت نیروهای آمریکایی حملاتی را علیه قابلیت‌های نظارتی نظامی، سیستم‌های ارتباطی و سایت‌های دفاع هوایی جمهوری اسلامی در سراسر ایران انجام دادند.
+
+طبق این بیانیه، نیروهای تفنگداران دریایی، نیروی هوایی و نیروی دریایی ایالات متحده، مهمات دقیقی را به سمت اهداف در ایران شلیک کردند، اهدافی که «تهدیدی برای نیروهای آمریکایی و کشتی‌های تجاری بین‌المللی در حال عبور از آب‌های منطقه‌ای بود.»
+
+سنتکام افزود: «این حملات در پاسخ به تجاوز بی‌دلیل و مداوم [جمهوری اسلامی] ایران انجام شده است. نیروهای آمریکایی هوشیار، کشنده و آماده هستند.»
+@FarsiVOA
+</div>
+
+## IranianMinds — post 22277
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 سنتکام با انتشار این ویدیو از پرتاب موشک‌های کروز تاماهاوک، اعلام کرد به دستور رئیس‌جمهور آمریکا چند حمله «دفاعی» به اهدافی در ایران انجام داده. در این عملیات، تجهیزات شناسایی، سیستم‌های ارتباطی و سامانه‌های پدافندی هدف قرار گرفتن.
+
+این حملات در پاسخ به اقدامات خصمانه ایران علیه نیروهای آمریکایی و کشتی‌های تجاری در منطقه بوده و تأکید کرده نیروهاش همچنان در حالت آماده‌باش کامل هستن.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22276
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 سنتکام اعلام کرد عملیات حملات علیه ایران به پایان رسید.
+
+@IranianMinds
+</div>
+
+---
 📅 بروزرسانی: 1405/03/21 04:42
 ---
 

@@ -7,6 +7,171 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/21 10:43
+---
+
+## Shin_Persian — post 6925
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6925_1781162013.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+UKMTO Operations Centre @UK_MTO
+Thu, 11 Jun 2026 07:04:55 UTC
+
+UKMTO WARNING 067-26
+
+Click here to view the full warning.⤵️
+http://www.ukmto.org/-/media/ukmto/products/20260611-ukmto_warning_067-26.pdf?rev=7cceed4cbb054e6fb9b4a96bad49e8ac
+
+#MaritimeSecurity #MarSec
+
+ترجمه خودکار فارسی
+
+هشدار UKMTO (عملیات تجارت دریایی بریتانیا) ۰۶۷-۲۶
+
+برای مشاهده متن کامل هشدار اینجا کلیک کنید.⤵️
+http://www.ukmto.org/-/media/ukmto/products/20260611-ukmto_warning_067-26.pdf?rev=7cceed4cbb054e6fb9b4a96bad49e8ac
+
+#MaritimeSecurity #MarSec
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 220357
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220357_1781162014.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت کشور بحرین با صدور اطلاعیه‌ ای در شبکه اجتماعی ایکس، اعلام کرد «در پی تجاوز جمهوری اسلامی به بحرین»، یک دختر ۱۱ ساله دچار جراحات شد.
+
+این وزارتخانه در اطلاعیه خود دلیل حادثه فوق را «سقوط بقایای ناشی از رهگیری پهپادها»، توصیف کرد. همچنین بر اثر این حادثه چند خانه در منامه آسیب دیده و به تعدادی از خودروهای شهروندان نیز خسارت وارد شده است.
+
+بحرین اعلام کرد که کودک آسیب دیده در محل مداوا شده و نیروهای امدادی اقدامات ایمنی لازم را انجام دادند.
+@FarsiVOA
+</div>
+
+## DW_Farsi — post 125806
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125806_1781162015.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 ترامپ خواستار تصویب طرح بودجه ۳۵۰ میلیارد دلاری پنتاگون شد
+
+او شامگاه چهارشنبه ۱۰ ژوئن (۲۰ خرداد) با انتشار پستی در شبکه اجتماعی خود، تروث سوشال مدعی شد: «هیچ رئیس جمهور دیگری تا به این اندازه هم به بازسازی ارتش بزرگ ما و هم نجات کشور بزرگ ما متعهد نبوده است. اکنون زمان آن فرا رسیده است که این امر برای نسل‌های آینده محقق شود.»
+
+ترامپ در پست خود جمهوری‌خواهان در کنگره را فراخواند که بودجه درخواستی ۳۵۰ میلیارد دلاری پنتاگون را که شامل "لایحه نجات آمریکا" است، بی‌درنگ پیش برده و تصویب کنند. او هشدار داد: «بدون بازی، بدون تاخیر و بدون ضعف و امتیازدهی. هر چه زودتر این کار را انجام دهید.»
+
+رئیس جمهور آمریکا مدعی شد که تصویب این بودجه اضافه نه تنها سرمایه‌گذاری در توانایی‌های تسلیحاتی و دفاعی آمریکا از جمله "سامانه پدافند هوایی گنبد آهنین" و "تسلط بر آسمان‌‌ها با جنگنده‌های اف ۴۷ و بی ۲۱" خواهد بود، بلکه صنایع آمریکا را تقویت کرده و "فرصت‌های شغلی پردرآمد برای صدها هزار آمریکایی" به دنبال خواهد داشت.
+
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 16692
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16692_1781162016.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😄😄😄
+</div>
+
+## BBCPersian — post 283414
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻بحرین: سقوط بقایای پهپادهای رهگیری شده ایران به چند خانه و خودرو خسارت وارد کرد
+
+وزارت کشور بحرین روز پنج‌شنبه اعلام کرد که بقایای پهپادهای ایرانی که توسط ارتش رهگیری و منهدم شده بودند، در مناطق مسکونی شهر حمد و منامه، پایتخت سقوط کرد که در نتیجه آن چند خودرو آتش گرفت و به برخی خانه‌ها نیز خسارت وارد شد. یک دختر ۱۱ ساله هم به‌طور سطحی زخمی شده است.
+
+این وزارتخانه تصاویری را منتشر کرد که نشان می‌دهد آتش‌نشانان در تلاش برای خاموش کردن آتش در چندین خانه هستند.
+
+https://bbc.in/4v5B0d7
+@BBCPersian
+</div>
+
+## alonews — post 127062
+
+<div align="center">
+  <a href="telegram/content/alonews_127062_1781162017.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خسارت وارده به مناطقی از شهر منامه پایتخت بحرین بر اثر اصابت موشک فیل شده پدافند پاتریوت
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127061
+
+<div align="center">
+  <a href="telegram/content/alonews_127061_1781162017.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈یوکی‌ام‌تی‌او گزارشی از یک حادثه در ۲۱ مایل دریایی شمال شرقی صحار، عمان دریافت کرده است. مقامات محلی گزارش داده‌اند که یک نفتکش در موتورخانه دچار آتش‌سوزی شده است. هیچ تأثیر زیست‌محیطی گزارش نشده است.
+
+
+🔴مقامات همچنان در حال تحقیق هستند.
+
+
+🔴به کشتی‌ها توصیه می‌شود با احتیاط عبور کنند و هرگونه فعالیت مشکوک را به یوکی‌ام‌تی‌او گزارش دهند.» - یوکی‌ام‌تی‌او.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127060
+
+<div align="center">
+  <a href="telegram/content/alonews_127060_1781162018.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رسانه‌های عبری: اسرائیل امروز به لبنان حملات بیشتری خواهد کرد اما از حمله به ضاحیه بیروت خودداری می‌کند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127059
+
+<div align="center">
+  <a href="telegram/content/alonews_127059_1781162018.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈بلومبرگ: تولیدکنندگان بیشتری برای رساندن انرژی به بازارها در حالی که تنش‌ها در خاورمیانه ادامه دارد، به تاکتیک‌های مخفیانه روی می‌آورند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127058
+
+<div align="center">
+  <a href="telegram/content/alonews_127058_1781162019.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈زمین‌لرزه‌ای به بزرگی ۴ ریشتر حوالی نورآباد در استان فارس را لرزاند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127057
+
+<div align="center">
+  <a href="telegram/content/alonews_127057_1781162019.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حمید رسایی:
+اینترنت رو قطع کنید تا دشمن سواستفاده نکنه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/21 10:33
 ---
 

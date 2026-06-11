@@ -7,6 +7,251 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/21 19:13
+---
+
+## VahidOOnLine — post 244985
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244985_1781192603.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سی‌ان‌ان گزارش داد جمهوری اسلامی ماه‌هاست برای احتمال عملیات آمریکا جهت تصرف جزیره خارک آماده شده و با استقرار پدافند هوایی، سامانه‌های دوش‌پرتاب زمین به هوا و مین‌گذاری در ساحل، دفاع خود را تقویت کرده است.
+
+بر اساس این گزارش، تقویت تدابیر دفاعی جمهوری اسلامی شامل استقرار سامانه‌های موشکی هدایت‌شونده زمین به هوا و دوش‌پرتاب در این جزیره بوده است.
+
+سی‌ان‌ان نوشت که جمهوری اسلامی همچنین با استفاده از مین‌های ضدنفر و ضدزره، از جمله در نوار ساحلی که ممکن است محل پیاده‌سازی نیروهای آمریکایی در صورت صدور دستور عملیات زمینی از سوی ترامپ باشد، اقدام به تله‌گذاری کرده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14532
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خالیباف: استراتژی‌های اشتباه و تصمیمات بدون فکر، صحنه بازی را به شکلی فاجعه‌بار به نقطه صفر برمی‌گرداند؛ زیرساخت‌های انرژی و بازارها را به انفجار می‌کشاند و مردابی بی‌پایان پدید می‌آورد که سال‌ها در آن گرفتار خواهید شد.
+ایرانی متفاوت خواهید دید!
+@withyashar
+</div>
+
+## mwarmonitor — post 10725
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 قالیباف
+
+🔸«استراتژی‌های اشتباه و تصمیم‌های شتاب‌زده، کل صفحه بازی را به سمت بدتر شدن وضعیت بازتنظیم می‌کنند، زیرساخت‌های انرژی و بازارها را نابود می‌کنند و یک باتلاق بی‌پایان ایجاد می‌کنند که سال‌ها در آن گرفتار خواهید شد.
+
+شما ایران متفاوتی را خواهید دید.»
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 93633
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_93633_1781192604.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پست جدید ترامپ در تروث سوشال
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5593
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5593_1781192604.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺🎥 تهران؛ از پلیس دیپلمات فقط خاطره مونده
+
+یکی از مخاطبان دژ با ارسال ویدیویی از ویرانه‌های ساختمان پلیس دیپلمات تخت‌طاووس نوشت: "از پلیس دیپلمات فقط خاطره مونده"
+
+این مرکز در جنگ ۴۰ روزه هدف قرار گرفت.
+
+#جنگ۴۰روزه #جنگ
+@DEJradio
+</div>
+
+## IranIntlTV — post 341744
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/341744" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی اخبار شبانگاهی | پنجشنبه ۲۱ خرداد
+@iranintlTV
+</div>
+
+## IranIntlTV — post 341743
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341743_1781192607.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آرش آرامش، حقوقدان و کارشناس امنیت ملی، در گفت‌وگو با ایران‌اینترنشنال، با اشاره به حملات اخیر آمریکا، گفت ایالات متحده باید هدف نهایی خود را بر سرنگونی جمهوری اسلامی متمرکز کند، نه دستیابی به توافق با این حکومت. او امضای هرگونه توافق با جمهوری اسلامی را اشتباه دانست.
+@iranintltv
+</div>
+
+## IranIntlTV — post 341742
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341742_1781192609.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سی‌ان‌ان گزارش داد جمهوری اسلامی ماه‌هاست برای احتمال عملیات آمریکا جهت تصرف جزیره خارک آماده شده و با استقرار پدافند هوایی، سامانه‌های دوش‌پرتاب زمین به هوا و مین‌گذاری در ساحل، دفاع خود را تقویت کرده است.
+
+بر اساس این گزارش، تقویت تدابیر دفاعی جمهوری اسلامی شامل استقرار سامانه‌های موشکی هدایت‌شونده زمین به هوا و دوش‌پرتاب در این جزیره بوده است.
+
+سی‌ان‌ان نوشت که جمهوری اسلامی همچنین با استفاده از مین‌های ضدنفر و ضدزره، از جمله در نوار ساحلی که ممکن است محل پیاده‌سازی نیروهای آمریکایی در صورت صدور دستور عملیات زمینی از سوی ترامپ باشد، اقدام به تله‌گذاری کرده است.
+https://iranintl.com/202606118776
+</div>
+
+## Shin_Persian — post 6952
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6952_1781192610.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جدی اینا خودشون میخارن
+</div>
+
+## Shin_Persian — post 6951
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6951_1781192610.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn Thu, 11 Jun 2026 15:23:05 UTC . @Vahid has the same idea ترجمه خودکار فارسی .@Vahid هم همین ایده را دارد 𝕏 · @shin_persian
+</div>
+
+## DW_Farsi — post 125827
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125827_1781192611.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 شنیده‌شده صدای "انفجار در محدوده دریایی سیریک"
+ 
+خبرگزاری مهر به نقل از ساکنان و منابع محلی از شنیده‌شدن صدای انفجارهایی در محدوده دریایی شهرستان سیریک در استان هرمزگان خبر داده است.
+ 
+این خبرگزاری عصر پنج‌شنبه ۲۱ خرداد با اعلام این خبر از قول خبرنگار خود نوشت: «هنوز هیچ‌ یک از نهادهای رسمی نظامی و انتظامی تا این لحظه درباره علت وقوع این صداها اظهارنظری نکرده‌اند.»
+ 
+در ادامه آمده است: «به نظر می‌رسد این صداها مربوط به درگیری‌ها یا تبادل آتش در خلیج فارس و تنگه هرمز باشد.»
+ 
+این خبر در حالی منتشر می‌شود که دونالد ترامپ، رئيس‌ جمهور آمریکا روز پنج‌شنبه برای سومین روز متوالی خبر داده که کشورش به تلافی سرنگون‌شدن یک هلی‌کوپتر آپاچی آمریکایی در تنگه هرمز باز هم امشب به مواضعی در ایران حمله خواهد کرد.
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 16740
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16740_1781192611.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ساعتی پیش دو فروند پهپاد انتحاری به احتمال زیاد از نوع شاهد-136 ایرانی به انبار گروهک های کرد مستقر در جنوب اربیل اصابت کردند.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## alonews — post 127179
+
+<div align="center">
+  <a href="telegram/content/alonews_127179_1781192612.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈قالیباف:
+استراتژی‌های اشتباه و تصمیمات بدون فکر، صحنه بازی را به شکلی فاجعه‌بار به نقطه صفر برمی‌گرداند؛ زیرساخت‌های انرژی و بازارها را به انفجار می‌کشاند و مردابی بی‌پایان پدید می‌آورد که سال‌ها در آن گرفتار خواهید شد.
+ایرانی متفاوت خواهید دید
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127177
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔥 هنوزم ۱۰۰ و ۲۰۰ گیگ رو به اسم نامحدود میفروشن؟! 
+🚀 مخصوص جنگ 
+😎 
+💙 5 سال فعالیت مداوم 
+🛡حتی بدون قطعی تو دوران جنگ 
+🌐 با ما همراه شو و در زمان قطعی وصل بمون 😎 
+✅بقیه هنوز VPN حجمی میفروشن اونم با قیمتای نجومی 
+🚀 💥بدون محدودیت حجم
+⬇️
+⬇️
+⬇️ @NetAazaadBot @NetAazaadBot
+</div>
+
+## alonews — post 127176
+
+<div align="center">
+  <img src="telegram/content/alonews_127176_1781192612.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔥 هنوزم ۱۰۰ و ۲۰۰ گیگ رو به اسم نامحدود میفروشن؟!
+
+
+🚀 مخصوص جنگ 
+😎
+
+
+💙 5 سال فعالیت مداوم
+
+🛡حتی بدون قطعی تو دوران جنگ
+
+
+🌐 با ما همراه شو و در زمان قطعی
+وصل بمون 😎
+
+
+✅بقیه هنوز VPN حجمی میفروشن
+اونم با قیمتای نجومی 
+🚀
+
+💥بدون محدودیت حجم
+⬇️
+⬇️
+⬇️
+@NetAazaadBot
+@NetAazaadBot
+</div>
+
+## alonews — post 127175
+
+<div align="center">
+  <a href="telegram/content/alonews_127175_1781192613.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 هم‌اکنون ، طوفان و رعد و برق در تهران
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127174
+
+<div align="center">
+  <a href="telegram/content/alonews_127174_1781192615.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈هلال احمر: امشب در آماده باش کامل هستیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/21 19:03
 ---
 

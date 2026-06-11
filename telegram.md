@@ -7,6 +7,295 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/21 17:52
+---
+
+## VahidOOnLine — post 244968
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244968_1781187774.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ در مصاحبه با فاکس‌نیوز، همدردی خود را با مردم ایران ابراز کرد و گفت شهروندان عادی زیر سرکوب حکومت زندگی می‌کنند.
+
+رییس جمهوری ایالات متحده اضافه کرد: «مردم ایران می‌ترسند چون اسلحه ندارند اما طرف مقابل مسلح است و در تجمع‌ها به مردم شلیک می‌کند.»
+
+ترامپ ادامه داد که با وجود ادامه درگیری‌ها، ترجیح می‌دهد آمریکا زیرساخت‌های غیرنظامی ایران را هدف قرار ندهد.
+ترامپ گفت: «ترجیح می‌دهم آمریکا پل‌ها و نیروگاه‌های ایران را هدف قرار ندهد.»
+
+او در توضیح این موضع افزود: «مردم ایران نمی‌توانند آب بنوشند، من نمی‌خواهم این کار را بکنم.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244967
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244967_1781187775.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ دونالد ترامپ، رئیس‌جمهوری آمریکا، در گفتگو با برنامه «فاکس و دوستان» (Fox & Friends) تایید کرد که دور جدید حملات هوایی ایالات متحده علیه علیه مواضعی در ایران، پنجشنبه‌شب نیز ادامه خواهد داشت. ترامپ اعلام کرد: «امشب بمباران‌های بیشتری در کار خواهد بود؛ این حملات بزرگ‌تر، گسترده‌تر و بسیار قدرتمندتر خواهند بود.»
+
+رئیس‌جمهوری آمریکا در بخش دیگری از اظهارات خود با تاکید بر توانمندی بالای نظامی واشنگتن گفت: «ما می‌توانیم همین فردا وارد آنجا شویم. می‌توانیم با گروه کوچکی از سربازان، کل آن سرزمین را تحت کنترل درآوریم.» با این حال، او تاکید کرد که تمایلی به اعزام نیروی زمینی و حضور مستقیم سربازان آمریکایی در خاک ایران ندارد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244959
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_244959_1781187775.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جمهوری اسلامی می‌گوید در جریان حملات آمریکا دو مخزن آب در استان هرمزگان آسیب دیده و هزاران نفر با مشکل تأمین آب مواجه شده‌اند. آمریکا می‌گوید اهداف حملات، تأسیسات نظامی و راداری بوده‌اند.
+
+در نبود ارزیابی‌های مستقل، قضاوت قطعی دشوار است. آنچه فعلاً وجود دارد، دو روایت متضاد از یک رویداد واحد است؛ روایتی که می‌تواند از خطای جنگی و خسارت جانبی تا بهره‌برداری سیاسی و تبلیغاتی را در بر بگیرد. ورق بزنید.
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244958
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244958_1781187776.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آنتونیو کوستا، رییس شورای اروپا، در شبکه ایکس نوشت در گفت‌وگو با پادشاه بحرین، همبستگی کامل اتحادیه اروپا را پس از حملات اخیر جمهوری اسلامی ابراز کرده و خواستار کاهش فوری تنش و تداوم مسیر دیپلماتیک شده است.
+
+کوستا تاکید کرد اتحادیه اروپا به حمایت از بحرین ادامه می‌دهد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14523
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رئیس کمیسیون امنیت ملی مجلس ایران در پاسخ به تهدیدات ترامپ: «او پاسخی حتی قوی‌تر و دردناک‌تر دریافت خواهد کرد»
+@withyashar
+</div>
+
+## mwarmonitor — post 10720
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴گزارش CNN: ایران در حالی که ارتش این کشور در حال انتقال محموله‌های موشکی است، سامانه‌های پدافند هوایی خود را در جزیره خارک نوسازی کرده است.
+ایران همچنین در امتداد خط ساحلی جزیره خارک مین‌گذاری انجام داده است.
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 342855
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342855_1781187776.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"I will move heaven and hell to go find these kids."
+
+DHS Secretary Markwayne Mullin swears to "right the wrongs" of the Biden administration's disastrous border policies that he says allowed unvetted sponsors to pick up 450,000 kids on our borders.
+
+The secretary slammed the handling of unaccompanied minors over the last four years, detailing horrific reports of sexual assault and a complete lack of wellness checks for hundreds of thousands of children brought across the border.
+
+"We're going to enforce our nation's laws, and we're going to right the wrongs that the Biden administration turned a blind eye to... As a father of six with three young girls, I'll do whatever I have to do.
+</div>
+
+## FoxNewsTwitter — post 342854
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342854_1781187778.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NEW: Kharg Island. The Strait of Hormuz. Iranian retaliation. A growing blockade.
+
+Bill Hemmer breaks down the entire picture, explaining why the fight over Kharg Island isn't just about territory — it's about the economic lifeline of Iran.
+
+“The reason why this is so significant is because if you take control of Kharg Island, you will take control yet again of the economy of Iran... But if you take Kharg Island, you have to control it. And that means you put U.S. men and women in danger of taking fire on behalf of Iran.” | @AmericaNewsroom
+</div>
+
+## DEJradio — post 5592
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5592_1781187779.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+❗️ هموطنان گرامی، با توجه به احتمال حمله مجدد آمریکا، توصیه می‌شود در محدوده پادگان‌ها، مراکز نظامی و ایست‌های بازرسی تردد نکنید.
+
+به‌ویژه حومه شهرها بسیار پرخطر است، زیرا انبار مهمات و زاغه‌های موشکی در آن نواحی قرار دارد.
+توجه کنید سـ.ـپاه تعداد زیادی از لانچرهای موشک و پهپاد را در شهرک‌های صنعتی مستقر کرده است.
+
+#هشدار #جنگ
+@DEJradio
+</div>
+
+## IranIntlTV — post 341726
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341726_1781187779.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مجلس اعیان بریتانیا در بخشی از جلسه پنجشنبه ۲۱ خرداد، موضوع تدوین لایحه‌ای برای ایجاد چارچوب قانونی به منظور «تروریستی» اعلام کردن سپاه پاسداران را بررسی کرد. این نشست پس از آن برگزار شد که دولت بریتانیا «لایحه امنیت ملی» را به پارلمان ارائه کرد.
+
+گفت‌وگو با امید شمس، حقوق‌دان و تحلیل‌گر امور بین‌الملل
+@iranintltv
+</div>
+
+## IranIntlTV — post 341725
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341725_1781187781.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ در مصاحبه با فاکس‌نیوز، همدردی خود را با مردم ایران ابراز کرد و گفت شهروندان عادی زیر سرکوب حکومت زندگی می‌کنند.
+
+رییس جمهوری ایالات متحده اضافه کرد: «مردم ایران می‌ترسند چون اسلحه ندارند اما طرف مقابل مسلح است و در تجمع‌ها به مردم شلیک می‌کند.»
+
+ترامپ ادامه داد که با وجود ادامه درگیری‌ها، ترجیح می‌دهد آمریکا زیرساخت‌های غیرنظامی ایران را هدف قرار ندهد.
+ترامپ گفت: «ترجیح می‌دهم آمریکا پل‌ها و نیروگاه‌های ایران را هدف قرار ندهد.»
+
+او در توضیح این موضع افزود: «مردم ایران نمی‌توانند آب بنوشند، من نمی‌خواهم این کار را بکنم.»
+https://iranintl.com/202606119130
+</div>
+
+## IranIntlTV — post 341724
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341724_1781187781.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آنتونیو کوستا، رییس شورای اروپا، در شبکه ایکس نوشت در گفت‌وگو با پادشاه بحرین، همبستگی کامل اتحادیه اروپا را پس از حملات اخیر جمهوری اسلامی ابراز کرده و خواستار کاهش فوری تنش و تداوم مسیر دیپلماتیک شده است.
+
+کوستا تاکید کرد اتحادیه اروپا به حمایت از بحرین ادامه می‌دهد.
+https://iranintl.com/202606119833
+</div>
+
+## IranIntlTV — post 341723
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341723_1781187782.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻اتحادیه فوتبال اروپا، یوفا، اعلام کرد عمر آرتان، داور ۳۴ ساله سومالیایی، که از سوی دولت ایالات متحده اجازه حضور در آمریکا و قضاوت در جام جهانی را پیدا نکرد، به‌عنوان داور دیدار پاری‌سن‌ژرمن و استون‌ویلا در سوپرجام اروپا انتخاب شد.
+
+🔹یوفا در بیانیه خود نوشت: «پس از رایزنی با کنفدراسیون فوتبال آفریقا، عمر آرتان، داور اهل سومالی، برای قضاوت دیدار سوپرجام اروپا ۲۰۲۶ انتخاب شده است. این مسابقه روز ۲۱ مرداد در سالزبورگ میان پاری‌سن‌ژرمن، قهرمان لیگ قهرمانان اروپا و استون‌ویلا، فاتح لیگ اروپا، برگزار خواهد شد.»
+
+🔹اتحادیه فوتبال اروپا دراین‌باره افزود: «انتصاب آرتان برای قضاوت سوپرجام اروپا در چارچوب تفاهم‌نامه همکاری اخیر میان یوفا و کنفدراسیون فوتبال آفریقا انجام شده است؛ توافقی که با هدف گسترش همکاری در حوزه‌های مختلف از جمله داوری به امضا رسیده است. یوفا و کنفدراسیون فوتبال آفریقا بر توسعه فوتبال در همه سطوح و ترویج ارزش‌هایی چون وحدت، برابری و عدم تبعیض تاکید دارند.»
+
+@iranintltvsport
+</div>
+
+## Shin_Persian — post 6946
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Thu, 11 Jun 2026 14:17:58 UTC
+
+Jet activity over Khorram Abad, Lorestan Province, #Iran
+
+ترجمه خودکار فارسی
+
+فعالیت جت‌ها بر فراز خرم‌آباد، استان لرستان، #Iran
+
+𝕏 · @shin_persian
+</div>
+
+## ManotoTV — post 106017
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_106017_1781187782.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جمهوری اسلامی می‌گوید در جریان حملات آمریکا دو مخزن آب در استان هرمزگان آسیب دیده و هزاران نفر با مشکل تأمین آب مواجه شده‌اند. آمریکا می‌گوید اهداف حملات، تأسیسات نظامی و راداری بوده‌اند.
+
+در نبود ارزیابی‌های مستقل، قضاوت قطعی دشوار است. آنچه فعلاً وجود دارد، دو روایت متضاد از یک رویداد واحد است؛ روایتی که می‌تواند از خطای جنگی و خسارت جانبی تا بهره‌برداری سیاسی و تبلیغاتی را در بر بگیرد. ورق بزنید.
+</div>
+
+## Dirty_Kids — post 391710
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391710_1781187783.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بخشی از مصاحبه‌ی دقایق پیش شیر گاینده‌ی خدا با
+برنامه‌ی Fox & Friends از شبکه‌ی فاکس‌نیوز:
+
+
+«…ولی روافض قحبه واقعاً تسلیم شدن، فقط هنوز خودشون هم خبر ندارن.بذار باهات رک باشم، اونا هنوز خودشون هم نمی‌دونن.ما هم داریم باهاشون حرف می‌زنیم. اما خب ببین اولویت و ترجیح من همیشه این بوده که جزیره خارک رو بگیریم. این رو برایان هم می‌دونه، خیلی وقت پیش باهاش صحبت کردم. لارنس هم می‌دونه، خیلی وقت پیش بهش گفتم. گفتم اولویت من این کاره.
+
+اما اگه بخوام باهات روراست باشم، نمی‌دونم آمریکا دل و جرأت یا کشش این کار رو داره یا نه.
+می‌دونی، ثروت کلانی توشه، ولی نمی‌دونم آمریکا کششش رو داره یا نه.
+فکر کنم ترجیح می‌دن ما برگردیم خونه. ولی خب ما این کار رو با ونزوئلا کردیم. قضیه ونزوئلا واسه همه عالی جواب داد. ما میلیون‌ها میلیون بشکه نفت از ونزوئلا کشیدیم بیرون و آوردیمشون به هیوستون و جاهای مختلف دیگه مثل لوئیزیانا، جایی که توش پالایشگاه‌های فوق‌العاده‌ای داریم. دارن ۲۴ ساعته کار...
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391709
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391709_1781187784.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پست ترامپ که همین حرف های بالا رو دوباره تکرار کرده؛
+
+آمریکا امشب ضربه بسیار سنگینی به ایران وارد خواهد کرد.
+
+ایرانی که نیروی دریایی، نیروی هوایی، رادارها، پدافند ضدهوایی و تقریباً همه سامانه‌های دفاعی و همچنین بخش زیادی از توان تهاجمیش رو از دست داده!
+تو آینده‌ای نه‌چندان دور، ما جزیره خارک و سایر نقاط مهم زیرساختی نفتی ایران رو در اختیار خواهیم گرفت و کنترل کامل بازارهای نفت و گاز اون را رو دست خواهیم آورد!
+
+همان‌طور که این کار رو با ونزوئلا انجام دادیم و این موضوع واسه ونزوئلا و ایالات متحده فوق‌العاده موفق بود.
+
+
+@Dirty_Kids 👻
+</div>
+
+## manototv — post 106017
+
+<div align="center">
+  <a href="telegram/content/manototv_106017_1781187785.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جمهوری اسلامی می‌گوید در جریان حملات آمریکا دو مخزن آب در استان هرمزگان آسیب دیده و هزاران نفر با مشکل تأمین آب مواجه شده‌اند. آمریکا می‌گوید اهداف حملات، تأسیسات نظامی و راداری بوده‌اند.
+
+در نبود ارزیابی‌های مستقل، قضاوت قطعی دشوار است. آنچه فعلاً وجود دارد، دو روایت متضاد از یک رویداد واحد است؛ روایتی که می‌تواند از خطای جنگی و خسارت جانبی تا بهره‌برداری سیاسی و تبلیغاتی را در بر بگیرد. ورق بزنید.
+</div>
+
+## alonews — post 127158
+
+<div align="center">
+  <a href="telegram/content/alonews_127158_1781187785.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سخنگوی کمیسیون امنیت ملی مجلس: آمریکا یا باید تسلیم موشک‌های جمهوری اسلامی شود یا دیپلمات‌هایش...
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127157
+
+<div align="center">
+  <a href="telegram/content/alonews_127157_1781187785.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سی‌ان‌ان: مقامات ارشد ترامپ تصرف جزیره خارگ را به عنوان گزینه «بازی نهایی» دیده‌اند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/21 17:43
 ---
 

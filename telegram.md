@@ -7,6 +7,44 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/22 02:53
+---
+
+## pm_afshaa — post 93666
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93666_1781220213.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رضایی، سخنگوی کمیسیون امنیت ملی مجلس:
+
+احتمال فریب از سوی ترامپ بالاست، او فردا معامله بزرگی در پیش داره و میخواد فعلا اوضاع رو آرام نگه داره. محکم‌تر بزنید، زیرساخت‌ها و مراکز اقتصادی و هوش مصنوعی دشمن در منطقه رو ویران و نابود کنید تا بیشتر دردشون بگیره.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## BBCPersian — post 283494
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻 زلزله کهنوج را لرزاند
+
+رسانه‌های ایران گزارش کرده‌اند که در شهرستان کهنوج در استان کرمان زلزله رخ داده است.
+
+خبرگزاری ایرنا گفته این زلزله به بزرگی ۴/۱ بوده است.
+
+براساس گزارش‌ها این زمین‌لرزه در عمق ۱۹ کیلومتری زمین به وقوع پیوسته است.
+
+هنوز گزارشی از خسارت‌های احتمالی منتشر نشده است.
+
+https://bbc.in/4vDVlpB
+@BBCPersian
+</div>
+
+---
 📅 بروزرسانی: 1405/03/22 02:43
 ---
 

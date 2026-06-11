@@ -7,6 +7,257 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/21 22:13
+---
+
+## VahidOOnLine — post 245030
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245030_1781203432.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️سی‌ان‌ان به نقل از یک منبع آگاه گزارش داد مقامات آمریکایی بر این باورند که نشست‌های این هفته میان مقامات ایران و قطر در تهران، به حل برخی از نقاط مبهم و کلیدی باقی‌مانده در توافق با ایالات متحده کمک کرده است. این اختلافات عمدتا شامل جزئیات نحوه پیشبرد مذاکرات آینده در قبال برنامه هسته‌ای ایران و ترتیب زمان‌بندی لغو تحریم‌ها و گشایش‌های مالی برای تهران بوده است.
+
+بر اساس این گزارش، ایران اواسط این هفته جدیدترین پیش‌نویس توافق پیشنهادی خود با آمریکا را از طریق میانجی‌های قطری ارسال کرد. این در حالی است که حدود دو هفته پیش، دونالد ترامپ با اعمال تغییراتی در متن، خواستار سخت‌گیرانه‌تر شدن لحن توافق در بخش هسته‌ای شده بود و از طولانی شدن پاسخ ایران ابراز نارضایتی می‌کرد.
+
+با این وجود، رایزنی‌های این هفته از طریق قطر باعث کاهش شکاف‌ها شد. مقامات آمریکایی در تمام این مدت در تماس مداوم با میانجی‌ها بودند؛ حتی در روزهایی که واشنگتن و تهران به طور پی‌درپی در حال تبادل آتش و حملات نظامی به یکدیگر بودند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14549
+
+<div align="center">
+  <img src="telegram/content/WithYashar_14549_1781203433.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ در اینستاگرام : «با توجه به این‌که گفت‌وگوها با جمهوری اسلامی ایران به بالاترین سطح رهبری ایران ارجاع شده و مورد تأیید قرار گرفته است، من به عنوان رئیس‌جمهور ایالات متحده آمریکا، حملات و بمباران‌های برنامه‌ریزی‌شده علیه ایران را که قرار بود امشب انجام شود، لغو کرده‌ام.
+
+مباحث مطرح‌شده و نکات نهایی توافق، هم از نظر اصول کلی و هم از نظر جزئیات کامل، به تأیید تمامی طرف‌های درگیر رسیده است؛ از جمله ایالات متحده، اسرائیل، عربستان سعودی، امارات متحده عربی، قطر، ترکیه، پاکستان، بحرین، کویت، اردن، مصر و دیگران.
+
+محاصره دریایی تا زمان نهایی شدن این توافق، با تمام قدرت و به طور کامل برقرار خواهد ماند.
+
+زمان و محل امضای توافق به‌زودی اعلام خواهد شد.»
+دونالد جی. ترامپ، رئیس‌جمهور ایالات متحده آمریکا
+@withyashar
+</div>
+
+## WithYashar — post 14548
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آکسیوس: منابع ایرانی امروز به کشورهای منطقه اطلاع دادند که توافق «اصولی» در مورد یادداشت تفاهم حاصل شده است، اما تأیید رهبری همچنان لازم است
+@withyashar
+</div>
+
+## WithYashar — post 14547
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبکه 13 اسرائیل :مقامات اسرائیل توافق با ایران را به رسمیت نمی‌شناسند.
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342873
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342873_1781203434.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NEW: President Trump is nominating former SEC Chairman Jay Clayton as Director of National Intelligence after withdrawing acting DNI Bill Pulte's nomination following pushback from lawmakers, @markpmeredith reports.
+</div>
+
+## VahidOnline — post 76235
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری فارس، وابسته به سپاه پاسداران، به نقل از یک منبع آگاه نوشت جمهوری اسلامی هنوز هیچ متنی را برای توافق تایید نکرده است.
+
+فارس افزود این منبع آگاه نزدیک به تیم مذاکره‌کننده گفته بر خلاف اظهارات ترامپ، هیچ متنی برای یادداشت تفاهم اولیه با آمریکا تایید نشده است.
+
+پیش‌تر دونالد ترامپ گفته بود توافق با تهران تقریبا نهایی شده است.
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 341770
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341770_1781203437.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علیرضا زاکانی، شهردار تهران گفت که تشییع جنازه علی خامنه‌ای، به واسطه برگزاری مراسم عزاداری امام سوم شیعیان، در دهه دوم محرم برگزار خواهد شد.
+
+او ادامه داد که این تشییع، «عهد و پیمانی« دوباره با آرمان‌های علی خامنه‌ای و «تجدید بیعت» با مجتبی خامنه‌ای خواهد بود.
+https://iranintl.com/202606110983
+</div>
+
+## IranIntlTV — post 341769
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341769_1781203438.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+۲۴ با فرداد فرحزاد
+@iranintltv
+</div>
+
+## Shin_Persian — post 6962
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Thu, 11 Jun 2026 18:33:48 UTC
+
+IRGC-owned Fars News:
+
+"Source: Iran Has Not Yet Approved Any Text for an Agreement
+
+A well-informed source close to the Islamic Republic of Iran's negotiating team informed Fars News Agency that no text for an initial memorandum of understanding with the United States has been approved.
+
+Earlier, the President of the United States claimed in a message on the social media platform Truth Social that Iran had agreed to a text for an initial memorandum of understanding at the highest level.
+
+Minutes later, in similar remarks to the American newspaper New York Post, he stated that the aforementioned text had been finalized.
+
+Trump's claim comes as Iran and the United States endured one of their most intense confrontations since the ceasefire announcement early Thursday."
+
+ترجمه خودکار فارسی
+
+خبرگزاری فارس، متعلق به سپاه پاسداران:
+
+«منبع: ایران هنوز هیچ متنی را برای توافق تایید نکرده است
+
+یک منبع آگاه نزدیک به تیم مذاکره‌کننده جمهوری اسلامی ایران به خبرگزاری فارس اطلاع داد که هیچ متنی برای یادداشت تفاهم اولیه با ایالات متحده تایید نشده است.
+
+پیش از این، رئیس‌جمهور ایالات متحده در پیامی در شبکه اجتماعی «تروث سوشال» مدعی شده بود که ایران با متنی برای یادداشت تفاهم اولیه در بالاترین سطح موافقت کرده است.
+
+دقایقی بعد، وی در اظهاراتی مشابه با روزنامه آمریکایی نیویورک‌پست، بیان کرد که متن مذکور نهایی شده است.
+
+ادعای ترامپ در حالی مطرح می‌شود که ایران و ایالات متحده یکی از شدیدترین تقابل‌های خود را از زمان اعلام آتش‌بس در اوایل پنجشنبه پشت سر گذاشته‌اند.»
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 220414
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بیش از ۶۰ روز از تعطیلی صحن علنی مجلس شورای اسلامی می‌گذرد. مقام‌های حکومتی دلیل آن را نگرانی‌های امنیتی عنوان می‌کنند، اما برخی نمایندگان می‌گویند این وضعیت عملاً مجلس را از نظارت بر دولت و تأثیرگذاری بر روند مذاکرات با آمریکا کنار گذاشته است.
+</div>
+
+## FarsiVOA — post 220413
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترفند جمهوری اسلامی برای به دام انداختن روزنامه‌نگاران با جعل ناشیانه صدای علی جوانمردی
+</div>
+
+## DW_Farsi — post 125833
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125833_1781203439.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 ترامپ حمله به ایران را به دلیل "پیشرفت مذاکرات" لغو کرد
+ 
+دونالد ترامپ که پیش از این خبر داده بود که حملات هوایی به ایران امشب ۲۱ خرداد نیز مانند دو شب اخیر ادامه خواهد یافت، در پیامی تازه از لغو حملات  "برنامه‌ریزی‌شده" به این دلیل خبر داد که مذاکرات به "بالاترین سطح رهبری ایران" کشانده شده و مورد تأیید قرار گرفته است.
+ 
+رئیس‌ جمهور آمریکا در این پیام در تروث سوشال نوشت: «گفت‌وگوها و نکات نهایی، هم از نظر کلیات و هم با جزئیات فراوان، مورد تأیید تمامی طرف‌های درگیر، از جمله ایالات متحده، اسرائیل، عربستان سعودی، امارات متحده عربی، قطر، ترکیه، پاکستان، بحرین، کویت، اردن، مصر و دیگران قرار گرفته است.»
+ 
+ترامپ تصریح کرد، اما محاصره دریایی بنادر ایران تا زمان نهایی شدن این توافق "با تمام قدرت و به طور کامل" به قوت خود باقی خواهد ماند: «زمان و مکان امضای آن به‌زودی اعلام خواهد شد.»
+@dw_farsi
+</div>
+
+## Dirty_Kids — post 391741
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اجرای کامل شکیرا تو جام جهانی
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391737
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شات هایی زیبا از مراسم افتتاحیه جام جهانی🔥
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391736
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+من عادت ندارم بازیکنا ازم کوچیک‌تر باشن، منو برگردونید به جام‌جهانی ۲۰۰۲ کره و ژاپن.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391735
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391735_1781203440.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 این واقعی ترین کلیپ از جنگه، اگه میخواین بدونین نزدیک‌تون یا جایی که هستین موشک بخوره چه اتفاقی میوفته حتما این کلیپ رو ببینین.
+
+در نارمک تهران ۱۸ اسفند ۱۴۰۴
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391734
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+۲ درصد میرن خیابون اونا مردمم شدن
+۹۸ درصد مخالفتونن راضی به اینکه مالیات بدن اون بچه‌ها پرچم بیارن و بسوزون
+
+مالیات هم فقط ما ۹۸ درصد میدیم
+اون ۲ درصدیا که کار نمیکنن جیره خوره حکومتن
+
+یه جوری میگن فلان دانشجو با پول این مردم رفته دانشگاه انگار اینا اونارو بورسیه کردن😂مثل راهزنای سرگردنه مالیات از پدر و مادرشون گرفتین،پول نفتشون هم هزینه بچه آخوند و بچه فلسطینا کردین حالا طلبکار هم هستین!؟یه عمر از جیب پدر ‌ و مادراشون زدین که اگر ...
+﻿
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 127214
+
+<div align="center">
+  <a href="telegram/content/alonews_127214_1781203442.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ادعای اکسیوس: منابع ایرانی امروز به کشورهای منطقه اطلاع دادند که توافق «اصولی» در مورد یادداشت تفاهم حاصل شده است، اما تأیید رهبر انقلاب همچنان لازم است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127213
+
+<div align="center">
+  <a href="telegram/content/alonews_127213_1781203442.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نظرسنجی شبکه ۱۲ اسرائیل : ۶۲٪ از اسرائیلی‌ها به ترامپ اعتماد ندارن
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/21 22:04
 ---
 

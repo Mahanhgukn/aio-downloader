@@ -7,6 +7,260 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/22 02:03
+---
+
+## VahidOOnLine — post 245061
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245061_1781217211.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️اسماعیل بقایی، سخنگوی وزارت خارجه جمهوری اسلامی ایران، پنجشنبه ۲۱ خردادماه، در یک برنامه تلویزیونی گفت بخش عمده متن تفاهم نهایی شده است. بقایی افزود مشکل اصلی این است که آمریکا در جریان مذاکرات بارها مواضع خود را تغییر داده و همین موضوع روند دستیابی به توافق را با اخلال مواجه کرده است.
+او با اشاره به نقش قطر و پاکستان به عنوان میانجی گفت اقدامات آمریکا روند دیپلماتیک را تحت تاثیر قرار می‌دهد و وضعیت مذاکرات از ابتدا برای ایران روشن بوده است.
+این اظهارات در حالی مطرح می‌شود که دونالد ترامپ اعلام کرده توافق با جمهوری اسلامی ممکن است طی روزهای آینده امضا و نهایی شود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342884
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342884_1781217212.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+FOX NEWS REPORT: President Trump pauses Iran strikes amid peace talks, Jay Clayton is nominated as the next DNI, FOX News' @GriffJenkins reports.
+</div>
+
+## kianmeli1 — post 87957
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری-ادعای ارتش آمریکا:
+
+در حال بررسی گزارش‌ها درباره حمله به تاسیسات آب ایران هستیم
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 341813
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341813_1781217214.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در فاصله‌ای کوتاه از تهدید به حملات سنگین علیه ایران، دونالد ترامپ از تفاهمی تازه با جمهوری اسلامی خبر داد؛ توافقی که می‌گوید با حمایت کشورهای منطقه همراه است، اما اسرائیل می‌گوید از آن بی‌خبر بوده است.
+
+سمیرا قرایی گزارش می‌دهد.
+@iranintltv
+</div>
+
+## FarsiVOA — post 220437
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺صدای انفجارها در سواحل جنوب ایران؛ خبرگزاری حکومتی می‌گوید جمهوری اسلامی مانع عبور یک نفتکش شد
+
+▪️در پی شنیده شدن صدای چندین انفجار در سواحل جنوب ایران، خبرگزاری فارس وابسته به سپاه پاسداران به نقل از «منابع محلی» در بندرعباس گفت که نیروهای جمهوری اسلامی به یک نفتکش که «بدون هماهنگی» وارد محدود تنگه هرمز شده بود اجازه عبور ندادند.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8159871.html
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 16813
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16813_1781217215.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👨‍💻صداوسیما: پخش تصویر انفجار اتمی اشتباه در تدوین بود.
+
+💢 مجری برنامه‌ی به وقت ایران شبکه‌ی خبر درباره‌ی پخش تصاویری از انفجار اتمی در این شبکه گفت که بنا بر اطلاعی که به او داده‌اند این اتفاق به دلیل اشتباه در تدوین رخ داده بود و شایعات درباره‌ی هک شدن شبکه‌ی خبر نادرست است.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16811
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16811_1781217217.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رفیق دوست
+</div>
+
+## IranianMinds — post 22355
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کد اضطراری ۷۷۰۰ در هوانوردی یک کد بین‌المللی است که خلبان با آن اعلام می‌کند هواپیما دچار وضعیت اضطراری عمومی شده و به کمک و اولویت فوری نیاز دارد. این کد علت مشکل را مشخص نمی‌کند؛ ممکن است نقص فنی، آتش‌سوزی یا هر وضعیت اضطراری دیگری باشد @IranianMinds
+</div>
+
+## Dirty_Kids — post 391770
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔥 #جام_جهانی شروع شده و میدون مال توئه! 
+🔽 هر اتفاقی توی زمین چمن، می‌تونه برگت رو ببره بالا. حالا وقتشه قهرمان روز باشی و بزرگ بازی کنی! 👑 ⚽️ این جام جهانی رو فقط باید توی بت فیدو پیش‌بینی کنی 
+😀 با ۵۰ میلیون تومان شرط روزانه ← ۴ میلیون تومان اعتبار شرط‌بندی…
+</div>
+
+## Dirty_Kids — post 391769
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391769_1781217218.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔥 #جام_جهانی شروع شده و میدون مال توئه! 
+🔽
+
+هر اتفاقی توی زمین چمن، می‌تونه برگت رو ببره بالا. حالا وقتشه قهرمان روز باشی و بزرگ بازی کنی! 👑
+
+⚽️ این جام جهانی رو فقط باید توی بت فیدو پیش‌بینی کنی
+
+
+😀 با ۵۰ میلیون تومان شرط روزانه ← ۴ میلیون تومان اعتبار شرط‌بندی رایگان
+
+🏅 با ۱۰۰ میلیون تومان شرط روزانه ← ۸ میلیون تومان اعتبار شرط‌بندی رایگان
+A21
+
+💸 هرچی بزرگ‌تر بازی کنی، جایزه‌ت بزرگ‌تره!
+همین حالا پیش بینیتو ثبت کن✏️
+https://fido874vt.click
+https://fido874vt.click
+
+📤
+📤
+📤
+📤
+📤
+📤
+📤
+📤
+(ورود با وی-پی-ان غیر اروپایی)
+
+
+😀 کانال تلگرام 👇
+https://t.me/+dySI_QFj0T0xZGVk
+</div>
+
+## Dirty_Kids — post 391768
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391768_1781217218.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#بخوابیم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391767
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391767_1781217219.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سپاه لیست ترور جدید منتشر کرد!
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391766
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏یه تشکری هم کنیم از عرزشیا که به جای ما 100 روزه دارن برا مرگ خامنه ای جشن میگیرن😂
+خداییش ما فقط هفته اولش تونستیم
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391765
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391765_1781217219.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+برای تصویر تکرار این لحظه...
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391764
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391764_1781217220.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فوتبالم فوتبالای قدیم
+یذره مارادونا ببینید لذت ببرید
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391763
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391763_1781217221.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تلخ و سنگین ، دردناک و سوزشی برای چپولای فاندخورِ فلسطین مال
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391762
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391762_1781217221.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 پشماتون بریزه، دیشب وسط اتوبان حکیم تهران، پیاده موبایل یه نفرو دزدیدن😐😐
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391761
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جمهوری‌عسلامی مصرو تهدید کرده که اگه توی جام جهانی بخواید به ما گل بزنید سال بعد توی سریال یوزارسیف زلخیا رو میکنیم.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391760
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391760_1781217221.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تیما در حال تماشای بازی افتتاحیه
+
+فقط موندم با چه مغزی این پیج خارجی تیم آخوندی‌رو هم قاطی اینا کردهه
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/03/22 01:53
 ---
 

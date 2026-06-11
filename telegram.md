@@ -7,6 +7,150 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/21 23:03
+---
+
+## VahidOOnLine — post 245038
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245038_1781206395.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری فارس، وابسته به سپاه پاسداران، گزارش داد که چهارشنبه، تیم قطری برای میانجی‌گری وارد میدان شد و خبر از «عقب‌نشینی آمریکا از اضافه بندهای جدید» داد و این یعنی بازگشت به همان متن اولیه‌ای که هنوز منتظر تایید نهایی در ایران بود.
+
+فارس اضافه کرد که متن فعلی قابل توافق میان جمهوری اسلامی و آمریکا، متعلق به دو هفته پیش است.
+
+این رسانه وابسته به سپاه ادامه دا که تا این لحظه، نه تنها جمهوری اسلامی پاسخ نهایی نداده، بلکه این آمریکا بوده که به خواسته قبلی خود بازگشته است.
+
+خبرگزاری فارس افزود: «با توجه به اینکه آمریکا متن پیشنهادی جمهوری اسلامی را پذیرفته، احتمال تایید این متن در مراجع اصلی نظام بالا است.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14556
+
+<div align="center">
+  <a href="telegram/content/WithYashar_14556_1781206396.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## WithYashar — post 14555
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨🚨🚨🚨🚨🚨🚨
+</div>
+
+## mwarmonitor — post 10741
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسرائیل بعد از دیدن پست ترامپ @mwarmonitor
+</div>
+
+## mwarmonitor — post 10740
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴منبعی نزدیک به تیم مذاکره‌کننده به خبرگزاری فارس گفته است که ایران هنوز هیچ متنی را برای یک پیش‌نویس اولیه تفاهم‌نامه (MoU) با آمریکا تأیید نکرده است. 🔸این تکذیب پس از آن منتشر شد که ترامپ ادعا کرده بود ایران «در بالاترین سطح» با چنین متنی موافقت کرده و…
+</div>
+
+## mamlekate — post 103682
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 ترامپ پس از لغو دستور حمله: تقریبا همه چیز بین واشینگتن و تهران نهایی و جمع‌بندی شده است
+
+دونالد ترامپ، رییس جمهوری آمریکا، پنج شنبه ۲۱ خرداد، پس از اعلام لغو دستور حمله به جمهوری اسلامی و نزدیک بودن به دستیابی به توافق مورد قبول همه طرف های درگیر در جنگ ایران، به روزنامه نیویورک پست گفت تقریبا همه چیز بین واشینگتن و تهران نهایی و جمع بندی شده است.
+
+
+📝 سنتکام: تنگه هرمز برای عبور و مرور باز است
+
+
+@mamlekate
+</div>
+
+## VahidOnline — post 76240
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سی‌بی‌اس:
+احتمالاً اوایل هفته آینده یادداشت تفاهمی بین ایالات متحده و ایران امضا خواهد شد که راه را برای مذاکرات بیشتر در مورد یک توافق بلندمدت هموار می‌کند.
+CBSNews
+
+📡 @VahidOnline
+</div>
+
+## RadioFarda — post 158198
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_158198_1781206397.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸کویت اعلام کرد که حملات ایران که بامداد پنج‌شنبه خاک این کشور را هدف قرار داد، به رادار فرودگاه پایتختش آسیب رسانده و موجب مجروح شدن شماری از افراد شده است.
+
+🔸سازمان هوانوردی کشوری کویت در نامه‌ای خطاب به سازمان بین‌المللی هوانوردی غیرنظامی، ایکائو، اعلام کرد: «رادار فرودگاه صبح امروز هدف حمله قرار گرفت.»
+
+🔸این نهاد همچنین افزود که این حمله «موجب مجروح شدن افرادی شده و خسارات و زیان‌های مادی قابل توجهی به تأسیسات راداری، تجهیزات و سامانه‌های مدیریت ترافیک هوایی وارد کرده است.»
+
+🔸ایران در واکنش به حملات آمریکا به اهدافی در سراسر خاک خود، بامداد پنجشنبه به کویت و بحرین حمله کرد. مقام‌های ایرانی می‌گویند پایگاه‌ها و اموال آمریکا در خاورمیانه را هدف قرار می‌دهند.
+
+@RadioFarda
+</div>
+
+## Dirty_Kids — post 391747
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391747_1781206398.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چون مکزیک میزبان و افتتاحیه جام‌جهانی رو برگزار کرده و اولین گل جام هم زده، بهش میرسه یدونه فن‌ مکزیکی رو ببینیم
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 127230
+
+<div align="center">
+  <a href="telegram/content/alonews_127230_1781206400.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈دفتر امیر قطر:
+ترامپ تأیید کرد که تفاهمات ایالات متحده آمریکا و ایران مورد تأیید همه طرف‌ها است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127229
+
+<div align="center">
+  <a href="telegram/content/alonews_127229_1781206400.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈اسرائیل هیوم : انتظار میره ترامپ با نتانیاهو گفت‌وگو کنه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127228
+
+<div align="center">
+  <a href="telegram/content/alonews_127228_1781206401.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سی‌ان‌ان: یک منبع اسرائیلی می‌گوید پست ترامپ در شبکه‌های اجتماعی درباره توافق با ایران، نتانیاهو را شگفت‌زده کرده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/21 22:52
 ---
 

@@ -7,6 +7,198 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/22 01:04
+---
+
+## VahidOOnLine — post 245058
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245058_1781213648.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های ایران از شنیده شدن صدای انفجار در نزدیکی ساحل سیریک خبر دادند. به گزارش خبرگزاری مهر، صدای انفجاری در دریا و حدود دو کیلومتری ساحل سیریک شنیده شد. هنوز علت و منبع این صدا تایید نشده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14591
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صداوسیما: برخی منابع آگاه صدای انفجارها را مرتبط با مدیریت و بسته نگه داشتن تنگه هرمز می‌دانند.
+@withyashar
+</div>
+
+## WithYashar — post 14590
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش صدای انفجار در گناوه 🚨
+@withyashar
+</div>
+
+## mwarmonitor — post 10748
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_10748_1781213649.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✈️۴ فروند هواپیمای سوخت‌رسان نیروی هوایی آمریکا اکنون بر فراز منطقه خلیج فارس در حال پرواز هستند، در حالی که ۴ فروند دیگر نیز به‌تازگی از تل‌آویو پرواز کرده‌اند.
+
+✈️همچنین یک فروند هواپیمای هشدار زودهنگام و کنترل هوایی E-3B Sentry آواکس متعلق به نیروی هوایی آمریکا از پایگاه PSAB برخاسته و به سمت خلیج فارس در حال حرکت است.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10747
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انفجار در سیریک
+</div>
+
+## pm_afshaa — post 93657
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پرواز جنگنده های آمریکایی در آسمان شمال عراق
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93656
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صدای توافق یکم زیاده
+</div>
+
+## pm_afshaa — post 93655
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تحرکات سنگین نظامی آمریکا در خاورمیانه
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5602
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️
+🧨 رسانه‌های حکومتی در ایران از شنیده شدن صدای انفجار در منطقهٔ سیریک در بامداد آدینه خبر دادند.
+
+#خبر_فوری #انفجار #سیریک
+@DEJradio
+</div>
+
+## DEJradio — post 5601
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ رسانهٔ عربیه‌: در توافق اولیهٔ تهران و واشینگتن آتش‌بس ۶۰ روزه و بازگشایی تنگهٔ هرمز پیش‌بینی ‌شد
+
+رسانهٔ عربیه به نقل از منابع آگاه گزارش داد در توافق در حال مذاکره میان واشینگتن و جمهوری اسلامی، تمدید ۶۰ روزهٔ آتش‌بس و بازگشایی تنگهٔ هرمز برای کشتیرانی تجاری در نظر گرفته شده است.
+بر اساس این گزارش، آمریکا در مقابل بخشی از تحریم‌ها را کاهش می‌دهد و محاصرهٔ دریایی علیه جمهوری اسلامی را متوقف می‌کند.
+به گفتهٔ منابع العربیه همچنین قرار است مقامات تهران و واشینگتن در درازای این دوره درمورد سرنوشت ذخایر اورانیوم غنی‌شدهٔ جمهوری اسلامی مذاکره کنند.
+
+#خبر #دژ #توافق
+@DEJradio
+</div>
+
+## IranIntlTV — post 341808
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341808_1781213650.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های ایران از شنیده شدن صدای انفجار در نزدیکی ساحل سیریک خبر دادند. به گزارش خبرگزاری مهر، صدای انفجاری در دریا و حدود دو کیلومتری ساحل سیریک شنیده شد. هنوز علت و منبع این صدا تایید نشده است.
+https://iranintl.com/202606118532
+</div>
+
+## Shin_Persian — post 6965
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6965_1781213650.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Thu, 11 Jun 2026 21:25:19 UTC
+
+State-owned Mehr Newss confirms the explosion sound near Sirik, Hormozgan Province, Iran
+
+ترجمه خودکار فارسی
+
+خبرگزاری دولتی مهر صدای انفجار در نزدیکی سیریک، استان هرمزگان، ایران را تایید کرد.
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 220431
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ترامپ: تنگه هرمز به محض امضای توافق بزرگ با حکومت ایران باز می‌شود
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 16789
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پرواز جنگنده های آمریکایی در آسمان شمال عراق
+</div>
+
+## Persian_Trend_Official — post 16788
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16788_1781213651.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تحرکات سنگین نظامی آمریکا در خاورمیانه
+</div>
+
+## IranianMinds — post 22342
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگذاری های داخلی تایید کردند که انفجار در سیریک رخ داده
+
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 391759
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391759_1781213652.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اقلا از این برادر کسمغز عرزشی یاد بگیرید داره خون گریه میکنه، چجوری با قاتل عاغا توافق کردید
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 127277
+
+<div align="center">
+  <a href="telegram/content/alonews_127277_1781213652.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈صدای انفجار در سیریک 
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/22 00:53
 ---
 

@@ -7,6 +7,140 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/22 02:13
+---
+
+## VahidOOnLine — post 245062
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245062_1781217827.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ابراهیم کلانتری، تولیت شاهچراغ، با هشدار نسبت به ایجاد تفرقه در درون جمهوری اسلامی گفت برخی افراد تلاش می‌کنند اختلافات مربوط به رقابت‌های پیشین را بزرگنمایی کنند، در حالی که به گفته او همگی در موضوع «مقابله با آمریکا» تفاوتی با یکدیگر ندارند.
+
+او تاکید کرد «در شرایط تقابل با دشمن»، حمله به نیروهای داخلی و «دامن زدن به اختلافات» به زیان حکومت است.
+
+کلانتری همچنین از مسئولان حکومتی خواست در گفتار و تصمیم‌گیری هوشیار باشند و از ارسال آنچه «پالس منفی» به «دشمن» خواند، پرهیز کنند. او گفت برخی اظهارنظرها درباره مذاکره یا موضوعات هسته‌ای می‌تواند از سوی طرف مقابل به عنوان نشانه ضعف تعبیر شود.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## IranIntlTV — post 341814
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341814_1781217828.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ابراهیم کلانتری، تولیت شاهچراغ، با هشدار نسبت به ایجاد تفرقه در درون جمهوری اسلامی گفت برخی افراد تلاش می‌کنند اختلافات مربوط به رقابت‌های پیشین را بزرگنمایی کنند، در حالی که به گفته او همگی در موضوع «مقابله با آمریکا» تفاوتی با یکدیگر ندارند.
+
+او تاکید کرد «در شرایط تقابل با دشمن»، حمله به نیروهای داخلی و «دامن زدن به اختلافات» به زیان حکومت است.
+
+کلانتری همچنین از مسئولان حکومتی خواست در گفتار و تصمیم‌گیری هوشیار باشند و از ارسال آنچه «پالس منفی» به «دشمن» خواند، پرهیز کنند. او گفت برخی اظهارنظرها درباره مذاکره یا موضوعات هسته‌ای می‌تواند از سوی طرف مقابل به عنوان نشانه ضعف تعبیر شود.
+https://iranintl.com/202606112771
+</div>
+
+## Shin_Persian — post 6970
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6970_1781217829.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Steve Lookner ✓ @lookner Thu, 11 Jun 2026 22:20:27 UTC Iran state media Mehr: --"Minutes ago, Iranian forces did not allow the passage of an offending oil tanker that had entered the strait without coordination." --"A few minutes ago, residents of Bandar…
+</div>
+
+## Shin_Persian — post 6969
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Steve Lookner ✓ @lookner
+Thu, 11 Jun 2026 22:20:27 UTC
+
+Iran state media Mehr:
+--"Minutes ago, Iranian forces did not allow the passage of an offending oil tanker that had entered the strait without coordination."
+--"A few minutes ago, residents of Bandar Abbas and some local sources reported that two consecutive explosions were heard in the city...A source in the Hormozgan Governorate told Mehr: 'There has been no impact (impact or explosion caused by a projectile) related to these sounds.' Investigations to determine the exact origin of the sounds are ongoing, and additional information will be announced later."
+
+ترجمه خودکار فارسی
+
+خبرگزاری دولتی مهر ایران:
+--«دقایقی پیش، نیروهای ایرانی اجازه عبور به یک نفت‌کش متخلف که بدون هماهنگی وارد تنگه شده بود را ندادند.»
+--«دقایقی پیش، ساکنان بندرعباس و برخی منابع محلی گزارش دادند که صدای دو انفجار پی‌درپی در شهر شنیده شده است... یک منبع در استانداری هرمزگان به مهر گفت: "هیچ اصابتی (اصابت یا انفجار ناشی از پرتابه) در رابطه با این صداها رخ نداده است." تحقیقات برای تعیین منشأ دقیق صداها در جریان است و اطلاعات تکمیلی متعاقباً اعلام خواهد شد.»
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 220440
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220440_1781217830.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️محمدرضا فغانی داور بین المللی در مورد شرایط بازیکنان تیم ایران می‌گوید
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220439
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220439_1781217831.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️مطالبه تاب‌آوری حکومت از مردم در سایه بحران اعتماد عمومی؛ گفت‌وگو با اسماعیل عبدی
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220438
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220438_1781217832.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️حال و هوای تورنتو در روز اول آغاز جام جهانی ۲۰۲۶؛ گزارش امیرعلی پیروزبخش
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 16814
+
+
+
+
+## IranianMinds — post 22357
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22357_1781217834.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یه ساعت پیش شبکه خبر صداوسیما اینطوری هک شد : @IranianMinds
+</div>
+
+## IranianMinds — post 22356
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 الجزیره برای بار هزارم :
+
+بنظر‌ میرسه همه چیز بین ایران و آمریکا حل شده و بزودی به توافق میرسن.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 283483
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻 مقام‌ها در ایران: هیچ حمله و انفجاری در سیریک گزارش نشده است
+
+پس از آن که گزارش‌هایی از شنیدن صدای انفجار در حوالی سیریک - سواحل خلیج فارس - شنیده شد، خبرگزاری تسنیم، نزدیک به سپاه پاسداران - به نقل از خبرنگار خود در هرمزگان نوشته است:
+
+«با توجه به تاکید نیروهای مسلح ایران بر بسته بودن کامل تنگه هرمز به دلیل تجاوزگری و ناامن‌سازی آمریکا، طبق بررسی‌ها، صداهایی که از دقایقی پیش در اطراف سیریک به گوش می‌رسد مربوط به اخطار و اقدام نیروهای مسلح برای جلوگیری از تخلفات از این دستورالعمل مدیریت آبراه تنگه هرمز است.»
+
+همزمان گزارش‌های اولیه و تایید نشده از شنیده شدن صدای انفجار در بندرعباس مخابره شده است اما مقام‌های محلی ضمن تکذیب حمله به فرودگاه بندرعباس از دردست بررسی بودن شناسایی منشاء صداها خبر داده‌اند.
+
+https://bbc.in/4eetDbV
+@BBCPersian
+</div>
+
+---
 📅 بروزرسانی: 1405/03/22 02:03
 ---
 

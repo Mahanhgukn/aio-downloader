@@ -7,6 +7,244 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/21 23:33
+---
+
+## VahidOOnLine — post 245043
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245043_1781208202.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️به گفته یک منبع آگاه از روند گفتگوها، در پی پیام دونالد ترامپ، رئیس‌جمهوری آمریکا در شبکه‌های اجتماعی مبنی بر قریب‌الوقوع بودن توافق با تهران، «گشایش‌های واقعی» در مذاکرات صلح میان ایران و ایالات متحده رخ داده است.
+
+این منبع آگاه در گفتگو با شبکه خبری سی‌ان‌ان اعلام کرد که میانجی‌ها نسبت به رسیدن طرفین به خط پایان و نهایی شدن توافق، «به طور محتاطانه‌ای خوش‌بین» هستند. آن‌ها به آخرین دور از گفتگوهایی اشاره کردند که توسط مذاکره‌کنندگان قطری طی روزهای چهارشنبه و پنجشنبه در تهران انجام شد.
+
+به گفته این منبع، واسطه‌های درگیر در مذاکرات سیگنال‌هایی فرستاده‌اند مبنی بر اینکه سفر دیروز مذاکره‌کنندگان قطری به تهران و گفتگوهایی که تا بامداد امروز ادامه داشت، به پیشبرد روند توافق کمک شایانی کرده است؛ آن هم در شرایطی که دو کشور در روزهای گذشته مشغول تبادل آتش و حملات تلافی‌جوایه علیه یکدیگر بودند.
+
+این منبع در پایان تاکید کرد: «میانجی‌ها موفق شده‌اند به گشایش‌های جدی دست پیدا کنند.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14567
+
+
+
+
+## WithYashar — post 14566
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کامنتم هم زیر پست ترامپ، کارهای اداریش را انجام بدهد فقط همین رو لایک کنید https://www.instagram.com/p/DZdJ2LZvAza/?carousel_share_child_media_id=3917330556395457754_347696668&comment_id=18055196378739071
+</div>
+
+## FoxNewsTwitter — post 342876
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342876_1781208203.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+JUST IN: President Trump announces a major move to slash seafood costs and generate millions in new business for American fishermen by restoring commercial access to 3 areas of the western Pacific Ocean:
+
+"It's a large amount of space we're talking about that they were restricted. Other countries would use it, but our country couldn't use it."
+
+"You ever hear of anything so stupid?"
+</div>
+
+## mamlekate — post 103684
+
+<div align="center">
+  <a href="telegram/content/mamlekate_103684_1781208205.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 سنتکام: یک نفتکش دیگر ناقض «محاصره دریایی» جمهوری اسلامی را از کار انداختیم
+
+فرماندهی مرکزی ایالات متحده‌ آمریکا، سنتکام، پنج‌شنبه ۲۱ خرداد با انتشار بیانیه‌ای در شبکه اجتماعی ایکس نوشت: «نیروهای آمریکایی ساعت ۱۱:۲۰ شب به وقت شرق آمریکا در ۱۰ ژوئن ۲۰ خرداد، یک نفتکش را در دریای عمان پس از آنکه این کشتی با تلاش برای انتقال نفت ایران، محاصره دریایی علیه ایران را نقض کرد، از کار انداختند. این سومین کشتی تجاری بود که این هفته توسط نیروهای آمریکایی از کار انداخته شد.»
+
+در این بیانیه آمده است: «نفتکش جَلویر را که با پرچم گینه بیسائو در حرکت بود و سعی داشت نفت را از ایران از طریق دریای عمان منتقل کند، از کار انداختیم.»
+
+این بیانیه در تشریح نحوه از کار انداختن این کشتی اشاره کرده است که در پی خودداری مکرر خدمه این شناور از پیروی از دستورالعمل‌های نیروهای آمریکایی یک هواپیمای آمریکایی دو فروند موشک «هل‌فایر» را به سمت موتورخانه آن کشتی شلیک کرد.
+
+سنتکام همچنین یادآور شده است که اوایل این هفته، هواپیماهای آمریکایی نفتکش‌های «مَریوِکس» و «سِتِبِلّو» را که با پرچم پالائو در حرکت بودند به ترتیب در روزهای دوشنبه و سه‌شنبه از کار انداختند. سنتکام تاکید کرده است که «مَریوِکس» با تلاش برای حرکت به سمت یک بندر ایرانی، محاصره دریایی را نقض کرد و «سِتِبِلّو» نیز سعی در انتقال نفت ایران داشت.
+
+@mamlekate
+</div>
+
+## kianmeli1 — post 87944
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87944_1781208207.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبرگزاری فارس: ترامپ دروغ می گوید تفاهمی امضا نشده
+
+یک منبع آگاه به خبرگزاری فارس گفت: ایران هیچ پیش‌نویس توافق یا تفاهم‌نامه اولیه‌ای با ایالات متحده را تأیید نکرده است، که با ادعای دونالد ترامپ، رئیس جمهور آمریکا، مبنی بر موافقت تهران با متن نهایی، در تضاد است.
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 341796
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341796_1781208207.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس جمهوری آمریکا درباره ایران گفت به یک توافق عالی رسیده‌اند و افزود نهایی شدن آن در چند روز آینده ممکن است.
+
+او افزود که با بنیامین نتانیاهو، نخست‌وزیر اسرائیل و رجب طیب اردوغان، رییس جمهوری ترکیه در این رابطه گفت‌وگو کرده است.
+
+ترامپ افزود: «جی‌دی ونس در مراسم امضای توافق حضور خواهد داشت.»
+
+او ادامه داد: «این توافق به معنای آن است که ایران هرگز به سلاح هسته‌ای دست نخواهد یافت.»
+https://iranintl.com/202606116294
+</div>
+
+## IranIntlTV — post 341795
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341795_1781208208.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻رسانه‌های ایران با انتشار تصویری، از حضور مهدی مهدوی‌کیا، ستاره پیشین تیم ملی فوتبال ایران در مراسم افتتاحیه جام جهانی ۲۰۲۶ در استادیوم آزتکا مکزیک خبر داده‌اند.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 341794
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341794_1781208208.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سیامک آرام، فعال سیاسی و برگزارکننده تجمع‌های واشینگتن، درباره تجمع روز شنبه آینده در این شهر گفت: «استمرار این حضورها ضروری است. تجربه همه جوامع نیز نشان داده که تظاهرات و حضور مستمر در عرصه عمومی می‌تواند افکار عمومی، رسانه‌ها و در نهایت سیاستمداران را تحت تاثیر قرار دهد و بر تصمیم‌گیری حکومت‌ها درباره ایران فشار وارد کند.»
+@iranintltv
+</div>
+
+## FarsiVOA — post 220421
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️آغاز جام جهانی ۲۰۲۶ در آمریکا ، مکزیک و کانادا
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 16772
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16772_1781208210.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ در مورد عاصم منیر: ژنرال پاکستان انقدر ژنرال خوبیه که اصلا ژنرال نیست، فیلد مارشال است.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## BBCPersian — post 283476
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283476_1781208211.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌ ‌ ‌
+دونالد ترامپ، رئیس‌جمهور آمریکا در تازه‌ترین اظهارنظر در خصوص توافق با ایران گفته است که ایالات متحده «به‌تازگی به یک توافق بزرگ در مورد جنگ با ایران رسیده است.»
+
+او گفته است که «ما در حال نهایی کردن اسناد هستیم. این کار باید طی چند روز آینده انجام شود.»
+
+آقای ترامپ می‌گوید که پس از نهایی شدن اسناد، «احتمالا امضا آن شاید در اروپا» انجام خواهد شد و این کار باید «خیلی سریع» انجام شود.
+
+به گفته او «ما توافقی داریم که ایران هرگز سلاح هسته‌ای نخواهد داشت، که هدف اصلی از آنچه که ما برای رسیدن به این هدف طی کردیم، همین بود. بنابراین، این یک چیز بسیار بزرگ است.»
+
+رئیس جمهور ایالات متحده تأکید کرد که توافق «به زودی امضا» انجام خواهد شد و اسناد «تقریبا به شکل نهایی هستند، بنابراین خواهیم دید».
+
+آقای ترامپ همچنین گفت تنگه هرمز نیز «به محض اینکه آن را امضا کنیم» باز خواهد شد.
+
+او همچنین می‌گوید که با رهبران منطقه، از جمله متحدان خلیج فارس و بنیامین نتانیاهو، نخست‌وزیر اسرائیل، صحبت کرده است و افزود: «تمام خاورمیانه بسیار خوشحال است».
+
+https://bbc.in/444ZKWS
+@BBCPersian
+</div>
+
+## alonews — post 127245
+
+<div align="center">
+  <a href="telegram/content/alonews_127245_1781208212.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری/خبرگزاری فارس:
+ترامپ دروغ می گوید تفاهمی امضا نشده
+
+
+🔴ایران هیچ پیش‌نویس توافق یا تفاهم‌نامه اولیه‌ای با ایالات متحده را تأیید نکرده است، که با ادعای دونالد ترامپ، رئیس جمهور آمریکا، مبنی بر موافقت تهران با متن نهایی، در تضاد است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127244
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😳هنوزم ۱۰۰ و ۲۰۰ گیگ رو به اسم نامحدود میفروشن؟! 
+🚀 مخصوص جنگ 
+😎 @NetAazaad1Bot @NetAazaad1Bot اینجا از اون خبرا نیست 
+😎⚡️ 
+💎 نامحدود واقعی، بدون استرس تموم شدن حجم
+✅ مخصوص این روزایی که اینترنت پایدار از نون شب واجب‌تره 
+❤️ 
+🚀 فقط امشب با خیال راحت وصل شو و…
+</div>
+
+## alonews — post 127243
+
+<div align="center">
+  <a href="telegram/content/alonews_127243_1781208212.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😳هنوزم ۱۰۰ و ۲۰۰ گیگ رو به اسم نامحدود میفروشن؟!
+
+
+🚀 مخصوص جنگ 
+😎
+@NetAazaad1Bot
+@NetAazaad1Bot
+اینجا از اون خبرا نیست 
+😎⚡️
+
+💎 نامحدود واقعی، بدون استرس تموم شدن حجم
+✅
+
+مخصوص این روزایی که اینترنت پایدار از نون شب واجب‌تره 
+❤️
+
+
+🚀 فقط امشب با خیال راحت وصل شو و لذت ببر
+
+⌛ ظرفیت هم محدوده، جا نمونی.
+✅
+
+@NetAazaad1Bot
+@NetAazaad1Bot
+</div>
+
+## alonews — post 127242
+
+<div align="center">
+  <a href="telegram/content/alonews_127242_1781208212.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سپاه پاسداران: اگر امریکا تمام خواسته‌های ما را در سندی که ارائه دادیم بپذیرد، به احتمال زیاد ما این توافق را تایید خواهیم کرد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/21 23:23
 ---
 

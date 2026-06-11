@@ -7,6 +7,479 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/21 04:02
+---
+
+## VahidOOnLine — post 244838
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244838_1781137959.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ فاکس نیوز به نقل از ترامپ گزارش داد که اسرائیل در حمله نخستین ساعات بامداد پنجشنبه به اهدافی در جنوب ایران مشارکت نداشت اما به‌طور حتم ارتش اسرائیل در سطح آمادگی بالا قرار دارد. او در عین حال گفت که آمریکا بیش از ۵۰ هزار نیرو در منطقه دارد که بسیاری از آنها در عملیات مشارکت داشتند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14472
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امیدوارم کرج هدفمند باشه 🥹✌🏾💥 همه انرژی بدیدددددد
+</div>
+
+## WithYashar — post 14471
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مهر: انفجار در اشتهارد و آبیک
+@withyashar
+</div>
+
+## WithYashar — post 14470
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صدای انفجار در فردیس و کمالشهر کرج
+@withyashar
+</div>
+
+## WithYashar — post 14469
+
+
+
+
+## WithYashar — post 14468
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چندین انفجار شدید در کرج
+@withyashar
+</div>
+
+## WithYashar — post 14467
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قرارگاه مرکزی خاتم‌الانبیا:
+
+توقف حملات آمریکا به مناطقی تو جنوب ایران بنا بر اعلام ترامپ، به دلیل پاسخ قدرتمند و کوبنده نیروهای مسلح جمهوری اسلامی ایرانه که تو این رابطه شکست دیگری بر ارتش آن کشور تحمیل گردید. پاسخ نیروهای مسلح به تجاوز و شرارت های آمریکا ادامه داره.
+@withyashar 🤣
+</div>
+
+## pm_afshaa — post 93540
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دوباره صدای انفجار در قزوین و کرج
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93539
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صدای انفجار در فردیس و کمالشهر کرج 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93537
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انفجار سمت فرودگاه پیام کرج
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93536
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صدای انفجار در فردیس و کمالشهر کرج
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93535
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چندین انفجار پی‌ در پی در کرج
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93534
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انفجار کرج شدید بوده
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93533
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صدای انفجار مجدد در کرج
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93532
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93532_1781137959.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴قرارگاه مرکزی خاتم‌الانبیا:
+
+توقف حملات آمریکا به مناطقی تو جنوب ایران بنا بر اعلام ترامپ، به دلیل پاسخ قدرتمند و کوبنده نیروهای مسلح جمهوری اسلامی ایرانه که تو این رابطه شکست دیگری بر ارتش آن کشور تحمیل گردید. پاسخ نیروهای مسلح به تجاوز و شرارت های آمریکا ادامه داره.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## mamlekate — post 103672
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 کرج، اطراف فرودگاه پیام، دو انفجار ممتد ساعت ۳:۵۳
+
+
+📝 سلام ۳:۵۳ کرج صدای انفجار اومد، تقریبا نزدیک بود
+
+
+📝 کمالشهر کرج صدای انفجار اومد همین الان ۰۳:۵۴
+
+
+📝 ۳:۵۴ صدای انفجار خیلی بلند تو کرج اومد به حدی خونه لرزید، چنتا پشت سر هم
+
+
+📝 کرج الان انفجار سوم فرودگاه پیام ۳:۵۵
+
+
+📝 مهرشهر کرج برخورد ۴ موشک. دوتاش پیام بود. چون هیچ صدای جنگنده ای نیست
+
+
+📝 همین الان دومین انفجار ملارد ۳:۵۶
+
+
+📝 الان سمت فردیس سه تا انفجار بلند اومد ساعت ۳:۵۷
+
+@mamlekate_pm
+</div>
+
+## mamlekate — post 103671
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 گرمسار سمت کوه کَلَرز رو زدن. قشنگ خونه ما لرزید. ساعت ۰۳:۳۹ تو جنگ ۳۹ روزه هم خیلی زدنش نمیدونم سایت موشکی زیرزمینیه یا نه
+
+@mamlekate
+</div>
+
+## VahidOnline — post 76182
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیام‌های دریافتی از شنیده شدن صدای انفجار در کرج
+آپدیت: شد ۳ انفجار
+
+کرج صدای انفجار 3:53
+
+ساعت ۳:۵۳ کرج انفجار
+
+الان باز صدای موشک اومد
+۳:۵۳ وحشتناک بود خیلی بد بود و هنوز صدا میاد
+
+درود کرج ساعت ۳:۵۳ صدای انفجار شدید
+
+کرج شاهین ویلا همین الان یه صدای مهیب انفجار اومد
+
+سلام، همین الان ۳:۵۲ انفجار شدید، کرج، ما باغستانیم خیلی واضح بود
+
+سلام وحید ساعت سه و ۵۳ یه انفجار خیلی شدید ( گلشهر کرج )
+
+۱ موشک دیگه ترکید
+وحشتناک لرزیدیم
+بازم داره میزنه
+
+وحید سمت ساوجبلاغ ۲تا صدا خفن دوباره اومد
+
+خیلی شدید بود نمیدونم کجاست ولی نظرآباد میلرزه دوتا انفجار شدید فکر کنم آبیک بوده
+
+
+بازم داره میزنه سمت هشتگردو ساعت۳:۵۵
+
+علاوه بر اون اون پنج تا انفجار قبلی الان صدای دو تا انفجار دیگه اومد ساعت 3:53 آیبلاق
+
+انفجار در کرج سمت فرودگاه پیام
+
+وحید جان من مهرشهر کرجم الان یه صدای انفجار مهیب اومد
+
+سلام نظرابادم
+دوتا صدا انفجار وحشتناک اومد از سمت کرج
+
+بازم زدن همین الان۳:۵۵
+
+کرج ۳.۵۴ انفجار شدید
+
+کرج جهانشهر صدای انفجار ۰۳:۵۵
+
+تک انفجار شدید اطراف شهر کرج همین الان ساعت ۳:۵۴ شنیده شد
+
+فردیس کرج هم صدای خیلی بلند اومد و شیشه ها تکون خورد
+
+همین الان فردیس کرج صدای دو انفجار شنیده شد
+
+۳.۵۳ هشتگرد بازم ۴ انفجار دیگه اینبار نزدیک تر بود درای خونه لرزید
+
+سومین انفجار ۳:۵۶
+
+سومین انفجار تو کرج
+
+
+سه انفجار وحشتناک توی کرج همین الان!
+
+گوهردشت ۳ تا انفجار خیلی بلند شنیدیم
+
+📡 @VahidOnline
+</div>
+
+## kianmeli1 — post 87914
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری-انفجار در جزیره خارک ساعت ۴ صبح
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87913
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری-اطراف فرودگاه پیام کرج ۳:۵۶چندین انفجار
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87912
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری-انفجار سنگین در فردیس و کمالشهر کرج ساعت ۳:۵۵
+https://t.me/kianmeli1
+</div>
+
+## Shin_Persian — post 6917
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Thu, 11 Jun 2026 00:30:32 UTC
+
+Air raid sirens sounding across Bahrain. Residents urged to take shelter. #Bahrain 🇧🇭
+
+Source: @moi_bahrain
+https://x.com/moi_bahrain/status/2064867772140499213
+
+ترجمه خودکار فارسی
+
+آژیرهای حمله هوایی در سراسر بحرین به صدا درآمده‌اند. از ساکنان خواسته شده پناه بگیرند. #Bahrain 🇧🇭
+
+منبع: @moi_bahrain
+https://x.com/moi_bahrain/status/2064867772140499213
+
+𝕏 · @shin_persian
+</div>
+
+## Iliaen — post 4474
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ساعت ۰۳:۵۳ صبح پنجنشبه؛ صدای چند انفجار مهیب در اطراف کرج (ماهدشت) و آبیک قزوین شنیده شد.
+
+@iliaen
+</div>
+
+## FarsiVOA — post 220327
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220327_1781137960.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️چرا جمهوری اسلامی ماجراجویی می‌کند؟ گفت‌وگو با علیرضا اردبیلی کارشناس روابط بین الملل
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 16652
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 انفجار های ممتد در کرج.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 22256
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 حملات موشکی سپاه به بحرین
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22255
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 حملات و بمباران سنگین کرج توسط ارتش آمریکا
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22254
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 سه انفجار شدید دیگه در کرج
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22253
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 انفجار در اطراف فرودگاه کرج
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22252
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 خبرگزاری تابناک :
+
+انفجار در هشتگرد
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22251
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 انفجار در سمت فردیس و کمالشهر کرج
+
+@IranianMijds
+</div>
+
+## IranianMinds — post 22250
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 انفجار شدید و مجدد در کرج
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22249
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 پدافند کرج برای شکار پشه ها فعال شد
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22248
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 انفجار شدید در‌ کرج
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22247
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 حملات آمریکا به کرج
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 391665
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391665_1781137962.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کرج، اطراف فرودگاه پیام، دو انفجار ممتد ساعت ۳:۵۳
+
+
+🔴سلام ۳:۵۳ کرج صدای انفجار اومد، تقریبا نزدیک بود
+
+
+🔴 کمالشهر کرج صدای انفجار اومد همین الان ۰۳:۵۴
+
+
+🔴 کرج الان انفجار سوم فرودگاه پیام ۳:۵۵
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391664
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سپاه:
+
+۱۸ هدف آمریکا را منهدم کردیم 🥴
+</div>
+
+## Dirty_Kids — post 391663
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#گزارش گرمسار سمت کوه کَلَرز رو زدن. قشنگ خونه ما لرزید. ساعت ۰۳:۳۹ تو جنگ ۳۹ روزه هم خیلی زدنش نمیدونم سایت موشکی زیرزمینیه یا نه
+</div>
+
+---
 📅 بروزرسانی: 1405/03/21 03:52
 ---
 

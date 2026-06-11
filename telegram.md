@@ -7,6 +7,147 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/21 05:52
+---
+
+## VahidOOnLine — post 244851
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244851_1781144539.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهوری آمریکا، از جمهوری‌خواهان در کنگره خواست طرح ۳۵۰ میلیارد دلاری بودجه نظامی را فورا تصویب کنند؛ طرحی که به گفته او با هدف افزایش چشمگیر بودجه نظامی آمریکا و تقویت توان بازدارندگی این کشور تدوین شده است. ترامپ تاکید کرد این لایحه بخشی از مسیر رسیدن به بودجه ۱.۵ تریلیون دلاری دفاعی است و باید بدون تاخیر و تغییر اساسی تصویب شود. او گفت این سرمایه‌گذاری برای توسعه سامانه‌های دفاعی جدید، تقویت ناوگان دریایی و هوایی، افزایش ذخایر تسلیحاتی و گسترش توان فضایی و پهپادی آمریکا انجام می‌شود و آن را اقدامی تعیین‌کننده برای برتری نظامی ایالات متحده در سال‌های آینده توصیف کرد. iranintl
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## pm_afshaa — post 93587
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93587_1781144540.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ارتش کویت: در حال حاضر در حال رهگیری اهداف هوایی متخاصم هستیم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93586
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آژیر خطر کویت و بحرین فعال شد 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93585
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آژیر خطر کویت و بحرین فعال شد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## VahidOnline — post 76196
+
+<div align="center">
+  <a href="telegram/content/VahidOnline_76196_1781144540.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+'موشک‌های شلیک شده از استان #زنجان'
+ویدیوی دریافتی، پنجشنبه ۲۱ خراد
+Vahid
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 341610
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341610_1781144541.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهوری آمریکا، از جمهوری‌خواهان در کنگره خواست طرح ۳۵۰ میلیارد دلاری بودجه نظامی را فورا تصویب کنند؛ طرحی که به گفته او با هدف افزایش چشمگیر بودجه نظامی آمریکا و تقویت توان بازدارندگی این کشور تدوین شده است. ترامپ تاکید کرد این لایحه بخشی از مسیر رسیدن به بودجه ۱.۵ تریلیون دلاری دفاعی است و باید بدون تاخیر و تغییر اساسی تصویب شود. او گفت این سرمایه‌گذاری برای توسعه سامانه‌های دفاعی جدید، تقویت ناوگان دریایی و هوایی، افزایش ذخایر تسلیحاتی و گسترش توان فضایی و پهپادی آمریکا انجام می‌شود و آن را اقدامی تعیین‌کننده برای برتری نظامی ایالات متحده در سال‌های آینده توصیف کرد. iranintl.com/202606111134
+</div>
+
+## Shin_Persian — post 6920
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Thu, 11 Jun 2026 02:12:43 UTC
+
+Sirens sounding in Bahrain. Officials urge calm: head to nearest safe place, follow official channels.
+
+#Bahrain 🇧🇭
+
+Source: @moi_bahrain
+https://x.com/moi_bahrain/status/2064893512399589688
+
+ترجمه خودکار فارسی
+
+آژیرهای خطر در بحرین به صدا درآمدند. مقامات مردم را به حفظ آرامش دعوت می‌کنند: به نزدیک‌ترین مکان امن بروید و کانال‌های رسمی را دنبال کنید.
+
+#Bahrain 🇧🇭
+
+منبع: @moi_bahrain
+https://x.com/moi_bahrain/status/2064893512399589688
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6919
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6919_1781144541.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Thu, 11 Jun 2026 02:12:04 UTC
+
+Kuwait Army General Staff: Air defense systems are currently intercepting hostile aerial targets.
+
+Follow safety instructions from official authorities.
+
+#Kuwait 🇰🇼
+
+Source: @KuwaitArmyGHQ
+https://x.com/KuwaitArmyGHQ/status/2064893351011176686
+
+ترجمه خودکار فارسی
+
+ستاد کل ارتش کویت: سامانه‌های پدافند هوایی در حال حاضر در حال رهگیری اهداف هوایی متخاصم هستند.
+
+دستورالعمل‌های ایمنی مقامات رسمی را دنبال کنید.
+
+#Kuwait 🇰🇼
+
+منبع: @KuwaitArmyGHQ
+https://x.com/KuwaitArmyGHQ/status/2064893351011176686
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 220341
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220341_1781144542.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ارتش کویت دقایقی پیش اعلام کرد سامانه‌های پدافند هوایی آن در حال حاضر مشغول مقابله با اهداف هوایی متخاصم است.
+@FarsiVOA
+</div>
+
+---
 📅 بروزرسانی: 1405/03/21 05:42
 ---
 

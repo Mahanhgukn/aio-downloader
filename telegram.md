@@ -7,6 +7,274 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/22 01:33
+---
+
+## WithYashar — post 14595
+
+<div align="center">
+  <img src="telegram/content/WithYashar_14595_1781215412.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یه اف۳۵ کد اضطراری 7700 داد!!
+فرود اضطراری @withyashar
+</div>
+
+## WithYashar — post 14594
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صداوسیما: دو انفجار در بندرعباس شنیده شده.
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342881
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342881_1781215413.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+The White House lawn has been transformed for fight night.
+
+A UFC Octagon now sits just steps from the White House, surrounded by plenty of seats for an audience.
+
+The setup is for the upcoming "Freedom 250" event on June 14, weeks before America prepares to celebrate its 250th anniversary.
+</div>
+
+## pm_afshaa — post 93662
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تلمبه های سنگین اسراییل به لبنان
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5604
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5604_1781215414.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️
+🔺 دژ فوتبالی با مهدی رستم‌پور، هر شب پس از خبر ۲۱ ویژه جام‌جهانی فوتبالی
+
+چرا قلعه‌نوعی مدیر اجرایی تیم ملی را از اتوبوس پیاده کرد؟ پای یک میلیون دلار پول در میان بود.
+
+✨نظرات و ویدیوهای خود را برای این برنامه به تلگرام دژ ارسال کنید:
+@Dejreport
+
+#فوتبال #جام_جهانی
+@DEJradio
+</div>
+
+## DEJradio — post 5603
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5603_1781215415.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨📢 ساعاتی پس از آنکه دونالد ترامپ اعلام کرد حمله به ایران لغو و توافق نهایی شده، صدای چندین انفجار در نواحی جنوبی ایران شنیده شد. منابع عربی نیز از درگیری نیروهای سـ.ـپاه و تنفنگداران آمریکایی در تنگه هرمز خبر دادند.
+
+منابع محلی در منطقه سیریک (استان هرمزگان) می‌گویند صدای انفجاری در دریا، در فاصله حدود دو کیلومتری ساحل، به گوش رسیده است.
+
+*عکس آرشیوی
+
+#جنگ #هرمزگان
+@DEJradio
+</div>
+
+## kianmeli1 — post 87956
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری-گزارش‌های اولیه حاکی از آن است که ایران دوباره با یک کشتی، احتمالاً یک رزمنده سطحی آمریکایی، در حین عبور از تنگه هرمز درگیر شده است. این در حالی است که فرماندهی مرکزی ایالات متحده اعلام کرده است که عبور امن برای کشتی‌های تجاری که محاصره ایالات متحده را نقض نمی‌کنند، در دسترس است.
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 341811
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341811_1781215415.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ساعاتی پس از تهدید دونالد ترامپ به حملات شدید علیه ایران و تصرف جزیره خارک، او گفت حمله به ایران را لغو کرده و در گفت‌وگو با مقام‌های عالی جمهوری اسلامی به توافقی اولیه با تهران رسیده است.
+
+ترامپ افزود تفاهم‌نامه‌ای بسیار مفصل و دارای جزییات تدوین شده و این توافق نهایی خواهد شد.
+
+جزییات بیشتر با امیر گیتی، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## Shin_Persian — post 6967
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Thu, 11 Jun 2026 21:54:27 UTC
+
+Explosion sound in Bandar Abbas, Hormozgan Province, Iran
+
+ترجمه خودکار فارسی
+
+صدای انفجار در بندرعباس، استان هرمزگان، ایران
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 220435
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220435_1781215417.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️کامبک ویژه برنامه‌ی جام جهانی ۲۰۲۶ هر شب ساعت ۲۳ به وقت ایران تا پایان جام جهانی با اجرای آرش آرا و ونوس مرادی مهمان خانه های شماست. ما هر شب با مرور مهم‌ترین اتفاقات و اخبار جام جهانی ۲۰۲۶، در کنار کارشناسان، خبرنگاران و مهمانان ویژه با شما همراه خواهیم بود.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220434
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220434_1781215418.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️برق جنوب غرب استان تهران، از جمله مناطق اسلامشهر، بهارستان و رباط‌کریم قطع شده است و مقامات حکومتی این قطع برق را ناشی از «نقص نفی در بخش فوق توزیع» عنوان کرده‌اند. سوءمدیریت و سال‌ها عدم سرمایه‌گذاری کافی در حوزه برق، از عوامل خاموشی‌های پی در پی در ایران است.
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 16803
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16803_1781215418.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ ارسال کد اضطراری 7700 یک Typhoon بریتانیایی
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16802
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارسالی مخاطبان: شنیده شدن صدای انفجار از سمت فرودگاه بندرعباس
+</div>
+
+## Persian_Trend_Official — post 16801
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16801_1781215418.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جنگنده F-35 در آسمان امارات
+</div>
+
+## Persian_Trend_Official — post 16800
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16800_1781215418.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جنگنده F-35 در آسمان امارات
+</div>
+
+## IranianMinds — post 22353
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یه f35 کد اضطراری ۷۷۰۰ صادر کرد. @IranianMinds
+</div>
+
+## IranianMinds — post 22352
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22352_1781215419.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یه f35 کد اضطراری ۷۷۰۰ صادر کرد.
+
+
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22351
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22351_1781215419.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سپاه لیست ترور جدید منتشر کرد
+
+
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 283481
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻 با اخبار احتمال توافق با ایران، نفت به زیر بشکه‌ای ۹۰ دلار رسید
+ریچل کلون، خبرنگار اقتصادی
+
+پس از آنکه دونالد ترامپ، رئیس جمهوری آمریکا گفت توافق با ایران می‌تواند تا آخر این هفته امضا شود، قیمت نفت به زیر ۹۰ دلار در هر بشکه سقوط کرد.
+
+قیمت نفت خام برنت، پس از بسته شدن بازارهای آمریکا، حدود ۸۹/۱۰ دلار در هر بشکه معامله شد که ۴/۷۵ درصد نسبت به روز قبل کاهش داشت.
+
+این یکی از پایین‌ترین قیمت‌ها از زمان آغاز درگیری چند ماهه آمریکا و ایران است. با ان حال این قیمت هنوز بسیار بالاتر از نرخ ۷۰ دلار در هر بشکه‌ است که قبل از جنگ معامله می‌شد.
+
+بازارهای اصلی بورس آمریکا نیز با روند صعودی بسته شدند؛ داو جونز ۱/۸۶ درصد، اس اند پی ۵۰۰ معادل ۱/۷۵ درصد و شاخص نزدک که بیشتر به فناوری وابسته است ۲/۵۴ درصد افزایش یافتند.
+
+https://bbc.in/4vO4WKS
+@BBCPersian
+</div>
+
+## alonews — post 127283
+
+<div align="center">
+  <a href="telegram/content/alonews_127283_1781215420.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پیگیری خبرنگار فارس در بندرعباس از منابع محلی نشان می‌دهد دقایقی قبل نیروهای ایران اجازه عبور یک نفتکش متخلف که بدون هماهنگی وارد محدوده تنگه شده بود را ندادند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127282
+
+<div align="center">
+  <a href="telegram/content/alonews_127282_1781215420.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈صداوسیما: دو انفجار در بندرعباس شنیده شده
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127281
+
+<div align="center">
+  <a href="telegram/content/alonews_127281_1781215420.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈یک فروند جنگنده اف-۳۵ آمریکایی بر فراز امارات متحده عربی اعلام وضعیت اضطراری کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/22 01:23
 ---
 

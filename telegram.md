@@ -7,6 +7,153 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/22 01:43
+---
+
+## WithYashar — post 14597
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فارس: یه کشتی متخلف تو هرمز رو هدف قرار دادیم دلیل صدای انفجار سیریک همین بود
+@withyashar
+</div>
+
+## WithYashar — post 14596
+
+<div align="center">
+  <img src="telegram/content/WithYashar_14596_1781216005.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وضعیت توافق به سبک خاورمیانه
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342883
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342883_1781216006.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+A U.S. senator just made ESPN's Top 10.
+
+Missouri @Eric_Schmitt laid out near the left field foul line during the Congressional Baseball Game, never taking his eyes off a drifting fly ball before hauling in a diving catch.
+
+Schmitt got up with his nose bleeding, fired the ball back to the infield, and had Nationals Park on its feet.
+
+But his baseball history — and that specific glove — takes him all the way back to his high school days and a $40 restring at Play It Again Sports, he tells the @RuthlessPodcast.
+
+To his own disbelief, the catch landed at No. 5 on SportsCenter's Top 10 plays as Republicans rolled to an 11-2 win over Democrats — their sixth straight victory in the annual charity game. | @HolmesJosh @MichaelDuncan
+</div>
+
+## FoxNewsTwitter — post 342882
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342882_1781216008.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+KHOSRO ISFAHANI: "A bad deal with Iran is worse than no deal... A bad deal is going to only enable this regime."
+
+"The JCPOA under Obama enabled them to bring us October 7th — imagine what else this regime would do." https://twitter.com/WillCainShow/status/2065179987892744397#m
+</div>
+
+## pm_afshaa — post 93663
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فارس: یه کشتی متخلف تو هرمز رو هدف قرار دادیم دلیل صدای انفجار سیریک همین بود
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## VahidOnline — post 76252
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صدا و سیما:
+🔺شنیده شدن دو صدای انفجار در بندرعباس
+🔹منشا صدا هنوز مشخص نیست.
+
+ادعای خبرگزاری فارس و سپس تسنیم:
+ایران اجازۀ عبور نفتکش متخلف از تنگۀ هرمز را نداد
+
+🔹پیگیری خبرنگار فارس در بندرعباس از منابع محلی نشان می‌دهد دقایقی قبل نیروهای ایران اجازۀ عبور یک نفتکش متخلف که بدون هماهنگی وارد محدودۀ تنگه شده بود را ندادند.
+
+🔹گزارش‌های مردمی نیز از شنیده شدن صدای سه انفجار در فاصله حدود دو کیلومتری ساحل از سیریک حکایت دارد.
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 341812
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341812_1781216009.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جمشید برزگر، روزنامه‌نگار و تحلیل‌گر سیاسی، درباره اظهارات دونالد ترامپ مبنی بر توافق اولیه با جمهوری اسلامی گفت: «ممکن است اکنون در نزدیک‌ترین فاصله به یک توافق میان تهران و واشینگتن قرار داشته باشیم، اما پیش از این هم دونالد ترامپ چند بار تا آستانه توافق پیش رفته بود.»
+
+او افزود: «امروز ترامپ می‌گوید با رهبران کشورهای منطقه و همچنین بنیامین نتانیاهو گفت‌وگو کرده است، اما همین سخنان را پیش‌تر نیز، از جمله در ۲۴ مه، مطرح کرده بود و گفته بود همه این کشورها از توافق حمایت می‌کنند. با این حال، در عمل چنین توافقی شکل نگرفت.»
+@iranintltv
+</div>
+
+## Persian_Trend_Official — post 16804
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16804_1781216011.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 22354
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دوستان آرومتر مذاکره کنید بچه های جنوب راحت بخوابن
+
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 283482
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283482_1781216011.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌ ‌ ‌
+اسماعیل بقایی، سخنگوی وزارت خارجه ایران در یک مصاحبه تلفنی گفت علیرغم فعالیت قطر و پاکستان به عنوان میانجی، روند دیپلماتیک مذاکرات به دلیل اقدامات آمریکا تحت تاثیر قرار گرفته است.
+
+آقای بقایی تاکید کرد که بخش عمده متن توافق نهایی شده اما به خاطر مواضع ضدونقیض آمریکا باعث تلاطم و اخلال در دست یافتن به توافق شده است.
+
+سخنگوی وزارت خارجه در این مصاحبه گفت: «ادعاها درباره زمان و مکان توافق صرفا گمانه‌زنی رسانه‌ای است و تا مراجع ذی‌ربط نظام درباره تک‌تک اجزای متن توافق به جمع‌بندی نهایی نرسند صحبت درباره شکل امضا و مکان آن فایده ندارد.»
+
+آقای بقایی اشاره کرد که متن توافق از پیش برای ما روشن بود اما طرف آمریکایی هربار مطالبه غیرمعقولی مطرح می‌کرد و بار دیگر تاکید کرده که ایران تحت فشار و تهدید از مواضع اصولی و خطوط قرمز خود کوتاه نخواهد آمد.
+
+https://bbc.in/4xjTyId
+📷Reuters
+@BBCPersian
+</div>
+
+## alonews — post 127284
+
+<div align="center">
+  <a href="telegram/content/alonews_127284_1781216012.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈یک فروند جنگنده اف-۳۵ آمریکایی بر فراز امارات متحده عربی اعلام وضعیت اضطراری کرد 
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/22 01:33
 ---
 

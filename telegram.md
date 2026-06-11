@@ -7,6 +7,97 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/21 09:12
+---
+
+## IranIntlTV — post 341623
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341623_1781156559.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرخط خبرهای پنج‌شنبه ۲۱ خرداد
+@iranintltv
+</div>
+
+## DW_Farsi — post 125804
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125804_1781156561.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 سفارت آمریکا در بغداد شهروندان خود را به ترک عراق فراخواند
+
+سفارت آمریکا در بغداد به شهروندان این کشور هشدار داد نهایت احتیاط را رعایت کرده و عراق را بی‌درنگ ترک کنند. شهروندان ایالات متحده همچنین فراخوانده شده‌اند تا با توجه به وضعیت کنونی از سفر به عراق خودداری کنند
+
+در بیانیه سفارت ایالات متحده در بغداد همچنین آمده است امکان اختلال در سفرها یا بسته شدن ناگهانی حریم هوایی بدون اطلاع قبلی وجود دارد.
+
+سفارت آمریکا اضافه کرد، علیرغم آنکه شماری از کارکنان دستور بازگشت به آمریکا را دریافت کرده‌اند، همچنان به فعالیت‌ها و انجام وظایف خود ادامه می‌دهد. دولت آمریکا در ارتباط با عراق بالاترین درجه هشدار را اعلام کرده و از شهروندانش خواسته است که به عراق سفر نکنند.
+
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 16691
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16691_1781156562.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ خواستار لایحه نظامی 350 میلیارد دلاری در اسرع وقت شد.
+
+رئیس جمهور آمریکا به جمهوری خواهان فشار می‌آورد تا فوراً لایحه مصالحه 350 میلیارد دلاری را تصویب کنند تا درخواست کامل دفاعی 1.5 تریلیون دلاری او برای سال مالی 2027 را آزاد کنند.
+
+او در تروث سوشال نوشت: هیچ رئیس جمهور دیگری تا به حال به اندازه ترامپ به بازسازی ارتش بزرگ ما و نجات کشور بزرگ ما متعهد نبوده است. بدون بازی، بدون تأخیر و بدون مصالحه ضعیف! این کار را هر چه سریعتر انجام دهید.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16690
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16690_1781156563.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تهاجم پهپادی ارتش علیه ناوگان پنجم آمریکا در بحرین
+
+ارتش: در پی نقض آتش‌بس و تجاوز ارتش تروریستی آمریکا به مناطقی از جنوب کشور، ارتش جمهوری اسلامی ایران با انواع پهپادهای انهدامی، ناوگان پنجم این کشور در بحرین را آماج حملات پهپادی خود، قرار داد.
+
+در این موج از حملات پهپادی ارتش، آنتن‌های ارتباطی و تاسیسات راداری سامانه پاتریوت ناوگان پنجم مورد هدف قرار گرفت.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## alonews — post 127042
+
+<div align="center">
+  <a href="telegram/content/alonews_127042_1781156564.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈احتمال شنیده شدن صدای انفجار در محدوده شرق اصفهان
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127041
+
+<div align="center">
+  <a href="telegram/content/alonews_127041_1781156564.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 داده‌های ناسا از احتمال آتش‌سوزی در نزدیکی پایگاه هوایی عیسی در بحرین پس از حمله موشکی ایران حکایت دارد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/21 09:02
 ---
 

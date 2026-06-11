@@ -7,6 +7,300 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/21 16:33
+---
+
+## VahidOOnLine — post 244945
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️همزمان با بالاگرفتن تنش‌ها میان تهران و واشنگتن و رد و بدل کردن سنگین آتش میان دو طرف در شامگاه چهارشنبه و بامداد پنجشنبه ۲۱ خرداد ماه، سپاه پاسداران انقلاب اسلامی، ویدیویی را منتشر کرد که به گفته این نهاد، شلیک موشک به سمت پایگاه‌های آمریکا در منطقه را نشان می‌دهد.
+همزمان، تهران اعلام کرد آتش‌بس شکننده‌ای که پس از سه ماه درگیری در خاورمیانه برقرار شده بود، در پی حملات تازه آمریکا «عملا بی‌معنا» شده است.
+این تحولات پس از آن رخ داد که آمریکا حملات جدیدی را علیه اهدافی در ایران انجام داد و تهران نیز با حملات موشکی به چندین پایگاه و مواضع مرتبط با آمریکا در منطقه واکنش نشان داد.
+دونالد ترامپ، رئیس جمهوری آمریکا، روز پنجشنبه با انتشار پیامی در شبکه اجتماعی تروث سوشال تهدید کرد، آمریکا به زودی جزیره خارک و زیرساخت‌های نفتی ایران را تصرف خواهد کرد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244944
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244944_1781183021.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهوری آمریکا، در مصاحبه با فاکس‌نیوز گفت جنگ تنها با تسلیم جمهوری اسلامی متوقف خواهد شد و افزود آمریکا هنوز با تمام قدرت به ایران حمله نکرده است.
+او تاکید کرد با وجود ادامه گفت‌وگوها با تهران، ترجیح می‌دهد آمریکا جزیره خارک را تصرف کند.
+ترامپ پیش‌تر در تروت سوشال نوشت ایالات متحده «امشب ایران را بسیار شدید هدف قرار خواهد داد» و بار دیگر مدعی شد بخش عمده توان دفاعی و تهاجمی جمهوری اسلامی از بین رفته است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14511
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رویترز: لشکر 82 هوابرد آمریکا ملقب به لشکر شیطان به‌زودی جزایر نفتی ایران رو تصرف خواهند کرد.🚨
+@withyashar
+</div>
+
+## WithYashar — post 14510
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ به فاکس نیوز:
+ما در حال مذاکره با ایران هستیم
+
+ترجیح می‌دهم جزیره خارک را در اختیار داشته باشم
+ما هنوز به اندازه کافی به ایران ضربه نزده‌ایم
+من از ایران ناامید نیستم، این توافق خوب است و ممکن است بزرگترین توافق تاریخ باشد
+هواپیماهای ما بر فراز قلب تهران پرواز می‌کنند
+ایران در تبلیغات خوب است اما در جنگیدن خوب نیست
+@withyashar
+</div>
+
+## WithYashar — post 14509
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزیر خزانه‌داری آمریکا، اسکات بسنت:
+«رژیم ایران در بازی با حاصل جمع صفر که واردش شده، بازنده خواهد بود.
+هر خسارتی که ایران به متحدان ما در خلیج فارس وارد کند، از محل دارایی‌های ایران جبران خواهد شد.
+هرگونه عوارض یا هزینه‌ای که برای عبور از تنگه خلیج فارس دریافت شود، با برداشت از حساب‌های ایران خنثی خواهد شد.
+هر حمله‌ای که ایران انجام دهد، فقط پیامدهای اقتصادی و مالی سنگین‌تری برای این کشور به همراه خواهد داشت.
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342849
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342849_1781183022.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: President Trump puts Iran on notice after warning the regime he'll hit them "VERY HARD" today.
+
+"They have no defense. They can't do anything about it... We dropped $250 million worth of bombs on them last night."
+
+Speaking on @foxandfriends, Trump argued Iran is already feeling the effects of the strikes.
+
+"They're in submission, they just don't know it yet."
+</div>
+
+## pm_afshaa — post 93619
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93619_1781183025.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ به فاکس نیوز: امشب بمباران بیشتری علیه ایران انجام خواهد شد و این بمباران بزرگتر و قدرتمندتر خواهد بود.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93618
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93618_1781183025.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: اگر ایرانی‌ها توافق رو امضا نکنن، بشدت بمباران خواهند شد؛ عجله کنید، هنوز میتونیم به بزرگترین توافق تاریخ برسیم!
+
+ایرانی‌ها بسیار متکبر و مغرور هستند حتی در مذاکرات، اما من دوست دارم همین الان با هم توافق کنیم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93617
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93617_1781183026.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: ما با جنگنده و هواپیما‌های خود بر فراز تهران پرواز می‌کنیم و ایرانی‌ها از آن خبر ندارن. ایران در تبلیغات خوبه اما در جنگیدن خوب نیست.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93616
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تو کانال زاپاسمون حتما جوین شین همین الان
+
+👇
+👇
+
+https://t.me/pmtvzapas
+https://t.me/pmtvzapas
+</div>
+
+## pm_afshaa — post 93615
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93615_1781183027.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فاکس نیوز: ترامپ میگه ایالات متحده در حال مذاکره با جمهوری اسلامیه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## kianmeli1 — post 87931
+
+<div align="center">
+  <a href="telegram/content/kianmeli1_87931_1781183028.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ویدیوی دوربین مداربسته یک نمایندگی خودرو از لحظه بمباران در نارمک تهران
+۱۸ اسفند ۱۴۰۴
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 341702
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341702_1781183030.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روز ۲۱ خرداد سالگرد تولد کیان پیرفلک است؛ کودک اهل ایذه که در جریان اعتراضات ۱۴۰۱ با گلوله کشته شد و نام و روایت زندگی کوتاهش با عبارت «به نام خدای رنگین کمان» در حافظه بسیاری از ایرانیان جای گرفت
+</div>
+
+## IranIntlTV — post 341701
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341701_1781183033.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهوری آمریکا، در مصاحبه با فاکس‌نیوز گفت جنگ تنها با تسلیم جمهوری اسلامی متوقف خواهد شد و افزود آمریکا هنوز با تمام قدرت به ایران حمله نکرده است.
+او تاکید کرد با وجود ادامه گفت‌وگوها با تهران، ترجیح می‌دهد آمریکا جزیره خارک را تصرف کند.
+ترامپ پیش‌تر در تروت سوشال نوشت ایالات متحده «امشب ایران را بسیار شدید هدف قرار خواهد داد» و بار دیگر مدعی شد بخش عمده توان دفاعی و تهاجمی جمهوری اسلامی از بین رفته است.
+https://iranintl.com/202606115204
+</div>
+
+## Persian_Trend_Official — post 16728
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ در مصاحبه با فاکس نیوز: ما در حال مذاکره با ایران هستیم. 📝 Amir 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 22304
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 سناتور لیندسی گراهام درباره ایران: ‏امیدوارم امشب شاهد تغییر رفتار باشیم. ‏اگر این [مذاکرات] آنها را به پای میز مذاکره نیاورد، باید استراتژی خود را تغییر دهید. با تمام قوا وارد عمل شوید. آنها را از میدان به در کنید. ‏بگذارید مردم ایران به مرور زمان کشور…
+</div>
+
+## IranianMinds — post 22303
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22303_1781183034.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 سناتور لیندسی گراهام درباره ایران:
+‏امیدوارم امشب شاهد تغییر رفتار باشیم.
+
+‏اگر این [مذاکرات] آنها را به پای میز مذاکره نیاورد، باید استراتژی خود را تغییر دهید. با تمام قوا وارد عمل شوید. آنها را از میدان به در کنید.
+
+‏بگذارید مردم ایران به مرور زمان کشور خود را پس بگیرند و پس از توافق با ایران، به سمت صلح بین عربستان و اسرائیل حرکت کنند.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22302
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فوری ترامپ هواپیماهای آمریکایی بر فراز تهران در حال پرواز هستند و آن‌ها از این موضوع بی‌خبرند. @IranianMinds
+</div>
+
+## IranianMinds — post 22301
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فوری ترامپ
+
+هواپیماهای آمریکایی بر فراز تهران در حال پرواز هستند و آن‌ها از این موضوع بی‌خبرند.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22300
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 دونالد ترامپ به فاکس‌نیوز:
+
+آمریکا در حال مذاکره با ایران است. او افزود که ترجیحش این است که جزیره خارک را تصرف کنند، هرچند نسبت به تمایل آمریکا برای انجام چنین اقدامی تردید دارد.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 283434
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻تشدید درگیری ایران و آمریکا موجب افت بورس هند شد
+
+تشدید درگیری میان ایران و آمریکا و نگرانی از تداوم نرخ‌های بالای بهره در ایالات متحده، بازار سهام هند را برای دومین روز متوالی با افت روبه‌رو کرد.
+
+شاخص نیفتی ۵۰، روز پنجشنبه ۰/۲۳ درصد و شاخص سنسکس ۰/۲ درصد کاهش یافتند.
+
+همچنین بیشتر شاخص‌های بخشی از بازار و سهام شرکت‌های کوچک و متوسط نیز با افت همراه بودند.
+
+این کاهش در حالی بود که ایران و آمریکا برای دومین روز متوالی به تبادل حملات پرداختند.
+
+دونالد ترامپ، رئیس‌جمهور آمریکا، هشدار داده است در صورتی که تهران با توافق صلح موافقت نکند، حملات بیشتری در راه خواهد بود.
+
+به گزارش رویترز در همین حال آمارهای تازه نشان می‌دهد که تورم مصرف‌کننده در آمریکا در ماه مه با سریع‌ترین آهنگ در سه سال گذشته افزایش یافته است؛ موضوعی که احتمال تداوم نرخ‌های بالای بهره را تقویت کرده و می‌تواند بر جریان سرمایه‌گذاری در بازارهای نوظهور از جمله هند تاثیر بگذارد.
+
+در میان گروه‌های مختلف، سهام شرکت‌های فناوری اطلاعات ۱/۶ درصد کاهش یافت و برای هفتمین جلسه متوالی در مسیر نزولی قرار گرفت. تحلیلگران علاوه بر نگرانی‌های اقتصادی، افزایش نگرانی‌ها درباره تاثیر هوش مصنوعی بر صنعت نرم‌افزار را نیز از عوامل فشار بر این بخش می‌دانند.
+
+در مقابل، سهام بانک‌های خصوصی با رشد ۰/۶ درصدی بخشی از افت بازار را جبران کرد.
+
+https://bbc.in/4v5B0d7
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 391701
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تعداد حضورم توی جنگا داره از حضرت علیم بیشتر میشه.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391700
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391700_1781183036.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این کلیپ واقعا شاهکاره، هادی رو حتما باید برای نگهبانی اماکن مهم استخدام کنن😂
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/03/21 16:23
 ---
 

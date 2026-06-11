@@ -7,6 +7,194 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/21 21:44
+---
+
+## VahidOOnLine — post 245024
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245024_1781201668.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اکسیوس به نقل از سه منبع آگاه گزارش داد اختلافات اصلی تهران و واشینگتن برای رسیدن به یک تفاهم‌نامه، چهارشنبه در جریان گفت‌وگو میان مقام‌های جمهوری اسلامی و میانجی‌های قطری برطرف شده است.
+
+بر اساس این گزارش، مقام‌های ایرانی پنج‌شنبه به چند کشور اعلام کرده‌اند مذاکرات تهران به توافقی اصولی منجر شده، اما مجتبی خامنه‌ای باید تایید نهایی را صادر کند.
+
+این منابع خاطرنشان کردند که هم ایرانی‌ها و هم قطری‌ها تاکید کرده‌اند که حملات آمریکا در طول شامگاه چهارشنبه، تردیدهای ایران نسبت به نیت واقعی ترامپ را به شکل قابل توجهی افزایش داده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14543
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سه منبع آگاه از مذاکرات به اکسیوس ادعا کردند که اختلافات کلیدی در جریان گفتگوهای روز چهارشنبه بین مقامات ایرانی و میانجی‌های قطری حل شده است.
+@withyashar
+</div>
+
+## mwarmonitor — post 10734
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_10734_1781201669.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسرائیل بعد از دیدن پست ترامپ
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 342871
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: Trump nominates former SEC Chairman Jay Clayton to replace Tulsi Gabbard as next director of national intelligence
+</div>
+
+## pm_afshaa — post 93647
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نیویورک‌پست: ترامپ همین الان به من گفت که توافقی با ایران کاملاً نهایی شده
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 341766
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341766_1781201670.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اکسیوس به نقل از سه منبع آگاه گزارش داد اختلافات اصلی تهران و واشینگتن برای رسیدن به یک تفاهم‌نامه، چهارشنبه در جریان گفت‌وگو میان مقام‌های جمهوری اسلامی و میانجی‌های قطری برطرف شده است.
+
+بر اساس این گزارش، مقام‌های ایرانی پنج‌شنبه به چند کشور اعلام کرده‌اند مذاکرات تهران به توافقی اصولی منجر شده، اما مجتبی خامنه‌ای باید تایید نهایی را صادر کند.
+
+این منابع خاطرنشان کردند که هم ایرانی‌ها و هم قطری‌ها تاکید کرده‌اند که حملات آمریکا در طول شامگاه چهارشنبه، تردیدهای ایران نسبت به نیت واقعی ترامپ را به شکل قابل توجهی افزایش داده است.
+https://iranintl.com/202606119062
+</div>
+
+## FarsiVOA — post 220411
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺آمریکا شرکت نفت حکومتی کوبا را تحریم کرد
+
+▪️مارکو روبیو، وزیر امور خارجه ایالات متحده، روز پنجشنبه ۲۱ خرداد اعلام کرد که دولت آمریکا شرکت انرژی حکومتی کوبا، «یونیون کوبا-پترولئو»، را بر اساس فرمان اجرایی ۱۴۴۰۴ رئیس جمهوری دونالد ترامپ تحریم کرده است.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/us-sanctions-cubas-state-owned-energy-company-/8159794.html
+</div>
+
+## FarsiVOA — post 220410
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هشدار ملونی به جمهوری اسلامی و تاکید بر موضع واحد اروپا در مذاکرات با روسیه
+</div>
+
+## Persian_Trend_Official — post 16757
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16757_1781201671.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به گزارش I24News، مقامات اسرائیلی از اعلام توقف بمباران ایران توسط رئیس جمهور ترامپ غافلگیر شدند.
+
+یک مقام اسرائیلی به i24news گفت که مقامات در حال حاضر به اظهارات عمومی ترامپ تکیه می کنند و گفت که اسرائیل باید قبل از تعیین دقیق بودن ارزیابی رئیس جمهور، پاسخ رسمی ایران را بشنود و خاطرنشان کرد که تجربه گذشته نشان می دهد که ممکن است همیشه اینطور نباشد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16756
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رویترز: ایران پیش‌نویس نهایی توافق را از طریق قطر به ایالات متحده ارسال کرده است.
+
+یک منبع نزدیک به مقامات ارشد ایران اعلام کرد که متن این توافق شامگاه چهارشنبه نهایی شده و در صورت دریافت تأیید نهایی، روند اجرای آن آغاز خواهد شد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 22330
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ به نیویورک پست : توافق «بلند مدت» با ایران تقریبا نهایی شده.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22329
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 آکسیوس شب گذشته: مذاکرات فرو پاشیده و به پایان رسیده است
+
+🔴 آکسیوس امشب: اختلافات کاهش یافته و توافق قریب‌الوقوع است
+
+@IranianMinds
+</div>
+
+## alonews — post 127207
+
+<div align="center">
+  <a href="telegram/content/alonews_127207_1781201672.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سه منبع به اکسيوس می‌گویند که شکاف‌های کلیدی در مذاکرات ایران در جریان مذاکرات چهارشنبه با میانجیگران قطری حل شده است. 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127206
+
+<div align="center">
+  <a href="telegram/content/alonews_127206_1781201673.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈مقامات اسرائیلی از توییت ترامپ غافلگیر شدند.
+
+
+🔴یکی از مقامات به i24NEWS گفت که مقامات اسرائیلی در حال حاضر به اظهارات علنی ترامپ متکی هستند و تأکید کرد که اسرائیل پیش از تعیین صحت ارزیابی رئیس‌جمهور آمریکا، نیاز دارد ببیند پاسخ رسمی ایران چه بوده
+
+
+🔴او خاطرنشان کرد که تجربه گذشته نشان می‌دهد این ارزیابی ممکن است همیشه دقیق نباشد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127205
+
+<div align="center">
+  <a href="telegram/content/alonews_127205_1781201673.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فووووووووووووووووووودی
+</div>
+
+## alonews — post 127204
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فووووووووووووووووووودی
+</div>
+
+---
 📅 بروزرسانی: 1405/03/21 21:34
 ---
 

@@ -7,6 +7,452 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/21 04:22
+---
+
+## VahidOOnLine — post 244840
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244840_1781139150.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های ایرانی و روابط عمومی ارتش جمهوری اسلامی اعلام کردند در پی حملات آمریکا به جنوب ایران، ارتش با پهپادها ناوگان پنجم آمریکا در بحرین را هدف قرار داده است. در این بیانیه‌ها آمده است آنتن‌های ارتباطی و تاسیسات راداری سامانه پاتریوت هدف قرار گرفته‌اند. قرارگاه مرکزی خاتم‌الانبیا نیز اعلام کرد توقف حملات آمریکا نتیجه پاسخ نظامی ایران بوده و این پاسخ ادامه خواهد داشت. iranintl
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14481
+
+<div align="center">
+  <img src="telegram/content/WithYashar_14481_1781139150.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کرج
+@withyashar
+</div>
+
+## WithYashar — post 14480
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/boost/withyashar
+</div>
+
+## WithYashar — post 14477
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کرج
+@withyashar
+</div>
+
+## pm_afshaa — post 93560
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_93560_1781139151.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کرج
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93559
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_93559_1781139152.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ورامین الان
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93558
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93558_1781139153.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴طبق گزارش‌ها، تاسیسات موشکی بیدگنه کرج بمباران شده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93557
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93557_1781139153.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدویی از انفجار در کرج
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93556
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ورامین صدای انفجار
+</div>
+
+## pm_afshaa — post 93555
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کرج همچنان دارن میزنن
+</div>
+
+## pm_afshaa — post 93554
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_93554_1781139155.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کرج الان
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93553
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تهران نمیاید؟
+</div>
+
+## pm_afshaa — post 93552
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دو انفجار شدید و جدید در کرج
+</div>
+
+## pm_afshaa — post 93551
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+میگن پارچین هم زدن صدای انفجار اومده
+</div>
+
+## VahidOnline — post 76186
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیام‌های دریافتی:
+
+درود صدای انفجار در شهر کنگان ۴:۱۷
+
+شهر کنگان صدای انفجار
+
+کنگانو زدن ۴:۱۸
+
+سلام شهر کنگان در جنوب کشور صدای انفجار
+
+کنگان رو زدن
+
+سلام.
+کنگانوووو زدن
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 76185
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک صدای دیگه از کرج همین الان ساعت ۴:۱۰
+
+سلام وحید
+یکی دیگه الان
+
+همین الان دوباره کرج
+ساعت ۴:۱۰، انفجار دوباره
+
+۴ده دیقه کرج کمالشهر
+
+وحید صدا های جدید ساعت ۴ و ۱۰
+
+ساعت ۴:۱۰ یه تک انفجار دیگه گلشهر کرج
+صدای انفجار خیلی بلند و طولانی بود
+
+ساعت ٤:١٠ دقيقه باز صداي انفجار هشتگرد شنيده شد
+
+مهرشهر کرج ساعت ۴:۱۰ صدای انفجار
+
+همین الان ۴:۱۰ گلشهر مهرشهر
+دوباره صدای انفجار خیلی شدید به همرذه لرزش زمین
+
+
+سلام وحید جان کرج دوباره صدای انفجار همین الان ۴:۱۱ دقیقه
+
+و کلی پیام مشابه دیگر که نقل نمی‌کنم.
+
+📡 @VahidOnline
+</div>
+
+## kianmeli1 — post 87920
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری-تاسیسات موشکی بیدگنه کرج بمباران شده است
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87919
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری_محدوده «سپاه پیشوا ورامین» حداقل دو انفجار
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 341606
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341606_1781139156.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های ایرانی و روابط عمومی ارتش جمهوری اسلامی اعلام کردند در پی حملات آمریکا به جنوب ایران، ارتش با پهپادها ناوگان پنجم آمریکا در بحرین را هدف قرار داده است. در این بیانیه‌ها آمده است آنتن‌های ارتباطی و تاسیسات راداری سامانه پاتریوت هدف قرار گرفته‌اند. قرارگاه مرکزی خاتم‌الانبیا نیز اعلام کرد توقف حملات آمریکا نتیجه پاسخ نظامی ایران بوده و این پاسخ ادامه خواهد داشت. iranintl.com/202606116683
+</div>
+
+## Shin_Persian — post 6918
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Thu, 11 Jun 2026 00:48:19 UTC
+
+AA activity over Bushehr, Bushehr Province, #Iran
+
+ترجمه خودکار فارسی
+
+فعالیت پدافند هوایی بر فراز بوشهر، استان بوشهر، #Iran
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 220331
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220331_1781139156.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️گزارش‌های تازه مردمی در کانال وحید‌آنلاین از ادامه انفجارها در کرج خبر می‌دهند. همچنین کاربران از شنیده شدن صدای انفجارهای شدید در پیشوای ورامین خبر داده‌اند. دونالد ترامپ گفته است که اگر جمهوری اسلامی توافق نکند، فردا شب هم شدیدا به آن حمله می‌شود.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220330
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220330_1781139156.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ویدیوی منتسب به انفجار در اطراف فرودگاه پیام کرج - پنج شنبه ۲۱ خرداد ۱۴۰۵
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 16670
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16670_1781139157.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢 موسوی: تنگه مقدس هرمز را ناامن می‌کنید؟! منطقه را برایتان جهنم می‌کنیم.
+
+💢متن پیام به این شرح است:
+
+💢تنگه مقدس هرمز را ناامن می‌کنید؟! از سراسر ایران منطقه را برایتان جهنم می‌کنیم.
+
+💢این پاسخ جسارت آمریکایی‌ها در منطقه است باذن الله.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16669
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حملات به تاسیسات موشکی بیدگنه انجام شده
+</div>
+
+## Persian_Trend_Official — post 16668
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16668_1781139157.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کرج
+</div>
+
+## Persian_Trend_Official — post 16667
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 صداوسیما: هم اکنون؛ شنیده شدن صدای دو انفجار در بندرعباس
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16666
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ دو انفجار شدید و جدید در کرج 📝 Nick 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16665
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16665_1781139159.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ورامین انفجار گزارش شده
+</div>
+
+## Persian_Trend_Official — post 16664
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ورامین انفجار گزارش شده
+</div>
+
+## Persian_Trend_Official — post 16663
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ دو انفجار شدید و جدید در کرج
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 22270
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22270_1781139159.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 سید جقی فرمانده هوا فضای سپاه :
+
+تنگه ی مقدس هرمز رو ناامن میکنید ؟ کل‌ منطقه رو براتون تبدیل به جهنم میکنیم.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22269
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 انفجار در ورامین
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22268
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22268_1781139160.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کرج.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22267
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22267_1781139162.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شلیک موشک از ملایر
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 283376
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️گزارش‌ها از شنیدن صدای انفجار در حوالی کرج
+
+ساکنان کرج از شنیدن صدای انفجار در مناطق اطراف این شهر مجاور پایتخت خبر می‌دهند.
+
+دقایقی پیش تعدادی از شهروندان ساکن مناطق مختلف کرج با ارسال پیام برای وحیدآنلاین، از شنیدن دست کم دو انفجار خبر دادند.
+
+برخی از گزارش‌ها هم حاکی از انفجارهایی در ورامین در جنوب تهران است.
+
+دونالد ترامپ ساعتی پیش در گفت‌وگو با فاکس نیوز از حمله به اهدافی در عمق خاک ایران و چند کیلومتری تهران خبر داده و گفته بود از موشک‌های تاماهاک در حمله بامداد پنجشنبه استفاده شده است.
+
+https://bbc.in/4fIJPot
+@BBCPersian
+</div>
+
+## BBCPersian — post 283375
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283375_1781139162.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یگاه اطلاع رسانی وزارت نیرو ایران اعلام کرد که پس از حملات آمریکا به مخازن ذخیره آب در شهر کوهستک و بخش بمانی شهرستان سیریک با تلاش نیروهای آبفای، «روند آبرسانی به این مناطق پایدار شد.»
+
+عبدالحمید حمزه‌پور، مدیرعامل آب و فاضلاب استان هرمزگان هم از رفع مشکل قطع آب آشامیدنی روستاهای سیریک خبر داده است.
+
+به گفته این مقام محلی بعد از حدود ۱۲ ساعت از قطع آب که بر اثر حملات هوایی شب گذشته آمریکا به مناطقی در جنوب ایران از جمله سیریک، روی داده بود، ماموران اداره آب توانستند با تعمیر خطوط لوله، آب آشامیدنی شهر کوهستک و روستاهای بخش بمانی را مجددا وصل کنند.
+
+طی حمله هوایی چهارشنبه شب از سوی آمریکا و به گفته شرکت آب و فاضلاب استان هرمزگان ۲ مخزن بتونی ذخیره آب با ظرفیت ۲هزار و ۵۰۰ مترمکعب در بخش بمانی این استان، «هدف اصابت موشک قرار گرفت و به طور کامل از مدار بهره‌برداری خارج شد.»
+
+این مخازن آب شرب شهر کوهستک و ۱۰ روستای اطراف را تامین می‌کرد.
+
+
+📷iribnews
+https://bbc.in/4fIJPot
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 391669
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیشوا صدای دوتا انفجار شدید
+
+ساعت ۴:۶ ورامین
+۲ تا صدای انفجار
+
+ساعت ۴:۰۶ صبح پیشوا ورامین صدای دو تا انفجار اومد و مثل اینکه سپاه پیشوا رو زدن
+
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/03/21 04:12
 ---
 

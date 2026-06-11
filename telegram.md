@@ -7,6 +7,81 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/22 03:23
+---
+
+## FoxNewsTwitter — post 342889
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+A historic Knicks comeback turned into chaos outside Madison Square Garden.
+
+Video shows fans flooding Midtown, climbing on cars and smashing a yellow cab as one person waved a Palestinian flag from the crowd.
+
+The Knicks had just pulled off the biggest comeback in NBA Finals history — but the celebration quickly spilled into destruction in the streets.
+
+Police say thousands packed the area after New York’s 107-106 win over the Spurs, with officers arresting nearly 60 people during the chaos.
+</div>
+
+## pm_afshaa — post 93667
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93667_1781222018.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: با ایران به توافق رسیدیم، توافق خیلی خوبی بود، دیگه هیچ سلاح هسته‌ای در کار نخواهد بود. تقریباً همه‌چیز نهایی شده و ما به هر چیزی که می‌خواستیم رسیدیم. مهم‌ترین بخش ماجرا اینه که ایران هیچ سلاح هسته‌ای نخواهد داشت؛ نه خودش می‌سازه و نه از جایی می‌خره.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## VahidOnline — post 76254
+
+<div align="center">
+  <a href="telegram/content/VahidOnline_76254_1781222019.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: امروز جنگ با ایران را پایان دادیم.
+و آن‌ها موافقت کرده‌اند که هرگز سلاح هسته‌ای نداشته باشند.
+چیزی که ما روی آن اصرار داشتیم.
+این کل هدف بود. این ۹۵٪ ماجرا بود.
+و آن‌ها این کار را به قدرتمندترین شکل ممکن انجام دادند.
+پس فقط می‌خواهم از همه تشکر کنم.
+
+📡 @VahidOnline
+</div>
+
+## IranianMinds — post 22361
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 رئیس‌جمهور ترامپ درباره ایران:
+
+ما امروز جنگ با ایران را پایان دادیم و آن‌ها موافقت کرده‌اند که هرگز سلاح هسته‌ای نداشته باشند؛ چیزی که ما بر آن اصرار داشتیم. این تمام هدف بود. ۹۵ درصد موضوع همین بود و آن‌ها این کار را به قدرتمندترین شکلی که ممکن است انجام داده‌اند.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22360
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 رئیس‌جمهور ترامپ درباره ایران:
+
+با ایران به توافق رسیدیم. معامله بزرگی انجام دادیم. هیچ سلاح هسته‌ای وجود نخواهد داشت.
+
+مردم به زودی شروع به بازگشت به خانه خواهند کرد. تقریباً تمام شده. ما همه چیزهایی که می‌خواستیم را گرفتیم.
+
+نکته مهم این است که در ایران سلاح هسته‌ای وجود نخواهد داشت. یعنی نه ساخته شود و نه خریداری شود.
+
+@IranianMinds
+</div>
+
+---
 📅 بروزرسانی: 1405/03/22 03:14
 ---
 

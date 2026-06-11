@@ -7,6 +7,388 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/21 23:13
+---
+
+## VahidOOnLine — post 245041
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245041_1781207020.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بر اساس گزارش‌های رسیده به ایران‌اینترنشنال، جاوید (رضا) قلی‌پور شامگاه پنج‌شنبه ۱۸ دی، حوالی ساعت ۱۱ شب، در حصارک اسلامشهر و در جریان انقلاب ملی با گلوله جنگی نیروهای حکومتی کشته شد.
+
+بنا بر این گزارش، خانواده او برای تحویل پیکرش در کهریزک ناچار شدند خودروی خود را بفروشند و پس از پرداخت پول، موفق به دریافت پیکر شدند.
+
+پیکر جاوید (رضا) قلی‌پور پس از تحویل به خانواده، در زادگاهش، یکی از روستاهای بخش شوقان در استان خراسان شمالی به خاک سپرده شد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245040
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245040_1781207021.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+الحدث به نقل از یک مقام ارشد گزارش داد هیات قطری که از تهران بازگشت، موافقت جمهوری اسلامی با پیش‌نویس نهایی توافق را اعلام کرد.
+
+همچنین دفتر امیر قطر اعلام کرد که تمیم بن حمد آل ثانی، امیر این کشور، و دونالد ترامپ، رییس‌جمهوری ایالات متحده، پنج‌شنبه در یک تماس تلفنی نتایج رایزنی‌های آمریکا و ایران را که به پیشرفت در تفاهم‌نامه پیشنهادی در چارچوب یک مسیر مذاکراتی منجر شده بود، بررسی کردند.
+
+دفتر امیر قطر در بیانیه‌ای افزود که ترامپ به امیر قطر گفته است تلاش‌ها برای تکمیل مراحل نهایی پیش از اعلام ترتیبات مربوط به امضای یک توافق ادامه دارد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245039
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245039_1781207022.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️به گزارش خبرگزاری فارس، یک منبع آگاه نزدیک به تیم مذاکره‌کننده جمهوری اسلامی ایران اعلام کرد که هنوز هیچ متنی برای یادداشت تفاهم اولیه با آمریکا تایید نشده است. فارس تهدید ترامپ به انجام حملات گسترده در پنجشنبه‌شب و سپس لغو آن را یک «عملیات رسانه‌ای» توصیف کرده و نوشت که او قصد دارد سناریوی «تسلیم ایران در برابر بمباران» را بسازد.
+
+بر اساس گزارش فارس، حدود دو هفته پیش متن پیش‌نویس تفاهم‌نامه میان مذاکره‌کنندگان تقریبا نهایی شده بود، اما ترامپ برخلاف توافق قبلی، خواستار اضافه شدن بندهای جدیدی شد، اما با تشدید تنش‌ها در تنگه هرمز و حمله به بیروت، روند مذاکرات مسکوت ماند. فارس می‌گوید آمریکا از اضافه کردن این بندها منصرف شده و به متن اولیه که دو هفته قبل به تایید جمهوری اسلامی رسیده بود، بازگشته است. بر این اساس، فارس تصویب متن تفاهم‌نامه از سوی مقام‌های جمهوری اسلامی را محتمل ارزیابی کرده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14558
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: ما به توافقی دست یافتیم که ایران را از داشتن سلاح هسته ای باز می دارد.
+من همین الان با نتانیاهو صحبت کردم.
+اسناد ایران تقریباً در مرحله نهایی است.
+من فقط با رهبران قطر، امارات و عربستان سعودی صحبت کردم.
+@withyashar
+</div>
+
+## WithYashar — post 14557
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دفتر امیر قطر:
+ترامپ تأیید کرد که تفاهمات ایالات متحده آمریکا و ایران مورد تأیید همه طرف‌ها است
+@withyashar
+</div>
+
+## mwarmonitor — post 10742
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ می‌گوید: این توافق باید طی چند روز آینده نهایی شود—احتمالاً مراسم امضا در اروپا برگزار خواهد شد و این اتفاق یک چیز بسیار خوب است. بازار سهام بالا رفته است. بازار سهام این توافق را دوست دارد. اگر پایین برود یعنی آن را نمی‌پسندد.
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 342875
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342875_1781207023.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH LIVE: President Trump signs a proclamation at the White House https://twitter.com/i/broadcasts/1vJpPPVdRqmJE
+</div>
+
+## FoxNewsTwitter — post 342874
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342874_1781207024.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NEW: President Trump is nominating former SEC Chairman Jay Clayton as Director of National Intelligence, following pushback from lawmakers over Bill Pulte, who was named to serve as acting DNI, @markpmeredith reports. | @AmericaRpts @johnrobertsFox
+</div>
+
+## iaghapour — post 2669
+
+<div align="center">
+  <img src="telegram/content/iaghapour_2669_1781207027.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎯 سرور مجازی با ترافیک واقعی ۱ به ۱ – ویژه تانل سری no-bcp38
+
+مجموعه ایران مانیتور ارائه‌دهنده زیرساخت پایدار وی‌پی‌اس، با شرایط ویژه برای کاربران حساس به کیفیت و قیمت
+
+• 🟦 دیتاسنتر شاتل رنج ۹۴:
+🔵 ترافیک واقعی ۱ به ۱
+🔵 ماندگاری کامل ترافیک — حجم مصرف‌نشده‌ در پایان ماه صفر نمی‌شوند
+
+✅ بازگشت وجه کامل تا ۷ روز بی قید و شرط
+✅ پایداری ۹۹.۹۹٪
+خدمات ایران مانیتور مناسب برای کاربرانی است که به کیفیت و پشتیبانی حرفه‌ای اهمیت می‌دهند.
+
+🌐 https://iranmonitor.net/services/vps
+📞 ارتباط از طریق وبسایت یا پیام مستقیم برای دریافت مشاوره و سفارش @IranMonitorAdmin
+ایران مانیتور – انتخاب حرفه‌ای‌ها
+</div>
+
+## VahidOnline — post 76242
+
+<div align="center">
+  <a href="telegram/content/VahidOnline_76242_1781207027.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ درباره ایران: ممکن است آخر هفته در اروپا قراردادی امضا شود. من نمی‌توانم آنجا باشم، اما جی دی ونس آنجا خواهد بود.
+</div>
+
+## VahidOnline — post 76241
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76241_1781207028.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دفتر امیر قطر اعلام کرد که تمیم بن حمد آل ثانی، امیر این کشور، و دونالد ترامپ، رییس‌جمهوری ایالات متحده، پنج‌شنبه در یک تماس تلفنی نتایج رایزنی‌های آمریکا و ایران را که به پیشرفت در تفاهم‌نامه پیشنهادی در چارچوب یک مسیر مذاکراتی منجر شده بود، بررسی کردند.
+
+دفتر امیر قطر در بیانیه‌ای افزود که ترامپ به امیر قطر گفته است تلاش‌ها برای تکمیل مراحل نهایی پیش از اعلام ترتیبات مربوط به امضای یک توافق ادامه دارد.
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 341788
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341788_1781207028.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بر اساس گزارش‌های رسیده به ایران‌اینترنشنال، جاوید (رضا) قلی‌پور شامگاه پنج‌شنبه ۱۸ دی، حوالی ساعت ۱۱ شب، در حصارک اسلامشهر و در جریان انقلاب ملی با گلوله جنگی نیروهای حکومتی کشته شد.
+
+بنا بر این گزارش، خانواده او برای تحویل پیکرش در کهریزک ناچار شدند خودروی خود را بفروشند و پس از پرداخت پول، موفق به دریافت پیکر شدند.
+
+پیکر جاوید (رضا) قلی‌پور پس از تحویل به خانواده، در زادگاهش، یکی از روستاهای بخش شوقان در استان خراسان شمالی به خاک سپرده شد.
+https://iranintl.com/202606111854
+</div>
+
+## IranIntlTV — post 341787
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341787_1781207029.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک لنچ ایرانی در آب‌های عمان هدف یک پهپاد قرار گرفت. یکی از سرنشینان این لنچ در ویدیویی که در صفحه اینستاگرامش منتشر کرده می‌گوید: نمی‌دانیم پهپاد متعلق به چه کشوری بود. او ادامه می دهد لنج با همه بارش غرق شد اما یک قایق موتوری کوچک همه سرنشینان را نجات داده و آن‌ها سالم هستند.
+@iranintltv
+</div>
+
+## IranIntlTV — post 341786
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341786_1781207031.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+الحدث به نقل از یک مقام ارشد گزارش داد هیات قطری که از تهران بازگشت، موافقت جمهوری اسلامی با پیش‌نویس نهایی توافق را اعلام کرد.
+
+همچنین دفتر امیر قطر اعلام کرد که تمیم بن حمد آل ثانی، امیر این کشور، و دونالد ترامپ، رییس‌جمهوری ایالات متحده، پنج‌شنبه در یک تماس تلفنی نتایج رایزنی‌های آمریکا و ایران را که به پیشرفت در تفاهم‌نامه پیشنهادی در چارچوب یک مسیر مذاکراتی منجر شده بود، بررسی کردند.
+
+دفتر امیر قطر در بیانیه‌ای افزود که ترامپ به امیر قطر گفته است تلاش‌ها برای تکمیل مراحل نهایی پیش از اعلام ترتیبات مربوط به امضای یک توافق ادامه دارد.
+https://iranintl.com/202606114783
+</div>
+
+## FarsiVOA — post 220420
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220420_1781207032.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️دونالد ترامپ، رئيس جمهوری آمریکا دقایقی قبل گفت: «ما به تازگی به یک توافق عالی در مورد جنگ با [جمهوری اسلامی] ایران رسیده‌ایم و قرار است اسناد نهایی شوند که باید طی چند روز آینده انجام شود. احتمالاً در اروپا امضا خواهیم داشت و این چیز خوبی است.»
+آقای ترامپ افزود جی‌دی ونس، معاون رئیس جمهوری برای توافق به اروپا می‌رود. او افزود بر اساس آن جمهوری اسلامی سلاح هسته‌ای نخواهد داشت و تنگه هرمز باز می‌شود.
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 16770
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16770_1781207032.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ در مورد توافق با ایران: ممکن است آخر هفته در اروپا توافق امضا شود. من نمی‌توانم آنجا باشم، اما جی دی ونس آنجا خواهد بود.
+
+همه آنها بسیار خوشحال هستند. تمام خاورمیانه خوشحال است. و خیلی فراتر از خاورمیانه. به محض اینکه آن را امضا کنیم، تنگه هرمز باز خواهد شد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16769
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16769_1781207035.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ در مورد توافق با ایران: ما توافقی داریم که ایران هرگز به سلاح هسته‌ای دست نخواهد یافت، که تمام هدف ما از انجام این کار همین بود.
+
+ابه زودی شاهد امضای آن خواهیم بود و اسناد در وضعیت تقریباً نهایی قرار دارند. پس خواهیم دید.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16768
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال رسمی پرشین ترند pinned «https://youtube.com/live/8dAoddRvNkw?feature=share»
+</div>
+
+## Persian_Trend_Official — post 16767
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16767_1781207038.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ در مورد توافق با ایران: ما به تازگی به یک توافق عالی در مورد جنگ با ایران دست یافتیم و قرار است اسناد نهایی شوند. باید طی چند روز آینده این کار را انجام دهیم.
+
+احتمالاً در اروپا قراردادی امضا خواهیم کرد و این اتفاق خوبی است. بازار سهام 1000 واحد افزایش یافته است. این یعنی آنها از این توافق خوششان آمده است.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16766
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://youtube.com/live/8dAoddRvNkw?feature=share
+</div>
+
+## BBCPersian — post 283475
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283475_1781207039.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌ ‌ ‌ ‌
+کایا کالاس، مسئول سیاست خارجی اتحادیه اروپا، در پیامی در شبکه اجتماعی ایکس اعلام کرد که با عباس عراقچی، وزیر امور خارجه ایران، صحبت تلفنی کرده است.
+
+او افزوده است: «از سرگیری حملات به کشورهای حاشیه خلیج فارس و زیرساخت‌های حیاتی آن‌ها غیرقابل قبول است.»
+
+او همچنین گفته است که با شیخ جراح جابر الاحمد الصباح، وزیر امور خارجه کویت، نیز درتماس بوده است.
+
+خانم کالاس تاکید کرده است: «بازگشت به یک جنگ تمام‌عیار، هزینه‌ای سنگین برای سراسر منطقه در پی خواهد داشت.»
+
+مسئول سیاست خارجی اتحادیه اروپا گفته است «مسیر دیپلماتیک» بهترین راه پایان دادن به این جنگ است.
+
+در عین حال آقای عراقچی گفته است که او در گفت‌وگو با خانم کالاس حملات اخیر آمریکا را محکوم کرده و آن را «نقض آشکار منشور سازمان ملل و حقوق بین‌الملل» دانسته است.
+
+آقای عراقچی اضافه کرده است که این حملات وضعیت آتش‌بس را «بی‌اثر» کرده است.
+
+https://bbc.in/43qVEIu
+📷EPA/Shutterstock
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 391749
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391749_1781207040.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ درباره ایران: ممکن است آخر هفته در اروپا قراردادی امضا شود. من نمی‌توانم آنجا باشم، اما جی دی ونس آنجا خواهد بود.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391748
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391748_1781207040.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یکی به این عقب مونده بگه که آمریکا صدام رو به این روز انداخت
+
+#عقل_عرزشی
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 127236
+
+<div align="center">
+  <a href="telegram/content/alonews_127236_1781207041.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ادامه کاهش قیمت نفت در پی اعلام توافق توسط ترامپ
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127235
+
+<div align="center">
+  <a href="telegram/content/alonews_127235_1781207041.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: تنگه هرمز بلافاصله پس از امضای توافق باز خواهد شد.
+
+
+🔴ما توافقی داریم که بر اساس آن، ایران هرگز سلاح هسته‌ای در اختیار نخواهد داشت.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127234
+
+<div align="center">
+  <a href="telegram/content/alonews_127234_1781207041.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: موضوع توافق در روزهای آینده حل و فصل خواهد شد. احتمالاً امضای توافق ایران در اروپا خواهد بود/به زودی امضا خواهیم کرد، این باید انجام شود و به سرعت انجام خواهد شد 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127233
+
+<div align="center">
+  <a href="telegram/content/alonews_127233_1781207042.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈قطر: رایزنی‌ها میان آمریکا و ایران به احراز پیشرفت در تفاهمات مطرح شده منجر شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127232
+
+<div align="center">
+  <a href="telegram/content/alonews_127232_1781207042.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: موضوع توافق در روزهای آینده حل و فصل خواهد شد. احتمالاً امضای توافق ایران در اروپا خواهد بود/به زودی امضا خواهیم کرد، این باید انجام شود و به سرعت انجام خواهد شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127231
+
+<div align="center">
+  <a href="telegram/content/alonews_127231_1781207042.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سی‌بی‌اس: احتمالاً تفاهم‌نامه آمریکا و ایران هفته آتی امضا می‌شود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/21 23:03
 ---
 

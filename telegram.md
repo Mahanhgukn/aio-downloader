@@ -7,6 +7,203 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/21 18:33
+---
+
+## VahidOOnLine — post 244976
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244976_1781190219.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ابراهیم عزیزی، رییس کمیسیون امنیت ملی مجلس، در جمع خبرنگاران گفت: «اگر دونالد ترامپ اقدام محاسبه‌نشده‌ای انجام دهد، پاسخی دریافت خواهد کرد که در تاریخ ثبت شود.»
+
+عزیزی ادامه داد: «رییس‌جمهوری آمریکا دچار توهم شده، توان رزمی ما در جزیره خارک بسیار بالاست و برای مقابله با هرگونه تهدیدی آماده هستیم.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244975
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244975_1781190220.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ابراهیم عزیزی، سخنگوی کمیسیون امنیت ملی مجلس، در جمع خبرنگاران گفت: «اگر دونالد ترامپ اقدام محاسبه‌نشده‌ای انجام دهد، پاسخی دریافت خواهد کرد که در تاریخ ثبت شود.»
+
+عزیزی ادامه داد: «رییس‌جمهوری آمریکا دچار توهم شده، توان رزمی ما در جزیره خارک بسیار بالاست و برای مقابله با هرگونه تهدیدی آماده هستیم.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## mwarmonitor — post 10721
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_10721_1781190221.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نیروهای آمریکا: سومین نفتکش متخلف در خلیج عمان را از کار انداختیم تَمپا، فلوریدا — فرماندهی مرکزی آمریکا (CENTCOM) اعلام کرد نیروهای آمریکایی ساعت ۱۱:۲۰ شب به وقت شرق آمریکا در ۱۰ ژوئن، یک نفتکش را در خلیج عمان از کار انداختند؛ این کشتی با نقض «محاصره علیه…
+</div>
+
+## FoxNewsTwitter — post 342856
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: Vice President JD Vance's chief of staff set to depart White House role
+</div>
+
+## pm_afshaa — post 93630
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فارس: به‌دلیل استفاده ارتش آمریکا از زیرساخت‌های متعلق به ایلان ماسک، از جمله استارلینک، نیروهای نظامی ایران در حال بررسی هدف قرار دادن هلدینگ‌ها و شرکت‌های تحت مدیریت اون در حملات احتمالی آینده هستن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 341736
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341736_1781190222.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ابراهیم عزیزی، رییس کمیسیون امنیت ملی مجلس، در جمع خبرنگاران گفت: «اگر دونالد ترامپ اقدام محاسبه‌نشده‌ای انجام دهد، پاسخی دریافت خواهد کرد که در تاریخ ثبت شود.»
+
+عزیزی ادامه داد: «رییس‌جمهوری آمریکا دچار توهم شده، توان رزمی ما در جزیره خارک بسیار بالاست و برای مقابله با هرگونه تهدیدی آماده هستیم.»
+https://iranintl.com/202606117205
+</div>
+
+## IranIntlTV — post 341735
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341735_1781190222.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قانون‌گذاران بریتانیا در مجلس اعیان پنج‌شنبه از دولت این کشور خواستند لایحه جدید مقابله با تهدیدهای دولتی را هرچه سریع‌تر از پارلمان عبور دهد. اعضای مجلس اعیان با اشاره به حملات منتسب به جمهوری اسلامی علیه یهودیان و روزنامه‌نگاران در بریتانیا، خواستار پیشبرد این طرح شدند.
+لرد جان کرایر سپاه پاسداران را «آدم‌کش‌های روانی» توصیف کرد و از وزیران خواست این لایحه را «هرچه سریع‌تر» پیش ببرند. او به محکومیت اخیر دو مرد به دلیل حمله با چاقو به پوریا زراعتی، خبرنگار ایران اینترنشنال، اشاره کرد.
+دیوید هنسون، وزیر کشور بریتانیا، گفت در صورت تصویب این لایحه در هر دو مجلس پارلمان، افراد محکوم به جرایم مرتبط با تهدیدهای دولتی ممکن است با مجازات حداکثر ۱۴ سال زندان روبه‌رو شوند.
+@iranintltv
+</div>
+
+## IranIntlTV — post 341733
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341733_1781190224.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهوری آمریکا، برای دومین شب پیاپی اعلام کرد: «ایالات متحده امشب بسیار سخت به ایران حمله خواهد کرد.» او همچنین گفت آمریکا در آینده کنترل جزیره خارک و برخی زیرساخت‌های نفتی ایران را در دست خواهد گرفت.
+
+جزییات بیشتر با بابک اسحاقی و سمیرا قرایی، خبرنگاران ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## FarsiVOA — post 220388
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220388_1781190225.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرخنده پیمانی در میدان: زنان افغانستان می‌گویند طالبان در سرکوب زنان از شیوه‌های جمهوری اسلامی الهام می‌گیرند!
+</div>
+
+## BBCPersian — post 283457
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+از خیابان تا جام جهانی چقدر فاصله است؟
+توپ پلاستیکی رو یادتون می آد، راستی گل کوچیک هنوز هست؟
+
+گل‌کوچیک اسم‌اش ساده است، اما برای خیلی‌ها یک دنیا خاطره است. یک کوچه باریک، دوتا سنگ که می‌شد دروازه و یک توپ پلاستیکی.
+با سلاطین گل کوچیک آشنا بشوید.
+
+🔻برنامه این هفته آپارات
+«سلاطین گل کوچیک»؛ از خیابان تا جام جهانی
+ساخته امیر زوینی
+
+🔻ساعات پخش به وقت ایران
+
+جمعه ۹ شب
+شنبه ۱ بامداد
+شنبه ۶ صبح
+شنبه ۱۲ ظهر
+دوشنبه ۲ بامداد
+دوشنبه ۸:۳۰ شب
+تکرار جمعه ۱۱:۳۰ صبح
+
+
+🔻از برنامه آپارات همیشه فیلم متفاوت ببینید.
+@BBCPersian
+</div>
+
+## idfinfarsi — post 11838
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️کسب کنترل عملیاتی در منطقه شمال رودخانه السلوکی: فعالیت نیروهای تیم رزمی تیپ ۷ در جنوب لبنان
+
+⭕️نیروهای تیم رزمی تیپ ۷ و واحد اگوز، تحت فرماندهی لشکر ۳۶، عملیات دستیابی به کنترل عملیاتی و پاکسازی منطقه شمال رودخانه السلوکی در خط دفاعی مقدم را تکمیل کردند. این اقدام در چارچوب تلاش لشکری برای تقویت کنترل عملیاتی در جنوب لبنان و رفع تهدید مستقیم علیه شهرک‌های جلیل و متولا انجام شد.
+
+⭕️منطقه رودخانه السلوکی توسط سازمان تروریستی حزب‌الله به‌عنوان زیرساختی برای به‌کارگیری پهپادهای انفجاری و شلیک‌های منحنی‌زن علیه نیروهای ارتش اسرائیل در این منطقه مورد استفاده قرار می‌گیرد. در جریان این عملیات، نیروها با همکاری نیروی هوایی، صدها زیرساخت تروریستی را منهدم کرده و بیش از ۵۰ تروریست را به هلاکت رساندند. همچنین چندین نوع تسلیحات از جمله مواد انفجاری، موشک‌های ضد زره و سکوهای پرتاب آن شناسایی شد.
+
+⭕️ارتش اسرائیل به فعالیت خود برای رفع هرگونه تهدید علیه کشور اسرائیل ادامه خواهد داد.
+</div>
+
+## Dirty_Kids — post 391718
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391718_1781190226.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اوج حماقت و توهم در تصویر! حرفی ندارم!
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391717
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391717_1781190227.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اگه تو این پرواز باشی کدوم صندلی رو برای نشستن انتخاب میکنی؟
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 127166
+
+<div align="center">
+  <a href="telegram/content/alonews_127166_1781190228.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈جنگنده‌های اسرائیلی در حمله‌ای جدید، شهرک «مجدل زون» واقع در شهرستان صور در جنوب لبنان را هدف قرار دادند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127165
+
+<div align="center">
+  <a href="telegram/content/alonews_127165_1781190228.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈منابع عراقی از اصابت دو پهپاد انتحاری شاهد ۱۳۶ به یک انبار گروه‌های تجزیه‌طلب در منطقه «قوش تپه» واقع در شمال اربیل خبر دادند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/21 18:23
 ---
 

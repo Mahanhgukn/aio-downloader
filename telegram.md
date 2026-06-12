@@ -7,6 +7,162 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/22 23:53
+---
+
+## VahidOOnLine — post 245206
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_245206_1781295805.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️عباس عراقچی، وزیر امور خارجه جمهوری اسلامی، روز جمعه ۲۲ خردادماه در گفتگو با صداوسیما اعلام کرد روند مذاکرات میان ایران و آمریکا در قالب دو مرحله طراحی شده است.
+او توضیح داد در مرحله نخست، یک «یادداشت تفاهم» میان دو طرف به امضا خواهد رسید و سپس مذاکرات برای رسیدن به توافق نهایی وارد فاز دوم می‌شود.
+به گفته عراقچی، موضوعات اصلی از جمله پرونده هسته‌ای ایران به مرحله دوم مذاکرات موکول شده و قرار است در چارچوب توافق نهایی مورد بررسی و تصمیم‌گیری قرار گیرد.
+او تأکید کرد این روند می‌تواند در نهایت به پایان درگیری‌ها و رسیدن به یک توافق جامع منجر شود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## pm_afshaa — post 93736
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چندین انفجار در سیریک گزارش شده
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93735
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انفجار در سیریک
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93734
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93734_1781295807.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نبویان، نماینده مجلس:
+توافقی که با پخت و پز بانیان توافق ننگین برجام باشه خسارت محضه.
+
+متن توافق رو دیدم و باید اعلام کنم که نسبت به دوتای قبلی هم خسارتش و هم عقب‌نشینی‌های جمهوری اسلامی بیشتر شده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## FarsiVOA — post 220524
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺یک مقام ارشد آمریکایی: توافق با جمهوری اسلامی در نهایت منجر به برچیده‌شدن برنامه هسته‌ای آن می‌شود
+
+◾️یک مقام ارشد دولت دونالد ترامپ، رئيس‌جمهوری آمریکا، گفته است توافق با جمهوری اسلامی در نهایت منجر به برچیده شدن برنامه هسته‌ای حکومت ایران خواهد شد و ذخایر اورانیوم غنی‌شده با خلوص بالای آن نابود و از کشور خارج خواهد شد. این مطلب را خبرگزاری رویترز منتشر کرد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8160234.html
+@FarsiVOA
+</div>
+
+## IranianMinds — post 22432
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مجدد صدای شنیده شدن انفجار در سیریک
+
+
+
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22431
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+با اینکه داره خبر مذاکره میاد ولی همین الان صدای انفجار در سیریک گزارش شده @IranianMinds
+</div>
+
+## IranianMinds — post 22430
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+با اینکه داره خبر مذاکره میاد
+ولی همین الان صدای انفجار در سیریک گزارش شده
+
+
+
+@IranianMinds
+</div>
+
+## alonews — post 127505
+
+<div align="center">
+  <a href="telegram/content/alonews_127505_1781295807.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رئیس‌جمهور کوبا: قوانین اقتصادی را عوض می‌کنیم تا سرمایه جذب کنیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127504
+
+<div align="center">
+  <a href="telegram/content/alonews_127504_1781295808.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈داگ بورگوم، وزیر کشور ایالات متحده:
+کالیفرنیا به نفتی که از تنگه هرمز می‌آمد وابسته بود.
+
+
+🔴آنها قیمت بالای بنزین خواهند داشت. می‌توانید از گاوین نیوزوم و مجلس قانون‌گذاری ایالتشان برای سیاست‌هایی که وضع کرده‌اند تشکر کنید. این موضوع هیچ ربطی به تنگه هرمز ندارد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127503
+
+<div align="center">
+  <a href="telegram/content/alonews_127503_1781295810.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تتر بعد از اظهارات عراقچی درباره احتمال امضای یادداشت تفاهم، به ۱۷۳ هزار تومان رسید
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127502
+
+<div align="center">
+  <a href="telegram/content/alonews_127502_1781295810.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈عراقچی : شمشیر ما همیشه بر فراز تنگه هرمز خواهد بود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/22 23:43
 ---
 

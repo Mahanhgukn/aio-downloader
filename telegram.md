@@ -7,6 +7,209 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/22 22:24
+---
+
+## VahidOOnLine — post 245193
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245193_1781290441.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ضیاءالدین آقاجانپور، رییس سازمان عقیدتی سیاسی وزارت دفاع جمهوری اسلامی گفت: نیروهای مسلح انواع موشک‌ها، ناوها، شناورها، جنگنده‌ها و ماهواره‌های بومی را تولید کرده‌اند و در آمادگی کامل برای «دفاع» هستند.
+او اضافه کرد: «دشمنان با هدف تضعیف اسلام و حاکمیت اسلامی وارد میدان شدند، اما مردم ایران با اتکا به توان دفاعی بومی و اقتدار نیروهای مسلح در برابر آنان ایستادگی کردند و اجازه تحقق اهداف دشمن را ندادند.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## mwarmonitor — post 10791
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴گزارش رویترز می‌گوید:
+
+🔹امارات متحده عربی پس از چند هفته حملات ایران به این کشور حاشیه خلیج فارس، با آزادسازی میلیاردها دلار از دارایی‌های ایران موافقت کرده است.
+
+🔹به گفته چهار منبع، دو منبع منطقه‌ای گفته‌اند ابوظبی با آزادسازی حدود ۱۰ میلیارد دلار موافقت کرده و بیش از ۳ میلیارد دلار از این مبلغ تاکنون منتقل شده است.
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 93717
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93717_1781290442.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رویترز: مقامات آمریکایی برآورد میکنن که احتمال امضای توافق با ایران بین 80 تا 85 درصده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93716
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93716_1781290443.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴آکسیوس: ترامپ میگه همچنان باور داره که ممکنه یک توافق با ایران طی آخر هفته یا روز دوشنبه امضا بشه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93715
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93715_1781290443.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: وقتی دیدم رسانه‌های ایران دارن میگن قراره به محض امضای توافق میلیاردها دلار پول آزاد بشه، سریع به ایرانی‌ها گفتم باید بیاید و علناً این حرف رو اصلاح کنید؛
+
+بعدش هم پشت پرده به ما پیام دادن و گفتن این اطلاعات اشتباه بوده و بابت انتشارش عذرخواهی کردن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93714
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93714_1781290444.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رویترز به نقل از یک مقام ارشد در دولت آمریکا: آمریکا بر اساس توافق با ایران، مواد غنی‌شده رو دریافت خواهد کرد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 341933
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341933_1781290445.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ضیاءالدین آقاجانپور، رییس سازمان عقیدتی سیاسی وزارت دفاع جمهوری اسلامی گفت: نیروهای مسلح انواع موشک‌ها، ناوها، شناورها، جنگنده‌ها و ماهواره‌های بومی را تولید کرده‌اند و در آمادگی کامل برای «دفاع» هستند.
+او اضافه کرد: «دشمنان با هدف تضعیف اسلام و حاکمیت اسلامی وارد میدان شدند، اما مردم ایران با اتکا به توان دفاعی بومی و اقتدار نیروهای مسلح در برابر آنان ایستادگی کردند و اجازه تحقق اهداف دشمن را ندادند.»
+https://iranintl.com/202606125461
+</div>
+
+## FarsiVOA — post 220519
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ پیام عباس عراقچی در ایکس را که گفته دستیابی به توافقی برای پایان جنگ تا این حد نزدیک نبوده، بازنشر کرد
+</div>
+
+## DW_Farsi — post 125909
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125909_1781290446.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 گروه هکری مرتبط با ایران مدعی نفوذ به پهپادهای اف‌بی‌آی شد
+
+بر اساس گزارشی از گروه اطلاعاتی سایت (SITE)، گروه هکری "حنظله" که به ایران نسبت داده می‌شود، مدعی شده برای ماه‌ها به تصاویر و داده‌های پهپادهای اول‌شخص اف‌بی‌آی دسترسی داشته است؛ پهپادهایی که به گفته این گروه، به قابلیت تشخیص چهره و خواندن پلاک خودرو مجهز بوده‌اند و برای ماموریت‌های ضدتروریستی به کار می‌رفته‌اند.
+
+در بیانیه‌ای که SITE منتشر کرده، این گروه گفته است بهتر است تدابیر امنیتی جام جهانی تشدید شود، چون به گفته آن‌ها "اف‌پی‌وی‌ها همه‌جا هستند" و ممکن است یکی از آن‌ها سر از اتوبوس تیم‌ها درآورد.
+
+این تهدید در شرایطی مطرح شده که اف‌بی‌آی برای مقابله با پروازهای غیرمجاز، در اطراف ورزشگاه‌های میزبان مسابقات از پهپاد استفاده می‌کند. همچنین اعلام شده پرواز پهپادها بر فراز ورزشگاه‌ها و محل برگزاری برنامه‌های هواداری مرتبط با جام جهانی ممنوع خواهد بود.
+
+با وجود این ادعاها، گروه اطلاعاتی سایت گفته است بخشی از تصاویر و ویدیوهایی که حنظله به‌عنوان سند هک منتشر کرده، قابل اتکا نیست.
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 16885
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://youtube.com/live/z_jDo867kgs?feature=share
+</div>
+
+## Persian_Trend_Official — post 16884
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16884_1781290446.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به گزارش رویترز، امارات متحده عربی موافقت کرده است که میلیاردها دلار را به عنوان بخشی از تلاش گسترده‌تر برای کاهش تنش‌ها پس از هفته‌ها حملات ایران در طول جنگ، به ایران بدهد. حداقل 10 میلیارد دلار می‌تواند آزاد شود که بیش از 3 میلیارد دلار آن تاکنون منتقل…
+</div>
+
+## IranianMinds — post 22424
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22424_1781290447.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رژیم، مادر جاوید‌نام بابک صادقی‌محسنی رو در خانه زندانی کرده که نتونه بره مزار پسرش و واسش تولد بگیره.
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 391832
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391832_1781290448.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عرزشی‌ها منتظر تاریخ نباشید خودتون بیایید این شغال طرقبه رو پاره کنید، فقط بلدید ساندیس بخورید و صیغه کنید
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 127476
+
+<div align="center">
+  <img src="telegram/content/alonews_127476_1781290448.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+توی بزرگراه صیاد تهران یه مرده حین رانندگی
+دید عه زنش داره بهش خیانت میکنه
+با ماشین از روش رد شد و به راهش ادامه داد
+
+[@AloTweet]
+</div>
+
+## alonews — post 127475
+
+<div align="center">
+  <a href="telegram/content/alonews_127475_1781290449.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴توافق بشه یا نشه چه فرقی به حال مردم میکنه؟ هیچی
+
+
+🤔مردم فقط یه چیز میخوان و اونم خودشون بدست میارن. ظلم پایدار نیست.
+
+
+✅@AloNews
+</div>
+
+## alonews — post 127474
+
+<div align="center">
+  <a href="telegram/content/alonews_127474_1781290449.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈عراقچی، وزیر امور خارجه در برنامه گفتگوی ویژه خبری امشب ۲۲ خرداد ۱۴۰۵ در شبکه خبر حضور خواهد یافت
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/22 22:13
 ---
 

@@ -7,6 +7,185 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/22 21:53
+---
+
+## VahidOOnLine — post 245188
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245188_1781288614.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ به گزارش خبرگزاری فرانسه، یک مقام ارشد آمریکایی اعلام کرد که بر اساس توافق احتمالی پیش‌رو، جمهوری اسلامی در ازای برچیدن کامل برنامه هسته‌ای و تحویل مواد غنی‌شده خود، از «کاهش چشمگیر» تحریم‌ها و آزادسازی دارایی‌های بلوکه‌شده برخوردار خواهد شد. به گفته او، پس از موافقت ایران با تعیین جزئیات دقیق نحوه امحای اورانیوم غنی‌شده، مسیر دستیابی به این توافق هموارتر شده است. واشنگتن همچنین معتقد است که تسلط ایران بر تنگه حیاتی هرمز کاهش یافته است.
+
+این مقام رسمی که نخواست نامش فاش شود، تاکید کرد که توافق صلح شامل لبنان نیز خواهد بود؛ موضوع کلیدی و حساسی که پیش از این و به دلیل تداوم حملات اسرائیل به مواضع حزب‌الله، روند مذاکرات را تا مرز فروپاشی پیش برده بود.
+
+این مقام ارشد دولتی در پایان خاطرنشان کرد: «این تفاهم فراگیر شامل لبنان، ایران، کشورهای حوزه خلیج فارس و اسرائیل می‌شود» و قرار است به تنش‌های چندجانبه در منطقه پایان دهد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14662
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+طبق گزارش ها،فرمانده کل سپاه، احمد وحیدی با شرایط متن تفاهم نامه ایران و آمریکا موافق نبوده متن تفاهم نامه با همکاری عراقچی و قالیباف تنظیم شده است و پس از مخالفت فرمانده سپاه به رهبری در ایران ارسال شده،
+رهبری در ایران نیز تاکنون مانند دفعات قبلی متن تفاهم نامه را تایید نکرده
+@withyashar 🚨
+</div>
+
+## WithYashar — post 14661
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سازمان ملل: از روند مذاکرات دلگرم شدیم!
+@withyashar 😁
+</div>
+
+## FoxNewsTwitter — post 342910
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342910_1781288615.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"God is so real. He's so much realer than you can ever ask, think, or imagine."
+
+That's how New York pastor and basketball coach Matt Sierra described the moment Christian artist Forrest Frank surprised him with a trip to see the Knicks in the NBA Finals after asking fans online who he should bring along during his NYC tour stop.
+
+Followers quickly rallied behind Sierra, who serves young people through ministry, basketball, and community outreach in New York City, making him one of the most recommended names.
+
+What started as a simple social media question turned into a night Sierra says he'll never forget, as seen in a video Frank later shared with fans.
+
+The moment is resonating across social media, with many praising Frank for using his platform to encourage others and create meaningful experiences that reflect his faith.
+</div>
+
+## pm_afshaa — post 93710
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴طبق گزارش ها،فرمانده کل سپاه، احمد وحیدی با شرایط متن تفاهم نامه ایران و آمریکا موافق نبوده متن تفاهم نامه با همکاری عراقچی و قالیباف تنظیم شده است و پس از مخالفت فرمانده سپاه به رهبری در ایران ارسال شده،رهبری در ایران نیز تاکنون مانند دفعات قبلی متن تفاهم نامه را تایید نکرده
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 341928
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341928_1781288617.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل گزارش داد از زمان آغاز آتش‌بس بیش از ۱۳۰۰ نیروی حزب‌الله را از جمله فرمانده واحد نصر و دو جانشین او، فرمانده منطقه شقیف و جانشین او، فرمانده منطقه بنت جبیل، فرمانده منطقه صور، فرمانده منطقه حجیر، فرمانده منطقه جبشیت، فرمانده منطقه الخیام و فرمانده منطقه قانا، هدف قرار داده و کشته است.
+
+ارتش اسرائیل همچنین اعلام کرده به هدف قرار دادن فرماندهان «سازمان تروریستی حزب‌الله» که مسئول مستقیم هدایت آتش به‌سوی شهروندان کشور اسرائیل و نیروهای ارتش اسرائیل هستند، ادامه خواهد داد.
+https://iranintl.com/202606120359
+</div>
+
+## IranIntlTV — post 341927
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341927_1781288618.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+احتمال حصول یک توافق موقت بین تهران و واشنگتن بالا رفته.
+
+آیا طی ۳۰-۶۰ روز بعدش، توافق جامع حاصل خواهد شد؟
+@iranintltv
+</div>
+
+## FarsiVOA — post 220514
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هشدار اروپا درباره تنش در خلیج‌فارس؛ دیپلماسی در سایه ابهام توافق آمریکا و جمهوری اسلامی
+</div>
+
+## FarsiVOA — post 220513
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آتش شاکرمی، هنرمند و خاله نیکا شاکرمی که در اعتراضات «زن، زندگی، آزادی» به دست مأموران جمهوری اسلامی کشته شد؛ این هفته مهمان فهیمه خضر حیدری در عمق میدان است. شنبه، ۱۰ شب ایران
+</div>
+
+## FarsiVOA — post 220512
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تماس تهران و پاریس در آستانه توافق؟ ژنو به کانون گمانه‌زنی‌ها تبدیل شد
+</div>
+
+## Persian_Trend_Official — post 16882
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سربسته عرض کنم خدمتتون
+تا منحل شدن جمهوری اسلامی فعلی
+جنگ ادامه دارد !
+
+این خط ———————-
+این نشان |||||||||||||
+
+الیاس فرخ
+</div>
+
+## RadioFarda — post 158236
+
+<div align="center">
+  <a href="https://t.me/radiofarda/158236" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علیرضا نوری‌زاده: کشورهای خلیج‌فارس می‌گویند خاموش کردن آتش جنگ به نفع ماست
+
+🔸در این روزها گزارش‌های متعددی درباره رویکرد کشورهای حوزه خلیج فارس به بحران ایران منتشر می‌شود. بسیاری از این گزارش‌ها هم به نقل از مقام‌هایی است که نامشان فاش نمی‌شود اما در نمونه‌های متعددی از آن‌ها آنچه خودنمایی می‌کند تلاش مداون این کشورها برای جلوگیری از بروز جنگ دیگری با ایران است؛ آن هم پس از آنکه بسیاری از این کشورها، از بحرین تا قطر، از عربستان سعودی تا امارات و کویت، همگی متحمل هزینه‌های بسیاری از چهل روز جنگ آمریکا و اسرائیل با ایران شدند. علیرضا نوری‌زاده، روزنامه‌نگار و تحلیل‌گر سیاسی در بریتانیا، به رادیوفردا می‌گوید کشورهای حوزه خلیج‌فارس می‌دانند که با رفتن آمریکا «باید هزینه دهند و می‌خواهند به نوعی این هزینه را به کمترین میزان برسانند» و از همین رو رویکرد تعاملی را با تهران در پیش گرفته‌اند.
+
+@RadioFarda
+</div>
+
+## RadioFarda — post 158235
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸یک مقام ارشد آمریکایی روز جمعه در گفت‌وگو با خبرنگاران با اشاره به این که واشنگتن انتظار دارد توافق با ایران در روزهای آینده امضا شود، گفت یکی از مفاد آن نابودی و خروج ذخایر اورانیوم غنی‌شده ایران است. 🔸این مقام آمریکایی که به شرط ناشناس ماندن صحبت می‌کرد،…
+</div>
+
+## RadioFarda — post 158234
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_158234_1781288621.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸یک مقام ارشد آمریکایی روز جمعه در گفت‌وگو با خبرنگاران با اشاره به این که واشنگتن انتظار دارد توافق با ایران در روزهای آینده امضا شود، گفت یکی از مفاد آن نابودی و خروج ذخایر اورانیوم غنی‌شده ایران است.
+
+🔸این مقام آمریکایی که به شرط ناشناس ماندن صحبت می‌کرد، اظهار داشت: «تیم مذاکره‌کننده ما را در موقعیت بسیار خوبی قرار داده است، اما باید ببینیم چه پیش می‌آید. هنوز کاملاً به خط پایان نرسیده‌ایم، ولی بسیار به آن نزدیک هستیم.»
+
+🔸او گفت که مفاد مورد توافق، اهداف اصلی دونالد ترامپ، رئیس‌جمهور آمریکا، را محقق می‌کند و «در پایان، وضعیت را در جایگاهی بسیار بسیار مطلوب قرار می‌دهد.»
+
+🔸این مقام افزود که مفاد آنچه «یادداشت تفاهم» نامیده می‌شود، شامل بازگشایی تنگه هرمز و لغو محاصره آمریکا علیه بنادر ایران است.
+
+🔸به گفته او، ذخایر اورانیوم با غنای بالای ایران نیز در محل نابود شده و سپس از ایران خارج خواهد شد.
+
+🔸این مقام افزود که مفاد توافق همچنین شامل یک رژیم بازرسی است تا اطمینان حاصل شود که اجرای آن در بلندمدت قابل راستی‌آزمایی و الزام‌آور خواهد بود.
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 22423
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22423_1781288622.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نتیجه‌گیری نبویان.
+
+@IranianMinds
+</div>
+
+---
 📅 بروزرسانی: 1405/03/22 21:43
 ---
 

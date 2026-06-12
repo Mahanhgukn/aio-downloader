@@ -7,6 +7,95 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/23 02:32
+---
+
+## Dirty_Kids — post 391859
+
+<div align="center">
+  <a href="https://t.me/Dirty_Kids/391859" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ریتزوبت تنها سایت بین المللی میباشد ، که به صورت هفتگی پرومو کد دریافت میکنید ✅
+
+♦️ آموزش شارژ حساب با کریپتو
+♦️ آموزش شارژ حساب ریالی در ریتزوبت
+#پیشبینی
+🔵ریتزوبت برندی با لایسنس معتبر در صنعت شرطبندی و پیشبینی مسابقات ورزشی و کازینویی 👇
+
+https://t.me/+LB508WZyIr8xNmY0
+</div>
+
+## Dirty_Kids — post 391858
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚀شاید برای شما سوال شود چرا ریتزوبت ؟!
+
+💠محیطی امن و مطمئن برای کاربران
+💠 برداشت جوایز کمتر از 10 دقیقه
+💠تحت کاملترین لایسنس شرطبندی
+💠فعال در دنیا با 52 زبان +(فارسی)
+💠درگاه کارت به کارت و انواع ووچر
+💠بونوس 100% هر یکشنبه و چهارشنبه
+
+📮⬅️ این ها تنها بخشی از امکانات سایت بین المللی ریتزوبت میباشد ✅
+
+پشتیبان فارسی ریتزوبت در تلگرام 👇
+📲@RitzoBetsupports
+
+
+➖
+➖
+➖
+➖
+➖
+➖
+
+🔰لینک ⬅️ سایت بین المللی RitzoBet👇
+A22
+🌐 RitzoBet.com
+🆔 @RitzoBet_ir
+</div>
+
+## Dirty_Kids — post 391857
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391857_1781305358.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#بخوابیم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391856
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391856_1781305359.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هم رو جنازه‌ت عروسی گرفتن هم چالت نکردن هم دارن با قاتلت توافق میکنن.
+خلاصه‌ ترامپ تورو کشت، عرزشیا هم گاییدنت.
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 127526
+
+<div align="center">
+  <a href="telegram/content/alonews_127526_1781305359.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فیلد مارشال محسن‌رضایی: آمریکا با آزادسازی ۲۴ میلیارد دلار از دارایی‌هامون موافقت کرده؛ اما ترامپ نمیخواد اونو علنی کنه.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/23 02:22
 ---
 

@@ -7,6 +7,261 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/23 00:42
+---
+
+## VahidOOnLine — post 245211
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245211_1781298754.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری مهر وابسته به سازمان تبلیغات اسلامی نوشت ساکنان بخش‌هایی از حوالی جزیره قشم و مناطق ساحلی شهرستان سیریک صدای انفجاری را شنیده‌اند.
+خبرگزاری صدا و سیمای جمهوری اسلامی نیز نوشت شنیده شدن این صدا احتمالا مربوط به مقابله نیروهای جمهوری اسلامی با شناورها در تنگه هرمز است.
+یک منبع آگاه در استانداری هرمزگان نیز اعلام کرد: صدای انفجار در حوالی بندر سیریک ناشی از شلیک هشدار به تنگه هرمز است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14680
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⁨ اتاق جنگ با یاشار : باز‌ تنگه دعوا شد ، گزارش عجیب از حضور هواپیماهای جاسوسی آمریکا همه با هم. !!!⁩
+
+https://www.instagram.com/reel/DZgA2cQxrjS/?igsh=cnM5b3ViejIxcm5t
+
+کلیک کنید و کارهای اداری پست را انجام دهید.
+</div>
+
+## WithYashar — post 14679
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کاور @withyashar
+</div>
+
+## WithYashar — post 14678
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+۳پا : کشتی هایی سعی کردند بدون مجوز از تنگه هرمز عبور کنند و مورد هدف قرار گرفتند.🚨🚨
+@withyashar
+</div>
+
+## mwarmonitor — post 10798
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴شنیده شدن صدای انفجار در قشم و سریک و گزارش‌هایی از درگیری‌ها در نزدیکی تنگه هرمز.
+</div>
+
+## mwarmonitor — post 10797
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_10797_1781298755.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 افزایش فعالیت نیروی هوایی آمریکا (USAF) بر فراز خلیج فارس و عربستان سعودی
+
+• ۵ فروند هواپیمای سوخت‌رسان نیروی هوایی آمریکا اکنون بر فراز خلیج فارس و عربستان سعودی در حال پرواز هستند
+
+• ۱ فروند هواپیمای هشدار زودهنگام و کنترل E-3B Sentry (آواکس) نیروی هوایی آمریکا در حال پرواز بر فراز شرق عربستان سعودی است
+
+• ۱ فروند هواپیمای شناسایی و شنود سیگنالی RC-135W Rivet Joint نیروی هوایی آمریکا در حال فعالیت بر فراز خلیج فارس است.
+
+@mwarmonitor
+</div>
+
+## DEJradio — post 5627
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ آسوشیتدپرس گزارش داد کنترل جمهوری اسلامی بر تنگۀ هرمز کاهش یافته است
+
+خبرگزاری آسوشیتدپرس در گزارشی تحلیلی نوشت کنترل جمهوری اسلامی بر تنگۀ هرمز در حال کاهش است.
+به نوشتۀ این خبرگزاری آمریکایی، همزمان فشار اقتصادی بر تهران به‌شدت افزایش یافته است.
+بر اساس این گزارش، صادرات نفت کشورهای عربی خلیج فارس از مسیر هرمز در پی پشتیبانی ارتش آمریکا در حال افزایش است.
+این خبرگزاری تأیید کرد که بیش از ۱۰۰ میلیون بشکه نفت طی هفته‌های اخیر از این مسیر وارد بازار جهانی شد.
+دونالد ترامپ در روزهای پیشین آماری مشابه را اعلام کرده بود.
+آسوشیتدپرس همچنین نوشت محاصرۀ دریایی آمریکا صادرات نفت جمهوری اسلامی را با مشکلات جدی روبه‌رو کرده و تولید نفت ایران از زمان آغاز این محاصره درحدود ۸۰۰ هزار بشکه در روز کاهش یافته است.
+بر پایۀ این گزارش، افزایش ذخایر نفتی، کاهش صادرات و محدودیت دسترسی به ارز خارجی، فشار بر جمهوری اسلامی را برای دستیابی به یک راه‌حل دیپلماتیک، بیشتر کرده است.
+
+#تنگه_هرمز #توافق
+@DEJradio
+</div>
+
+## DEJradio — post 5626
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️
+⭕️ ونس گفت جمهوری اسلامی برای امضای توافق هیچ پولی دریافت نمی‌کند
+
+جی‌دی ونس، معاون رئیس جمهوری آمریکا اعلام کرد جمهوری اسلامی در پی امضای توافق با واشینگتن یا حضور در نشست‌های مذاکره قرار نیست هیچ پولی دریافت کند.
+او گفت توافق به‌گونه‌ای طراحی شده که نگرانی‌های آمریکا و متحدانش در اولویت قرار گیرد.
+به‌گفتۀ ونس، تنها در صورت اجرای تعهدات از سوی جمهوری اسلامی، دریچه‌های اقتصادی برای کشور و منطقه گشوده می‌شود.
+ونس همچنین مدعی شد اگر این توافق به‌دست آید، می‌تواند زمینه‌ساز صلحی پایدار در خاورمیانه باشد.
+دونالد ترامپ گزارش‌های منتشرشده توسط تهران دربارۀ مفاد توافقنامه را دروغ و چرند عنوان کرده است.
+
+#مذاکرات #توافق
+@DEJradio
+</div>
+
+## VahidOnline — post 76284
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری تسنیم:
+استانداری هرمزگان: صدای انفجار در حوالی بندر سیریک ناشی از شلیک هشدار در تنگه هرمز است
+خبرگزاری فارس:
+شلیک هشدار به کشتی‌های متخلف در تنگۀ هرمز
+
+دقایقی پیش مردم در قشم، جاسک و سیریک در استان هرمزگان شنیدن صدایی شبیه انفجار گزارش کردند؛ گزارشی از اصابت در این نقاط مخابره نشده است.
+
+به گزارش خبرگزاری فارس از بندرعباس، منابع محلی از شنیده شدن صدای انفجار در سه نقطه از هرمزگان خبر می‌دهند.
+
+دقایقی پیش اهالی مسن قشم، مناطقی از سیریک و همینطور جاسک از شنیده شدن صدای انفجارهایی خبر می‌دهند.
+
+بررسی‌های خبرنگار فارس از منابع آگاه حاکی است صداهای شنیده شده مربوط به انجام شلیک هشدار به کشتی‌های متخلف در محدوده تنگه هرمز است.
+
+منابع استانی نیز وقوع انفجار بر اثر اصابت در این ۳ نقطه را رد می‌کنند.
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 341962
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341962_1781298756.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری مهر وابسته به سازمان تبلیغات اسلامی نوشت ساکنان بخش‌هایی از حوالی جزیره قشم و مناطق ساحلی شهرستان سیریک صدای انفجاری را شنیده‌اند.
+خبرگزاری صدا و سیمای جمهوری اسلامی نیز نوشت شنیده شدن این صدا احتمالا مربوط به مقابله نیروهای جمهوری اسلامی با شناورها در تنگه هرمز است.
+یک منبع آگاه در استانداری هرمزگان نیز اعلام کرد: صدای انفجار در حوالی بندر سیریک ناشی از شلیک هشدار به تنگه هرمز است.
+https://iranintl.com/202606120154
+</div>
+
+## Shin_Persian — post 7003
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet: Shin ✓ @hey_itsmyturn Fri, 12 Jun 2026 20:51:45 UTC State-owned Mehr New: "Explosion sounds heard around Qeshm Island and Sirik, Hormozgan Province. Initial reports suggest a conflict near Strait of Hormuz. No official confirmation authorities…
+</div>
+
+## Shin_Persian — post 7002
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+Shin ✓ @hey_itsmyturn
+Fri, 12 Jun 2026 20:51:45 UTC
+
+State-owned Mehr New:
+"Explosion sounds heard around Qeshm Island and Sirik, Hormozgan Province.
+Initial reports suggest a conflict near Strait of Hormuz. No official confirmation authorities on nature of explosions."
+
+↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
+
+ترجمه خودکار فارسی
+
+خبرگزاری دولتی مهر:
+«صدای انفجار در اطراف جزیره قشم و سیریک، استان هرمزگان شنیده شد.
+گزارش‌های اولیه حاکی از درگیری در نزدیکی تنگه هرمز است. هیچ تایید رسمی از سوی مقامات در مورد ماهیت انفجارها صورت نگرفته است.»
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 7001
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_7001_1781298757.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Fri, 12 Jun 2026 21:04:18 UTC
+
+Also spotted in Dorud, Lorestan Province, #Iran
+Eyewitness reports they've seen it 3 times tonight.
+
+ترجمه خودکار فارسی
+
+همچنین در دورود، استان لرستان، #Iran مشاهده شده است.
+گزارش‌های شاهدان عینی حاکی از آن است که آن‌ها امشب ۳ بار آن را دیده‌اند.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 7000
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Fri, 12 Jun 2026 21:02:11 UTC
+
+Kiashahr*
+
+ترجمه خودکار فارسی
+
+کیاشهر*
+
+𝕏 · @shin_persian
+</div>
+
+## Iliaen — post 4479
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ساعت ۰۰:۳۰ بامداد شنبه؛ یک ملوان ایرانی به من اطلاع داد در بیسیم صدای یک ملوان دیگر را با لهجه هندی شنیده است که می‌گوید کشتی آن‌ها در تنگه‌ی هرمز هدف اصابت یک پرتابه از سمت سپاه پاسداران قرار گرفته است.
+
+در ادامه ملوان خارجی اعلام می‌کند هیچکس در کشتی مجروح نشده است اما سمت چپ کشتی آسیب دیده است.
+
+@iliaen
+</div>
+
+## FarsiVOA — post 220527
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺گزارش | واکنش‌ها به اعدام کریم معروف‌پور: صدای مردم را نمی‌توان اعدام کرد
+
+◾️کریم معروف‌پور، زندانی سیاسی اهل نقده، صبح ۳۱ اردیبهشت ۱۴۰۵ اعدام شد. اگرچه در گزارش‌های رسمی جمهوری اسلامی، محل اجرای حکم اعدام اعلام نشده است، سازمان حقوق بشر ایران گزارش داده است که او به همراه رامین زله، دیگر زندانی سیاسی، در زندان نقده در استان آذربایجان غربی اعدام شده است. این سازمان می‌افزاید که اعدام «به‌صورت مخفیانه و بدون اطلاع قبلی و ملاقات آخر با خانواده انجام شده است.»
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/iran-iranian-kurd-execution-protest-prison-kurdestan-human-rights/8159789.html
+@FarsiVOA
+</div>
+
+## IranianMinds — post 22435
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22435_1781298758.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فعالیت نیروی هوایی آمریکا بر فراز خلیج فارس و عربستان سعودی
+۵ فروند هواپیمای سوخت‌رسان نیروی هوایی آمریکا اکنون بر فراز خلیج فارس و عربستان سعودی در حال پرواز هستن
+
+۱ فروند هواپیمای هشدار زودهنگام (آواکس) نیروی هوایی آمریکا در حال پرواز بر فراز شرق عربستان سعودیه
+
+۱ فروند هواپیمای شناسایی و شنود سیگنالی RC-135W Rivet Joint نیروی هوایی آمریکا در حال فعالیت بر فراز خلیج فارسه.
+
+@IranianMinds
+</div>
+
+## alonews — post 127514
+
+<div align="center">
+  <a href="telegram/content/alonews_127514_1781298758.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈هواپیمای جنگ الکترونیک RC-135W و یک سوخت رسان آمریکایی در نزدیکی ایران
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/23 00:32
 ---
 

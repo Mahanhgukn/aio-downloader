@@ -7,6 +7,192 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/22 19:24
+---
+
+## VahidOOnLine — post 245164
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245164_1781279661.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ روزنامه واشنگتن‌پست در گزارشی اختصاصی به نقل از مقامات امنیتی خاورمیانه و غرب مدعی شد که قطر در ابتدای جنگ، تلاش کرده بود تا طی یک توافق مخفیانه با تهران، تاسیسات عظیم گاز طبیعی خود در «رأس لفان» را از بانک اهداف ایران خارج کند.
+
+بر اساس این گزارش که از پیام‌های رهگیری‌شده و داده‌های اطلاعاتی به دست آمده، دوحه به تهران پیشنهاد داده بود که در قبال مصون ماندن تاسیسات رأس لفان، تولید گاز خود را به صورت یک‌جانبه متوقف کند.
+
+در واکنش به این گزارش، دفتر رسانه‌ای بین‌المللی قطر با صدور بیانیه‌ای شدیداللحن، این ادعاها را «کاملا بی‌اساس» خواند و تکذیب کرد. دوحه تاکید کرد این اتهامات با توجه به اینکه قطر در همان زمان در حال دفاع فعال از خاک خود در برابر حملات موشکی ایران بوده، به هیچ وجه باورکردنی نیست. دولت قطر تصریح کرد که این گزارش بر پایه اطلاعات دروغین و هدایت‌شده از سوی بازیگرانی تنظیم شده است که هدفشان خرابکاری در تلاش‌های میانجی‌گرانه جاری، تخریب شهرت قطر و آسیب زدن به شراکت راهبردی این کشور با ایالات متحده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14648
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به گفته‌ی CNBC معاملات سهام اسپیس اکس $SPCX تا پنج دقیقه‌ی دیگر آغاز می‌شود.
+@withyashar
+</div>
+
+## mwarmonitor — post 10778
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_10778_1781279662.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ پست عراقچی بازنشر کرده
+
+🔸تفاهم‌نامه اسلام‌آباد هیچگاه تا این حد به نهایی شدن نزدیک نبوده است. تا زمان تکمیل و نهایی شدن آن، رسانه‌ها باید از گمانه‌زنی درباره محتوای آن خودداری کنند.
+
+🔸در راستای رویکرد مسئولانه و شفاف ما، تمامی جزئیات در زمان مقتضی با عموم مردم به اشتراک گذاشته خواهد شد.
+
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 93703
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93703_1781279663.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سناتور لیندزی گراهام:
+ایدهٔ یک صندوق بازسازی 300 میلیارد دلاری برای ایران، با توجه به اینکه چه کسی در ایران مسئوله، به نظر بی‌توجه میاد. این مثل طرح مارشال برای آلمان است در حالی که نازی‌ها هنوز در قدرت هستن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## mamlekate — post 103689
+
+<div align="center">
+  <img src="telegram/content/mamlekate_103689_1781279664.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 ترامپ: مفاد درز داده شده توسط رژیم ایران به هیچ وجه حقیقت ندارد
+
+ترامپ در پیامی نوشت مفادی که رژیم ایران در اختیار رسانه‌ها قرار داده است با شرایطی که به‌صورت مکتوب بر سر آن توافق شده بود، «هیچ ارتباطی» ندارد. او تعامل با رژیم ایران را سر و کار داشتن با «افرادی بسیار بی‌شرافت» دانست و نوشت: «در برخورد با آنها چیزی به نام تعامل با حسن نیت وجود ندارد.»
+
+
+«شرایطی که ایران به رسانه‌های جعلی (فیک نیوز) لو داده است، هیچ ربطی به شرایطی که به طور مکتوب بر سر آن‌ها توافق شد، ندارد. آنچه آن‌ها گفتند، از جمله بیانیه ضعیف و رقت‌انگیزشان در مورد داشتن یک توافق، هیچ نسبتی با حقیقت ندارد. بسیار افراد بی‌شرفی برای معامله کردن هستند. با آن‌ها، چیزی به نام معامله از روی حسن نیت وجود ندارد. مایه شگفتی است! همچنین، حمله پهپادی کاملاً دفع‌شده آن‌ها در شب گذشته علیه کشتی‌های هندی که در حال ترک تنگه هرمز بودند، کاملاً غیرقابل قبول است. بهتر است هرچه زودتر رفتار خود را اصلاح کنند، و سریع هم این کار را بکنند! رئیس‌جمهور دونالد جی. ترامپ»
+﻿
+
+@mamlekate
+</div>
+
+## mamlekate — post 103688
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 گزارش‌ها از محتوای تفاهم‌نامه احتمالی ایران و آمریکا؛ وضعیت مبهم هسته‌ای و تنگه هرمز
+
+در پی اعلام دونالد ترامپ درباره به توافق رسیدن ایران و آمریکا بر سر تفاهم‌نامه پایان جنگ، خبرگزاری جمهوری اسلامی، ایرنا، روز جمعه ۲۲ خرداد مدعی شد که در این تفاهم «هیچ توافقی» درباره پرونده هسته‌ای ایران وجود ندارد.
+
+@mamlekate
+</div>
+
+## IranIntlTV — post 341906
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/341906" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی چرتکه: کارنامه صنعت ایران پس از جنگ
+@iranintlTV
+</div>
+
+## DW_Farsi — post 125901
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 سایه جنگ ایران؛ تعویق رشد اقتصاد آلمان تا ۲۰۲۸
+
+گزارش بانک مرکزی آلمان (بوندس‌بانک) کە روز جمعە ١٢ ژانویه منتشر شد، نشان می‌دهد که مخارج دولت توانسته است در شش‌ماهه تابستان جبران‌کننده تبعات اقتصادی جنگ در خاورمیانه باشد.
+
+بر اساس این پیش‌بینی تولید ناخالص داخلی آلمان در سال جاری میلادی (۲۰۲۶) رشدی ۰.۷ درصدی را تجربه خواهد کرد. انتظار می‌رود این رقم در سال آینده میلادی به ۰.۹ درصد برسد و در سال ۲۰۲۸ با شتابی بیشتر، رشدی ۱.۲ درصدی را ثبت کند.
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 16861
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16861_1781279665.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عراقچی: تفاهم‌نامه اسلام‌آباد هیچگاه تا این حد به نهایی شدن نزدیک نبوده است. سید عباس عراقچی، وزیر امور خارجه ایران، اعلام کرد که در چارچوب رویکرد مسئولانه و شفاف، تمامی جزئیات تفاهم‌نامه اسلام‌آباد در زمان مناسب با عموم مردم به اشتراک گذاشته خواهد شد. …
+</div>
+
+## IranianMinds — post 22415
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22415_1781279666.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پست جدید ترامپ.
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 391819
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391819_1781279667.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 عراقچی: توافق با آمریکا هیچوقت انقد نزدیک نبوده و مذاکرات به جدی ترین حدش رسیده، بزودی جزئیات رو با مردم به اشتراک میذاریم. @Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391818
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391818_1781279668.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 عراقچی: توافق با آمریکا هیچوقت انقد نزدیک نبوده و مذاکرات به جدی ترین حدش رسیده، بزودی جزئیات رو با مردم به اشتراک میذاریم.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391817
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391817_1781279668.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترجیح میدم شاهانه زندگی کنم نه گداگشنه.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391816
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391816_1781279668.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کسی هست ندونه اینا اهل کجا هستن؟
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 127439
+
+<div align="center">
+  <a href="telegram/content/alonews_127439_1781279671.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈محمود نبویان در واکنش به توافق احتمالی: وقتی خرش از پل گذشت، برمی‌گردد و به ریش شما می‌خندد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/22 19:13
 ---
 

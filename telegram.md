@@ -7,6 +7,131 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/22 14:43
+---
+
+## WithYashar — post 14628
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فارس: هر گمانه‌زنی دربارۀ امضا در سوئیس یا دیدار حضوری، چیزی جز فهم اشتباه از پیشنهادها و آرزوهای آمریکایی نیست!
+@withyashar
+</div>
+
+## DEJradio — post 5614
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5614_1781262834.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️
+🔺 دژ فوتبالی با مهدی رستم‌پور، هر شب پس از خبر ۲۱ ویژه جام‌جهانی فوتبالی
+
+چرا قلعه‌نوعی مدیر اجرایی تیم ملی را از اتوبوس پیاده کرد؟ پای یک میلیون دلار پول در میان بود.
+
+✨نظرات و ویدیوهای خود را برای این برنامه به تلگرام دژ ارسال کنید:
+@Dejreport
+
+#فوتبال #جام_جهانی
+@DEJradio
+</div>
+
+## IranianMinds — post 22395
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 بلومبرگ به نقل از یک مقام گروه هفت:
+
+توافق احتمالی بین تهران و واشنگتن یک یادداشت تفاهم خواهد بود، نه یک توافق نهایی.
+
+@IranianMinds
+</div>
+
+## alonews — post 127379
+
+<div align="center">
+  <a href="telegram/content/alonews_127379_1781262834.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خودروسازان در حال ایجاد یک ائتلاف مشترک برای اعمال فشار جهت وضع مقررات جدید هستند.
+
+
+🔴 این اقدام با هدف ایجاد شرایطی برابر و افزایش توان رقابت با ورود گسترده و موج فزاینده خودروهای مقرون‌به‌صرفه و ارزان‌قیمت چینی به بازارها صورت می‌گیرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127378
+
+<div align="center">
+  <a href="telegram/content/alonews_127378_1781262835.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚫
+🏆 به دنیای هیجان‌انگیز فوتبال خوش اومدی!
+
+
+⭐️اینجا قراره باهم لحظه‌به‌لحظه‌ی جام جهانی رو زندگی کنیم؛
+از بازی‌های حساس و نتایج داغ گرفته تا حاشیه‌ها، کری‌خونی‌ها و اتفاقاتی که همه درباره‌ش حرف میزنن! 
+🔥
+🔥
+
+
+✅ پوشش کامل مسابقات
+
+💀ترول تیم‌ها و بازیکن‌ها
+
+🎥ویدیوها و لحظه‌های فان فوتبالی
+
+📊آمار، ترکیب‌ها و اخبار فوری
+
+🌍حواشی جذاب از سراسر جام جهانی
+
+
+📢اینجا فقط یک کانال خبری نیست؛
+یک جمع فوتبالیه برای کسایی که فوتبال رو با هیجان، شوخی و احساس واقعی دنبال میکنن 
+📛
+💟
+
+
+🆘
+🔞 آماده باش چون قراره جام جهانی رو متفاوت تجربه کنیم!
+
+
+⚡ @Vaarzesh_Plus
+
+⚡ @Vaarzesh_Plus
+</div>
+
+## alonews — post 127377
+
+<div align="center">
+  <a href="telegram/content/alonews_127377_1781262835.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈این ویدیو قدیمی مجدد وایرال شده!
+
+
+🔴فائزه هاشمی: مجتبی، بن سلمان ایرانه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127376
+
+<div align="center">
+  <a href="telegram/content/alonews_127376_1781262838.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈العربیه: وزیر امور خارجهٔ پاکستان در گفت‌وگوی تلفنی با مسئول سیاست خارجی اتحادیه اروپا دربارهٔ تلاش‌ها برای دستیابی به تفاهم میان آمریکا و ایران گفت‌وگو کرد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/22 14:34
 ---
 

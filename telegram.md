@@ -7,6 +7,116 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/23 01:02
+---
+
+## VahidOOnLine — post 245215
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245215_1781299952.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️غلامحسین معماریان، معمار و پژوهشگر، با استناد به آخرین مطالعات علمی و تخصصی هشدار داد که اجرای «خط دو» متروی اصفهان در مسیر فعلی، بیش از ۷۰ بنای ارزشمند باستانی را تحت تاثیر قرار داده و می‌تواند مسجد جامع عتیق و ۴۰ بنای تاریخی دیگر این شهر را در معرض خطر تخریب کامل قرار دهد. معماریان در نشستی که بعدازظهر پنجشنبه ۲۱ خرداد در پایگاه جهانی کاخ‌موزه چهلستون برگزار شد، تصریح کرد ارتعاشات مداوم ناشی از عبور مترو از مجاورت بافت تاریخی اصفهان، به ترک‌خوردگی، آسیب‌های شدید سازه‌ای و نابودی تدریجی این آثار منجر خواهد شد. او با نام بردن از شاهکارهای معماری در معرض خطر همچون منار علی، هارونیه، مقبره باباقاسم، عمارت هشت‌بهشت، کاخ چهلستون و مسجد رحیم‌خان، خواستار توقف فوری این روند و بررسی مجدد نتایج مطالعات توسط مسئولان شد تا از وقوع یک «خسارت جبران‌ناپذیر» جلوگیری شود.
+این استاد دانشگاه با تاکید بر اینکه تخریب یا آسیب به آثار ثبت جهانی ابعادی فراتر از یک مسئله محلی دارد، یادآور شد که سرنوشت بخشی از مهم‌ترین میراث تاریخی کشور و جهان به تصمیم‌گیری‌های امروز وابسته است
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## mwarmonitor — post 10799
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴شنیده شدن صدای انفجار در قشم و سریک و گزارش‌هایی از درگیری‌ها در نزدیکی تنگه هرمز.
+</div>
+
+## Persian_Trend_Official — post 16895
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تا دقایقی دیگه لایو دوم
+</div>
+
+## Persian_Trend_Official — post 16894
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16894_1781299953.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حسرت 💔
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 22436
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22436_1781299954.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حمله به قالیباف.
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 391848
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یحیی سینوار یکسال توی تونلای غزه زندگی میکرد و دقیقا روزی که اومد بیرون، اسرائیل مثل سگ کشتش
+
+این برای همه اونایی که الان زیر تونل قایم شدن هم صدق میکنه
+
+اسرائیل یا راهی خواهد یافت و یا قطعا راهی خواهد ساخت که ازون زیر بیارتتون بیرون :)
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391847
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391847_1781299955.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+من و رفیقام وقتی ۵ لیتر عرق تو ماشین جاساز کردیم:
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391846
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391846_1781299956.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+طبق آخرین اخبار، بعد از محمدرضا شهبازی، به استاد رائفی پور هم تجاوز گروهی کردن :))
+
+الان میاد تحلیل می‌کنه که کون من نذاشتن، من کیر دشمنو به اسارت گرفتم.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391845
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ساعت ۰۰:۳۰ بامداد شنبه؛ یک ملوان ایرانی به من اطلاع داد در بیسیم صدای یک ملوان دیگر را با لهجه هندی شنیده است که می‌گوید کشتی آن‌ها در تنگه‌ی هرمز هدف اصابت یک پرتابه از سمت سپاه پاسداران قرار گرفته است.
+
+در ادامه ملوان خارجی اعلام می‌کند هیچکس در کشتی مجروح نشده است اما سمت چپ کشتی آسیب دیده است.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/03/23 00:52
 ---
 

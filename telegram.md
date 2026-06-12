@@ -7,6 +7,57 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/23 03:02
+---
+
+## FoxNewsTwitter — post 342917
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342917_1781307148.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+RT @FoxUSNews: LISTEN: Jeff Metcalf became emotional while speaking with Fox News Digital about the loss of his son, Austin Metcalf, days after Karmelo Anthony was convicted in Austin's April 2, 2025 murder.
+
+"I just can't believe I'm without one," Metcalf said of losing one of his twin sons.
+</div>
+
+## FarsiVOA — post 220536
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺امارات گزارش‌ تحویل ۳ میلیارد دلار پول به جمهوری اسلامی را تکذیب کرد
+
+▪️وزارت امور خارجه امارات اوایل روز شنبه ۲۳ خرداد با انتشار بیانیه‌ای گزارش‌های رسانه‌ای درباره انتقال منابع مالی به جمهوری اسلامی را رد کرد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8160260.html
+@FarsiVOA
+</div>
+
+## BBCPersian — post 283601
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283601_1781307149.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پوریا ژافره - استادیوم لس‌آنجلس
+
+فضای مسابقه اول آمریکا در جام جهانی از ساعت‌ها قبل پر شور و هیجان است آن هم در هوای گرم کالیفرنیا و هزاران هوادار تیم ملی آمریکا که سال‌ها منتظر چنین روزی بودند. این نخستین بار است که آنها می‌توانند مسابقات جام جهانی را در خاک کشور خود از نزدیک تجربه کنند.
+
+در این میان، غیبت دونالد ترامپ، رئیس‌جمهوری آمریکا، نیز مورد توجه قرار گرفته است.
+
+او بارها از برگزاری جام جهانی ۲۰۲۶ و بازی‌های المپیک لس‌آنجلس در دوران ریاست‌جمهوری خود به عنوان نشانه‌ای از جایگاه و قدرت آمریکا یاد کرده بود. با این حال، کاخ سفید اعلام کرده که آقای ترامپ در این مسابقه حضور نخواهد داشت.
+
+البته انتظار می‌رود که رئیس جمهور آمریکا به تماشای دیدار فینال جام جهانی برود که قرار است در ورزشگاه مت‌لایف نیوجرسی برگزار شود.
+
+دونالد ترامپ چند روز پیش نیز در یکی از مسابقات فینال لیگ بسکتبال آمریکا حاضر شد که حضورش در سالن مدیسون اسکوئر گاردن نیویورک با واکنش‌های متفاوت تماشاگران روبه‌رو شد. اتفاقی که نشان داد ترامپ، با وجود آنکه در نیویورک متولد و بزرگ شده، همچنان شخصیتی به شدت دو قطبی در این شهر است.
+
+📷 Matt McNulty
+</div>
+
+---
 📅 بروزرسانی: 1405/03/23 02:52
 ---
 

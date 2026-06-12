@@ -7,6 +7,186 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/22 19:53
+---
+
+## VahidOOnLine — post 245170
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️شرکت اسپیس‌ایکس به رهبری ایلان ماسک روز جمعه  ۲۲ خرداد وارد بازار بورس نزدک شد؛ عرضه‌ای که با ارزش‌گذاری ۱.۷۷ تریلیون دلاری، به یکی از بزرگ‌ترین عرضه‌های اولیه تاریخ تبدیل شده است.
+این شرکت با فروش ۷۵ میلیارد دلار سهام، نه‌تنها رکوردی تازه در بازار ثبت کرد، بلکه به‌عنوان یکی از ارزشمندترین شرکت‌های آمریکا شناخته می‌شود. انتظار می‌رود معاملات سهام این شرکت با تأخیر در میانه روز آغاز شود تا تعادل میان عرضه و تقاضا برقرار شود.
+این عرضه به‌عنوان آزمونی مهم برای زیرساخت‌های معاملاتی وال‌استریت تلقی می‌شود و سرمایه‌گذاران با دقت عملکرد آن را زیر نظر دارند؛ چرا که می‌تواند مسیر عرضه‌های بزرگ بعدی، به‌ویژه در حوزه هوش مصنوعی را تحت تأثیر قرار دهد.
+با وجود زیان نزدیک به ۵ میلیارد دلاری اسپیس‌ایکس در سال گذشته، این عرضه جایگاه ایلان ماسک را به‌عنوان یکی از ثروتمندترین افراد جهان تثبیت کرده است. تحلیلگران همچنین معتقدند ورود این شرکت به بازار می‌تواند باعث جابه‌جایی سرمایه‌ها از سایر غول‌های فناوری به سمت این سهم شود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14650
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزیر جنگ اسرائیل: رئیس‌جمهور ترامپ در حال حاضر به سمت توافقی با ایران پیش می‌رود که از دیدگاه منافع آمریکا، از جمله منافع مشترک با اسرائیل—برای جلوگیری از دستیابی ایران به سلاح‌های هسته‌ای است و ما انتظار داریم او این اصل و اصول اضافی در حوزه موشک‌ها و نمایندگان نیابتی را حفظ کند.
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342905
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342905_1781281425.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+What's the hottest World Cup collectible? A $30 beer can, apparently.
+
+Coors Light’s limited-edition “Tallerboy” sold out almost immediately after going live online, with just 125 available in the first release.
+
+The $30 collectible holds three full-sized cans at once and went viral as part of the brand's World Cup marketing push.
+
+Another 125 are expected to be released next week.
+</div>
+
+## FoxNewsTwitter — post 342904
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342904_1781281426.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+🚨 BREAKING: Police in Midland, Texas, responding to active shooting incident that authorities say has left 1 dead and multiple others injured
+</div>
+
+## IranIntlTV — post 341912
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341912_1781281427.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جام جهانی ۲۰۲۶ در شرایطی آغاز شد که در این رقابت‌ها فیفا از قوانین جدیدی در داوری رونمایی کرد و داوران موظف به اجرای آن در زمین بازی هستند. این تغییرات با هدف افزایش سرعت بازی و کاهش اتلاف وقت شده‌اند.
+
+توضیحات رها پوربخش، ایران‌اینترنشنال در برنامه هت‌تریک
+</div>
+
+## IranIntlTV — post 341911
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341911_1781281429.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻مکزیکی‌های مقیم شهر لس‌آنجلس دیدار اول تیم ملی کشورشان را در ورزشگاه قدیمی این شهر تماشا کردند و شاهد پیروزی شاگردان خاویر آگیره بودند.
+
+🔹گزارش علیرضا مدیری، ایران‌اینترنشنال از لس‌آنجلس
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 341910
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341910_1781281431.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻مزدک میرزایی، ایران‌اینترنشنال، در برنامه هت‌تریک درباره ژست‌های امیر قلعه‌نویی در عکس‌های رسمی تیم ملی فوتبال ایران و نمایش ساعت مچی او گفت: «قلعه‌نویی تنها مربی حاضر در جام جهانی است که دوست دارد همه بدانند ساعت خیلی خوبی دارد.»
+
+@iranintltvsport
+</div>
+
+## FarsiVOA — post 220497
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺انتقاد جی‌دی ونس از اطلاعات «جعلی» درباره توافق احتمالی: رژیم ایران «هیچ پول نقدی» دریافت نخواهد کرد
+
+▪️جی‌دی ونس، معاون رئیس‌ جمهوری آمریکا، در پی انتشار گزارش‌هایی درباره یک توافق احتمالی با رژیم ایران برای بازگشایی تنگه هرمز و پایان دادن به برنامه تسلیحات هسته‌ای جمهوری اسلامی، بسیاری از اطلاعات منتشرشده را «جعلی» خواند.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/vp-vance-denies-cash-transfer-deal-with-iranian-regime/8160152.html/?nocach=1
+</div>
+
+## Persian_Trend_Official — post 16866
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16866_1781281433.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شهباز شریف، نخست وزیر پاکستان: در بحبوحه تلاش‌های میانجیگری فشرده پاکستان، ما کاملاً از کمپین بی‌وقفه اطلاعات نادرست که توسط کسانی که می‌خواهند توافق صلح را خراب کنند، به راه افتاده است، آگاه هستیم.
+
+صرف نظر از سر و صدا، می‌توانیم تأیید کنیم که متن نهایی و مورد توافق صلح حاصل شده است و پاکستان اکنون از نزدیک با هر دو طرف برای نهایی کردن مراحل بعدی همکاری می‌کند.
+
+صلح هرگز تا این حد نزدیک نبوده است.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16865
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16865_1781281434.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امروز ۱۲ ژوئن مراسم سالانه گرامیداشت قربانیان کشتار «اسپایکر» با حضور خانواده‌ها و مقامات محلی در استان صلاح‌الدین عراق برگزار شد.
+
+
+👺Phantom
+
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## BBCPersian — post 283581
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تصاویر جدیدی از بمباران کوچه جاجرودی در نزدیکی خیابان فرجام تهران منتشر شده است که شدت این حمله را با وضوح بیشتری نشان می‌دهد. این تصاویر که مربوط به دوربین مداربسته یک نمایندگی میتسوبیشی در خیابان فرجام است، نشان می‌دهد موج انفجار به ساختمان این نمایندگی که در فاصله حدود ۱۰۰ متری از محل حمله قرار دارد، آسیب جدی وارد کرده است.
+
+در نتیجه این حمله، ۱۲ نفر از یک فامیل که ساکن ساختمانی در کوچه جاجرودی بودند، جانشان را از دست دادند.
+
+نیلوفر میرزایی، یکی از بازماندگان این فامیل در اینستاگرامش ویدیوها و تصاویری از بستگانش منتشر کرده است. او در یک ویدیو گفته فرقی نمی‌کند عزیزان از دست رفته‌اش را «شهید» بنامند یا «جاویدنام». او تاکید کرده که ساختمان آنها مسکونی بوده و وابستگی اعضای فامیلشان به نهادهای نظامی و حکومتی را تکذیب کرده است. خانم میرزایی در ادمه می‌گوید لازم نیست این موضوع را به کسی ثابت کند و از دیگران می‌خواهد قبول کنند که ساختمان غیرنظامی هدف قرار گرفته است.
+
+در نتیجه این حمله چهار مجتمع مسکونی به طور کامل تخریب و ۴۰۰ واحد مسکونی آسیب دیدند.
+@BBCPersian
+</div>
+
+## alonews — post 127445
+
+<div align="center">
+  <a href="telegram/content/alonews_127445_1781281437.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزیر جنگ اسرائیل: رئیس‌جمهور ترامپ در حال حاضر به سمت توافقی با ایران پیش می‌رود که از دیدگاه منافع آمریکا، از جمله منافع مشترک با اسرائیل—برای جلوگیری از دستیابی ایران به سلاح‌های هسته‌ای—است و ما انتظار داریم او این اصل و اصول اضافی در حوزه موشک‌ها و نمایندگان نیابتی را حفظ کند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127444
+
+<div align="center">
+  <a href="telegram/content/alonews_127444_1781281437.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / نخست‌وزیر پاکستان، شہباز شریف:
+در میانه تلاش‌های شدید میانجی‌گری پاکستان، ما کاملاً از کمپین مداوم اطلاعات نادرستی که توسط کسانی که می‌خواهند توافق صلح را خراب کنند، آگاهیم.
+
+
+🔴با کنار گذاشتن سر و صدا، می‌توانیم تأیید کنیم که متن نهایی و توافق شده توافق صلح به دست آمده است و پاکستان اکنون به طور نزدیک با هر دو طرف برای نهایی کردن مراحل بعدی همکاری می‌کند.
+
+
+🔴صلح هرگز به این نزدیکی نبوده است که اکنون هست
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/22 19:43
 ---
 

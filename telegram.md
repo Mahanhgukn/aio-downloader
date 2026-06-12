@@ -7,6 +7,104 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/22 12:13
+---
+
+## WithYashar — post 14613
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یدیعوت آحارونوت: نتانیاهو گفت که به ترامپ اطمینان داده است که تلاش‌های او برای رسیدن به توافق با ایران را درک می‌کند، اما اسرائیل نباید قربانی چنین توافقی شود
+@withyashar
+</div>
+
+## FarsiVOA — post 220463
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220463_1781253825.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یحیی آل‌اسحاق، رئیس اتاق بازرگانی مشترک ایران و عراق از برنامه جمهوری اسلامی برای انتقال کالاهای دپو شده در بندر جبل‌علی امارات از مسیر عراق خبر داد.
+
+پیش از تهاجم گسترده نظامی جمهوری اسلامی به امارات، یک سوم واردات ایران از این کشور انجام می‌شد و طبق گفته آل‌اسحاق، بندر جبل‌علی سهمی ۱۲ میلیارد دلاری در واردات ایران داشت.
+
+آل‌اسحاق می‌گوید ایران برای انتقال کالاهای موجود و سفارش‌های جدید، مسیرهای جایگزین از جمله عراق را فعال کرده است.
+
+دقیقاً مشخص نیست عراق چگونه با زیرساخت‌های ضعیف بتواند جای امارات- بزرگترین هاب تجاری منطقه - را بگیرد؛ خصوصاً اینکه عراق حتی سهمی یک درصدی در کل واردات ایران نیز ندارد.
+@FarsiVOA
+</div>
+
+## IranianMinds — post 22377
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22377_1781253825.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 پولیتیکو :
+
+بعد اینکه ترامپ تهدید کرد «امشب ایران را به‌شدت هدف قرار خواهیم داد»، رهبران قطر، امارات و پاکستان فوری با او تماس گرفتند.
+
+آن‌ها به ترامپ اطمینان دادند که یک توافق اولیه با تهران نزدیک است و هنوز فرصت برای دیپلماسی وجود دارد.
+
+به گفته منابع آگاه، همین تماس‌ها باعث شد ترامپ حمله برنامه‌ریزی‌شده را لغو کرده و مسیر مذاکرات را ترجیح دهد!
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22376
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22376_1781253826.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+▶️بازی های جذاااب جام جهانی فوتبال رو با آپشن های تخصصی در MelBet پیشبینی کنید! ⚽️
+🔥
+
+
+💵 امکان شارژ کارت بکارت و هات ووچر
+
+🎁 قرعه کشی و آفر های جذاب با جوایز ویژه
+
+📱 کاملترین برنامه موبایل
+
+🤝 اسپانسر رسمی لالیگا
+
+🇮🇷 پشتیبانی از زبان فارسی
+
+✍️ حرفه ای، مطمئن و در کلاس جهانی پیشبینی کنید!
+
+برای ورود به سایت فیلترشکن خود را خاموش کنید!
+‌
+🌐 Link 🔜 MelBet1.net
+
+🌐‌ Link 🔜 MelBet1.net
+</div>
+
+## Dirty_Kids — post 391777
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391777_1781253827.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نمیدونم فاز اینجور دخترهای مسلمان چیه؟
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391776
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391776_1781253828.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شما یادتون نمیاد ولی یه زمانی راننده تاکسی تا جلو دو نفر مسافر سوار نمی‌کرد راه نمیفتاد!
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/03/22 12:03
 ---
 

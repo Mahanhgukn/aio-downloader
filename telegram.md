@@ -7,6 +7,66 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/22 09:43
+---
+
+## FarsiVOA — post 220459
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220459_1781244797.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سخنگوی سازمان ملل اعلام کرد که دو نیروی حافظ صلح یونیفل، در جنوب لبنان به ‌طور سطحی زخمی شدند.
+
+استفان دوجاریک، طی سخنانی در جمع خبرنگاران که الجزیره آن را منتشر کرده، ملیت آنها را مالزیایی اعلام و وضعیت سلامت آنها را پایدار توصیف کرد.
+
+وی علت حادثه را حمله به یک کاروان لجستیکی عنوان، اما جزییاتی درباره عامل حمله، ارائه نکرد.
+
+سخنگوی سازمان ملل همچنین از تغییر مسیر یک کاروان سازمان ملل در حوالی «بنت‌ جلیل» بر اثر شلیک یک تانک ارتش اسرائيل نیز خبر داد و به همه طرف‌های درگیر در لبنان یادآور شد که «کارکنان و دارایی‌های سازمان ملل مصونیت دارند و تعرض به آن‌ها ممنوع است.»
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 16828
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16828_1781244798.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبکه CNN در یک گزارش تمام دفعاتی که در آن ترامپ ادعا کرده به توافق با ایران نزدیک شده ایم را جمع آوری کرده است.
+
+ترامپ 39 بار گفته است که به توافق با ایران نزدیک شده ایم.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## alonews — post 127309
+
+<div align="center">
+  <a href="telegram/content/alonews_127309_1781244799.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پس از بریدن سر یک انگلیسی توسط یک مهاجر سودانی در شهر بل‌فاست ایرلند شمالی و همچنین خبر تجاوز ۴مهاجر افغان به یک نوجوان بریتانیایی، شورش‌های گسترده‌ای علیه مهاجران مسلمان در بریتانیا رخ داده و ده‌های خانه و خودروی مهاجران توسط معترضین به آتش کشیده شد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127308
+
+<div align="center">
+  <a href="telegram/content/alonews_127308_1781244800.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سخنگوی وزارت خارجه: آمریکایی‌‌ها درحال القا هستند که جمهوری اسلامی تحت فشار به توافق رضایت داده است، در حالی که ما به هیچ عنوان از خطوط قرمز خود کوتاه نخواهیم آمد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/22 09:33
 ---
 

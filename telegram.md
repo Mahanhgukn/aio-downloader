@@ -7,6 +7,128 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/22 15:53
+---
+
+## WithYashar — post 14632
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سی‌ان‌ان به نقل از یک منبع اسرائیلی:
+اسرائیل به آمریکا فشار میاره تا دارایی‌های مسدود شده ایران رو به عنوان بخشی از یادداشت تفاهم آزاد نکنه.
+@withyashar
+</div>
+
+## mwarmonitor — post 10770
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸 شبکه CNN به نقل از یک منبع آگاه اسرائیلی:
+
+🔹یک منبع اسرائیلی مطلع اعلام کرد که اسرائیل به ایالات متحده فشار می‌آورد تا از آزادسازی دارایی‌های مسدودشده ایران به‌عنوان بخشی از یادداشت تفاهم خودداری کند.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10769
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_10769_1781267032.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ناوهای جنگی و یگان‌های هوایی نیروی دریایی ایالات متحده به گشت‌زنی در آب‌های منطقه ادامه می‌دهند و محاصره اعمال‌شده علیه ایران را اجرا می‌کنند.
+
+🔸تا امروز، نیروهای آمریکایی مسیر ۱۳۶ شناور را تغییر داده و ۹ مورد را برای اطمینان از رعایت این محاصره متوقف یا از کار انداخته‌اند.
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 342895
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342895_1781267032.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Robbed at gunpoint while selling lemonade.
+
+New video shows the two suspects police say targeted a children's lemonade stand in South Boston, stealing a cash box before one suspect flashed a firearm at the children.
+
+It's the kind of crime most people associate with businesses or convenience stores, not two kids trying to make money at a neighborhood lemonade stand.
+
+Police are asking for the public's help identifying those involved.
+</div>
+
+## pm_afshaa — post 93684
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93684_1781267034.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سی‌ان‌ان به نقل از یک منبع اسرائیلی:
+اسرائیل به آمریکا فشار میاره تا دارایی‌های مسدود شده ایران رو به عنوان بخشی از یادداشت تفاهم آزاد نکنه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranianMinds — post 22403
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22403_1781267034.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وضعیت اینستاگرام :
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22402
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22402_1781267035.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 رویترز :
+
+دولت ترامپ میخواد مهاجرای غیرقانونی ایرانی رو به آفریقای مرکزی دیپورت‌ کنه ، جایی که خودش سال هاست تو فقره و امنیتی نداره.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22401
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22401_1781267035.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+میکسمون عالی برد شد ❤️
+✅
+@Tabanii_Mafia
+</div>
+
+## BBCPersian — post 283564
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻تسنیم و فارس: متن تفاهم احتمالی هنوز به تایید مراجع ذی‌صلاح ایران نرسیده است
+
+خبرگزاری‌های تسنیم و فارس وابسته به سپاه پاسداران می‌گویند که متن تفاهم احتمالی با آمریکا «هنوز در مراجع‌ذی صلاح ایران به تایید نهایی نرسیده است.»
+
+تسنیم در گزارشی به نقل از منابع مطلع که نامی از آنها نبرده، گفته است که دونالد ترامپ «طی روز‌های اخیر با شروع به فشار و تهدید و اقدام نظامی و از طریق دیگر با فشار میانجی قطری تلاش کرد تا از دو سو مواضع ایران را تغییر دهد که در نهایت ایران تغییرات جدید را نپذیرفت.»
+
+این خبرگزاری می‌گوید «با این حال این متن همچنان نیازمند بررسی و نهایی شدن در نهاد‌های ذیربط در ایران است و تا آن زمان سایر گمانه زنی‌ها و خبرها، معتبر نیست.»
+
+خبرگزاری فارس هم در گزارشی گفته است که در ارتباط با برخی از خواسته‌ها، «آمریکا عقب‌نشینی کرده» اما «هنوز هیچ توافقی حاصل نشده است. هر گمانه‌زنی درباره امضا [تفاهم] در سوئیس یا دیدار حضوری، چیزی جز فهم اشتباه از پیشنهادها و آرزوهای آمریکایی نیست.»
+
+https://bbc.in/4efiF5Z
+@BBCPersian
+</div>
+
+---
 📅 بروزرسانی: 1405/03/22 15:44
 ---
 

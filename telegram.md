@@ -7,6 +7,167 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/22 12:23
+---
+
+## WithYashar — post 14615
+
+<div align="center">
+  <img src="telegram/content/WithYashar_14615_1781254430.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حملات امروز اسرائیل به جنوب لبنان شروع شد.
+@withyashar
+</div>
+
+## WithYashar — post 14614
+
+<div align="center">
+  <img src="telegram/content/WithYashar_14614_1781254431.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پوشش یکی از طرفداران تندرو تجمعات شبانه حکومتی
+@withyashar 🥴
+</div>
+
+## mwarmonitor — post 10759
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 لغو پروازها از فرودگاه هامبورگ در آلمان پس از پیدا شدن یک بسته مشکوک.
+
+@mwarmonitor
+</div>
+
+## IranIntlTV — post 341856
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341856_1781254432.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند با ارسال ویدیویی به ایران‌اینترنشنال، صحنه‌هایی از چریدن گله گوسفند در محوطه پادگان «ابوذر» شهرستان مرزی سرپل‌ذهاب استان کرمانشاه را نشان داد و به متروکه شدن آن اشاره کرد.
+
+این پادگان ارتش جمهوری اسلامی در جنگ پیشین و اخیر هدف حملات آمریکا و اسرائیل قرار گرفت. به گفته مقام‌های استانی در حمله اسفندماه اسرائیل به این پایگاه نظامی ۴ عضو تیپ ۷۱ پیاده مکانیزه ارتش کشته شدند.
+</div>
+
+## Shin_Persian — post 6971
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Fri, 12 Jun 2026 08:46:53 UTC
+
+State-owned Mehr News Agency:
+
+"New details of a 14-point draft memorandum of understanding between Iran and the United States have been released by a source close to the Iranian negotiating team.
+
+The details of this draft are as follows:
+
+1. Immediate and permanent cessation of hostilities on all fronts, including Lebanon.
+
+2. A commitment by the United States not to interfere in Iran's internal affairs and to respect the sovereignty of the Islamic Republic of Iran.
+
+3. Complete lifting of the maritime blockade within 30 days.
+
+4. A commitment by the United States to withdraw its forces from around Iran.
+
+5. Reopening of the Strait of Hormuz within 30 days under Iranian arrangements.
+
+6. Suspension of sanctions on oil and petrochemical product sales, and full Iranian access to its financial resources.
+
+7. The necessity for the United States and its allies to present reconstruction plans for Iran totaling at least $300 billion.
+
+8. 60 days of negotiations to reach a final agreement based on nuclear issues and the complete lifting of primary and secondary sanctions imposed by the US, UN Security Council resolutions, and IAEA Board of Governors resolutions.
+
+9. Reiteration of Iran's commitment under the NPT not to produce nuclear weapons.
+
+10. During the negotiation period, the United States has committed not to increase its forces in the region and not to impose new sanctions.
+
+11. Release of $24 billion of Iran's blocked funds during the 60-day final negotiation period. Half of this amount must be made available to Iran before the start of negotiations.
+
+12. Establishment of an oversight mechanism for the implementation of the agreement.
+
+13. The final agreement will be affirmed by a UN Security Council resolution.
+
+14. Final negotiations will not commence before the release of half of Iran's blocked funds, the suspension of Iranian oil sanctions, and the lifting of the maritime blockade. The final agreement will exclusively address the fate of enriched materials and enrichment, sanction relief, and a plan for Iran's economic reconstruction. Discussions regarding Iran's missile program and support for resistance groups have been definitively removed from the agenda."
+
+ترجمه خودکار فارسی در بخش نظرات
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 220464
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220464_1781254435.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رکورد بی‌سابقه در تاریخ فوتبال؛ مکزیک، برای سومین بار میزبان جام جهانی؛
+
+یکی از مهم‌ترین ویژگی‌های جام جهانی ۲۰۲۶، ثبت یک رکورد تاریخی و بی‌سابقه برای کشور مکزیک است.
+
+این کشور با آغاز این تورنمنت، به نخستین کشور در تاریخ فوتبال تبدیل شد که برای سومین بار، پس از دوره‌های ۱۹۷۰ و ۱۹۸۶، امتیاز میزبانی این رقابت‌های بزرگ را به دست می‌آورد.
+
+با این میزبانی مجدد، استادیوم اسطوره‌ای و خاطره‌انگیز «آزتکا» در مکزیکوسیتی بار دیگر به کانون اصلی توجه و مستطیل سبز سرنوشت‌ساز فوتبال‌دوستان جهان تبدیل شده است.
+@FarsiVOA
+</div>
+
+## IranianMinds — post 22378
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عجب
+
+
+@IranianMinds
+</div>
+
+## alonews — post 127341
+
+<div align="center">
+  <a href="telegram/content/alonews_127341_1781254436.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کلش ریپورت: به نظر می‌رسد ایران به رادار هشدار اولیه AR-327 در جبل الدخان، بلندترین نقطه بحرین با ارتفاع ۱۳۴ متر، حمله کرده است.
+
+
+🔴این سایت میزبان یک رادار مراقبت هوایی سه‌بعدی برد بلند ساخت شرکت بریتانیایی BAE Systems با برد حدود ۴۷۰ کیلومتر است که در یک رادوم ثابت قرار دارد و مسیرهای دریایی خلیج فارس و مسیرهای هوایی منتهی به تنگه هرمز را تحت نظر دارد.
+
+
+🔴ستون‌های دود در تصاویر منتشرشده توسط ایران، توسط تحلیلگران OSINT به‌طور مستقیم به محوطه راداری در مختصات حدود ‎26.0375°N, 50.5420°E‎ مکان‌یابی شده‌اند.
+
+
+🔴این رادار یکی از گره‌های شبکه منطقه‌ای هشدار اولیه و دفاع موشکی مرتبط با ایالات متحده است که به عملیات ناوگان پنجم (Fifth Fleet) متصل می‌باشد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127340
+
+<div align="center">
+  <a href="telegram/content/alonews_127340_1781254436.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈قیمت نفت آمریکا در ساعات گذشته ۳.۲ درصد کاهش یافت و به پایین‌ترین حد خود در ۵۶ روز گذشته یعنی ۸۲ دلار رسید.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127338
+
+<div align="center">
+  <a href="telegram/content/alonews_127338_1781254437.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تصویری وایرال شده از تجمعات شبانه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/22 12:13
 ---
 

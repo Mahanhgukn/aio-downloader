@@ -7,6 +7,129 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/22 21:23
+---
+
+## VahidOOnLine — post 245185
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245185_1781286821.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ یک مقام ارشد در دولت دونالد ترامپ، رئیس‌جمهوری آمریکا، روز جمعه ۲۲ خرداد اعلام کرد که ایالات متحده با اطمینان «۸۰ تا ۸۵ درصدی» انتظار دارد توافق‌نامه صلح با جمهوری اسلامی ایران طی روزهای آینده امضا شود.
+
+این مقام ارشد که خواست نامش فاش نشود، در گفتگو با خبرگزاری فرانسه گفت: «ما انتظار داریم که این توافق‌نامه را ظرف چند روز آینده امضا کنیم؛ اما در حال حاضر نمی‌توانم تاریخ دقیقی به شما بدهم.»
+
+او در ادامه درباره میزان قطعیت این رویداد افزود: «اگر می‌خواستم میزان اطمینانمان به امضای این توافق را بگویم، شاید امروز صبح روی ۷۵ درصد دست می‌گذاشتم، اما اکنون این رقم احتمالا به ۸۰ تا ۸۵ درصد رسیده است؛ با این حال، هنوز ۱۰۰ درصد نیست.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14659
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+الحدث: وزیر خارجه پاکستان امشب عازم ژنو می‌شود
+@withyashar
+</div>
+
+## WithYashar — post 14658
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک مقام ارشد آمریکایی به رویترز:
+
+توافق با ایران اهداف اصلی ایالات متحده را محقق می کند
+این توافق تنگه هرمز را بازگشایی خواهد کرد، ایالات متحده مواد هسته ای غنی شده دریافت خواهد کرد.
+توافق ایران همچنین شامل یک رژیم بازرسی است. اگر ایران رعایت کند، پاداش اقتصادی خواهد داشت.
+منافع برای ایران تنها در صورتی حاصل می شود که آنها واقعاً به تعهدات خود عمل کنند.
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342908
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+A miracle rescue and a broken leg that could have been much worse.
+
+First responders and a reporter race to save a man trapped under the remains of his collapsed home after a tornado tore through northwestern Illinois.
+
+Video captures the dramatic rescue as officers dug through the wreckage and carried the survivor to safety.
+
+The powerful storm left at least one person dead, knocked out power to hundreds of thousands, and unleashed winds strong enough to rip homes from their foundations.
+</div>
+
+## Persian_Trend_Official — post 16880
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16880_1781286822.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایرنا: وزیر خارجه پاکستان عازم ژنو می شود!
+
+یک منبع آگاه به خبرنگار ایرنا گفت که سناتور محمد اسحاق دار معاون نخست وزیر و وزیر امور خارجه پاکستان در ادامه پیشبرد روند میانجی‌گری بین جمهوری اسلامی ایران و آمریکا، امشب عازم ژنو سوئیس می شود.
+
+پیشبرد روند میانجی‌گری و هماهنگی برای یک تفاهم احتمالی میان طرفین مذاکرات، در دستور کار سفر وزیر امور خارجه پاکستان به ژنو قرار دارد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16879
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16879_1781286822.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کان نیوز: ایالات متحده و ایران بیش از هر زمان دیگری به یک توافق اصولی نزدیک شده‌اند و احتمالاً فردا یا پس‌فردا در ژنو امضا خواهد شد.
+
+رده سیاسی به ارتش اسرائیل دستور داده است از اقداماتی که می‌تواند توافق را به خطر بیندازد، خودداری کند. دفتر نخست‌وزیر این گزارش را اخبار جعلی خواند. نیروهای اسرائیلی با آزادی عمل در منطقه امنیتی لبنان باقی خواهند ماند تا علیه تهدیدات فوری اقدام کنند.
+
+یک مقام ارشد آمریکایی گفت که رئیس جمهور آمریکا، ترامپ، دیروز با نخست وزیر اسرائیل، نتانیاهو، صحبت کرده است. این مقام گفت که وقتی اسرائیل توافق کامل را ببیند که طبق آن ایران باید قبل از اینکه ایالات متحده چیزی بدهد، آن را اجرا کند اسرائیل با آن احساس راحتی خواهد کرد.
+
+اگر ایران به تأمین مالی موشک‌های حزب‌الله که به سمت اسرائیل شلیک می‌شوند ادامه دهد، ایران به توافق پایبند نبوده و از مزایای توافق بهره‌مند نخواهد شد. این مقام گفت: من تردید اسرائیل را درک می‌کنم... ما انتظار نداریم که هیچ کشوری از حق دفاع از خود دست بکشد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 22422
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22422_1781286823.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴در حالیکه اسرائیل همچنان به حملات خود در جنوب لبنان ادامه می‌دهد، ارتش اسرائیل از حذف ۱۱ فرمانده میدانی حزب‌الله از جمله موارد زیر خبر داد.
+
+فرمانده منطقه بنت الجبیل- علی عباس
+فرمانده منطقه صور- کمال یونس
+فرمانده منطقه جبشیت- حسین سلمی
+فرمانده منطقه خلیم- علی خایخ
+فرمانده منطقه قانا- مصعلم حرب.
+
+@IranianMinds
+</div>
+
+## alonews — post 127463
+
+<div align="center">
+  <a href="telegram/content/alonews_127463_1781286823.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نخست‌وزیر کانادا، ماک کارنی،خطاب به مکرون: ما بیش از متحد هستیم. ما بخشی از یک خانواده هستیم.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/22 21:13
 ---
 

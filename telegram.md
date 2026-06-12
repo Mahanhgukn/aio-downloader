@@ -7,6 +7,235 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/22 21:03
+---
+
+## VahidOOnLine — post 245182
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_245182_1781285608.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️امانوئل مکرون، رئیس‌جمهوری فرانسه، در کاخ الیزه میزبان مارک کارنی، نخست‌وزیر کانادا، بود. این دیدار تنها چند روز پیش از آغاز نشست گروه ۷ در شهر اویان برگزار شد.
+گفته می‌شود دو طرف در این دیدار درباره موضوعات کلیدی بین‌المللی از جمله تحولات اقتصادی، امنیتی و همکاری‌های دوجانبه گفت‌وگو کردند. این رایزنی‌ها در حالی انجام شده که رهبران کشورهای صنعتی جهان خود را برای حضور در نشست گروه ۷ آماده می‌کنند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14656
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آکسیوس: ترامپ به بنیامین نتانیاهو نخست وزیر اسرائیل خبر داد زمان پایان دادن به جنگ ایران فرا رسیده
+@withyashar
+</div>
+
+## WithYashar — post 14655
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بقایی، سخنگوی هیأت مذاکره:
+
+همین الان جلسهٔ نهادهای ذی‌ربط درحال برگزاری است؛ در مورد متن تفاهم ما در مراحل جمع‌بندی در داخل هستیم
+
+اینکه گفته می‌شود ما خیلی به تفاهم نزدیک هستیم، حرف جدیدی نیست
+
+مشکلی که ما در این مدت داشتیم اظهارات ضدونقیض طرف مقابل است.
+@withyashar
+</div>
+
+## WithYashar — post 14654
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: جمهوری اسلامی به‌طور محرمانه بابت ارائه اطلاعات نادرست در مورد توافق عذرخواهی کرد.
+@withyashar 😁
+</div>
+
+## mwarmonitor — post 10789
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴شبکه کان اسرائیل به نقل از یک منبع: رهبری سیاسی از ارتش خواسته است عملیات‌های خود در جنوب لبنان را کاهش دهد تا به توافق احتمالی آمریکا با ایران آسیبی وارد نشود.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10788
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴یک مقام ارشد دولت ترامپ جزئیات آنچه در یادداشت تفاهم آمده را این‌گونه توضیح داد: 1. بازگشایی تنگه هرمز و لغو محاصره آمریکا علیه بنادر ایران. 2. برچیدن برنامه هسته‌ای ایران، از جمله دریافت مواد غنی‌شده ایران توسط آمریکا؛ این مقام گفت این مواد در محل نابود…
+</div>
+
+## mwarmonitor — post 10787
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴یک مقام ارشد دولت ترامپ توضیح داده است که از نگاه آنها ایران از این توافق چه چیزی به دست می‌آورد: 🔸«ایرانی‌ها در زمان امضای یادداشت تفاهم (MOU) یا صرفِ انجام مذاکرات، چیزی دریافت نمی‌کنند. آنچه دریافت می‌کنند، پاداش‌های اقتصادی در قبال پایبندی به تعهداتشان…
+</div>
+
+## mwarmonitor — post 10786
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴یک مقام ارشد دولت ترامپ توضیح داده است که از نگاه آنها ایران از این توافق چه چیزی به دست می‌آورد:
+
+🔸«ایرانی‌ها در زمان امضای یادداشت تفاهم (MOU) یا صرفِ انجام مذاکرات، چیزی دریافت نمی‌کنند. آنچه دریافت می‌کنند، پاداش‌های اقتصادی در قبال پایبندی به تعهداتشان در چارچوب توافق است.»
+
+🔸او افزود: «بنابراین، اگر طبق وعده مواد هسته‌ای را تحویل دهند، امتیازی دریافت می‌کنند؛ اگر برنامه‌ها یا تأسیسات هسته‌ای خود را برچینند، امتیاز دیگری خواهند گرفت. اگر واقعاً به صلح و ثبات منطقه‌ای متعهد شوند، امتیازات بیشتری علاوه بر آن دریافت می‌کنند. ساختار این توافق به‌گونه‌ای است که اگر آنها به تعهداتشان عمل کنند، ما هم به تعهدات خود عمل خواهیم کرد.» CNN
+
+@mwarmonitor
+</div>
+
+## DEJradio — post 5621
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5621_1781285610.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺🎥 "چهارشنبه سه پهباد انتحاری از پایگاه هوایی بوشهر شلیک شد که یکیش افتاد تو منازل سازمانی، خسارت وارد کرد و دوتا ماشین مربوط به پرسنل پایگاه آتیش گرفت...
+
+#پهباد #ارتش
+@DEJradio
+</div>
+
+## VahidOnline — post 76275
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمود نبویان، عضو کمیسیون امنیت ملی مجلس شورای اسلامی، در ایکس نوشت: با مشاهده‌ی متن توافق باید اعلام کنم، نسبت به دو نسخه‌ی قبلی، خسارت بارتر و عقب‌نشینی‌های ایران نیز بیشتر شده است.
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 341924
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341924_1781285610.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امشب و بامداد فردا به وقت ایران، دو میزبان جام جهانی به میدان خواهند رفت. کانادا در تورنتو میزبان بوسنی و هرزگوین و آمریکا در لس‌آنجلس میزبان پاراگوئه خواهد بود.
+
+روز گذشته نیز بازی افتتاحیه جام جهانی در مکزیک برگزار شد.
+
+گزارش رضا محدث، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## Persian_Trend_Official — post 16877
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به گفته رویترز مقام‌های آمریکایی برآورد می‌کنند که احتمال امضای توافق میان ایران و آمریکا بین 80 تا 85 درصد است. 📝 Amir 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16876
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16876_1781285612.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به گفته رویترز مقام‌های آمریکایی برآورد می‌کنند که احتمال امضای توافق میان ایران و آمریکا بین 80 تا 85 درصد است.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16872
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16872_1781285612.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🛩تیم‌های Thunderbirds نیروی هوایی ایالات متحده و Blue Angels نیروی دریایی ایالات متحده یک آرایش «سوپر دلتا» را در بالای کاخ سفید و بنای یادبود واشنگتن در طول تمرین امروز برای رویداد UFC Freedom 250 آینده اجرا کردند.
+
+
+
+
+
+👺Phantom
+
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## RadioFarda — post 158233
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_158233_1781285614.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸شهباز شریف، نخست‌وزیر پاکستان، روز جمعه اعلام کرد که متن نهایی توافق صلح میان آمریکا و ایران مورد پذیرش طرفین قرار گرفته است.
+
+🔸او در پیامی در شبکه ایکس نوشت: «می‌توانیم تأیید کنیم که متن نهایی و مورد توافق برای صلح حاصل شده است و پاکستان اکنون از نزدیک با هر دو طرف همکاری می‌کند تا مراحل بعدی نهایی شود.»
+
+🔸شریف در این پیام، رئیس‌جمهورهای آمریکا و ایران و همچنین دیگر رهبران دو کشور را نیز مخاطب قرار داد. پاکستان طی ماه‌های گذشته نقش میانجی میان تهران و واشینگتن را بر عهده داشته و یک دور مذاکره حضوری بین طرفین نیز در اسلام‌آباد برگزار شد.
+
+🔸او افزود: «صلح هرگز تا این اندازه نزدیک نبوده است.»
+
+🔸شهباز شریف همچنین گفت: «در بحبوحه تلاش‌های فشرده و مستمر پاکستان برای میانجیگری، ما کاملاً از کارزار بی‌وقفه انتشار اطلاعات نادرست که از سوی کسانی به راه افتاده که می‌خواهند توافق صلح را تخریب کنند، آگاه هستیم.»
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 22421
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22421_1781285615.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ در سال 2049:
+
+ایرانی‌ها هر لحظه ممکن است توافق را امضاء کنند.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22420
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22420_1781285615.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ به زودی تو کاخ سفید
+
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 391827
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏«یه جور این عکسای مارو بگیر، این ساعت من بیفته.» @Dirty_Kids 👻
+</div>
+
+## Hranews — post 113563
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دانشگاه تهران؛ ۲ دانشجو با احکام اخراج مواجه شدند
+
+
+❗️
+❗️
+❗️
+❗️
+❗️ – دو #دانشجو دانشگاه تهران توسط کمیته انضباطی این دانشگاه به #اخراج از دانشگاه محکوم شدند. این رای در ارتباط با اعتراضات سراسری ۱۴۰۴ و به دلایلی از جمله آنچه «ایجاد آشوب و اخلال در روند آموزشی در اسفندماه ۱۴۰۴» و «آتش کشیدن پرچم کشور» عنوان شده، صادر شده است.
+
+ادامه مطلب
+
+↘️
+@hranews_bot تماس ✉️ -  @Hranews  کانال هرانا 🆑
+</div>
+
+---
 📅 بروزرسانی: 1405/03/22 20:53
 ---
 

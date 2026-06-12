@@ -7,6 +7,223 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/22 16:24
+---
+
+## VahidOOnLine — post 245134
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245134_1781268845.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سنتکام، ستاد فرماندهی مرکزی آمریکا، اعلام کرد نیروهای این کشور در چارچوب اجرای محاصره دریایی بنادر جنوبی ایران، تاکنون ۱۳۶ شناور را وادار به تغییر مسیر و ۹ شناور دیگر را متوقف کرده‌اند.
+
+سنتکام جمعه ۲۲ خرداد در شبکه اجتماعی ایکس نوشت نیروی دریایی آمریکا و تجهیزات هوایی این کشور همچنان در آب‌های منطقه گشت‌زنی می‌کنند و به اجرای محاصره علیه ایران ادامه می‌دهند.
+
+این محاصره پس از آن آغاز شد که دونالد ترامپ، رییس‌جمهوری آمریکا، ۲۴ فروردین دستور اعمال محدودیت بر تردد کشتی‌های ورودی و خروجی بنادر ایران را صادر کرد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14634
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبر فوری رویترز: توافق توسط جی‌دی ونس و قالیباف امضا می‌شود.🚨
+@withyashar
+</div>
+
+## pm_afshaa — post 93687
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93687_1781268845.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبرگزاری رویترز: توافق بزودی توسط جی‌دی ونس و قالیباف امضا میشه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93686
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93686_1781268846.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فارس به نقل از منبعی نزدیک به تیم مذاکره‌کننده: ادعاهایی که ترامپ و برخی رسانه‌های خارجی مطرح کردن مبنی بر اینکه «توافق نهایی شده و قراره روز یکشنبه در ژنو امضا بشه» کاملاً بی‌اساسه.
+
+اساساً فرآیند بازبینی و اتخاذ تصمیم در ایران هنوز کامل نشده، بنابراین اعلام روز یکشنبه و مکان ژنو کاملاً رد میشه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5616
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5616_1781268846.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺📢 سنتکام با انتشار تصاویری اعلام کرد ناوهای جنگی و دارایی‌های هوایی نیروی دریایی ایالات متحده به گشت‌زنی در آب‌های منطقه‌ای ادامه می‌دهند و محاصره علیه جمهوری اسلامی را اجرا می‌کنند.
+
+در بیانیه سنتکام اعلام شد از آغاز محاصره تا امروز، نیروهای ایالات متحده ۱۳۶ مورد را تغییر مسیر داده و ۹ مورد را غیرفعال کرده‌اند تا اطمینان حاصل شود که قوانین رعایت می‌شوند.
+
+#تنگه_هرمز #محاصره_دریایی
+@DEJradio
+</div>
+
+## IranIntlTV — post 341873
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341873_1781268847.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سنتکام، ستاد فرماندهی مرکزی آمریکا، اعلام کرد نیروهای این کشور در چارچوب اجرای محاصره دریایی بنادر جنوبی ایران، تاکنون ۱۳۶ شناور را وادار به تغییر مسیر و ۹ شناور دیگر را متوقف کرده‌اند.
+
+سنتکام جمعه ۲۲ خرداد در شبکه اجتماعی ایکس نوشت نیروی دریایی آمریکا و تجهیزات هوایی این کشور همچنان در آب‌های منطقه گشت‌زنی می‌کنند و به اجرای محاصره علیه ایران ادامه می‌دهند.
+
+این محاصره پس از آن آغاز شد که دونالد ترامپ، رییس‌جمهوری آمریکا، ۲۴ فروردین دستور اعمال محدودیت بر تردد کشتی‌های ورودی و خروجی بنادر ایران را صادر کرد.
+https://iranintl.com/202606128620
+</div>
+
+## Shin_Persian — post 6976
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Fri, 12 Jun 2026 12:44:47 UTC
+
+U.S. Navy assets continue to enforce a blockade against Iran. U.S. forces have redirected 136 commercial vessels and disabled 9 to date to ensure compliance.
+
+Source: @CENTCOM
+https://x.com/CENTCOM/status/2065414960176410982
+
+ترجمه خودکار فارسی
+
+نیروهای نیروی دریایی ایالات متحده به اجرای محاصره علیه ایران ادامه می‌دهند. نیروهای آمریکایی تا به امروز برای اطمینان از پایبندی، مسیر ۱۳۶ کشتی تجاری را تغییر داده و ۹ فروند را متوقف کرده‌اند.
+
+منبع: @CENTCOM (فرماندهی مرکزی ایالات متحده)
+https://x.com/CENTCOM/status/2065414960176410982
+
+𝕏 · @shin_persian
+</div>
+
+## DW_Farsi — post 125890
+
+<div align="center">
+  <a href="telegram/content/DW_Farsi_125890_1781268847.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎥 لحظاتی کم نظیر از مواجهه با یک خرس ماده و توله‌هایش
+
+جعفر پناه‌پور، عکاس طبیعت و یاور محیط‌بانان در پارک ملی گلستان لحظات کم‌نظیری از مواجهه با یک ماده خرس قهوه‌ای و توله‌هایش را ثبت کرده است.
+
+در این ویدیو، خرس مادر و دو توله‌اش با تشخیص حضور انسان، برای بررسی موقعیت و میزان خطر احتمالی، به سمت عکاس می‌روند. در ویدیو دیده می‌شود که توله‌ها مادر خود را پناه قرار داده‌اند ولی همچنان با کنجکاوی وضعیت را رصد می‌کنند. در نهایت خرس‌ها با بی‌خطر یافتن موقعیت، به دل طبیعت بازمی‌گردند.
+
+این ویدیو مورد استقبال کاربران قرار گرفته و رفتار و نحوه ایستادن خرس‌ها توجه آنها را به خود جلب کرده است.
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 16847
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رویترز: تفاهم‌نامه بین ایران و امریکا احتمالا تا یکشنبه امضا خواهد شد! به گزارش رویترز و به نقل از یک منبع غربی، تفاهم‌نامه‌ای بین ایالات متحده و ایران با هدف پایان دادن به درگیری خلیج فارس می‌تواند تا روز یکشنبه امضا شود و ژنو محتمل‌ترین مکان در نظر گرفته…
+</div>
+
+## Dirty_Kids — post 391798
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391798_1781268849.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ماسک گذاشته شناسایی نشه، بعد ماسک رو برداشته ویدئو رو پست کرده؟ :)))))))
+واقعا دلقکی داداش
+
+ویدیوی منتشرشده از توماج صالحی
+
+
+@Dirty_Kids 👻
+</div>
+
+## Hranews — post 113557
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند در شهرستان سلسله بازداشت شد
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– یک شهروند در شهرستان سلسله به اتهام «تشویش اذهان عمومی» در بستر فضای مجازی توسط نیروهای انتظامی بازداشت و پس از تشکیل پرونده به مرجع قضایی معرفی شده است.
+
+ادامه مطلب
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## alonews — post 127406
+
+<div align="center">
+  <a href="telegram/content/alonews_127406_1781268850.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / فارس: ادعای امضای توافق در روز یکشنبه در ژنو کذب محض است 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127405
+
+<div align="center">
+  <a href="telegram/content/alonews_127405_1781268850.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / فارس: ادعای امضای توافق در روز یکشنبه در ژنو کذب محض است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127404
+
+<div align="center">
+  <a href="telegram/content/alonews_127404_1781268850.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈اسرائیل، یونان، قبرس و ایالات متحده روز جمعه مرکز انرژی شرق مدیترانه را راه‌اندازی کردند که سکویی جدید برای همکاری در زمینه انرژی، فناوری، نوآوری و پژوهش ایجاد می‌کند.
+
+
+🔴اسرائیل می‌گوید این ابتکار با هدف تقویت همکاری‌ها در امنیت انرژی، امنیت سایبری، زیرساخت‌های حیاتی و توسعه فناوری از طریق اتصال دولت‌ها، مؤسسات دانشگاهی، پژوهشگران و رهبران بخش خصوصی است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127403
+
+<div align="center">
+  <a href="telegram/content/alonews_127403_1781268851.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈اداره ملی اقیانوسی و جوی آمریکا (NOAA): شرایط ال نینو اکنون در بخش گرمسیری اقیانوس آرام شکل گرفته و دمای سطح آب دریا در ماه‌های اخیر به طور قابل توجهی افزایش یافته است.
+
+
+🔴بسیاری از پیش‌بینی‌ها نشان می‌دهند که این دوره ممکن است به یک «ابر ال نینو» تبدیل شود و حتی در میان قوی‌ترین نمونه‌های ثبت شده قرار گیرد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/22 16:14
 ---
 

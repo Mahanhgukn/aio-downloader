@@ -7,6 +7,230 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/22 18:04
+---
+
+## VahidOOnLine — post 245151
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245151_1781274870.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️یک مقام کاخ سفید در گفتگو با «فاکس نیوز» اعلام کرد که جمهوری اسلامی ایران با یک توافق «مبتنی بر عملکرد» موافقت کرده است؛ توافقی که تهران را ملزم می‌کند پیش از دریافت هرگونه کاهش تحریم، امتیازات بزرگی واگذار کند.
+
+بر اساس اظهارات این مقام آمریکایی، طبق این توافق تمام مواد هسته‌ای ایران باید نابود و از کشور خارج شود، برنامه هسته‌ای آن به طور کامل برچیده گردد و تا زمانی که تهران تمامی تعهدات خود را به طور کامل اجرا نکند، هیچ‌یک از دارایی‌های بلوکه‌شده‌اش آزاد نخواهد شد.
+
+این مقام رسمی خزانه‌داری و امنیت ملی آمریکا در پایان افزود که بر اساس این تفاهم، تنگه هرمز باید برای همیشه باز بماند و ایران متعهد شده است که حمایت مالی از گروه‌های تروریستی را به طور کامل متوقف کند. این شروط سخت‌گیرانه درست پس از اظهارات تند ترامپ مبنی بر بی‌اعتبار بودن روایت رسانه‌های دولتی ایران از مفاد توافق، منتشر شده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245150
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245150_1781274871.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک مقام ارشد دولت آمریکا به رویترز گفت که توافق با تهران شامل توقف حمایت جمهوری اسلامی از گروه‌های تروریستی خواهد بود.
+
+این مقام آمریکایی گفت که توافق در حال شکل‌گیری با جمهوری اسلامی بر پایه اجرای تعهدات است و تهران تا زمانی که به تعهدات خود عمل نکند، به هیچ‌یک از دارایی‌های مسدودشده خود دسترسی نخواهد داشت.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## mwarmonitor — post 10775
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 وزیر جنگ اسرائیل گفت:
+
+🔸رئیس‌جمهور ایالات متحده آمریکا این روزها با تکیه بر رویکردی مبتنی بر منافع آمریکا در مسیر دستیابی به توافق با ایران حرکت می‌کند. ما انتظار داریم او به اصل جلوگیری از دستیابی ایران به سلاح هسته‌ای پایبند باشد و همچنین به اصول دیگری در حوزه موشک‌ها و شبکه‌های نیابتیِ تروریستی توجه کند.
+
+🔸او افزود: اسرائیل باید اطمینان حاصل کند که در آینده، توانایی اقدام مستقل برای جلوگیری از دستیابی ایران به سلاح هسته‌ای را خواهد داشت.
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 342902
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342902_1781274872.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"You must be smoking some really good crack."
+
+That's how Elon Musk says he would have reacted if someone told him years ago that SpaceX would one day launch the largest IPO ever.
+
+Speaking ahead of the company's historic Wall Street debut, Musk recalled the early days of SpaceX, when the company operated out of a warehouse in El Segundo and faced serious doubts about its survival.
+
+"I think this company is going to fail," he remembered thinking.
+</div>
+
+## pm_afshaa — post 93696
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93696_1781274875.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کاتز، وزیر جنگ اسرائیل:
+ترامپ این روزها بر اساس دیدگاه منافع آمریکا به سمت توافق با ایران پیش میره و ما انتظار داریم که به اصل جلوگیری از دستیابی ایران به سلاح هسته‌ای و اصول دیگر در زمینه موشک‌ها و عوامل تروریسم پایبند باشه و اسرائیل باید اطمینان حاصل کنه که در آینده توانایی عمل مستقل برای جلوگیری از دستیابی ایران به سلاح هسته‌ای رو خواهد داشت.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93695
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93695_1781274875.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فاکس‌نیوز به نقل از یک مقام کاخ سفید: ایران با توافقی مبتنی بر اجرای تعهدات موافقت کرده که بر اساس آن، ایران باید پیش از هرگونه کاهش تحریم‌ها امتیازات بزرگی بده. به گفته این مقام، مواد هسته‌ای ایران نابود و از کشور خارج میشه، برنامه هسته‌ای برچیده خواهد…
+</div>
+
+## pm_afshaa — post 93694
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93694_1781274876.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رویترز به نقل از یک مقام ارشد آمریکایی: طبق توافق، مواد هسته‌ای ایران نابود میشه و از کشور خارج خواهد شد و برنامه هسته‌ای ایران برچیده خواهد شد و ایران از سازمان‌های تروریستی حمایت مالی نخواهد کرد. تا زمانی که ایران تعهدات خودش رو اجرا نکنه، هیچ پولی به…
+</div>
+
+## pm_afshaa — post 93693
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93693_1781274877.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رویترز به نقل از یک مقام ارشد آمریکایی:
+طبق توافق، مواد هسته‌ای ایران نابود میشه و از کشور خارج خواهد شد و برنامه هسته‌ای ایران برچیده خواهد شد و ایران از سازمان‌های تروریستی حمایت مالی نخواهد کرد.
+
+تا زمانی که ایران تعهدات خودش رو اجرا نکنه، هیچ پولی به ایران آزاد و پرداخت نخواهد شد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5618
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️
+⭕️ نتانیاهو: تا زمانی که نخست‌وزیر باشم، جمهوری اسلامی نمی‌تواند به سلاح هسته‌ای برسد
+
+بنیامین نتانیاهو، نخست‌وزیر اسرائیل روز آدینه ۲۲ خرداد اعلام کرد تا زمانی که در رأس دولت اسرائیل باشد، جمهوری اسلامی نمی‌تواند به سلاح هسته‌ای دست یابد.
+نخست‌وزیر اسرائیل با انتشار پیامی نوشت میان او و دونالد ترامپ، دربارۀ جلوگیری از هسته‌ای شدن جمهوری اسلامی توافق کامل برقرار است.
+بنیامین نتانیاهو یادآور شد که طی۳۰ سال فعالیت سیاسی خود، در مقابله با برنامۀ هسته‌ای جمهوری اسلامی پیشگام بوده است.
+نتانیاهو همچنین گفت جمهوری اسلامی همچنان به دنبال نابودی اسرائیل است.
+این نخستین اظهار نظر رسمی نخست‌وزیر اسرائیل در پی خبر احتمال توافق نهائی میان واشینگتن و تهران به‌شمار می‌رود.
+
+#بنیامین_نتانیاهو #اسرائیل #توافق #ترامپ
+@DEJradio
+</div>
+
+## IranIntlTV — post 341890
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341890_1781274878.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرخط خبرهای جمعه ۲۲ خرداد
+@iranintltv
+</div>
+
+## IranIntlTV — post 341889
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341889_1781274879.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک مقام ارشد دولت آمریکا به رویترز گفت که توافق با تهران شامل توقف حمایت جمهوری اسلامی از گروه‌های تروریستی خواهد بود.
+
+این مقام آمریکایی گفت که توافق در حال شکل‌گیری با جمهوری اسلامی بر پایه اجرای تعهدات است و تهران تا زمانی که به تعهدات خود عمل نکند، به هیچ‌یک از دارایی‌های مسدودشده خود دسترسی نخواهد داشت.
+https://iranintl.com/202606120103
+</div>
+
+## FarsiVOA — post 220481
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220481_1781274880.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📸اینستاگرام صدای آمریکا را هم اکنون فالو کنید تا از آخرین خبرها مطلع بمانید:
+https://www.instagram.com/voafarsi/
+
+📡همچنین جهت اطلاع از بروزترین فرکانسهای ماهواره‌ای صدای آمریکا به لینک زیر مراجعت فرمایید:
+https://ir.voanews.com/satellite
+
+این پست را با دوستانتان به اشتراک بگذارید
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220480
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺سنتکام: محاصره دریایی علیه رژیم ایران همچنان ادامه دارد
+
+▪️سنتکام اعلام کرد که در ادامه محاصره دریایی جمهوری اسلامی در تنگه هرمز «کشتی‌ها و هواپیماهای جنگی نیروی دریایی ایالات متحده» همچنان در آب‌های منطقه گشت می‌زنند.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/iran-us-centcom-blockade-percian-gulf/8160127.html/?nocach=1
+</div>
+
+## FarsiVOA — post 220479
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺نتانیاهو: تا من نخست‌وزیرم رژیم ایران سلاح هسته‌ای نخواهد داشت
+
+▪️بنیامین نتانیاهو، نخست‌وزیر اسرائیل، در پیامی اعلام کرد که تا زمانی که او در مقام نخست‌وزیری این کشور قرار دارد، جمهوری اسلامی به سلاح هسته‌ای دست نخواهد یافت.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/netanyahu-warns-iran-on-nukes/8160122.html/?nocach=1
+</div>
+
+## BBCPersian — post 283567
+
+<div align="center">
+  <a href="telegram/content/BBCPersian_283567_1781274880.mov" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻این هفته در پرگار: دیپلماسی ایرانی، امتیازگیری یا فرصت‌سوزی؟
+
+
+🔻در دیپلماسی کنونی ایران بهره‌برداری حداکثری از امتیازهای میدان جنگ می‌بینم یا آنچه می‌بینیم زیاده‌خواهی و در نهایت فرصت‌سوزیست؟
+
+میهمان‌ها:
+علم صالح، استاد دانشگاه در روابط بین‌الملل
+علی مهتدی، تحلیل‌گر مسائل خاورمیانه
+
+@BBCPersian
+</div>
+
+## alonews — post 127418
+
+<div align="center">
+  <a href="telegram/content/alonews_127418_1781274883.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رئیس ستاد کل نیروهای مسلح : هرگز به‌ دنبال دستیابی به سلاح هسته‌ ای نخواهیم رفت و توانمندی‌ های نظامی ما ماهیتی دفاعی دارد و در چارچوب ایجاد بازدارندگی تعریف میشود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/22 17:54
 ---
 

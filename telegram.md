@@ -7,6 +7,162 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/22 22:53
+---
+
+## VahidOOnLine — post 245198
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245198_1781292219.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عباس عراقچی، وزیر خارجه جمهوری اسلامی در شبکه خبر صدا و سیما گفت: «ما در هر توافقی حزب‌الله لبنان را فراموش نخوهیم کرد، آن‌ها در این جنگ در کنار ما جنگیدند و جمهوری اسلامی هرگز حزب‌الله را تنها نخواهد گذاشت.»
+
+او افزود: «یادداشت تفاهم‌نامه با آمریکا ۱۴ ماده دارد که هنوز امضا نشده است.»
+
+عراقچی ادامه داد: «موضوع هسته‌ای را به مرحله دوم توافق منتقل کرده‌ایم که ۶۰ روز طول می‌کشد.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245197
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245197_1781292220.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمدباقر قالیباف، رییس مجلس، در شبکه ایکس نوشت: «تعهداتی که داده می‌شوند باید اجرا شوند. نه اما و اگر، نه بهانه و نه استثنا. برای توافقی که در پیش است، راه دیگری وجود ندارد.»
+
+پیش‌تر دونالد ترامپ اعلام کرد که تفاهم میان جمهوری اسلامی و آمریکا ممکن است تا دوشنبه امضا شود.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## mwarmonitor — post 10794
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚠️اطلاعیه رسمی کانال ⚠️ 🔸بدین‌وسیله به اطلاع همراهان گرامی می‌رسد که کانال خبری ما در پلتفرم X (توییتر سابق) راه‌اندازی شد. 🔸از این پس نیز ، آخرین اخبار و تحلیل‌های نظامی، سیاسی و همچنین مسائل اجتماعی ایران و جهان به‌صورت منظم در آن منتشر خواهد شد. 🔸از…
+</div>
+
+## mwarmonitor — post 10793
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بازار خالی بندی حسابی داغه
+</div>
+
+## pm_afshaa — post 93724
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93724_1781292220.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴عراقچی: مجموعه‌ی نظام، رهبری تیم مذاکرات رو به قالیباف دادن.
+
+بهترین زمان برای خاتمه جنگ وقتی است که دست بالاتر رو داریم؛ ما واقعا پیروز میدانیم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 341943
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341943_1781292220.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عباس عراقچی، وزیر خارجه جمهوری اسلامی در شبکه خبر صدا و سیما گفت: «ما در هر توافقی حزب‌الله لبنان را فراموش نخوهیم کرد، آن‌ها در این جنگ در کنار ما جنگیدند و جمهوری اسلامی هرگز حزب‌الله را تنها نخواهد گذاشت.»
+
+او افزود: «یادداشت تفاهم‌نامه با آمریکا ۱۴ ماده دارد که هنوز امضا نشده است.»
+
+عراقچی ادامه داد: «موضوع هسته‌ای را به مرحله دوم توافق منتقل کرده‌ایم که ۶۰ روز طول می‌کشد.»
+https://iranintl.com/202606121210
+</div>
+
+## IranIntlTV — post 341942
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341942_1781292221.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمدباقر قالیباف، رییس مجلس، در شبکه ایکس نوشت: «تعهداتی که داده می‌شوند باید اجرا شوند. نه اما و اگر، نه بهانه و نه استثنا. برای توافقی که در پیش است، راه دیگری وجود ندارد.»
+
+پیش‌تر دونالد ترامپ اعلام کرد که تفاهم میان جمهوری اسلامی و آمریکا ممکن است تا دوشنبه امضا شود.
+https://iranintl.com/202606129823
+</div>
+
+## IranIntlTV — post 341936
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻دومین افتتاحیه رسمی مسابقات جام جهانی ۲۰۲۶، در مراسمی باشکوه در استادیوم تورنتو در کانادا برگزار شد.
+
+🔹نورا فاتحی، خواننده و بازیگر مشهور کانادایی به همراه ساتشلا اورار دژه، خواننده فرانسوی معروف به وژدریم، در این مراسم به اجرا پرداختند.
+
+🔹تصاویر بیشتر را در اینستاگرام ایران اینترنشنال ورزشی ببینید.
+
+@iranintltvsport
+</div>
+
+## Dirty_Kids — post 391838
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391838_1781292221.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ایلان ماسک اولین تریلیونر جهان شد!
+
+سهام SPCX قراره با قیمت 135 دلار معامله بشه و ارزش اسپیس‌ ایکس رو به حدود 1.8 تریلیون دلار برسونه!
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391837
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391837_1781292222.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ از دید مانوک خدابخشیان
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 127483
+
+<div align="center">
+  <a href="telegram/content/alonews_127483_1781292223.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈عراقچی: نتیجهٔ تفاهم یک یادداشت ۱۴ ماده‌ای است و وقتی نهایی شد تک‌تک آن را به مردم می‌گوییم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127482
+
+<div align="center">
+  <a href="telegram/content/alonews_127482_1781292223.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈قالیباف: تعهداتی که داده شده باید حفظ شود. نه اگر و نه اما و نه بهانه‌ای. برای معامله نزدیک پیش رو، راه دیگری وجود ندارد.
+
+
+🔴هر چه بکاری، همان را درو می‌کنی.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/22 22:43
 ---
 

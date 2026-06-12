@@ -7,6 +7,119 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/23 01:22
+---
+
+## WithYashar — post 14684
+
+<div align="center">
+  <img src="telegram/content/WithYashar_14684_1781301147.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امارات ادعای رویترز بابت آزادسازی دارایی های ایرانو تکذیب کرد
+@withyashar
+</div>
+
+## WithYashar — post 14683
+
+<div align="center">
+  <a href="https://t.me/withyashar/14683" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🌐 instagram.com/yashar
+
+🌐 t.me/withyashar
+</div>
+
+## WithYashar — post 14682
+
+
+
+
+## mwarmonitor — post 10801
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_10801_1781301148.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴بیانیه | امارات به‌طور قاطع ادعاهای رسانه‌ای درباره انتقال پول به ایران را تکذیب می‌کند
+امارات متحده عربی گزارش‌های منتشرشده در برخی رسانه‌های بین‌المللی مبنی بر انتقال یا حواله هرگونه مبالغ مالی از دولت امارات به جمهوری اسلامی ایران، از جمله ادعاهای مربوط به مبلغ ۳ میلیارد دلار را به‌طور قاطع تکذیب کرد.
+وزارت امور خارجه در بیانیه‌ای تأکید کرد که این ادعاها صحت ندارند و بر هیچ‌گونه واقعیت یا اطلاعات موثقی استوار نیستند. این وزارتخانه همچنین شديداً تأکید کرد که هیچ‌گونه آزادسازی، حواله یا انتقال اموال بلوکه‌شده ایران از طریق دولت امارات صورت نگرفته است.
+این وزارتخانه همچنین از رسانه‌ها خواست تا دقت لازم را به خرج داده، اطلاعات خود را از منابع رسمی دریافت کنند و از بازنشر یا تداول اطلاعات غیرموثق یا ادعاهای فاقد اعتبار خودداری نمایند.
+
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 93741
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93741_1781301149.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴امارات گزارش‌های رسانه‌‌ها درباره انتقال پول یا آزادسازی دارایی‌های بلوکه‌شده ایران از طریق امارات، از جمله ادعای انتقال 3 میلیارد دلار رو تکذیب کرد.
+
+وزارت خارجه امارات تأکید کرد هیچ‌گونه انتقال یا حواله مالی به ایران انجام نشده و از رسانه‌ها خواست فقط به منابع رسمی استناد کنن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## Persian_Trend_Official — post 16896
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://youtube.com/live/vRHW0Hi3AeQ?feature=share
+</div>
+
+## BBCPersian — post 283598
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283598_1781301149.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌ ‌ ‌ ‌
+عباس عراقچی، وزیر خارجه ایران در برنامه شامگاهی تلویزیون آن کشور گفت که «بیشتر از همیشه به تفاهم نزدیکیم. یعنی ممکن است در یکی دو روز آینده اتفاق بیفتد، ممکن است در عرض چند روز آینده اتفاق بیفتد.»
+
+او بار دیگر از رسانه‌های کشورش خواست تا از گمانه‌زنی‌هایی که می‌تواند «فضا را به مشوش کند که این فرصت را خدشه دار کند خودداری کنند.»
+
+آقای عراقچی می‌گوید که این یادداشت تفاهم، هرچند از لحاظ حجم دو صفحه یا یک صفحه و نیم است، بیش از دو ماه مورد مذاکره قرار گرفته و تمامی بندها و جملات آن بارها مورد بازبینی قرار گرفته‌اند.
+
+او گفت: «گزارش‌ها به موقع به شورای عالی امنیت ملی و نهادهای امنیتی ارائه شده و نیروهای نظامی نیز بر مباحث مهم، از جمله تنگه هرمز و خاتمه جنگ، نظارت داشته‌اند.»
+
+وزیر امور خارجه ایران می‌گوید: «نتیجه این کار، نتیجه خوبی برای منافع مردم ایران است که پیروزی‌های میدانی کشور را تثبیت می‌کند. این پیروزی‌ها همچنین حضور و اقتدار جمهوری اسلامی ایران را در عرصه داخلی و بین‌المللی تحکیم می‌کند.»
+
+https://bbc.in/3QGilFE
+📷EPA/Shutterstock
+@BBCPersian
+</div>
+
+## alonews — post 127523
+
+<div align="center">
+  <a href="telegram/content/alonews_127523_1781301150.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شیوه جدید لب گرفتن و بوسیدن همدیگه توی فیلمای ایرانی:
+
+[@AloTweet]
+</div>
+
+## alonews — post 127522
+
+<div align="center">
+  <a href="telegram/content/alonews_127522_1781301151.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈امارات گزارش‌های مبنی بر انتقال میلیاردها دلار به ایران از جمله پرداخت ۳ میلیارد دلاری ادعایی را رد کرده و اعلام کرده است که هیچ دارایی مسدود شده ایران آزاد، انتقال یا پردازش نشده است و این اتهامات را نادرست و غیرقابل اثبات می‌داند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/23 01:12
 ---
 

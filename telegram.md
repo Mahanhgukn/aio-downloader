@@ -7,6 +7,127 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/23 00:22
+---
+
+## pm_afshaa — post 93738
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🟠منابع محلی از شنیده شدن صدای انفجار مهیب در دقایق اخیر در روستای مسن  جزیره قشم خبر می‌د
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93737
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93737_1781297539.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴یک مقام کاخ سفید به اسرائیل هیوم:
+بر اساس توافق، ایران باید ذخایر اورانیوم غنی‌شده خودش رو نابود کنه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## Shin_Persian — post 6996
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Fri, 12 Jun 2026 20:51:21 UTC
+
+State-owned Mehr Newس:
+
+"Explosion sounds heard around Qeshm Island and Sirik, Hormozgan Province
+Initial reports suggest a conflict near Strait of Hormuz. No official confirmation authorities on nature of explosions."
+
+ترجمه خودکار فارسی
+
+خبرگزاری دولتی مهر:
+
+«صدای انفجار در اطراف جزیره قشم و سیریک، استان هرمزگان شنیده شد.
+گزارش‌های اولیه از وقوع درگیری در نزدیکی تنگه هرمز خبر می‌دهند. هنوز هیچ تاییدیه رسمی از سوی مقامات درباره ماهیت این انفجارها ارائه نشده است.»
+
+𝕏 · @shin_persian
+</div>
+
+## Persian_Trend_Official — post 16889
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16889_1781297539.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تصاویر ماهواره ای جدید از پایگاه شیخ عیسی در بحرین تایید میکند که در جریان حملات اخیر ایران چند مخزن سوخت و یک سازه دیگر در این پایگاه منهدم شده است.
+
+ساعاتی پیش تصاویری از یک اصابت دیگر در گوشه ای از پایگاه در کانال پست شده بود.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## BBCPersian — post 283595
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻 گفت‌وگوی تلفنی وزرای خارجه پاکستان و سوئیس و احتمال سفر اسحاق‌دار به ژنو
+
+دولت پاکستان اعلام کرد که محمد اسحاق‌دار، معاون نخست‌وزیر و وزیر امور خارجه پاکستان، شامگاه امروز (جمعه) با ایگنازیو کاسیس، وزیر امور خارجه سوئیس، گفت‌وگوی تلفنی کرد.
+
+بنا به اعلامیه وزارت خارجه پاکستان، دو طرف در این گفت‌وگو درباره تحولات منطقه‌ای تبادل نظر کردند و از پیشرفت امیدوارکننده در مسیر دستیابی به تفاهم میان آمریکا و ایران استقبال کردند.
+
+وزارت خارجه پاکستان نوشته که وزیر امور خارجه سوئیس از نقش میانجی‌گرانه و برجسته پاکستان در حمایت از تعاملات دیپلماتیک و تلاش‌های این کشور برای پیشبرد روند صلح و ثبات در منطقه و فراتر از آن قدردانی کرد.
+
+این در حالی است که گزارش‌هایی از احتمال سفر آقای دار به ژنو در ارتباط با تفاهم احتمالی ایران و آمریکا نیز منتشر شده است.
+
+https://bbc.in/4vLXKyL
+@BBCPersian
+</div>
+
+## BBCPersian — post 283594
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283594_1781297540.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌ ‌ ‌ ‌ ‌
+چهار منبع به رویترز گفته‌اند که امارات متحده عربی با «آزادسازی میلیاردها دلار برای ایران موافقت کرده است.»
+
+به گفته این منابع چنین اقدامی نشان‌دهنده تغییر تاکتیکی در رویکرد ابوظبی پس از هفته‌ها حملات ایران به آن کشور ثروتمند حاشیه خلیج فارس در جریان جنگ آمریکا و اسرائیل با جمهوری اسلامی است.
+
+خبر این اقدام که پیش‌تر گزارش نشده بود، همزمان با مراحل پایانی مذاکرات گسترده‌تر میان تهران و واشنگتن برای پایان دادن به جنگ منتشر می‌شود. دیپلمات‌ها می‌گویند که این مذاکرات ممکن است شامل آزادسازی ده‌ها میلیارد دلار از درآمدهای نفتی ایران باشد که تحت تحریم‌های آمریکا در بانک‌های خارجی مسدود شده است.
+
+این در حالیست که پیشتر جی‌دی ونس، معاون دونالد ترامپ گفته بود که در صورت امضای توافق با ایران هیچ‌گونه پولی از اموال مسدود شده ایران آزاد نخواهد شد.
+
+اما دو منبع منطقه‌ای به رویترز گفتند که امارات با «آزادسازی در مجموع ۱۰ میلیارد دلار موافقت کرده که بیش از ۳ میلیارد دلار آن تاکنون در اختیار ایران قرار گرفته است.»
+
+https://bbc.in/4egAVMj
+📷Dimas Ardian/Bloomberg via Getty Images
+@BBCPersian
+</div>
+
+## alonews — post 127510
+
+<div align="center">
+  <a href="telegram/content/alonews_127510_1781297540.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فاینشنال تایمز: اورانیوم غنی شده ایران، نابود خواهد شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/23 00:12
 ---
 

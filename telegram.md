@@ -7,6 +7,101 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/23 01:42
+---
+
+## VahidOOnLine — post 245218
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245218_1781302347.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری فارس، نزدیک به سپاه پاسداران، شامگاه جمعه ۲۲ خرداد از «شلیک هشدار به کشتی‌های متخلف» در تنگه هرمز خبر داد.
+
+این خبرگزاری حکومتی نوشت: «دقایقی پیش، مردم در قشم، جاسک و سیریک در استان هرمزگان شنیدن صدایی شبیه انفجار گزارش کردند» و افزود: «گزارشی از اصابت در این نقاط مخابره نشده است.»
+
+فارس به نقل از «منابع آگاه» نوشت: «صداهای شنیده شده مربوط به انجام شلیک هشدار به کشتی‌های متخلف در محدوده تنگه هرمز است.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245217
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245217_1781302348.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️العربیه، روز جمعه، ۲۲ خردادماه، به نقل از یک منبع آگاه گزارش داد که امضای توافق احتمالی میان تهران و واشنگتن در ژنو انجام نخواهد شد. براساس این گزارش، «امضای تفاهم‌نامه به صورت غیرحضوری صورت خواهد گرفت».
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14686
+
+<div align="center">
+  <img src="telegram/content/WithYashar_14686_1781302348.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Bombardier E-11A در منطقه توضیح در ویس
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342915
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342915_1781302349.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Elon Musk isn't the only one getting richer from SpaceX going public.
+
+The stock’s surge is estimated to have turned about 4,400 current and former employees into millionaires through equity compensation accumulated during their time at the company.
+
+SpaceX’s long-awaited IPO raised a record $75 billion, valuing the company at roughly $1.8 trillion.
+
+The offering also pushed Musk’s estimated net worth past the $1 trillion mark, further cementing his position as the world’s richest person.
+
+Now Wall Street is watching to see whether the stock's early trading can drive SpaceX’s valuation even higher, rewarding employees and investors who backed the company during its rise.
+</div>
+
+## IranIntlTV — post 341965
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341965_1781302350.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری فارس، نزدیک به سپاه پاسداران، شامگاه جمعه ۲۲ خرداد از «شلیک هشدار به کشتی‌های متخلف» در تنگه هرمز خبر داد.
+
+این خبرگزاری حکومتی نوشت: «دقایقی پیش، مردم در قشم، جاسک و سیریک در استان هرمزگان شنیدن صدایی شبیه انفجار گزارش کردند» و افزود: «گزارشی از اصابت در این نقاط مخابره نشده است.»
+
+فارس به نقل از «منابع آگاه» نوشت: «صداهای شنیده شده مربوط به انجام شلیک هشدار به کشتی‌های متخلف در محدوده تنگه هرمز است.»
+https://iranintl.com/202606121250
+</div>
+
+## FarsiVOA — post 220531
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️سازمان عفو بین‌الملل از مقام‌های جمهوری اسلامی خواست فورا اجرای احکام اعدام پنج زندانی سیاسی در زندان شیبان اهواز را متوقف کنند.
+@FarsiVOA
+</div>
+
+## alonews — post 127524
+
+<div align="center">
+  <a href="telegram/content/alonews_127524_1781302351.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈آکسیوس: به نظر میرسد نتانیاهو در جریان تماس تلفنی با ترامپ متوجه شده که نمیتواند مانع از انعقاد توافق با ایران شود‌‌
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/23 01:32
 ---
 

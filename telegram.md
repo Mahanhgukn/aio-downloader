@@ -7,6 +7,99 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/22 16:03
+---
+
+## WithYashar — post 14633
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نبویان: ما آمریکا رو زدیم زمین، رو سینه‌اش نشستیم که کار رو تموم کنیم یهو رفتیم پای میز مذاکره، میخوایم توافقی بکنیم که اون بیاد بشینه رو سینه ما اخه.
+@withyashar 😂🍋🍋
+</div>
+
+## FoxNewsTwitter — post 342896
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342896_1781267636.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+U.S. forces shot down two Iranian attack drones targeting commercial ships in the Strait of Hormuz just hours after President Trump said he had called off planned strikes on Iran.
+
+The incident comes as Washington and Tehran continue negotiating a potential agreement aimed at preventing Iran from obtaining a nuclear weapon.
+
+Iranian state media claims a draft deal includes sanctions relief, troop withdrawals, and the release of frozen funds, but major nuclear and economic issues remain unresolved and no final agreement has been signed, @Max_Gorden reports.
+</div>
+
+## IranIntlTV — post 341871
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/341871" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی اخبار نیم‌روزی | جمعه ۲۲ خرداد
+@iranintlTV
+</div>
+
+## IranianMinds — post 22404
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سی‌ان‌ان تمام اون ۳۹ باری که ترامپ گفته توافق نزدیک هستو کنار هم گذاشته.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 283565
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283565_1781267638.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻یک سازمان که فعالیت‌های گروه‌های افراطی را در فضای مجازی رصد می‌کند، گفته است که یک گروه هکری مرتبط با ایران مدعی شده است که به پهپادهای سازمان اطلاعات مرکزی آمریکا، اف‌بی‌آی نفوذ کرده و تهدید کرده است که جام جهانی فوتبال که از این هفته آغاز شده را هدف قرار خواهد داد.
+
+سازمان آمریکایی «جستجو برای شناسایی گروه‌های تروریستی بین‌المللی»، بیانیه‌ای از گروه «حنظله» منتشر کرده که در آن ادعا شده این گروه ه «ماه‌ها به تصاویر و داده‌های جمع‌آوری‌شده توسط پهپادهای مجهز به تصویر زنده اف‌پی‌وی دسترسی داشته‌ است.»
+
+هکرها گفته‌اند که این پهپادها به فناوری تشخیص چهره و شناسایی پلاک خودرو مجهز بوده و در عملیات ضدتروریستی به کار گرفته می‌شوند.
+
+این سازمان اطلاعاتی به نقل از بیانیه‌ای از گروه حنظله گفت: «بهتر است تدابیر امنیتی جام جهانی را تشدید کنید؛ ما از برخی از این تیم‌ها اصلاً خوشمان نمی‌آید. فراموش نکنید که پهپادهای اف‌پی‌وی همه‌ جا هستند؛ هیچ‌وقت نمی‌دانید چه زمانی یکی از آن‌ها ممکن است درست به اتوبوس تیم شما برسد.»
+ادامه مطلب⬇️
+
+📸GettyImages
+https://bbc.in/4eiVmZg
+@BBCPersian
+</div>
+
+## alonews — post 127398
+
+<div align="center">
+  <a href="telegram/content/alonews_127398_1781267638.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 دیروز دونالد ترامپ جونیور در هتل لوکس د آنگلتِر در کپنهاگ، دانمارک، همراه با گروهی از مأموران سرویس مخفی دیده شد.
+
+
+🔴دلیل حضور او در دانمارک مشخص نیست
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127397
+
+<div align="center">
+  <a href="telegram/content/alonews_127397_1781267639.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سی‌ان‌ان با نقل از منبع آگاه : اسرائیل به آمریکا فشار آورده تا تو تفاهم‌نامه، دارایی‌های بلوکه‌شده ایران آزاد نشه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/22 15:53
 ---
 

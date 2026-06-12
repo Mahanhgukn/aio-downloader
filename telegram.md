@@ -7,6 +7,199 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/22 22:43
+---
+
+## VahidOOnLine — post 245196
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245196_1781291629.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ مجید موسوی، فرمانده هوافضای سپاه پاسداران، روز جمعه ۲۲ خرداد، با بازنشر پیام عباس عراقچی در شبکه اجتماعی ایکس، اعتراض خود نسبت به علنی نشدن جزئیات تفاهم‌نامه تهران و واشنگتن را بیان کرد. موسوی با اشاره به حضور خیابانی طرفداران حکومت در دوران جنگ، نوشت: «مردم مبعوث‌شده، بی‌ادعا و استوار، امنیت کوچه و خیابان این سرزمین را پاس داشتند و محرم و امینِ انقلاب هستند».
+
+عراقچی در پیام بازنشر شده، با توصیه به رسانه‌ها مبنی بر خودداری از گمانه‌زنی درباره جزئیات تفاهم‌نامه، تاکید کرده بود که تمام جزئیات «در زمان مناسب» در اختیار عموم قرار خواهد گرفت.
+
+اظهارات موسوی در حالی بیان شد که گمانه‌زنی‌های رسانه‌های جمهوری اسلامی که صبح جمعه منتشر شد، باعث خشم دونالد ترامپ، رئیس‌جمهوری آمریکا شد. او با اشاره به این گزارش‌ها، مقام‌های جمهوری اسلامی را «بدقول و بی‌شرافت» خوانده و گفت که معامله با «افراد بی‌اعتبار» فایده‌ای ندارد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14666
+
+<div align="center">
+  <a href="telegram/content/WithYashar_14666_1781291630.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فعال شدن پدافند مشهد 🚨
+@withyashar
+</div>
+
+## WithYashar — post 14665
+
+<div align="center">
+  <a href="telegram/content/WithYashar_14665_1781291632.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارشهای زیاد شما از مشاهده چندین پهپاد شناسایی هم اکنون در آسمان تهران
+@withyashar
+</div>
+
+## mwarmonitor — post 10792
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴قالیباف
+تعهدات داده شده باید تعهداتِ اجرا شده باشند. هیچ اگر، اما و بهانه‌ای پذیرفته نیست. برای توافق نزدیکی که در پیش است، راه دیگری وجود ندارد. هر چه بکاری همان را درو می‌کنی.
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 342911
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+A wanted driver thought he could get away from police on a busy Georgia roadway.
+
+But officers deployed one of the most effective tools being put in the hands of police: the Grappler.
+
+Dashcam video shows Atlanta police firing a Grappler from the front of a patrol vehicle, wrapping the truck's rear tire in a heavy-duty tether and bringing it to a controlled stop before a chase could even begin.
+
+Police say the driver was wanted for allegedly destroying multiple Flock cameras used by law enforcement to help solve local crimes and now faces property damage, interference with government property, and drug charges.
+</div>
+
+## pm_afshaa — post 93723
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93723_1781291635.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴الحدث: وزیر خارجه پاکستان امشب عازم ژنو میشه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93722
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93722_1781291635.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رویترز: امارات قراره 10 یا 20 میلیارد دلار پول ایران رو آزاد کنه. چند روز پیش هم 3 میلیارد دلار رو به ایران برگردوند، به شرط اینکه ایران دیگه به امارات حمله نکنه. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5622
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5622_1781291636.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🔸 خبر ۲۱
+آدینه ۲۲ خرداد ۱۴۰۵
+
+#خبر۲۱
+@DEJradio
+</div>
+
+## VahidOnline — post 76282
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76282_1781291639.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+توییت قالیباف، ترجمه ماشین:
+تعهداتی که داده می‌شوند باید عملی شوند؛ نه اما و اگری، نه عذر و بهانه‌ای. برای توافق نهاییِ پیشِ رو، راه دیگری وجود ندارد.
+هرچه بکاری، همان را درو می‌کنی.
+mb_ghalibaf
+
+📡 @VahidOnline
+</div>
+
+## kianmeli1 — post 87965
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴قوه قضاییه
+
+برای ترامپ و نتانیاهو حکم اعدام صادر کردیم.
+https://t.me/kianmeli1
+</div>
+
+## DW_Farsi — post 125910
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 ایرانِ متکثر در پارلمان اروپا؛ هم‌صدایی برای گذار دموکراتیک
+
+🔻گزارشی از امید برین
+
+پس از بازرسی‌های معمول ورودی ساختمان پارلمان اروپا، وارد راهروها و با ایرانیانی روبرو شدم که خود را به سمت یکی از سالن‌های اصلی می‌رساندند. افرادی با گرایش‌های مختلف سیاسی و از اتنیک‌های گوناگون ایران؛ از کُرد، ترکمن و عرب گرفته تا فارس و بلوچ. از پیروان ادیان و مذاهب مختلف تا نمایندگان اقلیت‌های جنسی و جنسیتی.
+
+اما این گوناگونی چشمگیر باعث نشده بود که آن‌ها هم‌صدا و متحد نباشند، بلکه تنوع هویتی و سیاسی در اینجا به‌عنوان موتور محرکه‌ای برای عبور از "استبداد" در نظر گرفته می‌شد.
+
+این گردهمایی در قالب کنفرانسی یک‌روزه با عنوان "برساخت ایران دموکراتیک" در تاریخ ۱۱ ژوئن (۲۱ خرداد) در مقر پارلمان اروپا در بروکسل برگزار شد. به همین مناسبت بخش فارسی دویچه وله در حاشیه این رویداد با شماری از فعالان سیاسی حاضر در نشست گفت‌وگو کرده است تا بازتابی از اهداف و دغدغه‌های اپوزیسیون متکثر ایرانی ارائه دهد.
+@dw_farsi
+</div>
+
+## Dirty_Kids — post 391836
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391836_1781291640.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دوس پسرم جوابمو نمیده، حتما داره بهم خیانت میکنه😭
+
+همون موقع دوس پسرش:
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391834
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نبویان دست ثابتی و جلیلی بگیر فرار کن، قالیباف سرتونو میکنه زیر آب زیاد گوه بخورید
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391833
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391833_1781291642.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عرزشی سید مجیدتونم که کونی از آب درومد
+اینم که خدنگ قالیبافه:))))
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 127481
+
+<div align="center">
+  <a href="telegram/content/alonews_127481_1781291643.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈عراقچی: دشمن تصور می‌کرد که بعد از جنگ ۱۲ روزه، در جنگ ۴۰ روزه می‌تواند ایران را تسلیم کند اما با مقاومت جانانهٔ مردم و نیروهای مسلح ایران مواجه شد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/22 22:33
 ---
 

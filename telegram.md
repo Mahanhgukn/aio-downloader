@@ -7,6 +7,84 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/23 02:12
+---
+
+## WithYashar — post 14689
+
+<div align="center">
+  <img src="telegram/content/WithYashar_14689_1781304140.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیشروی ارتش اسرائیل در جنوب لبنان؛ ۶.۷ کیلومتر تا نبطیه
+ارتش اسرائیل به شهر ارنون رسیده و هم اکنون در حال حملات توپخانه ای سنگین به تپه علی الطاهر هستند. l بالگرد های آپاچی ۶۴ اسرائیلی نیز به تپه علی الطاهر حمله کردند. با تصرف این تپه مهم رسما تصرف شهر نبطیه برای اسرائیلی ها آسان خواهد شد.
+@withyashar
+</div>
+
+## FarsiVOA — post 220533
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220533_1781304140.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️امیرعلی پیروزبخش از بازی اول کانادا در سومین حضور این تیم در رقابت‌های جام جهانی می‌گوید
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 16899
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16899_1781304141.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فایل صوتی لایو دوم امشب در اسپاتیفای
+https://open.spotify.com/episode/6k6OWJoWjKiwwhaLX1m7UF
+</div>
+
+## Persian_Trend_Official — post 16898
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فایل صوتی لایو اول امشب در اسپاتیفای https://open.spotify.com/episode/4etbRLzxUWjhY2UglM8GwW
+</div>
+
+## IranianMinds — post 22437
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22437_1781304142.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴امارات به صورت رسمی اعلام کرد:
+
+ما هیچ‌یک از پول‌های بلوکه شده ایران را آزاد نکردیم، اینکه می‌گویند ۳ میلیارد دلار پول را به ایران تحویل داده‌ایم دروغ محض می‌باشد.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 283599
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283599_1781304142.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌ ‌ ‌ ‌
+در اولین بازی دومین روز جهام جهانی فوتبال مردان، دومین میزبان این دوره نتوانست از پس حریف اروپایی خود بر بیاید و کانادا و بوسنی و هرزگوین به تقسیم امتیازات رضایت دادند.
+
+این بازی که در شهر تورنتو برگزار شد، ابتدا مراسم افتتاحیه کانادا را به همراه داشت و سپس دو تیم به مصاف هم رفتند.
+
+با وجود حملات اولیه و کنترل بازی توسط کانادا در ابتدای کار اما این بوسنی بود که از یکی از کرنرها خود توانست استفاده کند و یوکو لوکیچ در دقیقه ۲۱ گل اول بازی را به ثمر رساند.
+
+در ادامه کانادا سعی کرد تا با کنترل بیشتر بازی بتواند از شکست بگریزد اما نیمه اول با همین نتیجه به پایان رسید.
+
+در نیمه دوم کانادا به تلاش‌ها خود ادامه داد تا اینکه با تعویض طلایی که مربی این تیم انجام داد در دقیقه ۷۸ کایل لارین میزبان را از شکست نجات داد.
+
+این سومین بازی جام جهانی ۲۰۲۶ و اولین تساوی این مسابقات بود. در دو بازی قبلی مکزیک و کره‌جنوبی توانسته بودند حریفان خود را شکست دهند.
+
+📷 IMAGN IMAGES/Reuters
+@BBCPersian
+</div>
+
+---
 📅 بروزرسانی: 1405/03/23 02:02
 ---
 

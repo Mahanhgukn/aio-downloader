@@ -7,6 +7,276 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/22 19:03
+---
+
+## VahidOOnLine — post 245162
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245162_1781278401.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️عباس عراقچی، وزیر امور خارجه جمهوری اسلامی که نقشی کلیدی در مذاکرات جاری با واشنگتن دارد، با هشدار به رسانه‌ها برای خودداری از گمانه‌زنی، تاکید کرد که «یادداشت تفاهم اسلام‌آباد، هرگز به این اندازه نزدیک نبوده است.»
+
+عراقچی با اشاره به گزارش‌های رسانه‌ها درباره برخی جزئیات این تفاهم‌نامه که با واکنش تند ترامپ نیز مواجه شد، گفت: «در راستای رویکرد مسئولانه و شفاف ما، تمامی جزئیات در زمان مقتضی با عموم مردم به اشتراک گذاشته خواهد شد.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245161
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245161_1781278402.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مسعود پزشکیان در نشست مشترک وزارت دفاع و وزارت نیروی جمهوری اسلامی گفت که اصلاح رفتار مصرفی، ارتقای بهره‌وری و مشارکت عمومی از الزامات اساسی مقابله با «ناترازی‌های» انرژی است.
+او با اشاره به اینکه «پیچیدگی‌های جنگ اقتصادی به مراتب بیشتر از جنگ نظامی است» افزود: «دشمنان با ایجاد اختلال در تامین منابع حوزه‌های آب، برق، گاز و معیشت مردم به دنبال ایجاد نارضایتی عمومی هستند.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245160
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245160_1781278403.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️جی‌دی ونس، معاون رئیس‌جمهوری آمریکا، با انتشار پیامی در شبکه اجتماعی ایکس، به شایعات و گزارش‌ها درباره توافق احتمالی برای بازگشایی تنگه هرمز و پایان دادن به برنامه تسلیحات هسته‌ای ایران واکنش نشان داد.
+
+ونس اعلام کرد: «ایرانی‌ها هیچ پول نقدی دریافت نمی‌کنند و هیچ دارایی مالی صرفا برای امضای یک توافق یا شرکت در یک جلسه آزاد نخواهد شد.» او تاکید کرد که ساختار این توافق به گونه‌ای است که اولویت با دغدغه‌های آمریکا و متحدانش است و تنها در صورت اجرای کامل تعهدات از سوی جمهوری اسلامی، منافع اقتصادی به آن‌ها و کل منطقه سرازیر می‌شود؛ امری که می‌تواند منطقه را بازسازی کرده و به صلحی پایدار منجر شود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14645
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جی‌ دی ونس:
+اولاً، ایرانیان هیچ وجه نقدی دریافت نمی‌کنند و هیچ وجهی صرفاً برای امضای یک توافق یا حضور در یک جلسه آزاد نمی‌شود
+این توافق به گونه‌ای طراحی شده است که نگرانی‌های ایالات متحده و متحدانش اولویت داشته باشد، و اگر جمهوری اسلامی ایران تعهدات خود را انجام دهد، فواید اقتصادی به آن‌ها و کل منطقه سرازیر خواهد شد. این توافق پتانسیل بازسازی منطقه و منجر شدن به صلح پایدار را دارد.
+@withyashar
+</div>
+
+## pm_afshaa — post 93700
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93700_1781278403.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ای‌بی‌سی نیوز: با همه اختلافات و نوشته‌های تند در سوشال‌مدیا، دولت ترامپ در حال پیشبرد برنامه‌های برگزاری مراسم امضای توافق در ژنو، احتمالاً در آخر همین هفته‌ست.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93699
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93699_1781278404.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کاتز، وزیر دفاع اسرائیل: ما به دنبال پیروزی هستیم نه سازش و امتیازدهی.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## VahidOnline — post 76268
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76268_1781278404.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جی‌دی ونس، معاون رئیس‌جمهوری آمریکا، با انتشار پیامی در شبکه اجتماعی ایکس، به شایعات و گزارش‌ها درباره توافق احتمالی برای بازگشایی تنگه هرمز و پایان دادن به برنامه تسلیحات هسته‌ای ایران واکنش نشان داد.
+
+ونس اعلام کرد: «ایرانی‌ها هیچ پول نقدی دریافت نمی‌کنند و هیچ دارایی مالی صرفا برای امضای یک توافق یا شرکت در یک جلسه آزاد نخواهد شد.» او تاکید کرد که ساختار این توافق به گونه‌ای است که اولویت با دغدغه‌های آمریکا و متحدانش است و تنها در صورت اجرای کامل تعهدات از سوی جمهوری اسلامی، منافع اقتصادی به آن‌ها و کل منطقه سرازیر می‌شود؛ امری که می‌تواند منطقه را بازسازی کرده و به صلحی پایدار منجر شود.
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 341904
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341904_1781278405.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مسعود پزشکیان در نشست مشترک وزارت دفاع و وزارت نیروی جمهوری اسلامی گفت که اصلاح رفتار مصرفی، ارتقای بهره‌وری و مشارکت عمومی از الزامات اساسی مقابله با «ناترازی‌های» انرژی است.
+او با اشاره به اینکه «پیچیدگی‌های جنگ اقتصادی به مراتب بیشتر از جنگ نظامی است» افزود: «دشمنان با ایجاد اختلال در تامین منابع حوزه‌های آب، برق، گاز و معیشت مردم به دنبال ایجاد نارضایتی عمومی هستند.»
+https://iranintl.com/202606120328
+</div>
+
+## IranIntlTV — post 341903
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/341903" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی اخبار شبانگاهی | جمعه ۲۲ خرداد
+@iranintlTV
+</div>
+
+## Shin_Persian — post 6986
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet: Shin ✓ @hey_itsmyturn Fri, 12 Jun 2026 15:28:38 UTC @JDVance Yes, people believe the claims by an OFFICIAL STATE-OWNED media (Let's say Mehr), Of course no one trusts the IRGC terrorists, but when THEY are the other end of the deal, their…
+</div>
+
+## Shin_Persian — post 6985
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+Shin ✓ @hey_itsmyturn
+Fri, 12 Jun 2026 15:28:38 UTC
+
+@JDVance Yes, people believe the claims by an OFFICIAL STATE-OWNED media (Let's say Mehr), Of course no one trusts the IRGC terrorists, but when THEY are the other end of the deal, their media will be taken seriously.
+Now you answer:
+https://t.me/mehrnews/386296
+Do you consider a regime-owned
+
+↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
+
+ترجمه خودکار فارسی
+
+@JDVance بله، مردم ادعاهای یک رسانه رسمی دولتی (مثلاً خبرگزاری مهر) را باور می‌کنند، البته هیچ‌کس به تروریست‌های سپاه پاسداران (IRGC) اعتماد ندارد، اما وقتی آن‌ها طرف دیگر معامله هستند، رسانه‌شان جدی گرفته خواهد شد.
+حالا شما پاسخ دهید:
+https://t.me/mehrnews/386296
+آیا شما یک رسانه متعلق به رژیم را معتبر می‌دانید؟
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6984
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Fri, 12 Jun 2026 15:23:10 UTC
+
+US VP:
+"I'm seeing a lot of fake information about a potential deal to reopen the Strait and end Iran's nuclear weapons program. First, the Iranians are not receiving any cash, and no funds are being released for simply signing a deal or attending a meeting. The deal is structured to ensure that the US and its allies concerns are prioritized, and that if the Islamic Republic of Iran meets its obligations, then economic benefits will flow to them and to the entire region. This deal has the potential to remake the region and lead to lasting peace. I've noticed a couple of bizarre things in the reporting over the last few hours. First, people who (rightly) said Donald Trump was a historic president a month ago now criticizing a deal based on unconfirmed media reports. Second, people who say you can't trust a word said by the IRGC who apparently believe anonymously sourced social media posts. The president is going to get us a good outcome, one way or the other."
+
+ترجمه خودکار فارسی
+
+معاون رئیس‌جمهور ایالات متحده:
+«من شاهد اطلاعات جعلی زیادی در مورد توافق احتمالی برای بازگشایی تنگه و پایان دادن به برنامه سلاح‌های هسته‌ای ایران هستم. اولاً، ایرانی‌ها هیچ پول نقدی دریافت نمی‌کنند و هیچ وجهی صرفاً برای امضای یک توافق یا شرکت در یک جلسه آزاد نمی‌شود. ساختار این توافق به گونه‌ای است که اطمینان حاصل شود نگرانی‌های ایالات متحده و متحدانش در اولویت قرار دارد، و اگر جمهوری اسلامی ایران به تعهدات خود عمل کند، منافع اقتصادی به سوی آن‌ها و کل منطقه سرازیر خواهد شد. این توافق پتانسیل بازسازی منطقه و برقراری صلح پایدار را دارد. من متوجه چند مورد عجیب در گزارش‌های چند ساعت گذشته شده‌ام. اول، افرادی که یک ماه پیش (به‌درستی) می‌گفتند دونالد ترامپ یک رئیس‌جمهور تاریخی بود، اکنون بر اساس گزارش‌های تایید نشده رسانه‌ای از یک توافق انتقاد می‌کنند. دوم، افرادی که می‌گویند نمی‌توان به هیچ حرفی از سوی سپاه پاسداران انقلاب اسلامی (IRGC) اعتماد کرد، ظاهراً پست‌های شبکه‌های اجتماعی با منابع ناشناس را باور می‌کنند. رئیس‌جمهور به هر شکلی که شده، یک نتیجه خوب برای ما رقم خواهد زد.»
+
+𝕏 · @shin_persian
+</div>
+
+## DW_Farsi — post 125900
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 فشار بر استارمر پس از تغییر وزیر دفاع بریتانیا کاهش نیافته است
+
+پس از استعفای جان هیلی در روز پنج‌شنبه (۱۱ ژوئن)، دان جارویس همان شب به‌عنوان وزیر دفاع جدید بریتانیا معرفی شد.
+
+این جابه‌جایی سریع اگرچه خلا مدیریتی در وزارت دفاع را پر کرد، اما از فشار سیاسی بر کی‌یر استارمر، نخست‌وزیر بریتانیا، کم نکرد؛ به‌ویژه آن‌که نامه استعفای هیلی، در عمل یک انتقاد تند از سیاست دفاعی دولت بود.
+
+دان جارویس پیش از این، وزیر مشاور در وزارت کشور و همچنین در کابینه دولت بود. او از چهره‌های دارای سابقه امنیتی و نظامی به شمار می‌رود، در دانشگاه ابریستویث در رشته سیاست بین‌الملل و مطالعات راهبردی تحصیل کرده و از آکادمی نظامی سندهرست فارغ‌التحصیل شده است.
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 16857
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16857_1781278405.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عراقچی: تفاهم‌نامه اسلام‌آباد هیچگاه تا این حد به نهایی شدن نزدیک نبوده است.
+
+سید عباس عراقچی، وزیر امور خارجه ایران، اعلام کرد که در چارچوب رویکرد مسئولانه و شفاف، تمامی جزئیات تفاهم‌نامه اسلام‌آباد در زمان مناسب با عموم مردم به اشتراک گذاشته خواهد شد.
+
+وی تأکید کرد: تا زمان تکمیل و نهایی شدن آن، رسانه‌ها باید از گمانه‌زنی درباره محتوای آن خودداری کنند.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## RadioFarda — post 158229
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_158229_1781278406.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸جی‌دی ونس، معاون رئیس‌جمهور آمریکا، روز جمعه گفت که در ازای امضای توافق با ایالات متحده یا حضور در یک نشست، هیچ‌گونه منابع مالی در اختیار ایران قرار نخواهد گرفت و تهران «هیچ پولی دریافت نمی‌کند».
+
+🔸او در شبکه ایکس نوشت توافق آمریکا و ایران «به گونه‌ای طراحی شده است که اطمینان حاصل شود نگرانی‌های ایالات متحده و متحدانش در اولویت قرار دارند و در صورتی که جمهوری اسلامی ایران به تعهدات خود عمل کند، منافع اقتصادی به ایران و همچنین به کل منطقه خواهد رسید».
+
+🔸معاون دونالد ترامپ همچنین وعده داد: «این توافق این ظرفیت را دارد که منطقه را دگرگون کند و به صلحی پایدار منجر شود.»
+
+🔸این موضع ساعتی بعد از انتقاد رئیس‌جمهور آمریکا از درز دادن مواردی از متن تفاهم با ایران به رسانه‌ها اتخاذ شد. ترامپ تصریح کرد آنچه به عنوان محتوای توافق منتشر شده است، به هیچ وجه واقعیت ندارد.
+
+@RadioFarda
+</div>
+
+## RadioFarda — post 158228
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+از میدان جنگ تا میز مذاکره؛ روایت دوگانهٔ آمریکا و اسرائیل درباره ایران
+
+🔸در حالی که دونالد ترامپ، رئیس‌جمهور آمریکا، از دستیابی قریب‌الوقوع به یک تفاهم سیاسی با ایران خبر داده، معاون او در گفت‌وگویی با شبکه سی‌بی‌اس‌نیوز وجود اختلاف دیدگاه با نخست‌وزیر اسرائیل در برخی موارد، از جمله بر سر جنگ‌های جاری در خاورمیانه و ایران، را تأیید کرده است.
+
+🔸در این گزارش به بازتاب اظهارات و رویکرد مقامات آمریکایی در جامعه اسرائیل می‌پردازیم. متن کامل را در وب‌سایت رادیوفردا بخوانید.
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 22414
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22414_1781278406.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تلاوت شیرین دویدم، به قبرستونی رسیدم.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 283577
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283577_1781278407.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻رئیس کل دادگستری استان کردستان گفته است که اموال ۱۹ فرد متهم «به همکاری با رسانه‌های وابسته به دشمن» در این استان توقیف شده است.
+
+حسین حسینی گفته است این افراد «فیلم و عکس از اماکن حساس و محل اصابت پرتابه‌های دشمن تهیه کرده و این محتوا را برای حساب‌های کاربری رسانه‌ها و شبکه‌های وابسته به دشمن از جمله ایران اینترنشنال، بی‌بی‌سی فارسی، صدای آمریکا، رادیو فردا، من‌وتو و همچنین کانال‌ها و حساب‌های کاربری مرتبط با سرویس‌های جاسوسی ارسال می‌کردند.»
+به گفته این مقام قضایی توقیف اموال این ۱۹ نفر بر اساس «اجرای قانون تشدید مجازات جاسوسی و همکاری با رژیم صهیونیستی و کشورهای متخاصم» انجام شده است.
+این قانون سال گذشته و پس از حمله اسرائیل به ایران و جنگ ۱۲ روزه تصویب شد.
+
+در جریان حملات آمریکا و اسرائیل به ایران که نهم اسفند آغاز شد، ایران اجرای این قانون را شدت داده و اموال ده‌ها نفر را توقیف کرده است.
+
+📸MEHR
+https://bbc.in/4uBOZX4
+@BBCPersian
+</div>
+
+## alonews — post 127433
+
+<div align="center">
+  <a href="telegram/content/alonews_127433_1781278408.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 سید عباس عراقچی، وزیر خارجه: حفظ یادداشت تفاهم اسلام‌آباد هرگز به این اندازه نزدیک نبوده است. تا زمان نهایی شدن آن، رسانه‌ها باید از ورود به حدس و گمان درباره محتوای آن خودداری کنند. 
+🔴در راستای رویکرد مسئولانه و شفاف ما، تمام جزئیات در زمان مناسب با عموم…
+</div>
+
+---
 📅 بروزرسانی: 1405/03/22 18:53
 ---
 

@@ -7,6 +7,222 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/22 17:24
+---
+
+## VahidOOnLine — post 245145
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245145_1781272456.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سی‌ان‌ان به نقل از یک دیپلمات آگاه نوشت توافق موقت میان آمریکا و جمهوری اسلامی - که هنوز به طور قطعی نهایی نشده - پس از امضا، راه را برای مذاکرات بیشتر درباره برنامه هسته‌ای تهران و موضوع رفع تحریم‌ها در دوره آتش‌بس ۶۰ روزه باز خواهد کرد.
+
+سی‌ان‌ان افزود لزوم رسیدگی به سه موضوع اصلی و مورد اختلاف تنها در مدت ۶۰ روز باعث شده برخی ناظران تردید داشته باشند که آیا این توافق واقعا به جنگ پایان می‌دهد یا فقط مسائل دشوار را به آینده موکول می‌کند.
+
+بنا بر این گزارش، اگر مذاکره‌کنندگان آمریکایی اهدافی مشابه توافق قبلی را دنبال کنند، دستیابی به نتیجه در بازه ۶۰ روزه امکان‌پذیر است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245144
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245144_1781272457.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سی‌ان‌ان به نقل از یک دیپلمات آگاه نوشت توافق موقت میان آمریکا و جمهوری اسلامی - که هنوز به طور قطعی نهایی نشده - پس از امضا، راه را برای مذاکرات بیشتر درباره برنامه هسته‌ای تهران و موضوع رفع تحریم‌ها در دوره آتش‌بس ۶۰ روزه باز خواهد کرد.
+
+سی‌ان‌ان افزود لزوم رسیدگی به سه موضوع اصلی و مورد اختلاف تنها در مدت ۶۰ روز باعث شده برخی ناظران تردید داشته باشند که آیا این توافق واقعا به جنگ پایان می‌دهد یا فقط مسائل دشوار را به آینده موکول می‌کند.
+
+بنا بر این گزارش، اگر مذاکره‌کنندگان آمریکایی اهدافی مشابه توافق قبلی را دنبال کنند، دستیابی به نتیجه در بازه ۶۰ روزه امکان‌پذیر است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245143
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245143_1781272458.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمدنبی موسوی‌فرد، امام جمعه اهواز، گفت هرگونه عقب‌نشینی در برابر «جبهه آمریکا و اسرائیل»، ممنوع و غیرقابل پذیرش است.
+
+او در خطبه‌های نماز جمعه ۲۲ خرداد گفت امنیت کشور تنها به توان نظامی محدود نمی‌شود و حاصل ترکیبی از قدرت نظامی، قدرت نرم، هوشمندی رسانه‌ای و تاب‌آوری اقتصادی است.
+
+موسوی‌فرد افزود «دشمن» تلاش می‌کند با شایعه‌سازی و دوقطبی‌سازی، تاب‌آوری جامعه را تضعیف کند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14638
+
+<div align="center">
+  <img src="telegram/content/WithYashar_14638_1781272459.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ در تروث : مفادی که ایران به رسانه‌های جعلی (Fake News) درز داده است، هیچ ارتباطی با مفادی که به‌صورت مکتوب بر سر آن‌ها توافق شده بود، ندارد.
+آنچه آن‌ها گفته‌اند، از جمله بیانیه ضعیف و تأسف‌بارشان درباره وجود یک توافق، هیچ نسبتی با حقیقت ندارد.
+آن‌ها افرادی بسیار بی‌شرافت برای مذاکره و معامله هستند. در مورد آن‌ها، چیزی به نام مذاکره و رفتار با حسن نیت وجود ندارد. شگفت‌انگیز است!
+همچنین، حمله پهپادی کاملاً ناکام‌مانده آن‌ها دیشب علیه کشتی‌های هندی که در حال خروج از تنگه هرمز بودند، کاملاً غیرقابل قبول است.
+بهتر است هرچه سریع‌تر اوضاع خود را سر و سامان دهند؛ وگرنه با عواقب آن روبه‌رو خواهند شد.
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342900
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342900_1781272461.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: Trump blasts leaked Iranian deal terms, saying US is dealing with 'very dishonorable people' who 'better get their act together'
+</div>
+
+## pm_afshaa — post 93692
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93692_1781272461.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پست جدید ترامپ: شروطی که ایران در اختیار رسانه‌های دروغگو قرار داد، ربطی به شروطی که کتبا بر آن توافق شده، نداره. آنچه آنها گفتن، از جمله اظهارات ضعیف و رقت انگیز آنها در مورد وجود توافق، ربطی به حقیقت نداره. واقعاً طرف‌های بسیار بی‌شرفی برای مذاکره هستن.…
+</div>
+
+## pm_afshaa — post 93691
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93691_1781272462.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پست جدید ترامپ:
+
+شروطی که ایران در اختیار رسانه‌های دروغگو قرار داد، ربطی به شروطی که کتبا بر آن توافق شده، نداره. آنچه آنها گفتن، از جمله اظهارات ضعیف و رقت انگیز آنها در مورد وجود توافق، ربطی به حقیقت نداره. واقعاً طرف‌های بسیار بی‌شرفی برای مذاکره هستن. چیزی به نام برخورد با حسن نیت با آنها وجود نداره. شگفت انگیزه! حمله پهبادی شب گذشته آنها به کشتی‌های هندی که از تنگه هرمز خارج میشوند هم کاملا غیرقابل قبوله. بهتره اونا کارشونو با هم و سریع انجام بدن!
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 341883
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341883_1781272463.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سی‌ان‌ان به نقل از یک دیپلمات آگاه نوشت توافق موقت میان آمریکا و جمهوری اسلامی - که هنوز به طور قطعی نهایی نشده - پس از امضا، راه را برای مذاکرات بیشتر درباره برنامه هسته‌ای تهران و موضوع رفع تحریم‌ها در دوره آتش‌بس ۶۰ روزه باز خواهد کرد.
+
+سی‌ان‌ان افزود لزوم رسیدگی به سه موضوع اصلی و مورد اختلاف تنها در مدت ۶۰ روز باعث شده برخی ناظران تردید داشته باشند که آیا این توافق واقعا به جنگ پایان می‌دهد یا فقط مسائل دشوار را به آینده موکول می‌کند.
+
+بنا بر این گزارش، اگر مذاکره‌کنندگان آمریکایی اهدافی مشابه توافق قبلی را دنبال کنند، دستیابی به نتیجه در بازه ۶۰ روزه امکان‌پذیر است.
+https://iranintl.com/202606121945
+</div>
+
+## Shin_Persian — post 6981
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6981_1781272464.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn Fri, 12 Jun 2026 13:45:42 UTC POTUS: "The terms that Iran leaked out to the Fake News have NOTHING to do with the terms that were agreed to, in writing. What they said, including their weak and pathetic statement on having a deal, bears…
+</div>
+
+## Shin_Persian — post 6980
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Fri, 12 Jun 2026 13:45:42 UTC
+
+POTUS:
+"The terms that Iran leaked out to the Fake News have NOTHING to do with the terms that were agreed to, in writing. What they said, including their weak and pathetic statement on having a deal, bears no relation to the truth. Very dishonorable people to deal with. With them, there is no such thing as dealing in good faith. AMAZING! Also, their totally rebuffed Drone attack last night against Indian Ships leaving the Hormuz Strait is TOTALLY UNACCEPTABLE. They better get their act together, and FAST! President DONALD J. TRUMP"
+
+ترجمه خودکار فارسی
+
+رئیس‌جمهور ایالات متحده (POTUS):
+«شرایطی که ایران به رسانه‌های جعلی (Fake News) درز داده است، هیچ ارتباطی به شرایطی که به صورت کتبی بر سر آن‌ها توافق شده بود، ندارد. آنچه آن‌ها گفته‌اند، از جمله بیانیه ضعیف و رقت‌بارشان درباره داشتن یک توافق، هیچ نسبتی با حقیقت ندارد. افرادی بسیار بی‌شرف برای معامله کردن هستند. نزد آن‌ها، چیزی به اسم معامله با حسن نیت وجود ندارد. حیرت‌آور است! همچنین، حمله پهپادی کاملاً دفع‌شده آن‌ها در شب گذشته علیه کشتی‌های هندی که در حال خروج از تنگه هرمز بودند، کاملاً غیرقابل‌قبول است. بهتر است خودشان را جمع‌وجور کنند، آن هم سریع! رئیس‌جمهور دونالد جی. ترامپ»
+
+𝕏 · @shin_persian
+</div>
+
+## DW_Farsi — post 125894
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 رئيس‌جمهور سابق کره جنوبی به ۳۰ سال زندان محکوم شد
+
+به گزارش خبرگزاری یونهاپ، دادگاه منطقه‌ای سئول یون سوک یول، رئیس‌جمهور سابق کره جنوبی را در پرونده ارسال پهپاد به کره شمالی محکوم شناخت و به ۳۰ سال زندان محکوم کرد.
+
+او در موارد اتهامی "سوءاستفاده از قدرت" و "کمک به دشمن" گناهکار شناخته شده است.
+@dw_farsi
+</div>
+
+## IranianMinds — post 22410
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22410_1781272465.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ :
+
+شرایطی که ایران به رسانه‌های جعلی درز داده، هیچ ارتباطی با مفاد توافقی که به‌صورت مکتوب بر سر آن توافق شده ندارد.
+
+ادعاهای آن‌ها، از جمله بیانیه ضعیف و تأسف‌بارشان درباره توافق، هیچ شباهتی به حقیقت ندارد.
+
+اونا ادم ‌های بسیار بیشرفی برای مذاکره هستند.
+با آن‌ها چیزی به نام مذاکره با حسن نیت وجود ندارد.
+
+همچنین حمله پهپادی شب گذشته علیه کشتی‌های هندی که از تنگه هرمز خارج می‌شدند، کاملا غیرقابل قبول است.
+
+بهتره زودتر اوضاعشونو درست کنن خیلی زود !!
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 283566
+
+<div align="center">
+  <a href="telegram/content/BBCPersian_283566_1781272466.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻سرخط خبرهای جمعه ۲۲ خرداد ۱۴۰۵
+@BBCPersian
+</div>
+
+## alonews — post 127414
+
+<div align="center">
+  <a href="telegram/content/alonews_127414_1781272469.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ:
+شرایطی که ایران به اخبار جعلی داده است، هیچ ارتباطی با شرایطی که به صورت کتبی توافق شده ندارد. آنچه آنها گفتند، از جمله بیانیه ضعیف و ناامیدکننده‌شان درباره انجام معامله، هیچ ربطی به حقیقت ندارد.
+
+
+🔴افراد بسیار بی‌انصاف برای انجام معاملات. با آنها مفهومی به نام مذاکره منصفانه وجود ندارد. شگفت‌انگیز! علاوه بر این، حمله پهپادی کاملاً منعکس‌شده آنها دیشب به کشتی‌های هندی که از تنگه هرمز خارج می‌شدند، کاملاً غیرقابل قبول است.
+
+
+🔴بهتر است سریعاً به خودشان بیایند! رئیس‌جمهور دونالد ج. ترامپ
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127413
+
+<div align="center">
+  <a href="telegram/content/alonews_127413_1781272470.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈یک مقام کاخ سفید به فاکس نیوز گفت: مواد هسته‌ای ایران نابود و منتقل خواهد شد. 
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/22 17:13
 ---
 

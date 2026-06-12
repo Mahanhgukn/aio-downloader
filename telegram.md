@@ -7,6 +7,71 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/23 01:52
+---
+
+## VahidOOnLine — post 245219
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245219_1781302973.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️وزارت امور خارجه امارات متحده عربی، روز جمعه با انتشار بیانیه‌ای رسمی، گزارش‌های برخی از رسانه‌های بین‌المللی مبنی بر انتقال یا تسهیل انتقال مبالغ مالی از این کشور به ایران را به طور قاطع تکذیب کرد.
+ابوظبی در این بیانیه صریح تاکید کرد که ادعاهای مطرح‌شده در خصوص انتقال مبالغی از جمله گمانه‌زنی‌ها درباره رقم ۳ میلیارد دلار، «کاملا کذب، بی‌اساس و فاقد هرگونه مستندات واقعی» است. وزارت امور خارجه امارات با صراحت اعلام کرد که هیچ‌گونه دارایی مسدودشده متعلق به ایران از طریق خاک یا سیستم مالی امارات آزاد، منتقل یا تسهیل نشده است. مقامات اماراتی در پایان این بیانیه از تمامی رسانه‌ها و خبرگزاری‌ها خواستند تا در نقل اخبار دقت لازم را به خرج داده، تنها به منابع رسمی استناد کنند و از بازنشر یا گردش اطلاعات تاییدنشده و ادعاهای بی‌اساسی که فاقد اعتبار و مصداق هستند، خودداری نمایند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14688
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Bombardier E-11A در منطقه توضیح در ویس @withyashar
+</div>
+
+## IranIntlTV — post 341966
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341966_1781302974.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزیر خارجه جمهوری اسلامی گفت بر اساس یادداشت تفاهم، دارایی‌های مسدودشده ایران آزاد خواهد شد و هیچ‌یک از این دارایی‌ها نباید دوباره بلوکه شود. عراقچی همچنین گفت برای جبران خسارت‌های ایران، طرحی برای بازسازی در نظر گرفته شده است.
+
+گزارش امیر گیتی، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## FarsiVOA — post 220532
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220532_1781302976.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️همن سیدی در برنامه تفسیر خبر: ترامپ هم دست جمهوری اسلامی را می‌خواند و هم با همان دست بازی میک‌ند
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 16897
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فایل صوتی لایو اول امشب در اسپاتیفای
+
+https://open.spotify.com/episode/4etbRLzxUWjhY2UglM8GwW
+</div>
+
+## alonews — post 127525
+
+<div align="center">
+  <a href="telegram/content/alonews_127525_1781302978.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+توهین‌ناموسی محمدحسین میثاقی نسبت به منتقدان تیم قلعه‌نویی
+@AloSport
+</div>
+
+---
 📅 بروزرسانی: 1405/03/23 01:42
 ---
 

@@ -7,6 +7,346 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/22 23:13
+---
+
+## VahidOOnLine — post 245200
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245200_1781293418.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ اسماعیل بقایی، سخنگوی وزارت امور خارجه جمهوری اسلامی ایران، روز جمعه ۲۲ خرداد در گفتگو با صداوسیما اعلام کرد که تهران در مذاکرات جاری بر سر «بیشتر موضوعات» به تفاهم رسیده است و در مراحل پایانی بررسی‌های داخلی روی متن توافق احتمالی قرار دارد.
+
+بقایی در این رابطه گفت: «هم‌زمان با گفتگوی ما، جلسات و رایزنی‌ها میان نهادهای ذی‌ربط ایرانی در حال برگزاری است.» او در ادامه یادآور شد که ایران نمی‌تواند گام‌های بعدی خود را بدون در نظر گرفتن مواضع و رویکرد طرف مقابل تعیین و اتخاذ کند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245199
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️مراسم تشییع برنادت شیراک، همسر ژاک شیراک رئیس‌جمهور پیشین فرانسه روز جمعه ۲۲ خرداد در پاریس برگزار شد.  شهبانو فرح پهلوی در این مراسم حضور یافت. این حضور در حالی است که بانو برنادت شیراک پیش‌تر در مراسم خاکسپاری شاهدخت لیلا پهلوی در خرداد ۱۳۸۰ شرکت کرده بود.
+در این مراسم که در کلیسای «سنت-کلو‌تید» در منطقه هفتم پاریس برگزار شد، مقامات برجسته‌ای از جمله بریژیت ماکرون و فرانسوا اولاند حضور داشتند و تابوت برنادت شیراک در میان ادای احترام حاضران به داخل کلیسا منتقل شد.
+برنادت شیراک در سن ۹۳ سالگی درگذشت و مراسم او در فضایی رسمی و با حضور گسترده شخصیت‌های سیاسی و اجتماعی برگزار شد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14671
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عراقچی:به‌زودی ایران و عمان بیانیه مشترکی در مورد اداره تنگه هرمز منتشر خواهند کرد.
+@withyashar
+</div>
+
+## WithYashar — post 14670
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عراقچی: عوارض نخواهیم گرفت اما هزینه خدمات میگیریم
+
+ممکن است در دوره ۶۰ روزه این مورد کمی متفاوت باشد
+@withyashar
+</div>
+
+## WithYashar — post 14669
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عراقچی: این توافق دشمنایی داره که اسرائیل اصلی ترینشونه
+
+امیدواریم تفاهم‌نامه امضا بشه ولی اگر نشه وارد دور بعدی مذاکرات نمیشیم
+
+اگر قرار بود به تهدیدهای حمله به زیرساخت‌های خود تن دهیم، قبلاً این کار را انجام داده بودیم.
+@withyashar
+</div>
+
+## IranIntlTV — post 341944
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻دیوید بکام، فوق‌ستاره پیشین دنیای فوتبال و مالک باشگاه اینتر میامی، در مراسم رونمایی از ستاره‌اش در پیاده‌رو تالار مشاهیر هالیوود در لس‌آنجلس در کالیفرنیا حاضر شد.
+
+🔹ویکتوریا، همسر دیوید بکام، و تام کروز، ستاره هالیوود، در این مراسم حضور داشتند.
+
+@iranintltvsport
+</div>
+
+## Shin_Persian — post 6992
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6992_1781293418.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Fri, 12 Jun 2026 19:41:11 UTC
+
+More from Araghchi, Regime's FM who Trump reposted one of his tweets few hours ago :)
+
+ترجمه خودکار فارسی
+
+اطلاعات بیشتر از عراقچی، وزیر امور خارجه رژیم که ترامپ چند ساعت پیش یکی از توئیت‌های او را بازنشر کرد :)
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6988
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Fri, 12 Jun 2026 19:38:27 UTC
+
+Introducing Abbas Araghchi, Islamic Regime's Foreign Minister, same guy who Trump reposted one of his tweets a few hours ago :))
+
+ترجمه خودکار فارسی
+
+معرفی می‌کنیم: عباس عراقچی، وزیر امور خارجه رژیم اسلامی، همان شخصی که ترامپ چند ساعت پیش یکی از توییت‌های او را بازنشر کرد :))
+
+𝕏 · @shin_persian
+</div>
+
+## DW_Farsi — post 125911
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125911_1781293419.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 جی‌دی ونس: ایران پول نقد بابت توافق دریافت نمی‌کند
+
+جی‌دی ونس، معاون رئیس‌جمهوری آمریکا، در پیامی در شبکه ایکس نوشت اطلاعات نادرستی درباره توافق احتمالی با ایران برای بازگشایی تنگه هرمز و پایان دادن به برنامه هسته‌ای این کشور در حال انتشار است.
+
+او تاکید کرد ایران در برابر امضای توافق یا صرفا شرکت در یک نشست، هیچ پول نقدی دریافت نخواهد کرد و هیچ منبع مالی هم صرفا با امضای توافق آزاد نخواهد شد.
+
+ونس گفت این توافق به‌گونه‌ای تنظیم شده که نگرانی‌های آمریکا و متحدانش در اولویت قرار گیرد.
+
+او افزود اگر جمهوری اسلامی به تعهدات خود عمل کند، منافع اقتصادی به ایران و کل منطقه خواهد رسید و این توافق می‌تواند به بازسازی منطقه و شکل‌گیری صلحی پایدار منجر شود.
+
+معاون ترامپ همچنین از آنچه گزارش‌های عجیب در چند ساعت گذشته خواند، انتقاد کرد.
+او گفت عجیب است کسانی که یک ماه پیش دونالد ترامپ را "رئیس‌جمهوری تاریخی" می‌دانستند، اکنون بر پایه گزارش‌های تاییدنشده رسانه‌ای از یک توافق انتقاد می‌کنند.
+@dw_farsi
+</div>
+
+## BBCPersian — post 283592
+
+<div align="center">
+  <a href="telegram/content/BBCPersian_283592_1781293419.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آخرین خبرهای مهم روز، جمعه ۲۲ خرداد ۱۴۰۵
+
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 391841
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391841_1781293421.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+میثاقی این راهی که تو داری میری شهبازی قبل تو رفت الان بی‌اختیاری مدفوع گرفته
+
+انقد آبشو دادن خوردی زیادی پررو شدی دیگه
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 127494
+
+<div align="center">
+  <a href="telegram/content/alonews_127494_1781293422.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚫
+🏆 به دنیای هیجان‌انگیز فوتبال خوش اومدی!
+
+
+⭐️اینجا قراره باهم لحظه‌به‌لحظه‌ی جام جهانی رو زندگی کنیم؛
+از بازی‌های حساس و نتایج داغ گرفته تا حاشیه‌ها، کری‌خونی‌ها و اتفاقاتی که همه درباره‌ش حرف میزنن! 
+🔥
+🔥
+
+
+✅ پوشش کامل مسابقات
+
+💀ترول تیم‌ها و بازیکن‌ها
+
+🎥ویدیوها و لحظه‌های فان فوتبالی
+
+📊آمار، ترکیب‌ها و اخبار فوری
+
+🌍حواشی جذاب از سراسر جام جهانی
+
+
+📢اینجا فقط یک کانال خبری نیست؛
+یک جمع فوتبالیه برای کسایی که فوتبال رو با هیجان، شوخی و احساس واقعی دنبال میکنن 
+📛
+💟
+
+
+🆘
+🔞 آماده باش چون قراره جام جهانی رو متفاوت تجربه کنیم!
+
+
+⚡ @Vaarzesh_Plus
+
+⚡ @Vaarzesh_Plus
+</div>
+
+## alonews — post 127493
+
+<div align="center">
+  <a href="telegram/content/alonews_127493_1781293422.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈‌عراقچی: از نظر ما تنها شیوهٔ بررسی مواد غنی‌شده، رقیق‌سازی آن در داخل ایران است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127492
+
+<div align="center">
+  <a href="telegram/content/alonews_127492_1781293422.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈عراقچی: محاصره دریایی آمریکا اولین چیزی است که در این توافق به آن اشاره و تاکید شده است که باید رفع شود
+
+
+🔴 دارایی‌های مسدود شده طبق یادداشت تفاهم اگر امضا شود، آزاد خواهد شد
+
+
+🔴 هیچ‌یک از دارایی‌های ما نمی‌تواند مجددا مسدود بماند
+
+
+🔴 برای جبران خسارت ایران طرح بازسازی در نظر گرفته شده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127491
+
+<div align="center">
+  <a href="telegram/content/alonews_127491_1781293422.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈عراقچی: به‌زودی ایران و عمان بیانیه مشترکی در مورد اداره تنگه هرمز منتشر خواهند کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127490
+
+<div align="center">
+  <a href="telegram/content/alonews_127490_1781293422.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈عراقچی: طبق قوانین بین‌الملل گرفتن عوارض از تنگهٔ هرمز امکان‌پذیر نیست اما هزینهٔ خدمات دریافت خواهد شد و این در مذاکرات تثبیت خواهد شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127489
+
+<div align="center">
+  <a href="telegram/content/alonews_127489_1781293423.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈عراقچی: در مورد آزادسازی پول های بلوکه شده ایران بعد از امضای یادداشت تفاهم صحبت خواهم کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127488
+
+<div align="center">
+  <a href="telegram/content/alonews_127488_1781293423.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈عراقچی: هزینه خدمات برای تنگه هرمز گرفته می‌شود و دیگر این خدمات رایگان نخواهد بود
+
+
+🔴این امر مهم تثبیت شده است که هزینه باید پرداخت شود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127487
+
+<div align="center">
+  <a href="telegram/content/alonews_127487_1781293423.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 عراقچی: اگر طرف مقابل ظرف ۶۰ روز به تعهدات خود ذیل یادداشت تفاهم عمل نکند، مذاکرات در مورد مسائل باقی مانده ادامه نخواهد یافت.
+
+
+🔴 احتمالا بزودی برنامه مشترکی با عمان درباره مدیریت تنگه هرمز اعلام خواهیم کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127486
+
+<div align="center">
+  <a href="telegram/content/alonews_127486_1781293423.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈عراقچی: اسرائیل باید از لبنان عقب‌نشینی کند!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127485
+
+<div align="center">
+  <a href="telegram/content/alonews_127485_1781293423.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سید عباس عراقچی: اسرائیل دشمن این توافقه و درتلاشه خرابش کنه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127484
+
+<div align="center">
+  <a href="telegram/content/alonews_127484_1781293424.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 عراقچی: مقامات غربی میگویند باورمان نمیشد ایران سرسختانه مقاومت کند
+
+
+🔴 این مقاومت در وهله اول مرهون جانفشانی نیروهای مسلح است و همه ما مدیون نیروهای مسلح و شهدا هستیم.
+
+
+🔴عامل دوم مقاومت ایران، حضور مردم مبعوث در میدان بود.
+
+
+🔴 رسانه‌های ایران و صداوسیما نقش مهمی ایفا کردند.
+
+
+🔴 از همه اینها کوچکتر، دیپلماسی بود که سعی کردیم صدای ایرانیان باشیم و دفاع کنیم از مردم ایران و یار نیروهای مسلح باشیم.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/22 23:04
 ---
 

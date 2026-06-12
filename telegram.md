@@ -7,6 +7,154 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/22 18:33
+---
+
+## VahidOOnLine — post 245156
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245156_1781276628.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ ساعاتی پس از انتشار گزارش‌هایی درباره بندهای توافق میان تهران و واشنگتن در رسانه‌های دولتی ایران، از جمله مهر و فارس، عباس عراقچی با انتشار پیامی در شبکه اجتماعی ایکس، به رسانه‌ها هشدار داد که از گمانه‌زنی درباره محتوای آن خودداری کنند.
+
+عراقچی نوشت: «یادداشت تفاهم اسلام‌آباد هرگز تا این حد [به مرحله نهایی] نزدیک نبوده است. تا زمان نهایی شدن آن، رسانه‌ها باید از گمانه‌زنی در خصوص محتوای آن خودداری کنند. در راستای رویکرد مسئولانه و شفاف ما، تمامی جزئیات در زمان مقتضی با عموم مردم به اشتراک گذاشته خواهد شد.»
+
+این پیام پس از واکنش تند دونالد ترامپ به گزارش‌های رسانه‌های ایران منتشر شد. ترامپ در اولین واکنش، مقام‌های جمهوری اسلامی را «بی‌اعتبار، بدقول و بی‌شرافت» توصیف کرده و تاکید کرد که این گزارش‌ها «فرسنگ‌ها با حقیقت فاصله دارد».
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342903
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342903_1781276629.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+One of the men from the viral standoff outside the Karmelo Anthony murder trial has been arrested.
+
+Jerome Winston Parker has been taken into custody on an outstanding warrant for alleged unlawful carrying of a weapon, according to the Collin County Sheriff's Office.
+
+Police say the charge stems from an alleged incident in the courthouse parking lot during trial-related activities on June 6. He remains in custody on a $1,000 bond.
+</div>
+
+## DEJradio — post 5619
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5619_1781276630.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️
+🔺 مهرداد امین شیرازی:
+استادیوم‌ها را جهنم جمهوری اسلامی کنیم
+
+مهرداد امین شیرازی بازیکن پیشین تیم فوتبال استقلال می‌گوید با وضعیت فعلی ایران، فقط باید استادیوم‌ها را برای بازیکنان تیم جمهوری اسلامی جهنم کرد.
+
+#جام_جهانی #تیم_ملی
+@DEJradio
+</div>
+
+## IranIntlTV — post 341900
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341900_1781276630.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عباس عراقچی، وزیر خارجه جمهوری اسلامی، در شبکه ایکس نوشت: «تفاهم‌نامه اسلام‌آباد هرگز تا این حد نزدیک نبوده است. تا زمان نهایی شدن آن، رسانه‌ها باید از گمانه‌زنی در مورد محتوای آن خودداری کنند.»
+
+او افزود: «تمام جزییات در زمان مناسب به صورت عمومی منتشر خواهد شد.»
+
+پیش‌تر دونالد ترامپ، در تروث سوشال نوشت مفادی که جمهوری اسلامی در اختیار رسانه‌ها قرار داده، هیچ ارتباطی با مفادی که به صورت مکتوب بر سر آن توافق شده ندارد.
+https://iranintl.com/202606123329
+</div>
+
+## Shin_Persian — post 6983
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6983_1781276631.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Fri, 12 Jun 2026 14:55:45 UTC
+
+Come live in the Middle East and you'll never be bored, my dear bot.
+
+ترجمه خودکار فارسی
+
+بیا در خاورمیانه زندگی کن و هیچ‌وقت حوصله‌ات سر نخواهد رفت، ربات عزیزم.
+
+𝕏 · @shin_persian
+</div>
+
+## Dirty_Kids — post 391815
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391815_1781276632.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 تو ایالت گویاس برزیل، پلیس موقع یه ایست و بازرسی متوجه شد یه خانم برزیلی یه تپانچه 9 میلی‌متری (20 سانتی) رو داخل واژن خودش مخفی کرده؛
+
+هنوز جزئیاتی از ماجرا منتشر نشده که هدف اصلی این خانم از این حرکت چی بوده ولی ویدیوی این ماجرا تو شبکه‌های اجتماعی وایرال شده و حسابی سوژه کاربران خارجی شده.
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 127429
+
+<div align="center">
+  <a href="telegram/content/alonews_127429_1781276635.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 الشهبیه، جنوب لبنان، پس از حمله اسرائیل
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127428
+
+<div align="center">
+  <a href="telegram/content/alonews_127428_1781276638.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈یسرائیل کاتس، وزیر دفاع اسرائیل:
+«اسرائیل باید توانایی اقدام مستقل برای جلوگیری از دستیابی ایران به سلاح هسته‌ای را حفظ کند و به همین منظور به ارتش دستور آماده‌سازی داده شده است.»
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127427
+
+<div align="center">
+  <a href="telegram/content/alonews_127427_1781276638.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 سید عباس عراقچی، وزیر خارجه: حفظ یادداشت تفاهم اسلام‌آباد هرگز به این اندازه نزدیک نبوده است. تا زمان نهایی شدن آن، رسانه‌ها باید از ورود به حدس و گمان درباره محتوای آن خودداری کنند.
+
+
+🔴در راستای رویکرد مسئولانه و شفاف ما، تمام جزئیات در زمان مناسب با عموم مردم به اشتراک گذاشته خواهد شد.
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127426
+
+<div align="center">
+  <a href="telegram/content/alonews_127426_1781276638.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پزشکیان : باید فرهنگ مصرف بهینه را به یک گفتمان ملی تبدیل کنیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/22 18:23
 ---
 

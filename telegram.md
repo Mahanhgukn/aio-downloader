@@ -7,6 +7,79 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/22 13:13
+---
+
+## mwarmonitor — post 10760
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴بلومبرگ می‌گوید ممکن است توافق میان تهران و واشنگتن روز یکشنبه آینده در ژنو امضا شود.
+
+@mwarmonitor
+</div>
+
+## FarsiVOA — post 220467
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220467_1781257413.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری رویترز روز پنجشنبه به نقل از یک مقام آلمانی که نامش را فاش نکرد، نوشت که در روزهای اخیر پیشرفت‌هایی به سمت یک راه‌حل دیپلماتیک در مورد جنگ ایران حاصل شده است.
+
+پیشتر دونالد ترامپ، رئیس جمهوری آمریکا، اعلام کرد واشنگتن به تازگی به توافقی «عالی» با جمهوری اسلامی رسیده‌ که قرار است اسناد آن در چند روز آینده و احتمالاً در اروپا امضا و نهایی شود.
+
+آلمان و آمریکا جزو کشورهایی بودند که روز چهار‌شنبه ۲۰ خرداد در بیانیه‌ای مشترک، آن چه را «توطئه‌های مرگبار و اقدامات مخرب» نهادهای امنیتی جمهوری اسلامی در اروپا، آمریکای شمالی، و استرالیا خواندند، به شدت محکوم کردند و از رژیم ایران خواستند این فعالیت‌ها را فوراً متوقف کند.
+@FarsiVOA
+</div>
+
+## Dirty_Kids — post 391779
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تصویری عجیب از یه عرزشی توی تجمعات شبانه، خطش دائمیه یا اعتباری :)
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391778
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391778_1781257413.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جا داره مجددا یادی کنیم از پیشبینی ۱۵ سال پیش مانوک خدابخشیان عزیز: اول در خیابان ها کشتار میشه؛ بعدش به خاطر اون کشتار جنگ میشه؛ بعدش توافق‌ میکنن و بعد از توافق بازی اصلی تازه شروع میشه!
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 127354
+
+<div align="center">
+  <a href="telegram/content/alonews_127354_1781257415.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈بلومبرگ به نقل از یک مقام گروه هفت: توافق بین واشنگتن و تهران به احتمال زیاد یک یادداشت تفاهم خواهد بود، نه یک توافق نهایی
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127353
+
+<div align="center">
+  <a href="telegram/content/alonews_127353_1781257416.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈بلومبرگ به نقل از منابع: توافق بین تهران و واشنگتن ممکن است یکشنبه آینده در ژنو امضا شود.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/22 13:03
 ---
 

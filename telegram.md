@@ -7,6 +7,286 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/23 00:32
+---
+
+## VahidOOnLine — post 245210
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245210_1781298153.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری مهر وابسته به سازمان تبلیغات اسلامی نوشت ساکنان بخش‌هایی از جزیره قشم و مناطق ساحلی شهرستان سیریک صدای انفجاری را شنیده‌اند؛ این رسانه به نقل از بررسی‌های اولیه نوشت انفجاری در سیریک رخ نداده و گمانه‌زنی‌هایی درباره ارتباط این صداها با تحولات دریایی و تنگه هرمز مطرح شده است.
+مهر افزود: تاکنون هیچ مقام رسمی ماهیت این صداها را تأیید یا تکذیب نکرده است.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245209
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245209_1781298154.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️خبرگزاری مهر، بامداد شنبه، ۲۳ خردادماه، از شنیده شدن صدای انفجار در بخش‌هایی از جزیره قشم و برخی نقاط ساحلی سیریک خبر داد. مهر نوشت:‌ «احتمالا صدای شنیده شده تلاشی برای کنترل تنگه هرمز و از سوی دریا بوده است».
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14677
+
+<div align="center">
+  <img src="telegram/content/WithYashar_14677_1781298154.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کاور
+@withyashar
+</div>
+
+## WithYashar — post 14676
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تو تنگه دعوا شد
+@withyashar
+</div>
+
+## WithYashar — post 14675
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مهر : شنیده شدن صدای انفجار در حوالی جزیره قشم و سیریک؛ گمانه‌زنی از درگیری دریایی
+
+بررسی‌های اولیه نشان می‌دهد، در پهنه شهرستان سیریک انفجاری رخ نداده است و احتمالا صدای شنیده شده تلاشی برای کنترل تنگه هرمز و از سوی دریا بوده است.
+@withyashar
+</div>
+
+## pm_afshaa — post 93740
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93740_1781298155.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مهر: صدای انفجار در حوالی جزیره قشم و سیریک شنیده شده و احتمالا درگیری دریایی برای کنترل تنگه هرمز بوده. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93739
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93739_1781298156.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مهر: صدای انفجار در حوالی جزیره قشم و سیریک شنیده شده و احتمالا درگیری دریایی برای کنترل تنگه هرمز بوده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 341961
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341961_1781298156.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻تیم ملی فوتبال کانادا در اولین بازی خود در جام جهانی ۲۰۲۶ برابر بوسنی و هرزگوین به تساوی یک بر یک رسید. یووو لوکیچ در دقیقه ۲۱ برای بوسنی و کایل لارین در دقیقه ۷۸ برای کانادا در این مسابقه گلزنی کردند تا دو تیم با یک امتیاز در رده‌های اول و دوم گروه بی قرار بگیرند.
+
+🔹شاگردان جسی مارش در حضور پرشمار تماشاگران حاضر در استادیوم بی‌ام‌او فیلد شهر تورنتو برخلاف جریان بازی و روی فرصت‌طلبی لوکیچ در دهانه دروازه روی ارسال کرنر، گل اول را دریافت کردند.
+
+🔹تلاش میزبان برای به ثمر رساندن گل تساوی تا یک سوم پایانی نیمه دوم بدون نتیجه بود تا در نهایت ستاره ساوتهمپتون در نقش تعویض طلایی مارش ظاهر شد و سکوهای استادیوم را با باز کردن دروازه نیکولا واسیلی منفجر کرد.
+
+🔹حملات دقایق پایانی کانادا نیز راهی به دروازه پیدا نکرد تا در نهایت دو تیم با تساوی کار خود را در مهم‌ترین رویداد فوتبالی جهان آغاز کنند.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 341960
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341960_1781298157.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند با ارسال ویدیویی به ایران‌اینترنشنال در خصوص گرانی‌های شدید در ایران می گوید یک عدد هندوانه را به قیمت ۶۰۰ هزار تومان خریده است.
+</div>
+
+## IranIntlTV — post 341958
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341958_1781298158.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خالد عزیزی، سخنگوی حزب دموکرات کردستان ایران، درباره اظهارات دونالد ترامپ مبنی بر اینکه کردها مانع رسیدن سلاح‌های آمریکایی به مردم ایران شدند، گفت: «طرح چنین ادعاهایی مایه تاسف است و هر زمان که دولت آمریکا خود را در بن‌بست سیاسی یا مذاکراتی می‌بیند، تلاش می‌کند کردها را مسئول ناکامی‌ها یا نبود برنامه‌ریزی برای مبارزه در داخل ایران معرفی کند.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 341957
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341957_1781298160.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بیژن کیان، کارشناس امنیت ملی، گفت: «اگر جمهوری اسلامی غنی‌سازی را متوقف کند، اورانیوم غنی‌شده را تحویل دهد، حمایت از نیروهای نیابتی را کنار بگذارد و برنامه موشکی خود را محدود کند، در آن صورت چه چیزی از جمهوری اسلامی باقی می‌ماند؟»
+
+او افزود: «بنابراین، پیش از نامیدن این روند به عنوان "توافق"، باید ماهیت آن روشن شود.»
+@iranintltv
+</div>
+
+## Shin_Persian — post 6999
+
+<div align="center">
+  <a href="telegram/content/Shin_Persian_6999_1781298162.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Fri, 12 Jun 2026 21:00:35 UTC
+
+Earlier @ 1700Z
+Kianshahr, Gilan Province, Iran
+
+ترجمه خودکار فارسی
+
+پیش‌تر در ۱۷۰۰ زولو (۲۰:۳۰ به وقت تهران)
+کیان‌شهر، استان گیلان، ایران
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6998
+
+<div align="center">
+  <a href="telegram/content/Shin_Persian_6998_1781298164.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Fri, 12 Jun 2026 20:56:19 UTC
+
+Regime fans in Tehran tonight:
+"In memory of Commanders Salami and Rashid, We will not make peace with the vile enemy!"
+
+Iran.
+
+ترجمه خودکار فارسی
+
+طرفداران رژیم امشب در تهران:
+«به یاد فرماندهان سلامی و رشید، با دشمن پست سازش نخواهیم کرد!»
+
+ایران.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6997
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Fri, 12 Jun 2026 20:51:45 UTC
+
+State-owned Mehr New:
+"Explosion sounds heard around Qeshm Island and Sirik, Hormozgan Province.
+Initial reports suggest a conflict near Strait of Hormuz. No official confirmation authorities on nature of explosions."
+
+ترجمه خودکار فارسی
+
+خبرگزاری دولتی مهر:
+«صدای انفجار در اطراف جزیره قشم و سیریک در استان هرمزگان شنیده شد.
+گزارش‌های اولیه حاکی از وقوع درگیری در نزدیکی تنگه هرمز است. هیچ تاییدیه رسمی از سوی مقامات درباره ماهیت انفجارها ارائه نشده است.»
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 220526
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220526_1781298166.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️خبرگزاری حکومتی مهر از شنیده‌شدن صدای انفجار در حوالی جزیره قشمت و سیریک خبر داد. این خبرگزاری به نوعی بیان کرده است که احتمالا نیروهای جمهوری اسلامی به سمت اهدافی در تنگه هرمز شلیک کرده‌اند.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220525
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️پیمان جدید مهاجرت اروپا شامل تشدید کنترل‌های مرزی، تسریع در بررسی پرونده‌ها، و افزایش روند اخراج مهاجران است.
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 16892
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مهمترین بخش های مصاحبه امشب عراقچی، وزیر امور خارجه جمهوری اسلامی با شبکه خبر:
+
+نتیجه مذاکرات یک یادداشت تفاهم 14 بندی است که هنوز امضا نشده و وقتی نهایی شد برای مردم تشریح خواهم کرد.
+
+خاتمه جنگ در همه جبهه ها از جمله لبنان در یادداشت تفاهم و در مرحله اول اعلام خواهد شد، تعهد خواهند داد که دیگر آغازگر جنگ نباشند. بعد از 47 سال آمریکا به حاکمیت ایران اذعان و اعتراف خواهند کرد.
+
+یادداشت تفاهم ایران و امریکا مرحله اول است و موضوع برنامه هسته ای در توافق نهایی بحث خواهیم کرد، برای برنامه هسته ای در مرحله نهایی 60 روز وقت خواهیم داشت.
+
+فعلا هیچ‌یک از متن‌هایی که از توافق بیرون آمده اعتبار ندارد. درخواست می‌کنم که آرامش را برقرار کنند تا بتوانیم به بهترین توافق ممکن برسیم. هیچ توافقی نیست که یک‌طرف 100 را برده باشد و طرف دیگر صفر‌. توافق ایران و آمریکا دشمنانی دارد و اسرائیل در راس این توافق است؛ به دنبال بر هم زدن این توافق و تفاهم هستند.
+
+احتمالا بزودی برنامه مشترکی با عمان درباره مدیریت تنگه هرمز اعلام خواهیم کرد. هزینه خدمات برای تنگه هرمز گرفته می‌شود و دیگر این خدمات رایگان نخواهد بود. این امر مهم تثبیت شده است که هزینه باید پرداخت شود.
+
+خاتمه جنگ به معنی عقب نشینی اسرائیل از مناطق اشغالی لبنان است. اگر آخرین مرحله مذاکرات انجام شود تفاهم از راه دور به امضای دو طرف می‌رسد و اعلام خواهد شد ممکن است در چند روز آینده اتفاق بیفتد.
+
+ممکن است 60 روز مذاکره تمدید شود و ماه ها ادامه داشته باشد. ممکن است تمدید نشود و دیگر مذاکرات را ادامه ندهیم. باید ببینیم بعد از 60 روز با چه فضایی مواجه هستیم.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 22434
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مجدد صدای شنیده شدن انفجار در سیریک @IranianMinds
+</div>
+
+## alonews — post 127513
+
+<div align="center">
+  <a href="telegram/content/alonews_127513_1781298166.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈مراد ویسی: جمهوری اسلامی رهبرشو کشتن، ۵۲ مقامشو ترور کردن، بعد کشوندنش سر میز و گفتن حالت بتمرگ و امضا کن.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127512
+
+<div align="center">
+  <a href="telegram/content/alonews_127512_1781298168.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈صدای انفجار در قشم و سیریک 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127511
+
+<div align="center">
+  <a href="telegram/content/alonews_127511_1781298168.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈صدای انفجار در قشم و سیریک
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/23 00:22
 ---
 

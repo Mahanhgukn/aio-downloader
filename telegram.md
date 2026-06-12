@@ -7,6 +7,204 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/22 14:34
+---
+
+## WithYashar — post 14627
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایرنا؛ تفاهم‌نامه پایان جنگ چه مسائل و موضوعاتی را در بر می‌گیرد؟
+
+۱. موضوع هسته‌ای دست‌نخورده باقی می‌ماند
+هیچ توافقی در مورد پرونده هسته‌ای در تفاهم‌نامه فعلی انجام نمی‌شود و ایران هیچ تعهد جدیدی نمی‌دهد. گفت‌وگوهای هسته‌ای در مهلت ۶۰ روزه پس از امضا انجام خواهد شد.
+۲. تنگه هرمز؛ نه واگذاری، نه نقش آمریکا
+ایران هیچ تعهدی در مورد واگذاری مدیریت تنگه هرمز نمی‌دهد. آینده اداره تنگه در چارچوب یک امر منطقه‌ای و از طریق گفت‌وگو و تصمیم گیری مشترک تهران با عمان حل و فصل می‌شود.
+۳. پایان قاطع جنگ در تمام جبهه‌ها، از جمله لبنان
+هدف اصلی تفاهم‌نامه، پایان جنگ در تمامی جبهه‌های منطقه است. آمریکا تعهد می‌دهد که اسرائیل را وادار به پایان جنگ در لبنان کند و عبارت «تمدید آتش‌بس» در متن جایی ندارد.
+۴. آزادی دارایی‌های مسدودشده با ساز و کار مشخص
+بخشی از دارایی‌های مسدودشده بلافاصله پس از امضا و بقیه به تدریج در طول مذاکرات آزاد خواهند شد. تهران تضمین‌های روشنی بر اساس ساز و کارهای مورد نظر خود دریافت کرده است.
+۵. غرامت جنگ در دستور کار
+خسارات وارده به ایران در تجاوز آمریکا و اسرائیل از جمله موارد مورد اشاره در تفاهم‌نامه است. ساز و کار اجرایی دریافت غرامت در مذاکرات ۶۰ روزه پس از امضا مورد توافق قرار خواهد گرفت.
+۶. جزییات رفع تحریم‌های اولیه و ثانویه؛ موضوع مورد بحث در توافق نهایی
+رفع تمامی تحریم‌های آمریکا و قطعنامه‌های بین‌المللی در مهلت ۶۰ روزه مذاکرات هسته‌ای بررسی می‌شود.
+۷. سه موضوع و ۶۰ روز برای توافق نهایی
+در مذاکرات ۶۰ روزه تنها سه موضوع بررسی می‌شود: استمرار برنامه صلح‌آمیز هسته‌ای، رفع تحریم‌های یکجانبه آمریکا، و ساز و کار جبران خسارات. هیچ موضوع دیگری در از جمله توانمندی موشکی ایران، دستور کار نخواهد بود.
+@withyashar
+</div>
+
+## mwarmonitor — post 10766
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبرگزاری ایرنا درباره جزئیات توافق احتمالی میان ایران و ایالات متحده: متن یک توافق برای پایان جنگ با دقت بسیار بالا و وسواس زیاد تدوین شده است و هیچ مجالی برای تفسیر خودسرانه یا فرار از تعهدات از سوی هیچ‌یک از طرفین در این توافق وجود ندارد. در این یادداشت تفاهم هیچ توافقی درباره پرونده هسته‌ای حاصل نخواهد شد و ایران هیچ تعهد جدیدی ارائه نخواهد کرد.
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 342893
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342893_1781262243.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NEW: With Iran at the center of a growing international conflict, the Trump administration is preparing a deportation flight that includes sending Iranian asylum-seekers and other migrants to Africa.
+
+The first flight could depart as early as Thursday carrying about 20 people, according to reports.
+
+The group includes migrants from Iran, Syria, Afghanistan and a Turkish national, with the Central African Republic set to receive them.
+
+The move is part of the administration's expanding use of third-country deportation deals for migrants who cannot easily be returned to their home countries.
+</div>
+
+## FoxNewsTwitter — post 342892
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342892_1781262244.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+RT @seanhannity: Stephen A. Smith says President Trump had every right to fire back at him, but jokes that his appearance disrupted the Knicks’ momentum and helped cost them Game 3:
+
+“I take no offense at the president coming after me the way that he did. People go after him every day. I’ve certainly gone after him. He has every right to come back and clap back at me. I’m a big boy. I can take it. He’s not phasing me one bit. But this man was raised in Queens, New York. He’s a lifelong Knicks fan. He knows about the suffering that spans 53 years. And when you are a true sports fan, you know that every little thing can disrupt momentum. You had watch parties outside with thousands of people, packed arenas, fans throughout the city, gatherings in Central Park, Bryant Park, and across New York. The momentum was there. The energy was there. And what does this guy do? He shows up, they have to get rid of the watch party, he disrupts the momentum and the...
+
+Перейти на оригинальный пост
+</div>
+
+## IranIntlTV — post 341866
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341866_1781262246.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بلومبرگ از نزدیک شدن تهران و واشینگتن به یک توافق خبر داد. یک مقام ایرانی به این رسانه گفته است توافق احتمالی به‌صورت یادداشت تفاهم تنظیم خواهد شد و توافق نهایی محسوب نمی‌شود.
+
+لی‌لی نیکفر، خبرنگار ایران‌اینترنشنال، گزارش می‌دهد
+@iranintltv
+</div>
+
+## FarsiVOA — post 220472
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220472_1781262247.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک مقام نفتی ایران از مردم خواست تا در مصرف بنزین صرفه‌جویی کنند تا جمهوری اسلامی از واردات بنزین بی‌نیاز ‌شود.
+
+عماد رفیعی مدیر امور مصرف شرکت پالایش و پخش فرآورده‌های نفتی با اشاره به کسری بنزین در کشور گفت با توجه به شرایط فعلی تردد کشتی‌ها در خلیج فارس، تقریباً هیچ کدام از کشور‌های منطقه نمی‌توانند بنزین وارد کنند.
+
+اظهارات او در حالی است که ایران تنها کشور منطقه است که نیازمند واردات بنزین از طریق تنگه هرمز است و بقیه صادرکننده بنزین هستند.
+
+رفیعی در ادامه مدعی شد با کاهش مصارف غیرضروری، کشور می‌تواند از واردات بنزین بی‌نیاز شود.
+
+جمهوری اسلامی طی سال‌های گذشته با تهاتر مازوت و بنزین در بازارهای منطقه، همچنین افزایش چشمگیر افزودنی‌های شیمیایی به بنزین پالایشگاه‌ها و تولید بنزین غیراستاندارد در پتروشیمی‌ها سعی در مدیریت کسری بنزین کرده است.
+@FarsiVOA
+</div>
+
+## DW_Farsi — post 125873
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125873_1781262248.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶مصر: آمریکا و ایران فرصت پایان دادن به جنگ را نباید از دست بدهند
+
+این درخواست مصر پس از آن مطرح شد که دونالد ترامپ تهدید خود برای انجام حملات بیشتر علیه ایران را پس گرفت.
+
+رئیس‌ جمهور آمریکا در پیامی در این رابطه در پلتفرم "تروث سوشال" نوشت: «گفت‌وگوها و نکات نهایی، هم از نظر کلیات و هم با جزئیات فراوان، مورد تأیید تمامی طرف‌های درگیر، از جمله ایالات متحده، اسرائیل، عربستان سعودی، امارات متحده عربی، قطر، ترکیه، پاکستان، بحرین، کویت، اردن، مصر و دیگران قرار گرفته است.»
+
+وزارت خارجه مصر در بیانیه‌ای در شامگاه پنج‌شنبه ۲۱ خرداد (۱۱ ژوئن) ابراز امیدواری کرد که از این فرصت برای دستیابی به توافق درباره مسائل باقی‌مانده و فراهم کردن زمینه برای پایان جنگ و آغاز مرحله‌ای جدید از ثبات منطقه‌ای استفاده شود.
+
+@dw_farsi
+</div>
+
+## RadioFarda — post 158219
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_158219_1781262248.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸حبیب‌الله سیاری، معاون هماهنگ‌کننده ارتش، در مصاحبه‌ای در تلویزیون حکومتی ایران اذعان کرد که از سرنوشت خلبانانی که در جنگ اخیر به قطر حمله کردند اطلاعی در دست نیست.
+
+🔸دریادار سیاری در این مصاحبه که شامگاه پنج‌شنبه ۲۱ خرداد پخش شد از خلبانان یک یا چند فروند جنگنده سوخو ۲۴ متعلق به ایران سخن می‌گوید که به پایگاه العدید در قطر حمله کردند.
+
+🔸بر اساس بیانیه‌هایی که سپاه پاسداران منتشر کرد، پایگاه آمریکایی العدید در کشور قطر در هفته آغازین جنگ در اسفندماه سال گذشته چند بار هدف حملات موشکی ایران قرار گرفت.
+
+🔸تاکنون خبری از حمله با جنگنده سوخو ۲۴ روسی به پایگاه العدید منتشر نشده بود.
+
+🔸به گفته سیاری، از سرنوشت چهار خلبان دخیل در این حمله اطلاعی در دست نیست.
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 22394
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22394_1781262249.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ :
+
+توافق عالی پیش رفته و‌ جنگ با ایران دیگه بزودی تموم شدست
+
+@IranianMinds
+</div>
+
+## alonews — post 127375
+
+<div align="center">
+  <a href="telegram/content/alonews_127375_1781262249.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خبرگزاری ایرنا: تهران تضمین‌های مشخصی در مورد دریافت خسارات از طرف‌های ثالث دریافت کرده‌ است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127374
+
+<div align="center">
+  <a href="telegram/content/alonews_127374_1781262250.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حمید رسایی:
+توافق چیه؟؟؟؟ اینترنت رو قطع کنید
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127373
+
+<div align="center">
+  <a href="telegram/content/alonews_127373_1781262250.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈جزئیات خواسته های ایران در تفاهم به روایت ایرنا
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127372
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گویا تجمعات شبانه امروز هم ادامه داره
+</div>
+
+## alonews — post 127371
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بعد از علی کرار! علم‌ماند برقرار! که مجتبی آمد و رفت به رزم و امضا
+</div>
+
+---
 📅 بروزرسانی: 1405/03/22 14:24
 ---
 

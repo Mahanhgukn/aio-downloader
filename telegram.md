@@ -7,6 +7,400 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/22 23:33
+---
+
+## VahidOOnLine — post 245204
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_245204_1781294613.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوهای رسیده به ایران‌‌اینترنشنال نشان می‌‌دهد مراسم تولد جاویدنام آرمان پوردلجو بر سر مزارش در بهشت سکینه کرج برگزار شده است.
+﻿آرمان پوردلجو، ۲۲ ساله، ۱۸ دی ماه ۱۴۰۴، در کرج با اصابت گلوله جنگی ماموران جمهوری اسلامی کشته شد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245203
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245203_1781294615.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عباس عراقچی، وزیر خارجه جمهوری اسلامی، درباره تفاهم احتمالی با آمریکا به صداوسیما گفت: «احتمالا در چند روز آینده تفاهم‌نامه میان ما و آمریکا امضا خواهد شد.»
+
+او افزود: «امضای یادداشت تفاهم بعد از گذشتن از آخرین مراحل مذاکرات به صورت دیجیتالی و از راه دور انجام می‌شود که اعلام خواهد شد و ممکن است در چند روز آینده اتفاق بیفتد.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245202
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245202_1781294615.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شاهد عینی درباره اعتراضات دی‌ماه نورآباد ممسنی و کشتار معترضان در این شهر، به ایران‌اینترنشنال گفت برادرش هدف تیراندازی قرار گرفت و بدنش پر از ساچمه شد. اما از ترس اینکه به او «تیر خلاص» بزنند، هرگز برای درمان به بیمارستان نرفت و هنوز تعدادی از ساچمه‌ها در بدنش باقی مانده‌اند.
+
+این شهروند، گفت دادگستری ممسنی در جریان اعتراضات به دست نیروهای حکومتی و از داخل ساختمان آتش گرفت.
+
+به گفته او، برادرش آن‌شب داخل ساختمان رفت و دید همه اتاق‌ها خالی هستند و فقط پرده‌ها سوخته‌اند.
+
+این شاهد عینی یادآوری کرد علاوه بر برادرش، ده‌ها تن دیگر نیز هدف گلوله‌های ساچمه‌ای یا جنگی قرار گرفتند.
+
+او افزود: «دو نفر از بستگان ما را در بیمارستان با تیر خلاص کشتند. بعد از کشته شدن هم آن‌ها را بسیجی معرفی کردند، چون خانواده‌هایشان توان پرداخت هزینه گلوله را نداشتند.»
+
+با این‌حال به گفته این شهروند، مردم در مراسم چهلم این دو معترض کشته‌شده، فریاد «جاویدنام» سر دادند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245201
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245201_1781294616.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ به دنبال انتشار اخبار گوناگون مبنی بر نزدیک شدن جمهوری اسلامی ایران و ایالات متحده به مراحل پایانی توافق صلح، محمدباقر قالیباف، رئیس مجلس شورای اسلامی، با انتشار پیامی در شبکه اجتماعی ایکس، به این اخبار واکنش نشان داد.
+
+قالیباف در حساب کاربری خود نوشت: «تعهدهایی که داده می‌شوند، باید اجرا شوند. بدون هیچ اگر، اما و بهانه‌ای. برای توافقِ نزدیکی که پیش‌رو است، هیچ راه دیگری وجود ندارد. هرچه بکاری، همان را درو می‌کنی.»
+
+این موضع‌گیری رئیس مجلس شورای اسلامی در شرایطی صورت می‌گیرد که واسطه‌های قطری و پاکستانی از نهایی شدن پیش‌نویس تفاهم‌نامه خبر داده‌اند و مقامات کاخ سفید نیز اعلام کرده‌اند که هرگونه کاهش تحریم‌ها و آزادسازی دارایی‌های ایران، منوط به پایبندی کامل و عملی تهران به تعهداتش خواهد بود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14672
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عراقچی: در مذاکرات ۶۰ روزه چند حالت رخ می‌دهد
+
+۱. تمدید مهلت مذاکرات در صورت خوب‌پیش‌رفتن مذاکرات.
+
+۲. نرسیدن به توافق، به‌علت بی‌فایده‌بودن مذاکره‌.
+
+بستگی به شرایط آن موقع تصمیم می‌گیریم که اگر نتیجه نگیریم چه خواهد شد.
+
+تنها کاری که می‌توانیم برای اورانیوم غنی‌شده انجام دهیم "رقیق‌سازی در داخل" است!
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342914
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342914_1781294617.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+A bride in full wedding dress made a two-hour trip before walking down the aisle — and it had nothing to do with the wedding venue.
+
+When Laetitia Obry learned her hospitalized mother wouldn't be able to attend her wedding, she got in the car with her bridal party and drove across France to surprise her in person.
+
+The moment she walked into the hospital room, her mother immediately broke down in tears as the two embraced just hours before the ceremony.
+
+Obry said the visit was brief, but there was no chance she was getting married without seeing her mom first.
+</div>
+
+## FoxNewsTwitter — post 342913
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342913_1781294618.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Lake houses go up in flames after a massive explosion.
+
+Investigators say a suspected propane cylinder failure sparked a fire that destroyed two Pennsylvania homes and damaged others.
+
+Bystander video captured one of the blasts as flames tore through the Elk Lake properties. Firefighters said the explosions were powerful enough to shatter windows.
+
+Preliminary findings indicate one 100-pound propane cylinder may have failed, leaked, and ignited — setting off other cylinders nearby.
+</div>
+
+## pm_afshaa — post 93733
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93733_1781294620.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴عراقچی: اگر آخرین مرحله مذاکرات انجام بشه، تفاهم از راه دور به امضای دو طرف میرسه و اعلام خواهد شد.
+
+ممکنه در چند روز آینده اتفاق بیفته.
+رسانه‌ها فضا رو مشوش نکنند.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93732
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93732_1781294620.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴عباس عراقچی: یکی از شروط اصلی تفاهم، پایان جنگ تو لبنانه؛ رسما اعلام کردیم که اسرائیل باید از مناطقی که تو لبنان اشغال کرده، عقب نشینی کنه!
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93731
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93731_1781294621.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴عراقچی: از نظر ما تنها شیوهٔ بررسی مواد غنی‌شده، رقیق‌سازی اون در داخل ایرانه.
+
+اگر در 60 روز به توافق نهایی نرسیم اما دو طرف از روند راضی باشن ممکنه تمدید بشه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93730
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93730_1781294621.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴عراقچی: طبق قوانین بین‌الملل گرفتن عوارض از تنگه‌ هرمز امکان‌پذیر نیست اما هزینه‌ی خدمات دریافت خواهد شد و این در مذاکرات تثبیت خواهد شد.
+
+به‌زودی ایران و عمان بیانیه مشترکی در مورد اداره تنگه هرمز منتشر خواهند کرد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## VahidOnline — post 76283
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76283_1781294622.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عباس عراقچی، وزیر خارجه جمهوری اسلامی، شامگاه جمعه در یک برنامه زنده تلویزیونی اعلام کرد هنوز توافقی با آمریکا امضا نشده و مدعی شد که پرونده هسته‌ای ایران به مرحله دوم و نهایی این توافق موکول شده است.
+
+او در گفت‌وگو با تلویزیون حکومتی ایران گفت توافق احتمالی با ایالات متحده شامل دو مرحله است و «موضوع هسته‌ای را به مرحله دوم انتقال دادیم».
+
+این در حالی است که ساعتی قبل یک مقام ارشد آمریکایی به خبرنگاران گفت بر اساس توافق، قرار است اورانیوم غنی‌شده ایران در خاک این کشور نابود شود و سپس به خارج از ایران منتقل شود.
+
+با این حال وزیر خارجه جمهوری اسلامی با اشاره به اینکه نتیجه مذاکرات یک «یادداشت ۱۴ ماده‌ای» است اعلام کرد مفاد آن بعد از نهایی شدن اعلام می‌شود.
+
+وزیر خارجه ایران در گفت‌وگوی خود خبر داد که طبق تصمیم جمهوری اسلامی، «آینده تنگه هرمز و اداره آن مثل گذشته نخواهد بود‌» و ادعا کرد که ایران و عمان بیانیه مشترکی در مورد اداره این آبراه منتشر خواهند کرد.
+
+او در ادامه اذعان کرد که طبق قوانین بین‌الملل گرفتن عوارض از کشتی‌ها در تنگه هرمز امکان‌پذیر نیست و افزود: «اما هزینه خدمات دریافت خواهد شد و این در مذاکرات تثبیت خواهد شد.»
+
+عراقچی اعلام کرد طبق توافق، محاصره دریایی ایالات متحده علیه بنادر ایرانی به‌طور کامل رفع خواهد شد و دارایی‌های بلوکه‌شدهٔ ایران آزاد خواهد شد.
+
+مقام‌های آمریکایی آزاد شدن این دارایی‌ها را به دفعات رد کرده‌اند. جی‌دی ونس، معاون رئیس‌جمهور آمریکا ساعاتی پیش تصریح کرد بعد از امضای توافق، هیچ‌گونه منابع مالی در اختیار ایران قرار نخواهد گرفت.
+@VahidHeadline
+عراقچی این رو هم گفته که: اگر آخرین مرحله مذاکرات انجام شود تفاهم از راه دور به امضای دو طرف می‌رسد و اعلام خواهد شد. ممکن است در چند روز آینده اتفاق بیفتد.
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 341951
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341951_1781294622.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوهای رسیده به ایران‌‌اینترنشنال نشان می‌‌دهد مراسم تولد جاویدنام آرمان پوردلجو بر سر مزارش در بهشت سکینه کرج برگزار شده است.
+﻿آرمان پوردلجو، ۲۲ ساله، ۱۸ دی ماه ۱۴۰۴، در کرج با اصابت گلوله جنگی ماموران جمهوری اسلامی کشته شد.
+</div>
+
+## IranIntlTV — post 341950
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341950_1781294624.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عباس عراقچی، وزیر خارجه جمهوری اسلامی، درباره تفاهم احتمالی با آمریکا به صداوسیما گفت: «احتمالا در چند روز آینده تفاهم‌نامه میان ما و آمریکا امضا خواهد شد.»
+
+او افزود: «امضای یادداشت تفاهم بعد از گذشتن از آخرین مراحل مذاکرات به صورت دیجیتالی و از راه دور انجام می‌شود که اعلام خواهد شد و ممکن است در چند روز آینده اتفاق بیفتد.»
+https://iranintl.com/202606124688
+</div>
+
+## IranIntlTV — post 341949
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341949_1781294624.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شاهد عینی درباره اعتراضات دی‌ماه نورآباد ممسنی و کشتار معترضان در این شهر، به ایران‌اینترنشنال گفت برادرش هدف تیراندازی قرار گرفت و بدنش پر از ساچمه شد. اما از ترس اینکه به او «تیر خلاص» بزنند، هرگز برای درمان به بیمارستان نرفت و هنوز تعدادی از ساچمه‌ها در بدنش باقی مانده‌اند.
+
+این شهروند، گفت دادگستری ممسنی در جریان اعتراضات به دست نیروهای حکومتی و از داخل ساختمان آتش گرفت.
+
+به گفته او، برادرش آن‌شب داخل ساختمان رفت و دید همه اتاق‌ها خالی هستند و فقط پرده‌ها سوخته‌اند.
+
+این شاهد عینی یادآوری کرد علاوه بر برادرش، ده‌ها تن دیگر نیز هدف گلوله‌های ساچمه‌ای یا جنگی قرار گرفتند.
+
+او افزود: «دو نفر از بستگان ما را در بیمارستان با تیر خلاص کشتند. بعد از کشته شدن هم آن‌ها را بسیجی معرفی کردند، چون خانواده‌هایشان توان پرداخت هزینه گلوله را نداشتند.»
+
+با این‌حال به گفته این شهروند، مردم در مراسم چهلم این دو معترض کشته‌شده، فریاد «جاویدنام» سر دادند.
+https://iranintl.com/202606122862
+</div>
+
+## FarsiVOA — post 220523
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺آمریکا در مرکز توجه روز دوم جام جهانی؛ ستارگان موسیقی و مقام‌های ارشد واشنگتن در افتتاحیه لس‌آنجلس
+
+◾️آمریکا روز جمعه ۲۲ خرداد (بامداد شنبه ۲۳ خرداد به وقت ایران)، در دومین روز مراسم افتتاحیه جام جهانی ۲۰۲۶ در مرکز توجه قرار می‌گیرد؛ روزی که لس‌آنجلس، مرکز صنعت سینمای آمریکا و از شهرهای چندفرهنگی این کشور، میزبان مراسم رسمی افتتاحیه در خاک ایالات متحده و نخستین بازی تیم ملی آمریکا خواهد بود.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/us-opens-world-cup-stage/8160141.html
+@FarsiVOA
+</div>
+
+## RadioFarda — post 158239
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸عباس عراقچی، وزیر خارجه جمهوری اسلامی، شامگاه جمعه در یک برنامه زنده تلویزیونی اعلام کرد هنوز توافقی با آمریکا امضا نشده و مدعی شد که پرونده هسته‌ای ایران به مرحله دوم و نهایی این توافق موکول شده است. 🔸او در گفت‌وگو با تلویزیون حکومتی ایران گفت توافق احتمالی…
+</div>
+
+## RadioFarda — post 158238
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_158238_1781294625.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸عباس عراقچی، وزیر خارجه جمهوری اسلامی، شامگاه جمعه در یک برنامه زنده تلویزیونی اعلام کرد هنوز توافقی با آمریکا امضا نشده و مدعی شد که پرونده هسته‌ای ایران به مرحله دوم و نهایی این توافق موکول شده است.
+
+🔸او در گفت‌وگو با تلویزیون حکومتی ایران گفت توافق احتمالی با ایالات متحده شامل دو مرحله است و «موضوع هسته‌ای را به مرحله دوم انتقال دادیم».
+
+🔸این در حالی است که ساعتی قبل یک مقام ارشد آمریکایی به خبرنگاران گفت بر اساس توافق، قرار است اورانیوم غنی‌شده ایران در خاک این کشور نابود شود و سپس به خارج از ایران منتقل شود.
+
+🔸با این حال وزیر خارجه ایران با اشاره به اینکه نتیجه مذاکرات یک «یادداشت ۱۴ ماده‌ای» است اعلام کرد مفاد آن بعد از نهایی شدن اعلام می‌شود.
+
+🔸وزیر خارجه ایران در گفت‌وگوی خود خبر داد که طبق تصمیم جمهوری اسلامی، «آینده تنگه هرمز و اداره آن مثل گذشته نخواهد بود‌» و ادعا کرد که ایران و عمان بیانیه مشترکی در مورد اداره این آبراه منتشر خواهند کرد.
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 22428
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+البته ناگفته نماند عراقچی هروقت خبرای مثبت از مذاکره اورده بلافاصله جنگ شده
+</div>
+
+## IranianMinds — post 22427
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آقا من متوجه نمیشم
+
+
+انتقام خون حضرت آقا الان چی میشه؟
+به نظرم بسیجیا و ارزشیا باید انقلاب کنن
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22426
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 عراقچی: دو تا موضوع مهم هنوز مونده برای توافق نهایی؛ یکی بحث تحریم‌ها، یکی هم مواد غنی‌شده. راه‌حلی که داریم اینه که غنی‌سازی ۶۰ درصد رو رقیق کنیم. در مورد تحریم‌ها هم، ما مشخص می‌کنیم که دقیقاً کدوم تحریم‌ها باید برداشته بشه.
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 391842
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391842_1781294625.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏پر فروشترین کتاب سال عرزشی ها
+حیدععععععر حیدعععععر
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 127501
+
+<div align="center">
+  <a href="telegram/content/alonews_127501_1781294626.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / عراقچی اعلام کرد: احتمال امضای تفاهم در چند روز آینده وجود دارد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127500
+
+<div align="center">
+  <a href="telegram/content/alonews_127500_1781294626.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈عراقچی: فکر می‌کنم نتیجهٔ تفاهم برای منافع ملی ایران خوب باشد و دستاوردهای میدانی را تثبیت کند.
+
+‌
+🔴علت جنگ این بود که ما در مذاکرات از منافع‌ ملی‌مان کوتاه نیامدیم و مقاومت کردیم
+
+
+🔴دشمن آنچه که در جنگ به‌دست نیاورده را در مذاکره به‌دست نخواهد آورد.
+
+‌
+🔴یکی از مقامات آمریکایی به‌تازگی گفته که ما تازه فهمیدیم که ایرانی‌ها با بقیه فرق دارند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127499
+
+<div align="center">
+  <a href="telegram/content/alonews_127499_1781294626.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈عراقچی: تفاهم در صورت نهایی‌شدن به‌صورت دیجیتالی و از راه دور امضا خواهد شد و سپس اعلام می‌شود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127498
+
+<div align="center">
+  <a href="telegram/content/alonews_127498_1781294626.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈عراقچی: اگر آخرین مرحله مذاکرات انجام شود تفاهم از راه دور به امضای دو طرف می‌رسد و اعلام خواهد شد
+
+
+🔴ممکن است در چند روز آینده اتفاق بیفتد.
+
+
+🔴رسانه‌ها فضا را مشوش نکنند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/22 23:23
 ---
 
@@ -187,8 +581,6 @@ https://bbc.in/4fJt5xd
 
 ✅ @AloNews خبر جنگ
 </div>
-
-
 <!-- MSG END -->
 
 <!-- NAV START -->

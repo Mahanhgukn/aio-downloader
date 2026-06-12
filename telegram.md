@@ -7,6 +7,159 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/22 16:44
+---
+
+## VahidOOnLine — post 245136
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245136_1781270052.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری فارس، وابسته به سپاه پاسداران، به نقل از یک منبع نزدیک به تیم مذاکره‌کننده جمهوری اسلامی گزارش داد گزارش‌ها درباره نهایی شدن توافق با آمریکا و امضای آن در روز یکشنبه در ژنو صحت ندارد.
+
+این منبع گفت روند بررسی و تصمیم‌گیری درباره توافق در ایران هنوز نهایی نشده است و گزارش‌های منتشرشده درباره زمان و محل امضای توافق کذب است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245135
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245135_1781270053.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️فرماندهی مرکزی ارتش آمریکا (سنتکام) روز جمعه ۲۲ خرداد با انتشار پیامی در شبکه اجتماعی ایکس اعلام کرد که نیروهای آمریکایی در راستای تضمین پایبندی به محاصره اعمال‌شده از سوی واشنگتن بر تنگه هرمز، «مسیر ۱۳۶ کشتی را تغییر داده و ۹ کشتی دیگر را توقیف یا غیرفعال کرده‌اند.»
+
+سنتکام در ادامه تاکید کرد: «ناوهای جنگی و یگان‌های هوایی نیروی دریایی آمریکا به گشت‌زنی در آب‌های منطقه جهت اجرای کامل محاصره دریایی علیه ایران ادامه می‌دهند.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342898
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342898_1781270054.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+A London restaurant manager saw a little girl hanging from a balcony ledge — then made the catch of his life.
+
+He says that he acted on “pure instinct” as the child fell from an upper-floor flat and he moved into position below.
+
+Afterward, he credited his cricket skills for helping him react in time.
+</div>
+
+## pm_afshaa — post 93688
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93688_1781270055.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مرندی، عضو تیم مذاکره‌کننده:
+یکشنبه در ژنو اتفاقی نمیفته. هنوز کارهایی برای انجام دادن باقی مونده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 341874
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341874_1781270056.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری فارس، وابسته به سپاه پاسداران، به نقل از یک منبع نزدیک به تیم مذاکره‌کننده جمهوری اسلامی گزارش داد گزارش‌ها درباره نهایی شدن توافق با آمریکا و امضای آن در روز یکشنبه در ژنو صحت ندارد.
+
+این منبع گفت روند بررسی و تصمیم‌گیری درباره توافق در ایران هنوز نهایی نشده است و گزارش‌های منتشرشده درباره زمان و محل امضای توافق کذب است.
+https://iranintl.com/202606123426
+</div>
+
+## DW_Farsi — post 125891
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125891_1781270057.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 هشدار بانک جهانی؛ جنگ ایران رشد اقتصاد جهانی را کاهش می‌دهد
+
+بانک جهانی در گزارشی اعلام کرده است که جنگ و تنش‌های مرتبط با ایران می‌تواند رشد اقتصاد جهانی را به پایین‌ترین سطح خود از زمان همه‌گیری کرونا برساند.
+
+بر اساس این گزارش رشد اقتصاد جهانی در سال جاری حدود ۲.۵ درصد پیش‌بینی شده است، در حالی که این رقم در سال ۲۰۲۵ برابر با ۲.۹ درصد بوده است.
+
+بانک جهانی هشدار داده است که در صورت تشدید درگیری‌ها یا اختلال جدی در عرضه انرژی و تجارت جهانی، رشد اقتصادی ممکن است تا حدود ۱.۳ درصد کاهش یابد.
+
+این گزارش همچنین به پیامدهای احتمالی چنین شرایطی از جمله افزایش قیمت نفت، گاز و کودهای شیمیایی، افزایش تورم، تشدید ناامنی غذایی و فشار مالی بر کشورهای آسیب‌پذیر اشاره می‌کند.
+
+علاوه بر این، اختلال در مسیرهای حمل‌ونقل و انرژی در تنگه هرمز  می‌تواند هزینه‌ها را افزایش داده و دسترسی به منابع را محدود کند.
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 16850
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16850_1781270057.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایران اینتل واچ:«بر اساس اطلاعات به‌دست‌آمده، تصمیم ایران برای توقف حملات به اسرائیل پس از یک پیام آمریکا که از طریق هیأتی قطری در ۸ ژوئن منتقل شد اتخاذ شد؛ این پیام درباره مهار اسرائیل در لبنان بود. همچنین در کنار آن، انتقال ۳ میلیارد دلار از ابوظبی به تهران…
+</div>
+
+## Persian_Trend_Official — post 16849
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16849_1781270058.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سنتکام می‌گوید نیروهای آمریکایی از زمان آغاز محاصره بنادر ایران در 13 آوریل، 136 کشتی تجاری را تغییر مسیر داده و 9 کشتی را از کار انداخته‌اند.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 22405
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 یک منبع نزدیک به تیم مذاکره‌کننده ایران به فارس گفت:
+
+ادعاهایی که از سوی ترامپ و برخی از رسانه‌های خارجی مبنی بر اینکه توافق نهایی شده است و قرار است که یکشنبه در ژنو به امضاء برسد به هیچ عنوان درست نیست و صحت ندارد.
+
+@IranianMinds
+</div>
+
+## alonews — post 127408
+
+<div align="center">
+  <img src="telegram/content/alonews_127408_1781270058.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ژست‌ گروهبان در مراسم‌ فتوشات جام‌جهانی😎
+
+ساعتشو دیدید یا نه کرد تو چشممون
+
+@AloSport
+</div>
+
+## alonews — post 127407
+
+<div align="center">
+  <a href="telegram/content/alonews_127407_1781270059.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈علم الهدی: هیچ تفاهمی تا به امضای رهبری نرسد، کوچک‌ترین فرد از امت ما ولو کودک ما قبول نخواهد کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/22 16:34
 ---
 

@@ -7,6 +7,161 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/22 15:03
+---
+
+## VahidOOnLine — post 245129
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_245129_1781264026.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️خرس قهوه‌ای به همراه توله‌هایش در پارک ملی گلستان دیده شد
+
+♦️تصاویر ثبت‌شده در پارک ملی گلستان، یک خرس قهوه‌ای را در کنار توله‌هایش در زیستگاه طبیعی این گونه نشان می‌دهد.
+پارک ملی گلستان یکی از مهم‌ترین زیستگاه‌های خرس قهوه‌ای در ایران به شمار می‌رود و ثبت چنین تصاویری نشانه‌ای از تداوم حیات و زادآوری این گونه ارزشمند در مناطق حفاظت‌شده کشور است.
+
+خرس قهوه‌ای از بزرگ‌ترین پستانداران ایران و از گونه‌های شاخص حیات وحش کشور محسوب می‌شود. پارک ملی گلستان، قدیمی‌ترین پارک ملی ایران، به دلیل تنوع زیستی بالا، زیستگاه گونه‌های متعددی از پستانداران، پرندگان و خزندگان است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## RadioFarda — post 158221
+
+<div align="center">
+  <a href="https://t.me/radiofarda/158221" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸 در دومین کافه فردا به وقت جام جهانی، به مسابقات روز اول این رویداد بین‌المللی می‌پردازیم، آخرین تغییرات داوری در فوتبال را مرور می‌کنیم، به حواشی گسترده تیم ملی فوتبال ایران در مسیر جام‌جهانی می‌پردازیم و مسائل تاکتیکی مسابقات روزهای آینده را مرور می‌کنیم.
+
+🔸 برای تماس با ما می‌توانید به شناسه کافه فردا در تلگرام صوت و متن بفرستید.
+
+📻 کافه فردا
+</div>
+
+## IranianMinds — post 22396
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22396_1781264028.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 وای نت :
+
+نتانیاهو گفت ترامپ پس از حمله موشکی ایران از او خواسته پاسخ اسرائیل را محدود کند.
+به گفته نتانیاهو، ترامپ از او پرسید: آیا کسی از شما کشته شده تو حمله ایران؟
+نتانیاهو پاسخ داد: «من حاضر نیستم معادله‌ای را بپذیرم که فقط در صورت کشته شدن افراد پاسخ بدهیم. اگر به خاک اسرائیل حمله شود، ما پاسخ می‌دهیم و ضربه متقابل می‌زنیم.»
+
+او همچنین در پاسخ به نگرانی‌ها درباره وابستگی به آمریکا گفت: «ما تابع آمریکایی‌ها نیستیم؛ ما متحد آن‌ها هستیم.
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 391792
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391792_1781264028.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اجرای آهنگ شکیرا توسط دختران ایرانی
+اونوقت ج ا میخواد اینا رو محدود کنه
+این نسل سرنگونتون میکنند
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391791
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391791_1781264030.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+همیشه خنده ام میگیره وقتی در فیلمهای سینمایی، افراد به خاطر نخوردن گلوله، پشت یک خودرو سنگر میگیرند تا زخمی نشوند.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391790
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391790_1781264031.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اگه این روز‌ها درگیر استرس و فشار‌های عصبی هستید؛
+
+
+حتماً صحبت‌های دکتر رو با دقت تا انتها ببینید، 48 ثانیه‌ست ولی راحت 48 سال جلوتون میندازه.
+
+هندزفری 🔞
+
+
+@Dirty_Kids 👻
+</div>
+
+## Hranews — post 113555
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مسجد سلیمان؛ وقوع آتش سوزی در یک مرکز نگهداری معلولان ذهنی منجر به مصدومیت ۲۵ تن شد
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– مدیرعامل جمعیت هلال‌احمر استان خوزستان اعلام کرد که وقوع آتش‌سوزی در یک مرکز نگهداری معلولان ذهنی و توانبخشی در مسجد سلیمان منجر به مصدومیت ۲۵ تن شده است.
+
+ادامه مطلب
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## alonews — post 127385
+
+<div align="center">
+  <a href="telegram/content/alonews_127385_1781264032.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ارتش اسرائیل دستور تخلیه فوری سرافند، توفاهتا و مزرعه سینا تو لُبنان رو داده
+
+
+🔴 دلیلش هم نقض آتش‌بس از سوی حزب‌الله اعلام شده
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127384
+
+<div align="center">
+  <a href="telegram/content/alonews_127384_1781264033.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رائفی پور: خون آقا رو پایمال نکنید
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127383
+
+<div align="center">
+  <a href="telegram/content/alonews_127383_1781264033.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈امام جمعه اهواز: سازش با دشمن در هیچ سطحی جایز نیست
+
+
+🔴 عقب‌نشینی در مقابل امریکا و اسرائیل ممنوع است، باید انتقام بگیریم!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/22 14:53
 ---
 

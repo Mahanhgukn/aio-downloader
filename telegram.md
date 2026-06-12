@@ -7,6 +7,208 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/22 17:13
+---
+
+## VahidOOnLine — post 245142
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند در پیامی صوتی به ایران اینترنشنال از وضعیت اقتصادی، کاهش قدرت خرید و نایاب شدن داروی ضدافسردگی روایت می‌کند و می‌گوید مجبور به توقف استفاده از داروی آسنترا شده است. صدای این مخاطب برای حفظ امنیتش تغییر داده شده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245141
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245141_1781271836.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+احمد علم‌الهدی، نماینده رهبر جمهوری اسلامی در خراسان رضوی، گفت هیچ تفاهم و تعهدی بدون امضای مجتبی خامنه‌ای قابل قبول نیست.
+
+او «عداوت و دشمنی با آمریکا» را اصل مسلم جمهوری اسلامی خواند و افزود باید با تبعیت کامل از مجتبی خامنه‌ای، جرات هرگونه تجاوز را نه تنها از آمریکا، بلکه از هر عنصر زورمند دیگری گرفت. او در ادامه تاکید کرد: «دشمنی آمریکا با ما بیشتر از قبل شده است.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14637
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرنگار وال‌استریت ژورنال: برای اینکه توافقی شکل بگیره، مهمتر از تایید مجتبی خامنه‌ای، تایید فرمانده‌های ارشد سپاهه.
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342899
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: A White House official says Iran has agreed to a performance-based deal that would require major concessions before receiving any sanctions relief.
+
+According to the official, Iran's nuclear material would be destroyed and removed, its nuclear program dismantled, and none of its money released until it fulfills its commitments.
+
+The official also says the Strait of Hormuz would remain open and Iran would agree to stop funding terrorist groups.
+</div>
+
+## pm_afshaa — post 93690
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93690_1781271836.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نبویان، نماینده مجلس:
+اینکه رسانه‌ها میگن هر توافقی حتما با امضای رهبری هست یک شیطنت رسانه‌ای است؛ با گفتن این موضوع میخوان تمام عواقب این توافق رو بر روی دوش رهبری بذارن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93689
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93689_1781271837.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبرنگار وال‌استریت ژورنال: برای اینکه توافقی شکل بگیره، مهمتر از تایید مجتبی خامنه‌ای، تایید فرمانده‌های ارشد سپاهه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 341882
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341882_1781271838.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمدنبی موسوی‌فرد، امام جمعه اهواز، گفت هرگونه عقب‌نشینی در برابر «جبهه آمریکا و اسرائیل»، ممنوع و غیرقابل پذیرش است.
+
+او در خطبه‌های نماز جمعه ۲۲ خرداد گفت امنیت کشور تنها به توان نظامی محدود نمی‌شود و حاصل ترکیبی از قدرت نظامی، قدرت نرم، هوشمندی رسانه‌ای و تاب‌آوری اقتصادی است.
+
+موسوی‌فرد افزود «دشمن» تلاش می‌کند با شایعه‌سازی و دوقطبی‌سازی، تاب‌آوری جامعه را تضعیف کند.
+https://iranintl.com/202606121890
+</div>
+
+## IranIntlTV — post 341881
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند در پیامی صوتی به ایران اینترنشنال از وضعیت اقتصادی، کاهش قدرت خرید و نایاب شدن داروی ضدافسردگی روایت می‌کند و می‌گوید مجبور به توقف استفاده از داروی آسنترا شده است. صدای این مخاطب برای حفظ امنیتش تغییر داده شده است.
+</div>
+
+## IranIntlTV — post 341880
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341880_1781271839.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+احمد علم‌الهدی، نماینده رهبر جمهوری اسلامی در خراسان رضوی، گفت هیچ تفاهم و تعهدی بدون امضای مجتبی خامنه‌ای قابل قبول نیست.
+
+او «عداوت و دشمنی با آمریکا» را اصل مسلم جمهوری اسلامی خواند و افزود باید با تبعیت کامل از مجتبی خامنه‌ای، جرات هرگونه تجاوز را نه تنها از آمریکا، بلکه از هر عنصر زورمند دیگری گرفت. او در ادامه تاکید کرد: «دشمنی آمریکا با ما بیشتر از قبل شده است.»
+https://iranintl.com/202606122193
+</div>
+
+## DW_Farsi — post 125893
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125893_1781271839.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 جزئيات توافق ایران به روایت سی‌ان‌‌ان: تمدید آتش‌بس و بازگشایی تنگه هرمز
+
+یک دیپلمات آگاه در گفت‌وگو با شبکه "سی‌ا‌ن‌ا‌ن" گفت که توافق موقت میان آمریکا و ایران شامل تمدید آتش‌بس، بازگشایی تنگه هرمز و هموار کردن مسیر برای مذاکرات بیش‌تر درباره برنامه هسته‌ای ایران است.
+
+به گفته این دیپلمات، دو طرف بر سر متن این تفاهم‌نامه به توافق رسیده‌اند، اما این متن هنوز به امضای نهایی نرسیده است.
+
+بر این مبنا، مفاد کلیدی این تفاهم‌نامه شامل یک آتش‌بس ۶۰ روزه "در تمامی جبهه‌ها"، از جمله لبنان، و بازگشایی تنگه هرمز است: «حجم تردد در این آبراه ۳۰ روز پس از امضای توافق به سطح پیش از جنگ بازخواهد گشت.»
+
+محاصره بنادر ایران توسط آمریکا لغو خواهد شد و برخی تحریم‌ها نیز "بر اساس پیشرفت توافق و تداوم تعهدات با حسن نیت" کاهش می‌یابند؛ هرچند تاریخ مشخصی برای لغو تحریم‌ها تعیین نشده است.
+
+این سند همچنین "تمامی الزامات آمریکا در موضوع هسته‌ای را برآورده می‌کند"، از جمله تعهد ایران به عدم دست‌یابی به سلاح هسته‌ای و تعیین تکلیف ذخایر اورانیوم بسیا‌ر غنی‌شده این کشور.
+
+نام این سند نیز "توافق‌‌‌ اسلام‌آباد" خواهد بود.
+@dw_farsi
+</div>
+
+## IranianMinds — post 22409
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22409_1781271840.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 رویترز :
+
+توافق ایران و آمریکا قراره توسط جی‌دی ونس و قالیباف امضا بشه.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22408
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22408_1781271841.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فقط آستینشو‌ که زده بالا برا اینکه ساعت رولکسش حتما معلوم شه.
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 391800
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تصویری عجیب از یه عرزشی توی تجمعات شبانه، خطش دائمیه یا اعتباری :) @Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391799
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391799_1781271842.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ویدیویی تازه منتشر شده از شب ۱۹ دی ماه و سیل جمعیت در پونک تهران.
+
+هنگامی که جمهوری اسلامی برق را قطع کرد تا جمعیت مردم مشخص نشود و در تاریکی دست به قتل‌عام بزند، مردم با نور گوشی‌های خود سعی کردند تا جمعیت عظیم خود را به جهان نشان دهند
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 127412
+
+<div align="center">
+  <a href="telegram/content/alonews_127412_1781271844.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈یک مقام کاخ سفید به فاکس نیوز گفت: مواد هسته‌ای ایران نابود و منتقل خواهد شد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127411
+
+<div align="center">
+  <a href="telegram/content/alonews_127411_1781271844.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈امیرحسین ثابتی: کسی حق ندارد تنگه هرمز را به امید رفع تحریم یا محاصره باز کند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/22 17:03
 ---
 

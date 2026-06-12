@@ -7,6 +7,126 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/22 11:03
+---
+
+## VahidOOnLine — post 245107
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245107_1781249621.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+احمد مرادی، عضو کمیسیون انرژی مجلس جمهوری اسلامی، در واکنش به تهدیدهای اخیر دونالد ترامپ، رییس‌جمهوری آمریکا، گفت «دشمن بازی خطرناکی را شروع کرده» و هشدار داد که اقدامات آمریکا و اسرائیل می‌تواند پیامدهایی برای امنیت انرژی در کشورهای منطقه به همراه داشته باشد.
+
+مرادی جمعه ۲۲ خرداد در گفت‌وگو با وب‌سایت خانه ملت گفت: «در صورت ادامه این روند، زیرساخت‌های انرژی منطقه در امنیت نخواهند بود.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14609
+
+
+
+
+## WithYashar — post 14608
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کامنتم هم زیر پست ترامپ، کارهای اداریش را انجام بدهد فقط همین رو لایک کنید https://www.instagram.com/p/DZdJ2LZvAza/?carousel_share_child_media_id=3917330556395457754_347696668&comment_id=18055196378739071
+</div>
+
+## WithYashar — post 14607
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سخنگوی کمیسیون امنیت ملی: احتمال فریب از سوی ترامپ بالاست
+@withyashar
+</div>
+
+## pm_afshaa — post 93672
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴الجزیره: بازارهای سهام پس از اعلام دونالد ترامپ، رئیس جمهور آمریکا، مبنی بر لغو حملات برنامه‌ریزی شده علیه ایران و قریب‌الوقوع بودن توافق صلح با تهران، افزایش یافته‌ان
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5609
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5609_1781249622.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺📢 لعنت به شما که سال ۵۷ ما رو انداختید تو این نکبت!
+
+#نکبت۵۷
+@DEJradio
+</div>
+
+## IranIntlTV — post 341850
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341850_1781249624.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+احمد مرادی، عضو کمیسیون انرژی مجلس جمهوری اسلامی، در واکنش به تهدیدهای اخیر دونالد ترامپ، رییس‌جمهوری آمریکا، گفت «دشمن بازی خطرناکی را شروع کرده» و هشدار داد که اقدامات آمریکا و اسرائیل می‌تواند پیامدهایی برای امنیت انرژی در کشورهای منطقه به همراه داشته باشد.
+
+مرادی جمعه ۲۲ خرداد در گفت‌وگو با وب‌سایت خانه ملت گفت: «در صورت ادامه این روند، زیرساخت‌های انرژی منطقه در امنیت نخواهند بود.»
+https://iranintl.com/202606129879
+</div>
+
+## IranIntlTV — post 341849
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341849_1781249624.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علیرضا نامورحقیقی، تحلیل‌گر سیاسی، گفت دونالد ترامپ به‌طور هم‌زمان از دو اهرم دیپلماسی و تقابل نظامی برای پیشبرد اهداف خود در قبال ایران استفاده می‌کند.
+@iranintltv
+</div>
+
+## BBCPersian — post 283536
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🖋علی رمضانیان، روزنامه‌نگار اقتصادی
+
+هنوز آفتاب کاملا بالا نیامده بود و صدای موتور وانت‌ها و گفت‌وگوی کارگران روزمزد در کوچه‌های خاکی شهرک میان‌آبادِ اسلامشهر به گوش می‌رسید. زهرا، زن ۴۵ ساله‌ای، هر روز ساعت شش صبح در خانه‌ای با دیوارهای بلوکی و سقف ورق‌آهنی از خواب بیدار می‌شود و همسرش، عباس، به یکی از میدان‌های کارگری در احمدآباد مستوفی، واوان یا چهاردانگه می‌رود؛ جایی که هر روز ده‌ها کارگر امیدوار هستند تا شاید برای یک روز کار پیدا کنند.
+زهرا و عباس بیش از بیست سال پیش، به دلیل خشکسالی، بی‌آبی و ورشکستگی کشاورزی، از یکی از روستاهای اطراف ساوه به تهران مهاجرت کردند. ابتدا در محله نازی‌آباد ساکن شدند.
+ادامه مطلب⬇️
+
+📸 Paul Almasy/Corbis/VCG via Getty Images / Kaveh Kazemi/Getty Images / Fatemeh Bahrami/Anadolu via Getty Images / Morteza Nikoubazl/NurPhoto via Getty Images / BEHROUZ MEHRI/AFP via Getty Images / ATTA KENARE/AFP via Getty Images
+https://bbc.in/49RDHq7
+@BBCPersian
+</div>
+
+## Hranews — post 113550
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حکم اعدام یک مامور نیروی انتظامی به اجرا در آمد
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– حکم یک مامور نیروی انتظامی بندرعباس که پیشتر به اتهام قتل یک متهم در جریان ماموریت به #اعدام محکوم شده بود، اجرا شد.
+
+ادامه مطلب
+
+#مهدی_براهیمی
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+---
 📅 بروزرسانی: 1405/03/22 10:53
 ---
 

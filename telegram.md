@@ -7,6 +7,52 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/22 04:13
+---
+
+## VahidOOnLine — post 245075
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245075_1781225008.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس‌جمهوری آمریکا در گفتگوی تلفنی با برت جونز، نامزد جمهوری‌خواه انتخابات فرمانداری ایالت جورجیا در آمریکا که در نخستین ساعات بامداد جمعه منتشر شده، گفت که امروز به جنگ با ایران پایان دادیم و آنها موافقت کردند که هیچ وقت سلاح هسته‌ای نداشته باشند.  این چیزی بود که ما بر آن تاکید داشتید و ۹۵ درصد ماجرا بود.رئیس‌جمهوری آمریکا گفت که تقریبا کار تمام شده و هرچه می‌خواستیم را گرفتیم و نیروها به زودی به خانه باز می‌گردند. ترامپ بار دیگر تاکید کرد که در این توافق ایران نه می‌تواند سلاح هسته‌ای توسعه دهد و نه بخرد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342890
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342890_1781225008.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+REP. WESLEY HUNT: "The fact that the Left... is willing to even bring up race in this situation is really disheartening to me."
+
+"I look at this case and I think — what if that were my child who was stabbed by anybody of any race? I would like that person to pay the consequences, and that's exactly what's happening to Karmelo Anthony." https://twitter.com/IngrahamAngle/status/2065224117129756731#m
+</div>
+
+## IranIntlTV — post 341826
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341826_1781225010.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شورای آتلانتیک، در گزارشی جنگ میان حکومت ایران و آمریکا را به بازی «پوکر دروغگوها» تشبیه کرد. این گزارش با بیان اینکه ایران در طول سال‌ها توانایی بالایی در تحمل فشارهای اقتصادی و سیاسی از خود نشان داده تاکید کرد که «یک مصالحه ناقص بهتر از ادامه رویارویی است چون ممکن است هزینه‌های بیشتری به همراه داشته باشد».
+
+به نوشته آتلانتیک، رویارویی آمریکا با ایران فقط در سطح سیاسی جریان ندارد، بلکه «بازارهای مالی و انرژی نیز از بازیگران اصلی» آن هستند. بازارها را نمی‌توان به سادگی فریب داد و واکنش آنها به ریسک‌های ژئوپلیتیک می‌تواند فوری و جهانی باشد.
+
+گزارش تاکید کرده که «مذاکرات» میان تهران و واشینگتن هم تنها تحت تاثیر ملاحظات نظامی نیست، بلکه «پیامدهای اقتصادی» تداوم بحران نیز در آن نقش دارند.
+
+به نوشته آتلانتیک، موضوعاتی مانند تنگه هرمز، برنامه هسته‌ای، رفع تحریم‌ها و دسترسی به دارایی‌های مسدودشده، تلاشی همزمان برای مدیریت ریسک‌های ژئوپلیتیک و مالی به شمار می‌روند.
+
+آتلانتیک همچنین می‌گوید: آمریکا باید به دنبال بهترین توافق باشد، زیرا طولانی شدن بحران می‌تواند هزینه‌های سنگینی برای اقتصاد و بازارهای جهانی داشته باشد
+</div>
+
+---
 📅 بروزرسانی: 1405/03/22 04:03
 ---
 

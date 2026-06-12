@@ -7,6 +7,233 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/22 20:53
+---
+
+## VahidOOnLine — post 245181
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245181_1781284999.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اکسیوس گزارش داد دونالد ترامپ، پیام عباس عراقچی در شبکه ایکس را «بسیار مثبت» ارزیابی کرد و گفت معتقد است توافق با جمهوری اسلامی می‌تواند در آخر هفته یا روز دوشنبه امضا شود.
+
+اکسیوس همچنین به نقل از ترامپ نوشت که جمهوری اسلامی به صورت خصوصی بابت انتشار «اطلاعات نادرست» عذرخواهی کرده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14653
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ثابتی:متن توافق احتمالی از برجام هم ضعیف‌تره و نه گشایش اقتصادی ایجاد می‌کنه و نه جلوی جنگ رو می‌گیره
+@withyashar
+</div>
+
+## mwarmonitor — post 10785
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨رویترز به نقل از یک مقام ارشد در دولت آمریکا: واشنگتن بر اساس توافق با ایران، مواد غنی‌شده را دریافت خواهد کرد.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10784
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴شبکه ۱۲ اسرائیل به نقل از یک مقام ارشد آمریکایی گزارش داده است: رئیس‌جمهور ترامپ در تماس دیروز خود به نتانیاهو گفته است: «این توافق است، توافقی عالی است، و وقت آن رسیده که این جنگ پایان یابد.»
+
+🔹بر اساس این مقام، نتانیاهو در طول این گفتگو واکنش زیادی نشان نداده و بیشتر سکوت کرده است.
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 342907
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌Fox News (Twitter/X)
+
+Read more 👉
+</div>
+
+## FoxNewsTwitter — post 342906
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342906_1781284999.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: Elon Musk has become the world's first trillionaire.
+
+After SpaceX raised a record $75 billion in its IPO, Musk’s net worth shot up to top $1.1 trillion when the stock began trading Friday, putting him in an economic class of his own.
+
+Combined with his holdings in electric vehicle maker Tesla, as well as other investments and assets, Musk's net worth is now estimated at about $1.1 trillion.
+
+Musk's stake in the rocket and satellite company alone is now estimated at a staggering $690 billion, but it's also a life-changing moment for thousands of workers at the company who hold equity.
+
+Investors who watched Musk help turn Tesla into an automotive giant are now betting he can do the same in space and artificial intelligence, as SpaceX launches the largest IPO in history.
+</div>
+
+## IranIntlTV — post 341923
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341923_1781285000.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اکسیوس گزارش داد دونالد ترامپ، پیام عباس عراقچی در شبکه ایکس را «بسیار مثبت» ارزیابی کرد و گفت معتقد است توافق با جمهوری اسلامی می‌تواند در آخر هفته یا روز دوشنبه امضا شود.
+
+اکسیوس همچنین به نقل از ترامپ نوشت که جمهوری اسلامی به صورت خصوصی بابت انتشار «اطلاعات نادرست» عذرخواهی کرده است.
+https://iranintl.com/202606128565
+</div>
+
+## DW_Farsi — post 125906
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125906_1781285000.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 برخی نمایندگان مجلس درباره توافق احتمالی با آمریکا توضیح خواستند
+
+جمعی از نمایندگان مجلس در نامه‌ای خطاب به محمدباقر قالیباف، رئیس تیم مذاکرات با آمریکا، و محمدباقر ذوالقدر، دبیر شورای عالی امنیت ملی، خواستار توضیح درباره متن و فرامتن پیام‌های مبادله‌شده تاکنون با دولت آمریکا شدند.
+
+امضاکنندگان این نامه نوشته‌اند با توجه به سابقه "بدعهدی" آمریکا و پرسش‌های مردم، لازم است درباره ابعاد توافق احتمالی با واشنگتن پاسخ داده شود تا به گفته آنان "اطمینان قلب" مردم و نمایندگان نسبت به حفظ دستاوردهای بیش از ۱۰۰ روز مقاومت حاصل شود.
+
+نمایندگان در این نامه خواسته‌اند روشن شود نسبت متن‌های مبادله‌شده با شروط مندرج در بیانیه ۱۹ فروردین ۱۴۰۵ شورای عالی امنیت ملی و نیز خطوط قرمز اعلامی رهبر جمهوری اسلامی چیست.
+
+آنان همچنین پرسیده‌اند آیا در متون ردوبدل‌شده، به‌صراحت بر باقی ماندن تنگه هرمز و خلیج فارس تحت مدیریت و اعمال حاکمیت جمهوری اسلامی تأکید شده یا نه.
+@dw_farsi
+</div>
+
+## BBCPersian — post 283588
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌ وزیر دفاع اسرائیل می‌گوید این کشور باید اطمینان حاصل کند که مستقلا می‌تواند مانع دستیابی ایران به سلاح هسته‌ای شود. اسرائیل کاتس اشاره کرد که دونالد ترامپ از منظر منافع آمریکا به دنبال رسیدن به توافق با ایران است. آقای کاتس در عین حال گفت که بسیاری از…
+</div>
+
+## BBCPersian — post 283587
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283587_1781285001.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+وزیر دفاع اسرائیل می‌گوید این کشور باید اطمینان حاصل کند که مستقلا می‌تواند مانع دستیابی ایران به سلاح هسته‌ای شود.
+
+اسرائیل کاتس اشاره کرد که دونالد ترامپ از منظر منافع آمریکا به دنبال رسیدن به توافق با ایران است.
+
+آقای کاتس در عین حال گفت که بسیاری از منافع دو کشور مشترک است مانند جلوگیری از دستیابی ایران به سلاح هسته‌ای؛ او افزود که اسرائیل از رئیس‌جمهور آمریکا انتظار دارد که مسائل مربوط به برنامه موشکی و «گروه‌های نیابتی تروریستی» را هم پیگیری کند.
+
+آقای کاتس گفت که او و بنیامین نتانیاهو، نخست‌وزیر اسرائیل، به ارتش دستور داده‌اند تا برای جلوگیری از دستیابی ایران به سلاح هسته‌ای، آمادگی لازم را داشته باشد.
+
+ایران همواره تاکید داشته است که برنامه اتمی‌اش صرفا برای مقاصد صلح‌آمیز است.
+
+
+📷AFP VIA GETTY
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 391826
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391826_1781285001.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ما اینجا واسه نفس کشیدن می‌جنگیم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391825
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391825_1781285002.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شیوه جدید لب گرفتن و بوسیدن همدیگه توی فیلمای ایرانی:
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391824
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391824_1781285003.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بزودی:
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 127459
+
+<div align="center">
+  <a href="telegram/content/alonews_127459_1781285003.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈یک مقام آمریکایی به رویترز : نمی‌توان تاریخ مشخصی برای امضای توافق ایران ارائه داد
+
+
+🔴فکر می‌کنم داریم به تعیین تاریخ و محل امضا نزدیک می‌شیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127458
+
+<div align="center">
+  <a href="telegram/content/alonews_127458_1781285004.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 مقام آمریکایی به رویترز: توافق‌نامه ایران اهداف اصلی ایالات متحده را محقق می‌کند.
+
+
+🔴 توافق‌نامه تنگه هرمز را دوباره باز می‌کند.
+
+
+🔴 ایالات متحده مواد هسته‌ای غنی‌شده را دریافت خواهد کرد.
+﻿
+
+🔴توافق با ایران شامل یک رژیم بازرسی است
+
+
+🔴 اگر ایران پایبند باشد، از نظر اقتصادی پاداش داده خواهد شد.
+
+
+🔴 مزایا برای ایران تنها در صورتی محقق می‌شود که واقعاً تعهدات خود را اجرا کنند
+
+
+🔴منابع تخمین می‌زنند که احتمال امضای توافق‌نامه ایران بین ۸۰ تا ۸۵ درصد است.
+
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127457
+
+<div align="center">
+  <a href="telegram/content/alonews_127457_1781285004.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری/آکسیوس: ترامپ به نتانیاهو اطلاع داد که زمان پایان دادن به جنگ با ایران فرا رسیده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/22 20:44
 ---
 

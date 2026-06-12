@@ -7,6 +7,171 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/22 13:03
+---
+
+## WithYashar — post 14618
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ادعای آکسیوی : شرایط توافق بین امریکا و ایران:
+
+1. باز شدن فوری تنگه هرمز
+بدون دریافت عوارض یا محدودیت جدید.
+2. برگشت ترافیک دریایی حجم حمل‌ونقل و کشتیرانی ظرف ۳۰ روز به سطح قبل از درگیری‌ها برگرده
+3. لغو محاصره دریایی آمریکا
+4. تمدید آتش‌بس به مدت ۶۰ روز شامل لبنان
+5. ادامه مذاکرات هسته‌ای
+6. توافق دوم برای پرونده هسته‌ای
+7. تسهیل محدود فروش نفت برای ایران
+8. کاهش تحریم‌ها به‌صورت مشروط
+@withyashar
+</div>
+
+## pm_afshaa — post 93674
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نتانیاهو به ترامپ:اینو بدون که اسرائیل قربانی توافق امریکا با جمهوری اسلامی نخواهد شد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5613
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5613_1781256824.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🛩️
+🔥 حملات سنگین اسرائیل به حـ.ـزب‌الله در سراسر لبنان
+
+ظهر جمعه ۲۲ خرداد ۱۴۰۵ ارتش اسرائیل مواضع حـ.ـزب‌الله لبنان را بمباران کرد. این حملات در حالی صورت گرفت که منابع آگاه مدعی‌اند موضوع لبنان نیز در توافق ایران و آمریکا گنجانده شده و پایان جنگ شامل توقف کامل عملیات، خروج اسرائیل و آزادی اسیران لبنانی است!
+
+#اسرائیل #حزب_الله_لبنان
+@DEJradio
+</div>
+
+## IranIntlTV — post 341861
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341861_1781256826.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جام جهانی ۲۰۲۶ با برگزاری مراسم افتتاحیه پرستاره در ورزشگاه آزتکا در مکزیکوسیتی آغاز شد. در بازی‌های دور نخست، تیم‌های مکزیک و کره جنوبی برابر حریفان خود، آفریقای جنوبی و جمهوری چک، به پیروزی رسیدند.
+
+جزییات بیشتر با آیدین مقیمی، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## FarsiVOA — post 220466
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220466_1781256827.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آتش‌بازی و حال و هوای هواداران فوتبال در افتتاحیه جام جهانی ۲۰۲۶؛
+
+مراسم افتتاحیه جام جهانی ۲۰۲۶، پنج‌شنبه ۲۱ خرداد، در ورزشگاه تاریخی «آزتکا» در مکزیکو سیتی برگزار شد و این تورنمنت بین‌المللی رسماً کار خود را آغاز کرد.
+
+این دوره از رقابت‌ها که به میزبانی مشترک سه کشور آمریکا، کانادا و مکزیک برگزار می‌شود، اولین دوره در تاریخ فوتبال است که مسابقات با حضور ۴۸ تیم، به جای ۳۲ تیم در دوره‌های گذشته، خواهد بود.
+@FarsiVOA
+</div>
+
+## RadioFarda — post 158214
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸بانک جهانی پیش‌بینی کرد جنگ جاری ایران باعث شود رشد اقتصاد جهانی به «ضعیف‌ترین سطح خود» از زمان همه‌گیری کرونا برسد. 🔸بر اساس گزارشی که پنج‌شنبه ۲۱ خرداد توسط بانک جهانی منتشر شد، پیش‌بینی شده در صورت تشدید دوباره درگیری‌ها، این رشد حتی بیش از این کاهش یابد.…
+</div>
+
+## RadioFarda — post 158213
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_158213_1781256829.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸بانک جهانی پیش‌بینی کرد جنگ جاری ایران باعث شود رشد اقتصاد جهانی به «ضعیف‌ترین سطح خود» از زمان همه‌گیری کرونا برسد.
+
+🔸بر اساس گزارشی که پنج‌شنبه ۲۱ خرداد توسط بانک جهانی منتشر شد، پیش‌بینی شده در صورت تشدید دوباره درگیری‌ها، این رشد حتی بیش از این کاهش یابد.
+
+🔸در این گزارش آمده است که رشد اقتصاد جهانی در سال جاری میلادی ۲.۵ درصد پیش‌بینی می‌شود که نسبت به رشد ۲.۹ درصدی در سال ۲۰۲۵ نشان‌دهنده کاهش است.
+
+🔸بانک جهانی هشدار داد: «تشدید دوباره درگیری‌ها یا اختلالات طولانی‌تر در جریان عرضه کالاهای اساسی می‌تواند قیمت این کالاها را بیش از پیش افزایش دهد، فشارهای تورمی و ناامنی غذایی را تشدید کند، موجب تنش‌های مالی شود و رشد اقتصادی را کاهش دهد.»
+
+🔸این نهاد افزود: «اگر اختلال در عرضه انرژی شدیدتر از آنچه فرض شده باشد و همزمان با فشار قابل‌توجه بر بازارهای مالی همراه شود، رشد اقتصاد جهانی در سال ۲۰۲۶ ممکن است تنها به ۱.۳ درصد برسد.»
+
+@RadioFarda
+</div>
+
+## RadioFarda — post 158212
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_158212_1781256830.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## Hranews — post 113553
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند توسط نیروهای امنیتی بازداشت شد
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– یک شهروند در رباط کریم به دلیل آنچه ارتباط با «عناصر جاسوسی خارج از کشور» عنوان شده، بازداشت شد.
+
+ادامه مطلب
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## alonews — post 127352
+
+<div align="center">
+  <a href="telegram/content/alonews_127352_1781256830.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نیروی هوایی اسرائیل داره به روستای تبنین تو جنوب لُبنان حملهِ می‌کنه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127351
+
+<div align="center">
+  <a href="telegram/content/alonews_127351_1781256831.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈مقامات گروه ۷: تفاهم‌نامه آمریکا و ایران ممکن است همین یکشنبه در ژنو امضا شود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127350
+
+<div align="center">
+  <a href="telegram/content/alonews_127350_1781256832.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پیت هگست به مناسبت توافق ۴۴تا پرس سینه زد و فیلمشو منتشر کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/22 12:53
 ---
 

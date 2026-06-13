@@ -7,6 +7,188 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/23 19:43
+---
+
+## VahidOOnLine — post 245327
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245327_1781367190.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ محمد بن عبدالرحمن آل ثانی، نخست‌وزیر قطر، روز شنبه ۲۳ خرداد، در گفتگوی تلفنی با شهباز شریف، همتای پاکستانی خود، بر حمایت همه‌جانبه دوحه از نقش اسلام‌آباد در میانجی‌گری میان ایالات متحده و جمهوری اسلامی ایران تاکید کرد.
+
+بر اساس بیانیه دولت قطر درباره این گفتگوی تلفنی، آل ثانی «رضایت عمیق کشورش را از پیشرفت‌های حاصل‌شده در روند مذاکرات» ابراز داشت.
+
+در این بیانیه همچنین آمده است که گزارش‌های دریافتی از سوی پاکستان درباره آخرین وضعیت گفتگوها، نشان‌دهنده «امیدواری نسبت به امضای قریب‌وقوع این توافق‌نامه از سوی طرف‌های آمریکایی و ایرانی» است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## mwarmonitor — post 10835
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴یک مقام ارشد آمریکایی می‌گوید ممکن است توافق هسته‌ای ایران طی چند روز آینده امضا شود - رویترز
+
+@mwarmonitor
+</div>
+
+## IranIntlTV — post 342107
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/342107" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی اخبار شبانگاهی | شنبه ۲۳ خرداد
+@iranintlTV
+</div>
+
+## FarsiVOA — post 220596
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در گفت‌وگو با حسن هاشمیان از صدای آمریکا تشدید عملیات اسرائیل در جنوب لبنان، نقش‌آفرینی بلندمدت آمریکا در غزه، و فاصله‌گیری دولت لبنان از حکومت ایران را بررسی کردیم. به گفته حسن هاشمیان «پروژه منطقه‌ای جمهوری اسلامی در خاورمیانه، شکست خورده است.»
+</div>
+
+## Persian_Trend_Official — post 16960
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16960_1781367192.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کمبود موشک‌های رهگیر پاتریوت در اوکراین
+
+نیویورک تایمز گزارش می‌دهد که پرسنل پدافند هوایی اوکراین همچنان با حملات گسترده‌ای شامل صدها پهپاد و ده‌ها موشک بالستیک مواجه هستند که اغلب بیش از 24 ساعت با استراحت محدود در حال عملیات هستند و در عین حال موشک های رهگیر باقی‌مانده خود را جیره‌بندی می‌کنند.
+
+مقامات اوکراینی هشدار می‌دهند که تحویل موشک‌های پاتریوت نتوانسته است با تولید و استفاده سریع از موشک‌های بالستیک روسیه همگام باشد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Dirty_Kids — post 391900
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391900_1781367192.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 این شب‌ها تو‌ کافه‌های مختلف فرشته تهران، بندهای مختلف میان کنسرت میذارن؛
+
+
+مردم هم با پارتنر یا رفیق‌شون اونجا جمع میشن ، می‌رقصن و وقت میگذرونن:
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391899
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391899_1781367195.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✅ اپلیکیشن حرفه ای اندروید سایت بین المللی دربی بت
+
+✅اسپانسر لیگ انگلستان
+
+💰اولین سایت جهانی با امکان شارژ و برداشت با کارت بانکی
+
+◻️ برای ورود فیلترشکن روشن کرده روی کانادا یا سنگاپور یا آلمان و ....
+📢
+
+😀Telegram Channel
+👇
+https://t.me/+bcynkEgSW2dlYTc0
+</div>
+
+## Dirty_Kids — post 391898
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391898_1781367196.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😤میخوای جام جهانی پیش بینی کنی؟!
+
+🔹پس نیاز داری به یه سایت بین المللی و معتبر
+🔹
+
+
+⛔دربی بت همون انتخاب  100%
+
+
+💎ویژگی های سایت جهانی Derby Bet:
+
+⬅️امکان شارژ امن با کارت بانکی
+
+⬅️واریز اول دوبل شارژ می شوید(بونوس۱۰۰٪)
+
+⬅️پر اپشن ترین سایت فعال در ایران
+
+⬅️تسویه حساب کمتر از 5 دقیقه
+
+⬅️برگشت بخشی از باخت به صورت هفتگی
+
+⭐دارای لایسنس و مجوز anjuan
+
+
+🚨کد هدیه ثبت نام:GG007
+
+
+⚠️برای دانلود اپلکیشن کلیک کنید
+👉
+
+
+🔔کانال دربی بت :
+👇
+
+✅https://t.me/+bcynkEgSW2dlYTc0
+</div>
+
+## Dirty_Kids — post 391896
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عرزشیا تبریز از الان اومدن تو خیابان و علیه توافق و مذاکره اعتراضات رو شروع کردن
+
++ فقط اونی که سمت چپ چادر رو کرده تو دهنش.. 🤣
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 127663
+
+<div align="center">
+  <a href="telegram/content/alonews_127663_1781367197.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈بانک‌های ملی، تجارت، صادرات و توسعه صادرات از جمله بانک‌هایی بودند که امروز به طور هم‌زمان در خدمات‌رسانی به مشتریان خود از طریق همراه بانک و بعضا ATMها دچار مشکل شدند. ساعاتی بعد اطلاع داده شد وجوه پذیرندگان چهار بانک امشب به حساب‌های پشتیبان واریز می‌شود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127662
+
+<div align="center">
+  <a href="telegram/content/alonews_127662_1781367197.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 بقائی، سخنگوی وزارت امور خارجه:
+ایران در تنگه هرمز هزینه خدمات دریافت خواهد کرد
+
+
+🔴حضور پایگاه‌ها و نیروهای نظامی خارجی در منطقه باید به پایان برسد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/23 19:33
 ---
 

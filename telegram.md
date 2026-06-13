@@ -7,6 +7,47 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/23 03:32
+---
+
+## VahidOOnLine — post 245227
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245227_1781308959.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محسن رضایی، مشاور نظامی مجتبی خامنه‌ای، گفت دونالد ترامپ، رییس‌جمهوری آمریکا، آزادسازی ۲۴ میلیارد دلار از دارایی‌های مسدود شده ایران را پذیرفته است، اما با صراحت این موضوع را اعلام نمی‌کند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## DEJradio — post 5629
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5629_1781308959.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️
+🔺 مهدی رستم‌پور در برنامه دژ فوتبالی به بررسی بازیکنان و ورزشکارانی پرداخت که غیرانسانی و به دور از اخلاق به نام ملی‌پوش از زیر قرآن رد شدند و به مسابقات بین‌المللی اعزام شدند اما بی‌شرمانه تجاوز کردند.
+
+ویژه جام جهانی هر شب پس از خبر ۲۱
+
+#دژفوتبالی #جام_جهانی
+@DEJradio
+</div>
+
+## IranIntlTV — post 341974
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341974_1781308960.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محسن رضایی، مشاور نظامی مجتبی خامنه‌ای، گفت دونالد ترامپ، رییس‌جمهوری آمریکا، آزادسازی ۲۴ میلیارد دلار از دارایی‌های مسدود شده ایران را پذیرفته است، اما با صراحت این موضوع را اعلام نمی‌کند.
+https://iranintl.com/202606123453
+</div>
+
+---
 📅 بروزرسانی: 1405/03/23 03:22
 ---
 

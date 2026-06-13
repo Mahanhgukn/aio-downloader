@@ -7,6 +7,350 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/23 14:53
+---
+
+## VahidOOnLine — post 245299
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245299_1781349782.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️شهباز شریف، نخست‌وزیر پاکستان، روز شنبه ۲۳ خرداد ماه در پیامی در شبکه اجتماعی ایکس اعلام کرد که تهران و واشنگتن «بیش از هر زمان دیگری به دستیابی به توافق صلح» نزدیک شده‌اند و احتمال می‌رود متن نهایی این توافق ظرف ۲۴ ساعت آینده نهایی شود.
+شریف نوشت: «ما بیش از هر زمان دیگری به توافق صلح نزدیک شده‌ایم. انتظار می‌رود نهایی‌سازی توافق در ۲۴ ساعت آینده انجام شود و پاکستان در حال آماده‌سازی برای امضاء الکترونیکی توافق بلافاصله پس از آن است.»
+او افزود پس از امضاء توافق، گفتگوهای فنی در سطح کارشناسی طی هفته آینده برگزار خواهد شد.
+نخست‌وزیر پاکستان همچنین از ایالات متحده و جمهوری اسلامی ایران به دلیل ادامه تعهد به روند مذاکرات قدردانی کرد و از کشورهای منطقه نیز به خاطر حمایت از این روند تشکر کرد.
+شهباز شریف در پایان ابراز اطمینان کرد که این «توافق صلح تاریخی» می‌تواند پایه‌ای مستحکم برای برقراری صلحی پایدار در منطقه باشد.
+نخست وزیر پاکستان در پایان این پیام، حساب‌های کاربری دونالد ترامپ، جی دی ونس، مارکو روبیو، استیو ویتکاف، عباس عراقچی و محمد باقر قالیباف را اضافه کرد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245298
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245298_1781349783.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آویگدور لیبرمن، رهبر حزب راستگرای «اسرائیل، خانه ما» و وزیر پیشین دفاع این کشور، در شبکه ایکس نوشت: «توافقی که در حال شکل‌گیری با تهران است، یک پیروزی کامل برای آیت‌الله‌ها و از دیدگاه اسرائیل یک فاجعه است.»
+
+او اضافه کرد: «مسئولیت چنین توافقی برعهده بنیامین نتانیاهو است.»
+iranintl
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245297
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245297_1781349784.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل از ساکنان غسانیه، زراریه، مزرعه کوثریه الرز و صیر الغربیه در جنوب لبنان خواست فورا خانه‌های خود را ترک کنند و به شمال رودخانه زهرانی منتقل شوند. ارتش اسرائیل اعلام کرد در پی نقض توافق آتش‌بس از سوی حزب‌الله، علیه این گروه اقدام خواهد کرد.
+
+ارتش همچنین هشدار داد حضور در نزدیکی نیروها و تاسیسات حزب‌الله جان غیرنظامیان را به خطر می‌اندازد.
+
+ارتش اسرائیل پیش‌تر نیز برای ساکنان روستاهای صرفند، تفاحتا و مزرعه سینا در جنوب لبنان هشدار تخلیه صادر کرده بود.
+iranintl
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245296
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245296_1781349784.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شهباز شریف، نخست‌وزیر پاکستان، در شبکه ایکس نوشت تهران و واشینگتن بیش از هر زمان دیگری به تفاهم‌نامه صلح نزدیک شدند و احتمال نهایی شدن آن در ۲۴ ساعت آینده وجود دارد.
+
+او همچنین نوشت پاکستان برای امضای الکترونیکی تفاهم‌نامه صلح میان آمریکا و جمهوری اسلامی، بلافاصله پس از نهایی شدن آن، آماده می‌شود.
+iranintl
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245290
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_245290_1781349785.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آیا یوتیوب از کانال‌های مرتبط با نهادها و افراد تحریم‌شده جمهوری اسلامی درآمد کسب می‌کند؟
+
+گزارش تازه وایرد به نقل از یک پژوهش مستقل می‌گوید ده‌ها کانال مرتبط با افراد و نهادهای تحت تحریم آمریکا همچنان در یوتیوب فعال بوده‌اند و تبلیغات برندهای بزرگ روی ویدیوهای آن‌ها نمایش داده شده است.
+
+گوگل می‌گوید به قوانین تحریم‌ها پایبند است و علیه حساب‌های ناقض سیاست‌هایش اقدام کرده، اما هنوز مشخص نیست آیا بخشی از درآمد تبلیغات به این کانال‌ها پرداخت شده است یا نه.
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## mwarmonitor — post 10818
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حمله‌ای به یک کشتی در دریای عمان.
+</div>
+
+## mwarmonitor — post 10817
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نخست‌وزیر پاکستان: امضای توافق بین ایران و ایالات متحده به‌صورت الکترونیکی انجام خواهد شد. @mwarmonitor
+</div>
+
+## mwarmonitor — post 10816
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حمله‌ای به یک کشتی در دریای عمان.
+</div>
+
+## IranIntlTV — post 342049
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342049_1781349786.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش سازمان کشورهای صادرکننده نفت، اوپک، نشان می‌دهد تولید نفت ایران در ماه گذشته میلادی به کمترین میزان از سال ۲۰۲۱ و دوران همه‌گیری کرونا رسیده است.
+
+عطا حسینیان، روزنامه‌نگار اقتصادی و حوزه انرژی، گفت: «جمهوری اسلامی در یک ماه گذشته هیچ درآمدی از محل صادرات نفت، محصولات پتروشیمی و فولاد نداشته و در حال حاضر کشور را با استفاده از پس‌اندازها اداره می‌کند.»
+
+@iranintltv
+</div>
+
+## IranIntlTV — post 342048
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342048_1781349788.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آویگدور لیبرمن، رهبر حزب راستگرای «اسرائیل، خانه ما» و وزیر پیشین دفاع این کشور، در شبکه ایکس نوشت: «توافقی که در حال شکل‌گیری با تهران است، یک پیروزی کامل برای آیت‌الله‌ها و از دیدگاه اسرائیل یک فاجعه است.»
+
+او اضافه کرد: «مسئولیت چنین توافقی برعهده بنیامین نتانیاهو است.»
+iranintl.com/202606139088
+</div>
+
+## IranIntlTV — post 342047
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342047_1781349789.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل از ساکنان غسانیه، زراریه، مزرعه کوثریه الرز و صیر الغربیه در جنوب لبنان خواست فورا خانه‌های خود را ترک کنند و به شمال رودخانه زهرانی منتقل شوند. ارتش اسرائیل اعلام کرد در پی نقض توافق آتش‌بس از سوی حزب‌الله، علیه این گروه اقدام خواهد کرد.
+
+ارتش همچنین هشدار داد حضور در نزدیکی نیروها و تاسیسات حزب‌الله جان غیرنظامیان را به خطر می‌اندازد.
+
+ارتش اسرائیل پیش‌تر نیز برای ساکنان روستاهای صرفند، تفاحتا و مزرعه سینا در جنوب لبنان هشدار تخلیه صادر کرده بود.
+iranintl.com/202606138499
+</div>
+
+## IranIntlTV — post 342046
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342046_1781349789.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شهباز شریف، نخست‌وزیر پاکستان، در شبکه ایکس نوشت تهران و واشینگتن بیش از هر زمان دیگری به تفاهم‌نامه صلح نزدیک شدند و احتمال نهایی شدن آن در ۲۴ ساعت آینده وجود دارد.
+
+او همچنین نوشت پاکستان برای امضای الکترونیکی تفاهم‌نامه صلح میان آمریکا و جمهوری اسلامی، بلافاصله پس از نهایی شدن آن، آماده می‌شود.
+iranintl.com/202606139832
+</div>
+
+## IranIntlTV — post 342045
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342045_1781349790.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مروری بر رسانه‌ها و خبرگزاری‌ها در ایران، شنبه ۲۳ خرداد، با مجتبی هاشمی، روزنامه‌نگار
+@iranintltv
+</div>
+
+## IranIntlTV — post 342044
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342044_1781349793.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آرش آزرمی، دبیر بخش اقتصادی ایران‌اینترنشنال، درباره اختلال و قطعی خدمات در بانک‌های ملی، صادرات، تجارت و توسعه صادرات گفت: «بانکداری اسلامی که حکومت تلاش کرد از ابتدا اجرا کند، با نظام بانکداری روز جهان سازگاری و تطابق نداشت و همین موضوع، چه از نظر فنی و چه از نظر مالی، مشکلات متعددی ایجاد کرده است.»
+
+@iranintltv
+</div>
+
+## IranIntlTV — post 342043
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342043_1781349795.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دیوار جاویدنامان انقلاب ملی ایرانیان در شهر گوتنبرگ سوئد افتتاح شد. این یادمان که بیش از ۱۰۰ تصویر از جان‌باختگان راه آزادی ایران را در بر می‌گیرد، با هدف پاسداشت یاد و نام افرادی برپا شده است که برای آزادی، حقوق بشر و دستیابی به آینده‌ای سکولار و انسانی جان خود را از دست دادند.
+
+گزارش مهران عباسیان، خبرنگار ایران‌اینترنشنال و گفت‌وگوی او با ویدا تهرانی، دبیرنخست سپیدار حزب زنان ایران
+@iranintltv
+</div>
+
+## Shin_Persian — post 7011
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_7011_1781349797.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+UKMTO Operations Centre @UK_MTO
+Sat, 13 Jun 2026 11:14:18 UTC
+
+UKMTO WARNING 068-26
+
+Click here to view the full warning.⤵️
+https://www.ukmto.org/-/media/ukmto/products/20260613-ukmto_warning_attack_068_26.pdf?rev=138c37f827c14de6b10e25e72f5a8f66
+#MaritimeSecurity #MarSec
+
+ترجمه خودکار فارسی
+
+هشدار یو‌کی‌ام‌تی‌او (UKMTO) ۰۶۸-۲۶
+
+برای مشاهده متن کامل هشدار اینجا کلیک کنید.⤵️
+https://www.ukmto.org/-/media/ukmto/products/20260613-ukmto_warning_attack_068_26.pdf?rev=138c37f827c14de6b10e25e72f5a8f66
+#MaritimeSecurity #MarSec_
+
+𝕏 · @shin_persian
+</div>
+
+## ManotoTV — post 106045
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_106045_1781349798.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آیا یوتیوب از کانال‌های مرتبط با نهادها و افراد تحریم‌شده جمهوری اسلامی درآمد کسب می‌کند؟
+
+گزارش تازه وایرد به نقل از یک پژوهش مستقل می‌گوید ده‌ها کانال مرتبط با افراد و نهادهای تحت تحریم آمریکا همچنان در یوتیوب فعال بوده‌اند و تبلیغات برندهای بزرگ روی ویدیوهای آن‌ها نمایش داده شده است.
+
+گوگل می‌گوید به قوانین تحریم‌ها پایبند است و علیه حساب‌های ناقض سیاست‌هایش اقدام کرده، اما هنوز مشخص نیست آیا بخشی از درآمد تبلیغات به این کانال‌ها پرداخت شده است یا نه.
+</div>
+
+## FarsiVOA — post 220573
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220573_1781349798.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مدیرعامل شرکت ملی صنایع پتروشیمی می‌گوید برای بخشی از محصولات پتروشیمی که مازاد تولید دارند و انبارها از آن‌ها پر شده، مجوز صادرات صادر شد.
+
+جمهوری اسلامی در پی هدف قرار گرفتن مجتمع‌های پتروشیمی ماهشهر و عسلویه در جنگ ۳۹ روزه، صادرات محصولات پتروشیمی را ممنوع کرده بود و طی هفته‌های گذشته گزارش‌های زیادی از کمبود و جهش قیمت محصولات پتروشیمی، خصوصا کودهای کشاورزی و محصولات بسته‌بندی دارو و مواد غذایی منتشر شده است.
+
+حسن عباس‌زاده مدیرعامل شرکت ملی صنایع پتروشیمی همچنین گفته است تاکنون ۳۸ درصد از پتروشیمی‌هایی که مورد هدف قرار گرفته یا تولید آنها مختل شده بود، به مدار تولید بازگشته است.
+
+او تصریح کرد برای محصولاتی که همچنان با محدودیت عرضه روبه‌رو هستند، ممنوعیت صادرات برقرار است.
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 16940
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16940_1781349799.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حمله به یک کشتی در تنگهٔ هرمز
+
+سازمان عملیات تجارت دریایی انگلیس: یک نفتکش در 6 مایلی شرق عمان هدف اصابت یک پرتابهٔ ناشناخته قرار گرفته است.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16939
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16939_1781349800.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢16 تا نماینده مجلس (از جمله ثابتی و رسایی) به همراه قشر تندرو امشب جلوی وزارت خارجه تجمع اعتراضی برگزار میکنن و به روند مذاکرات اعتراض میکنن‌.
+
+
+👺Phantom
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16938
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شهباز شریف: بیش از هر زمان دیگری به توافق صلح میان ایران و آمریکا نزدیک شده‌ایم.
+
+احتمال می‌رود روند نهایی‌سازی توافق ظرف 24 ساعت آینده تکمیل شود. پاکستان در حال آماده‌سازی برای امضای الکترونیکی توافق بلافاصله پس از نهایی شدن آن است.
+
+مذاکرات فنی و کارشناسی درباره جزئیات اجرای توافق از هفته آینده آغاز خواهد شد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16937
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16937_1781349801.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عراقچی: ایران و عمان بیانیه مشترکی درباره تنگه هرمز صادر می‌کنند.
+
+
+
+👺Phantom
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16935
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تصاویر ماهواره ای جدید از پایگاه موفق السلطی اردن چندین اصابت در این پایگاه در جریان حملات موشکی چند شب پیش سپاه تأیید می‌کند.
+
+اکثر موشک ها به دلیل خطای بالا به چند ده متری هدف اصابت کرده اند.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## manototv — post 106045
+
+<div align="center">
+  <a href="telegram/content/manototv_106045_1781349802.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آیا یوتیوب از کانال‌های مرتبط با نهادها و افراد تحریم‌شده جمهوری اسلامی درآمد کسب می‌کند؟
+
+گزارش تازه وایرد به نقل از یک پژوهش مستقل می‌گوید ده‌ها کانال مرتبط با افراد و نهادهای تحت تحریم آمریکا همچنان در یوتیوب فعال بوده‌اند و تبلیغات برندهای بزرگ روی ویدیوهای آن‌ها نمایش داده شده است.
+
+گوگل می‌گوید به قوانین تحریم‌ها پایبند است و علیه حساب‌های ناقض سیاست‌هایش اقدام کرده، اما هنوز مشخص نیست آیا بخشی از درآمد تبلیغات به این کانال‌ها پرداخت شده است یا نه.
+</div>
+
+## alonews — post 127606
+
+<div align="center">
+  <a href="telegram/content/alonews_127606_1781349802.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فوری/ نخست‌وزیر پاکستان: متن نهایی توافقنامه صلح بین ایران و آمریکا به دست آمد 
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/23 14:42
 ---
 

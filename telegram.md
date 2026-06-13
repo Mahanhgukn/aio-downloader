@@ -7,6 +7,54 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/23 10:52
+---
+
+## WithYashar — post 14695
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل، هشدار فوری تخلیه برای ساکنان ۲۰ روستا در جنوب لبنان صادر کرد!و پیشروی در لبنان به سرعت ادامه دارد
+@withyashat
+</div>
+
+## DEJradio — post 5633
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5633_1781335353.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️
+🔺 الاغ شماره ۱۰
+مستند فوتبالی سیاسی، دیکتاتورهای عاشق فوتبال، قذافی‌ها چگونه از فوتبال برای تحکیم قدرت در لیبی استفاده می‌کردند و مردم از میادین فوتبال برای مبارزه؟
+
+#قذافی #فوتبال #جام_جهانی
+@DEJradio
+</div>
+
+## Persian_Trend_Official — post 16914
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16914_1781335354.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وقتی میگم اگر توافق رو امضا کنن ممکنه نظام به سمت فروپاشی بره
+منظورم این هست
+</div>
+
+## alonews — post 127559
+
+<div align="center">
+  <a href="telegram/content/alonews_127559_1781335355.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سرمایه ایلان ماسک حالا از مجموع ثروت ۴ فرد ثروتمند پس از خودش بیشتر است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/23 10:42
 ---
 

@@ -7,6 +7,151 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/23 18:42
+---
+
+## VahidOOnLine — post 245320
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245320_1781363563.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک مقام ارشد دولت آمریکا به رویترز گفت که دونالد ترامپ، رییس‌جمهوری آمریکا، در نشست گروه هفت با رهبران امارات متحده عربی و قطر و برخی دیگر از رهبران خاورمیانه دیدار خواهد کرد.
+
+به گفته این مقام، بنیامین نتانیاهو، نخست‌وزیر اسرائیل، در دیدارهای ترامپ با رهبران خاورمیانه هفت حضور نخواهد داشت.
+
+نشست رهبران هفت اقتصاد پیشرفته جهان، موسوم به «گروه هفت» ۲۵ تا ۲۷ خرداد در شهر اویان فرانسه برگزار خواهد شد.
+
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## kianmeli1 — post 87970
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وزیر امور خارجه پاکستان به همتای سعودی خود گفت که مراسم امضای الکترونیکی توافق آمریکا و ایران قرار است فردا برگزار شود.
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 342092
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342092_1781363563.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک مقام ارشد دولت آمریکا به رویترز گفت که دونالد ترامپ، رییس‌جمهوری آمریکا، در نشست گروه هفت با رهبران امارات متحده عربی و قطر و برخی دیگر از رهبران خاورمیانه دیدار خواهد کرد.
+
+به گفته این مقام، بنیامین نتانیاهو، نخست‌وزیر اسرائیل، در دیدارهای ترامپ با رهبران خاورمیانه هفت حضور نخواهد داشت.
+
+نشست رهبران هفت اقتصاد پیشرفته جهان، موسوم به «گروه هفت» ۲۵ تا ۲۷ خرداد در شهر اویان فرانسه برگزار خواهد شد.
+
+
+https://iranintl.com/202606137237
+</div>
+
+## IranIntlTV — post 342091
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342091_1781363563.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند با ارسال پیامی به ایران اینترنشنال از گرانی گلایه کرده و می‌گوید برای یک ماست ۹۰ هزار تومان هزینه کرده است.
+</div>
+
+## DW_Farsi — post 125930
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎥جزیره گربه‌ها؛ راه‌حل یا دردسر برای گربه‌های خیابانی؟
+
+اندونزی در حال بررسی طرحی غیرمعمول برای مقابله با افزایش جمعیت گربه‌های بی‌سرپرست در جاکارتاست؛ طرحی که بر اساس آن، هزاران گربه به جزیره‌ای در نزدیکی پایتخت منتقل خواهند شد. اما منتقدان هشدار می‌دهند این طرح ممکن است مشکلات تازه‌ای ایجاد کند.
+
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 16956
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16956_1781363565.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل ویدیویی از لحظه هدف قرار دادن 7 نیروی حزب‌الله در جنوب لبنان منتشر کرد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## alonews — post 127650
+
+<div align="center">
+  <a href="telegram/content/alonews_127650_1781363566.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈به گزارش منابع خبری، دونالد ترامپ روز سه‌شنبه هفته جاری در حاشیه اجلاس گروه ۷ دیدارهای جداگانه‌ای با سران قطر، امارات متحده عربی و مصر برگزار خواهد کرد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127649
+
+<div align="center">
+  <a href="telegram/content/alonews_127649_1781363566.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزارت خارجه جمهوری اسلامی ایران: تیم مذاکره‌کننده ما هیچ برنامه‌ای برای سفر به ژنو یا هر مکان دیگری در دو روز آینده ندارد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127648
+
+<div align="center">
+  <a href="telegram/content/alonews_127648_1781363567.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈الجزیره: واشنگتن و تهران به تفاهم نزدیک می‌شوند؛ امضای الکترونیکی توافق ظرف ۲۴ ساعت
+
+
+🔴 الجزیره نوشت: واشنگتن و تهران به تفاهم نزدیک می‌شوند؛ امضای الکترونیکی توافق ظرف ۲۴ ساعت.
+
+
+🔴 در ساعات اخیر، نشانه‌های دیپلماتیک مربوط به مذاکرات جاری میان ایالات متحده و ایران افزایش یافته است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127647
+
+<div align="center">
+  <a href="telegram/content/alonews_127647_1781363567.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈دو حملهِ هوایی به شهر کوثریه الرز تو جنوب لُبنان
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127646
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نخست‌وزیر کانادا مارک کارنی:
+گروه هفت جهان را اداره نمی‌کند. این گروه مهم است، اما جهان را اداره نمی‌کند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/23 18:33
 ---
 

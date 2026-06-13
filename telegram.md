@@ -7,6 +7,229 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/23 23:43
+---
+
+## VahidOOnLine — post 245363
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245363_1781381612.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبکه سی‌ان‌ان به نقل از مقام‌های آگاه گزارش داد برنامه امضای مجازی یادداشت تفاهم میان آمریکا و جمهوری اسلامی طی ۲۴ ساعت گذشته شکل گرفت تا توافق هرچه سریع‌تر نهایی شود و از بروز موانع احتمالی در آخرین لحظات جلوگیری شود.
+
+به گفته این مقام‌ها، اگرچه دونالد ترامپ، رییس‌جمهوری آمریکا، هفته گذشته گفته بود انتظار دارد مراسم امضا به‌صورت حضوری در اروپا برگزار شود و جی‌دی ونس، معاون رییس‌جمهوری آمریکا، در آن شرکت کند، اما این برنامه عملی نشد.
+
+سی‌ان‌ان نوشت بخشی از این تغییر به مشکلات برنامه‌ریزی و زمان‌بندی مربوط می‌شود. بر اساس این گزارش، رییس‌جمهوری و معاون او به دلایل امنیتی و تداوم اداره دولت همزمان به خارج از کشور سفر نمی‌کنند و ترامپ قرار است صبح دوشنبه برای شرکت در نشست گروه هفت راهی فرانسه شود.
+
+به گفته یک منبع آگاه، در نتیجه امضای الکترونیکی برای نهایی کردن تفاهم پیشنهاد شد. این منبع افزود برخی میانجی‌ها نگران بودند هرچه امضای این یادداشت بیشتر به تعویق بیفتد، احتمال بروز رخدادی که روند پیشرفت را مختل کند یا باعث عقب‌نشینی یکی از طرف‌ها شود، افزایش یابد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## mwarmonitor — post 10842
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 برای این ارزشی‌ها و ساندیس‌خورهای خامنه‌ای، صلح یعنی دوبار مردن؛ یکی همون ثانیه اول جنگ و یکی هم فردا، وقتی که همزمان با تولد ترامپ، توافق صلح رو به عنوان کادوی تولد دو دستی تقدیمِ قاتل رهبرشون می‌کنند! یعنی با چنگال آب بخوری ولی اینطور خار و خفیف نشی. آخه ارزشیِ بی‌غیرت، ۱۰۰ روز پرچم چرخوندی و گلو پاره کردی که روز تولد ترامپ، توافق صلح با قاتل رهبرت رو بهش هدیه بدی؟ صد روز ادای جنگجوها رو درآوردی ولی در نهایت شدی کادوی تولدِ مرد نارنجی! این حجم از ذلت و حقارت رو حتی با اقیانوس اسید هم نمیشه شست؛ باقی‌مانده ساندیس‌ها رو هم نگه دارید تا برای پذیرایی تو جشن تولد ترامپ بازش کنید!
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 93819
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93819_1781381612.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: بزودی به کمک عرزشی‌ها خواهم آمد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93818
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93818_1781381613.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴صحبت‌های دیشب عراقچی:
+مذاکرات باعث جنگ نمیشه، این مقاومته که باعث جنگ میشه.
+
++ یه تنه با این جمله رید به 47 سال مقاومت و آرمان‌های امام.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93817
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شعار عرزشی‌ها:
+این آخرین نبرده، سید علی برمیگرده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## Iliaen — post 4481
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+از عجایب آخرین فصل از کتاب جمهوری اسلامی
+</div>
+
+## BBCPersian — post 283736
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻فرمانده انتظامی تهران می‌گوید که در جنگ اخیر ۶۳ نفر از نیروهایش در پایتخت کشته شدند
+
+فرمانده انتظامی تهران گفته است که در جریان جنگ اخیر که با حملات همزمان اسرائیل و آمریکا شروع شد، ۶۳ نفر از نیروهای فرماندهی انتظامی در پایتخت ایران کشته شدند.
+
+سرتیپ عباسعلی محمدیان گفته است که «بسیاری» از این افراد در داخل مقرهای انتظامی کشته نشدند «بلکه هنگام اجرای مأموریت، در ایستگاه‌های بازرسی، واحدهای گشت، مقابل کلانتری‌ها و در نقاط مختلف شهر» بر اثر حملات کشته شدند.
+
+در جریان جنگ اخیر، اسرائیل برخی از کلانتری‌ها، مراکز متعلق به فرماندهی انتظامی و برخی از ایست بازرسی‌ها را هدف حمله نظامی قرار داد.
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 391941
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391941_1781381613.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شمخانی وقتی میبینه هم توافق شد هم اورانیوم رو دادن @Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391940
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391940_1781381613.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وقتی هفته ها در ایستگاه صلواتی مجانی کص دادی ولی آخرش تسلیم می‌شوند 😂😘
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391939
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 نت بلاکس: پهنای باند روبیکا و بله به شدت کاهش پیدا کرده.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391938
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 عرزشی ها: این آخرین نبرده، سید علی برمیگرده.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 127726
+
+<div align="center">
+  <a href="telegram/content/alonews_127726_1781381613.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حجت‌الاسلام نبویان: با این توافق جمهوری اسلامی مستعمره امریکای کبیر خواهد شد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127725
+
+<div align="center">
+  <a href="telegram/content/alonews_127725_1781381614.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈شعار تندروها در میدان انقلاب: نه اینوری نه اونوری جانم فدای رهبری
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127724
+
+<div align="center">
+  <a href="telegram/content/alonews_127724_1781381614.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈شعار تندروها در میدان ابن سینا تهران: قالیشاه حیا کن ریاستو رها کن
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127723
+
+<div align="center">
+  <a href="telegram/content/alonews_127723_1781381614.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سازمان ملل درمورد سرکوب اغتشاشات امشب تندروها ابراز نگرانی کرد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127722
+
+<div align="center">
+  <a href="telegram/content/alonews_127722_1781381614.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈این پست صرفا برای بازی با روح و روان تندروها است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127721
+
+<div align="center">
+  <a href="telegram/content/alonews_127721_1781381614.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 کارشناس صدا سیما: خیلی راحت می‌توانیم با بستن تنگه‌هرمز بازار انرژی را به تلاطم بکشیم/ مذاکره‌کنندگان هیچ‌ نگرانی در بحث انرژی نداشته باشند، ابزار و امتیاز دست ما است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127720
+
+<div align="center">
+  <a href="telegram/content/alonews_127720_1781381616.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈گزارش‌ها از اختلال در روبیکا و ایتا
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/23 23:33
 ---
 

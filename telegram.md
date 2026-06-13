@@ -7,6 +7,65 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/23 16:33
+---
+
+## pm_afshaa — post 93759
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_93759_1781355783.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در اواخر بهمن ماه پارسال، ترامپ مصاحبه شمخانی را که گفته بود اگر آمریکایی‌ها سر حرفشون باشند ما می‌توانیم رابطه خوبی دلشته باشیم، بازنشر کرده بود ولی چند روز بعد شمخانی کشته شد.
+و دیشب هم پست عراقچی را بازنشر کرده
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranianMinds — post 22462
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22462_1781355784.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴جالبه که بدونید:
+در اواخر بهمن ماه پارسال، ترامپ مصاحبه شمخانی را که گفته بود اگر آمریکایی‌ها سر حرفشون باشند ما می‌توانیم رابطه خوبی داشته باشیم، بازنشر کرده بود ولی چند روز بعد شمخانی کشته شد.
+و دیشب هم پست عراقچی را بازنشر کرده.
+
+@IranianMinds
+</div>
+
+## Hranews — post 113581
+
+<div align="center">
+  <img src="telegram/content/Hranews_113581_1781355784.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بر اساس اعلام سازمان پزشکی قانونی کشور، طی سال گذشته ۱۹ هزار و ۵۴۰ نفر در حوادث رانندگی جان خود را از دست دادند که از این تعداد، ۱۵ هزار و ۶۶۰ نفر مرد و سه هزار و ۸۸۰ نفر زن بودند. همچنین ۳۷۸ هزار و ۷۲۹ نفر در پی تصادفات رانندگی مصدوم شدند. در این مدت، استان‌های تهران، فارس و سیستان و بلوچستان بیشترین آمار تصادفات را به خود اختصاص دادند و استان‌های ایلام، کهگیلویه و بویراحمد و قم به ترتیب کمترین شمار تصادفات را ثبت کردند.
+
+↘️
+@hranews_bot تماس ✉️ -  @Hranews  کانال هرانا 🆑
+</div>
+
+## alonews — post 127620
+
+<div align="center">
+  <a href="telegram/content/alonews_127620_1781355784.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈بقایی: زمان امضای تفاهم‌نامه فردا نخواهد بود
+
+
+🔴تفاهم‌نامه اسلام‌آباد بر پایان جنگ متمرکز است و در این مرحله موضوع هسته‌ای در دستور کار مذاکرات قرار ندارد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/23 16:22
 ---
 

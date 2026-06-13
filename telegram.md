@@ -7,6 +7,317 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/23 23:33
+---
+
+## VahidOOnLine — post 245362
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_245362_1781381031.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد که شماری از ایرانی‌های ساکن بریتانیا روز ۲۳ خرداد در شهر بیرمنگام با در دست داشتن پرچم شیروخورشید در تظاهراتی علیه جمهوری اسلامی، اسامی جاویدنامان انقلاب ملی ایرانیان را بر زبان آورده و آنان را «با شرف» خطاب کردند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245361
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_245361_1781381034.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی منتشرشده در شبکه‌های اجتماعی نشان می‌دهد جمعی از حامیان تندروی حکومت، بعدازظهر شنبه ۲۳ خرداد، مقابل دفتر نمایندگی وزارت خارجه در مشهد تجمع کرده و شعار «مرگ بر عراقچی بی‌شرف سازشکار» و «مرگ بر عراقچی بی‌شرف نفوذی» سر دادند.
+بخشی از حامیان جمهوری اسلامی در روزهای اخیر، وزارت خارجه و تیم مذاکره‌کننده را به دادن امتیازهای بیش از حد به آمریکا متهم کرده‌اند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245360
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245360_1781381036.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ خبرگزاری بلومبرگ به نقل از سرویس‌های اطلاعاتی غربی گزارش داد که جمهوری اسلامی ایران طی هشت هفته آتش‌بس با آمریکا، زرادخانه موشکی خود را با تسلیحات جدید روسی بازسازی کرده است؛ امری که به تهران توانایی می‌دهد در صورت از سرگیری درگیری‌ها، حملات تلافی‌جویانه را با حداکثر توان انجام دهد.
+
+بر اساس این ارزیابی‌ها، تهران اکنون حدود سه چهارم (۷۵ درصد) از مهمات پیش از جنگ خود را در اختیار دارد؛ آماری که با ارزیابی هفته گذشته دونالد ترامپ مبنی بر باقی‌ماندن تنها ۲۱ تا ۲۲ درصد از موشک‌های ایران، تضاد آشکاری دارد. پیت هگست، وزیر جنگ آمریکا نیز پیش‌تر در اواسط مارس میزان کاهش توان تهاجمی ایران را ۹۰ درصد تخمین زده بود.
+
+گزارش‌ها حاکی است در جریان جنگ، بسیاری از موشک‌ها و پرتابگرهای ایران زیر آوار پایگاه‌های زیرزمینی مدفون شده بودند، اما تهران احتمالاً از فرصت آتش‌بس برای بازگشایی این انبارها و جابه‌جایی تسلیحات استفاده کرده است. همچنین گفته می‌شود موشک‌های ارسالی روسیه احتمالاً تولید سال گذشته میلادی هستند. ایران پیش از آتش‌بس، بیش از ۱۸۵۰ موشک و هزاران پهپاد شاهد را به کشورهای منطقه شلیک کرده بود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14749
+
+<div align="center">
+  <img src="telegram/content/WithYashar_14749_1781381036.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سوخت رسان ها از تلاویو بلند شدند 🚨🚨
+@withyashar
+</div>
+
+## WithYashar — post 14748
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ظریف: این جماعت مخالف توافق عده‌ای نفهم هستند که هیچ درکی از واقعیت ندارند.
+@withyashar
+</div>
+
+## WithYashar — post 14747
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال ۱۲ اسرائیل:
+اطرافیان نتانیاهو می‌گویند: نگرانی بزرگ این است که ترامپ در بحث توافق با ایران، با ما همان کاری را بکند که اوباما با ما کرد.
+@withyashar
+</div>
+
+## pm_afshaa — post 93816
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ضرب و شتم اغتشاشگران در مشهد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93815
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رشیدی کوچی نماینده مجلس: تندروها به زباله دان تاریخ خواهند پیوست
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93814
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_93814_1781381037.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اخ کمرم شکست از سنگینی این جمله😂😂
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 342141
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342141_1781381038.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبکه سی‌ان‌ان به نقل از مقام‌های آگاه گزارش داد برنامه امضای مجازی یادداشت تفاهم میان آمریکا و جمهوری اسلامی طی ۲۴ ساعت گذشته شکل گرفت تا توافق هرچه سریع‌تر نهایی شود و از بروز موانع احتمالی در آخرین لحظات جلوگیری شود.
+
+به گفته این مقام‌ها، اگرچه دونالد ترامپ، رییس‌جمهوری آمریکا، هفته گذشته گفته بود انتظار دارد مراسم امضا به‌صورت حضوری در اروپا برگزار شود و جی‌دی ونس، معاون رییس‌جمهوری آمریکا، در آن شرکت کند، اما این برنامه عملی نشد.
+
+سی‌ان‌ان نوشت بخشی از این تغییر به مشکلات برنامه‌ریزی و زمان‌بندی مربوط می‌شود. بر اساس این گزارش، رییس‌جمهوری و معاون او به دلایل امنیتی و تداوم اداره دولت همزمان به خارج از کشور سفر نمی‌کنند و ترامپ قرار است صبح دوشنبه برای شرکت در نشست گروه هفت راهی فرانسه شود.
+
+به گفته یک منبع آگاه، در نتیجه امضای الکترونیکی برای نهایی کردن تفاهم پیشنهاد شد. این منبع افزود برخی میانجی‌ها نگران بودند هرچه امضای این یادداشت بیشتر به تعویق بیفتد، احتمال بروز رخدادی که روند پیشرفت را مختل کند یا باعث عقب‌نشینی یکی از طرف‌ها شود، افزایش یابد.
+https://iranintl.com/202606132591
+</div>
+
+## IranIntlTV — post 342140
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342140_1781381039.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد که شماری از ایرانی‌های ساکن بریتانیا روز ۲۳ خرداد در شهر بیرمنگام با در دست داشتن پرچم شیروخورشید در تظاهراتی علیه جمهوری اسلامی، اسامی جاویدنامان انقلاب ملی ایرانیان را بر زبان آورده و آنان را «با شرف» خطاب کردند.
+</div>
+
+## IranIntlTV — post 342139
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342139_1781381042.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی منتشرشده در شبکه‌های اجتماعی نشان می‌دهد جمعی از حامیان تندروی حکومت، بعدازظهر شنبه ۲۳ خرداد، مقابل دفتر نمایندگی وزارت خارجه در مشهد تجمع کرده و شعار «مرگ بر عراقچی بی‌شرف سازشکار» و «مرگ بر عراقچی بی‌شرف نفوذی» سر دادند.
+بخشی از حامیان جمهوری اسلامی در روزهای اخیر، وزارت خارجه و تیم مذاکره‌کننده را به دادن امتیازهای بیش از حد به آمریکا متهم کرده‌اند.
+</div>
+
+## IranIntlTV — post 342138
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342138_1781381043.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻تیم ملی فوتبال استرالیا پس از عملکرد قابل دفاع در جام جهانی قطر، کار خود در جام جهانی ۲۰۲۶ را با دیدار برابر ترکیه آغاز می‌کنند؛ جایی که «ساکروز» برای سنت‌شکنی در ادوار جام جهانی و شروع تورنمنت با سه امتیاز، کار بسیار سختی برابر شاگردان مونتلا خواهند داشت.
+
+🔹گزارش علیرضا محبی، خبرنگار ایران اینترنشنال
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 342137
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342137_1781381045.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻۲۴ سال پس از سومی در جام جهانی ۲۰۰۲، تیم ملی ترکیه بار دیگر در جام جهانی حاضر شده و در اولین مسابقه به مصاف استرالیا می‌رود و فوتبال دوستان در ترکیه برای تماشای نمایش آردا گولر و یارانش باید ساعت هفت صبح به وقت آنکار بیدار شوند.
+
+🔹توضیحات فرزیا ثابتی، خبرنگار ایران اینترنشنال
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 342136
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342136_1781381047.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بن سبطی، پژوهشگر ایران و اسرائیل، گفت: «از زمانی که دولت و بخش قابل توجهی از جامعه لبنان مشاهده کردند اسرائیل حزب‌الله را به شدت تضعیف کرده، این احساس در حاکمیت لبنان تقویت شده که اکنون فرصت مناسبی برای بازگرداندن کنترل کامل کشور به دولت مرکزی و ارتش رسمی لبنان فراهم شده است.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 342135
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342135_1781381049.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+توافق ایران و آمریکا؛ حکومت ایران چه امتیازاتی گرفته است؟
+
+چشم‌انداز با مهدی مهدوی‌آزاد
+
+نسخه کامل این برنامه در یوتیوب:
+https://youtu.be/qKxkAIYUJcY
+@iranintltv
+</div>
+
+## Dirty_Kids — post 391937
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391937_1781381052.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 بنر یه عرزشی: آقا مجتبی برای درخت چنار هم پیام داد، چطور برای مذاکرات پیام نمیده پس😂😂
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391936
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ: بزودی به کمک عرزشی‌ها خواهم آمد.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391935
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391935_1781381053.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+من در حال تماشای دعوای عرزشی و سرکوبگر :)))))
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391934
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+از امشب یه پلاکارد بگیری دستت و بگی انتقام رهبر چه شد،به جرم اقدام علیه امنیت ملی بازداشتت میکنن🤣🫵
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391932
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ظریف : مخالفان توافق عده ای نافهم و احمق هستند که هیچ درکی از واقعیت ندارن 😂😂😂😂😂😂
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 127719
+
+<div align="center">
+  <a href="telegram/content/alonews_127719_1781381053.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: کمک در راه است 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127718
+
+<div align="center">
+  <a href="telegram/content/alonews_127718_1781381053.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: کمک در راه است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127717
+
+<div align="center">
+  <a href="telegram/content/alonews_127717_1781381054.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈گزارش‌ها از کتک خوردن اغتشاشگران در مشهد به دست نیروهای امنیتی
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127716
+
+<div align="center">
+  <a href="telegram/content/alonews_127716_1781381054.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 دیده شده در تجمع مخالفان توافق
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127715
+
+<div align="center">
+  <a href="telegram/content/alonews_127715_1781381054.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈توئیت رشیدی کوچی نماینده مجلس: تندروها به زباله دان تاریخ خواهند پیوست
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/23 23:23
 ---
 

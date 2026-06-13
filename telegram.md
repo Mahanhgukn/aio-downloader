@@ -7,6 +7,207 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/24 00:13
+---
+
+## VahidOOnLine — post 245366
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245366_1781383400.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کیان عبداللهی، سردبیر خبرگزاری تسنیم، رسانه وابسته به سپاه پاسداران، در گفت‌وگو با صدا و سیمای جمهوری اسلامی گفت احتمال توافق نهایی با آمریکا پس از امضای یادداشت تفاهم «بسیار بسیار ضعیف» است.
+
+او افزود: «احتمال عهدشکنی آمریکا را در هر لحظه‌ای باید در نظر گرفت و حمله ناگهانی را مد نظر داشت.»
+
+عبداللهی تاکید کرد مسئولیت مفاد یادداشت تفاهم احتمالی میان آمریکا و جمهوری اسلامی و اجرای آن بر عهده تیم مذاکره‌کننده و دولت جمهوری اسلامی است؛ اظهاراتی که به‌نظر می‌رسد تلویحا مسئولیت این روند را از مجتبی خامنه‌ای دور می‌کند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245365
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245365_1781383401.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️پس از آنکه دونالد ترامپ، رئیس جمهوری آمریکا اعلام کرد که توافق صلح میان تهران و واشنگتن در روز یکشنبه امضا خواهد شد، تصویری از خودش در کنار کیم جونگ اون، رهبر کره‌شمالی را در سالگرد دیدار تاریخی‌شان منتشر کرد. او همزمان تصویر دیگر از خودش با عبارت «فقط ترامپ» را به اشتراک گذاشت که به نظر می‌رسد قصد اشاره به این موضوع را دارد که می‌تواند کارهای غیرممکنه را ممکن کند.
+دونالد ترامپ و کیم جونگ اون، صبح سه‌شنبه ۱۲ ژوئن ۲۰۱۸ در هتل «کپلا» واقع در جزیره سنتوزای در سنگاپور، پشت درهای بسته گفتگو کردند. این نخستین دیدار سران دو کشور پس از پایان جنگ کره در سال ۱۹۵۳ بود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## pm_afshaa — post 93825
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تو رستم تهمتنی امضا بزن که خوب میزنی
+</div>
+
+## IranIntlTV — post 342143
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342143_1781383401.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کیان عبداللهی، سردبیر خبرگزاری تسنیم، رسانه وابسته به سپاه پاسداران، در گفت‌وگو با صدا و سیمای جمهوری اسلامی گفت احتمال توافق نهایی با آمریکا پس از امضای یادداشت تفاهم «بسیار بسیار ضعیف» است.
+
+او افزود: «احتمال عهدشکنی آمریکا را در هر لحظه‌ای باید در نظر گرفت و حمله ناگهانی را مد نظر داشت.»
+
+عبداللهی تاکید کرد مسئولیت مفاد یادداشت تفاهم احتمالی میان آمریکا و جمهوری اسلامی و اجرای آن بر عهده تیم مذاکره‌کننده و دولت جمهوری اسلامی است؛ اظهاراتی که به‌نظر می‌رسد تلویحا مسئولیت این روند را از مجتبی خامنه‌ای دور می‌کند.
+https://iranintl.com/202606130530
+</div>
+
+## Persian_Trend_Official — post 16985
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16985_1781383402.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هشدار حمله راکتی حزب‌الله لبنان به متولا اسرائیل
+
+مقامات اسرائیلی تا پیش از این اعلام کرده بودن هرگونه حمله موشکی به شهرک های شمالی اسرائیل را با حمله به ضاحیه بیروت پاسخ خواهند داد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 22497
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴واکنش ترامپ به دعواهای حکومتی‌ها:
+
+همینطور ادامه دهید، کمک در راه است.
+</div>
+
+## IranianMinds — post 22496
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 نکات ایمنی برای حضور در اعتراضات
+
+۱ - چفیه نذارید ماسک بزنین به صورتتون
+۲ - عطر مشهد و گلاب نزنین تا شناسایی نشین
+۳ - اپلیکیشن بله و ایتا و روبیکا رو حذف کنین برای ساعاتی
+</div>
+
+## Dirty_Kids — post 391953
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 نکات ایمنی برای اعتراضات:
+
+۱ـ چفیه نذارین، ماسک بزنین به صورتتون.
+۲ـ عطر مشهد و گلاب نزنین تا شناسایی نشین.
+۳ـ اپلیکیشن بله، ایتا و روبیکا رو برای ساعاتی حذف کنین.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391952
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+باقالی پلو با گردن/  قالیبافو کردن
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391951
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391951_1781383402.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏+بابام دلش خواسته برینه تو خون رهبری..
+
+این جُرمِههههه؟
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 127742
+
+<div align="center">
+  <a href="telegram/content/alonews_127742_1781383402.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وضعیت کامنتا😂
+
+
+🔴من خودم بسیجیم ولی الان بحث بحث انتقام رهبر شهیده
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127741
+
+<div align="center">
+  <a href="telegram/content/alonews_127741_1781383403.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نبویان: آمریکا پیروز شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127740
+
+<div align="center">
+  <a href="telegram/content/alonews_127740_1781383403.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نکات ایمنی برای تندروها:
+
+۱ـ چفیه نذارین، ماسک بزنین به صورتتون.
+۲ـ عطر مشهد و گلاب نزنین تا شناسایی نشین.
+۳ـ اپلیکیشن بله، ایتا و روبیکا رو برای ساعاتی حذف کنین.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127739
+
+<div align="center">
+  <a href="telegram/content/alonews_127739_1781383403.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خطاب به تندروها:
+
+
+🔴هر کی ناراحته از ایران میتونه جمع کنه بره
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127738
+
+<div align="center">
+  <a href="telegram/content/alonews_127738_1781383403.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈یکی از مخالفان توافق:
+بر پدر و مادرتون لعنت غرب گراهای بدبخت. عراقچی خاک بر سرت. مردم دارن سکته میکنن.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/24 00:03
 ---
 

@@ -7,6 +7,64 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/23 04:12
+---
+
+## VahidOOnLine — post 245230
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245230_1781311345.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️رویترز، بامداد شنبه به نقل از «یک منبع آگاه» اعلام کرد که نیروهای ایالات متحده چند پهپاد انتحاری (یک‌طردفه) ایران را که به سمت تنگه هرمز در حرکت بودند، رهگیری و سرنگون کرده‌اند. این منبع تاکید کرد این پهپادها تهدیدی مستقیم و جدی برای امنیت و عبور و مرور کشتی‌های تجاری در منطقه به شمار می‌رفتند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## IranIntlTV — post 341976
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341976_1781311346.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اکسیوس به نقل از «منابع آگاه» نوشت: «برخی مقام‌ها در واشینگتن معتقدند بنیامین نتانیاهو ممکن است حتی در صورت نهایی شدن توافق میان آمریکا و ایران، نقش یک عامل اخلال‌گر را ایفا کند.»
+
+هم‌زمان، اکسیوس به نقل از منابع خود نوشت: «دونالد ترامپ در آخرین لحظات مانع انجام حملات گسترده اسرائیل علیه زیرساخت‌ها و تأسیسات انرژی ایران شده است.»
+
+اکسیوس به نقل از یک مقام آمریکایی نوشت: «اگر حزب‌الله به سوی اسرائیل موشک شلیک کند و ایران به تسلیح این گروه ادامه دهد، این اقدام نقض توافق خواهد بود.»
+https://iranintl.com/202606126160
+</div>
+
+## Shin_Persian — post 7006
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_7006_1781311346.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+MoFA وزارة الخارجية ✓ @mofauae
+Fri, 12 Jun 2026 21:41:50 UTC
+
+UAE Categorically Denies Media Reports Alleging Transfer of Funds to Iran
+
+ترجمه خودکار فارسی
+
+امارات متحده عربی گزارش‌های رسانه‌ای مبنی بر انتقال وجه به ایران را قاطعانه تکذیب کرد
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 220540
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220540_1781311347.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️یک منبع آگاه به رویترز گفت: نیروهای آمریکایی چندین پهپاد تهاجمی یک‌طرفه جمهوری اسلامی را که به سمت تنگه هرمز در حرکت بودند، سرنگون کردند.
+@FarsiVOA
+</div>
+
+---
 📅 بروزرسانی: 1405/03/23 04:02
 ---
 

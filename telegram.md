@@ -7,6 +7,256 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/23 22:03
+---
+
+## VahidOOnLine — post 245351
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245351_1781375590.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبکه کان به نقل از منابع امنیتی اسرائیلی گزارش داد که در سایه تفاهم احتمالی آمریکا و جمهوری اسلامی، ارتش اسرائیل برای احتمال صدور دستور از سوی مقام‌های سیاسی این کشور به‌منظور توقف پیشروی زمینی در جنوب لبنان آماده می‌شود اما از نوار امنیتی در جنوب لبنان عقب‌نشینی نخواهد کرد.
+
+بر اساس این گزارش، اسرائیل همچنین در حال برنامه‌ریزی برای کاهش حملات در عمق خاک لبنان است تا از آسیب دیدن تفاهم میان آمریکا و جمهوری اسلامی جلوگیری شود.
+
+یک منبع آگاه به کان گفت ارتش اسرائیل همچنان به حملات خود در جنوب لبنان ادامه می‌دهد، اما این حملات هدفمند و محدود هستند. به گفته این منبع، فعالیت ارتش این کشور در بیروت نیز همچنان با محدودیت‌هایی همراه است.
+
+به گفته این منابع، موضوع نوار امنیتی قرار است در مذاکرات مستقیم میان اسرائیل و لبنان که حدود یک هفته و نیم دیگر در آمریکا برگزار می‌شود، مورد بررسی قرار گیرد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245350
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_245350_1781375590.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️همزمان با جاری شدن دوباره آب در زاینده‌رود، قایق‌های پدالی خاطره‌انگیز بار دیگر به این رودخانه تاریخی بازگشتند و شماری از مردم اصفهان با قایق‌سواری در نزدیکی پل تاریخی خواجو و سی‌سه پل  بازگشت آب را جشن گرفتند.
+بسیاری از مردم اصفهان با حضور در کنار پل‌های تاریخی شهر و انجام ورزش‌ها و تفریحات آبی، از جمله قایق‌سواری، از بازگشت آب به زاینده‌رود استقبال کردند.
+پس از ۱۱ ماه خشکی، جریان آب زاینده‌رود چهارشنبه‌شب ۱۳ خردادماه بار دیگر به شهر اصفهان رسید و در بستر این رودخانه جاری شد.
+زاینده‌رود، مهم‌ترین رودخانه فلات مرکزی ایران، در سال‌های اخیر بارها با خشکی و کاهش شدید جریان آب روبه‌رو بوده و بازگشت آب به بستر آن همواره با شادی و استقبال گسترده مردم همراه شده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14740
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+الان روبیکا ، بله و سروش فیلتر‌ میشه 😂 @withyashar
+</div>
+
+## WithYashar — post 14739
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شورای هماهنگی بانک‌های دولتی:
+
+اختلال در سامانه‌های چهار بانک ناشی از یک حمله سایبری محدود بوده، اما هیچ‌گونه نشت اطلاعات یا دسترسی غیرمجاز به داده‌های مشتریان رخ نداده است
+@withyashar
+</div>
+
+## WithYashar — post 14738
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مقام ارشد اسرائیلی به کانال ۱۲ اسرائیل: این یه توافق مزخرفه
+@withyashar
+</div>
+
+## WithYashar — post 14737
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مردم طرفدار حکومت اعتراضاتی رو در چند استان شروع کردند @withyashar
+</div>
+
+## WithYashar — post 14736
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کارشناس شبکه افق:به زودی جنگ را به خاک آمریکا می‌بریم و دیگر قرار نیست در خاک خودمان با دشمن بجنگیم جمهوری‌ اسلامی هنوز کارت های خود را رو نکرده
+@withyashar
+</div>
+
+## WithYashar — post 14735
+
+<div align="center">
+  <a href="telegram/content/WithYashar_14735_1781375593.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مردم طرفدار حکومت اعتراضاتی رو در چند استان شروع کردند
+@withyashar
+</div>
+
+## pm_afshaa — post 93797
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93797_1781375594.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴یک مقام آمریکایی به کانال 12 اسرائیل:
+این قرارداد احتمالی صلح با ایران مزخرفه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93796
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جنگ نخواهد شد و مذاکره هم نخواهیم کرد
+
+هم جنگ شد هم مذاکره و توافق😂
+</div>
+
+## pm_afshaa — post 93795
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کارشناس شبکه افق:به زودی جنگ را به خاک آمریکا می‌بریم و دیگر قرار نیست در خاک خودمان با دشمن بجنگیم جمهوری‌ اسلامی هنوز کارت های خود را رو نکرده
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 342126
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342126_1781375595.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری رویترز ویدیویی از شهر نبطیه در جنوب لبنان منتشر کرده است که نشان می‌دهد روز شنبه ۲۳ خرداد در پی حمله اسرائیل به مواضع حزب‌الله، گروه مورد حمایت جمهوری اسلامی، چند انفجار مهیب رخ داد و پس از آن دود غلیظی به هوا برخاست.
+@iranintltv
+</div>
+
+## IranIntlTV — post 342125
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342125_1781375596.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبکه کان به نقل از منابع امنیتی اسرائیلی گزارش داد که در سایه تفاهم احتمالی آمریکا و جمهوری اسلامی، ارتش اسرائیل برای احتمال صدور دستور از سوی مقام‌های سیاسی این کشور به‌منظور توقف پیشروی زمینی در جنوب لبنان آماده می‌شود اما از نوار امنیتی در جنوب لبنان عقب‌نشینی نخواهد کرد.
+
+بر اساس این گزارش، اسرائیل همچنین در حال برنامه‌ریزی برای کاهش حملات در عمق خاک لبنان است تا از آسیب دیدن تفاهم میان آمریکا و جمهوری اسلامی جلوگیری شود.
+
+یک منبع آگاه به کان گفت ارتش اسرائیل همچنان به حملات خود در جنوب لبنان ادامه می‌دهد، اما این حملات هدفمند و محدود هستند. به گفته این منبع، فعالیت ارتش این کشور در بیروت نیز همچنان با محدودیت‌هایی همراه است.
+
+به گفته این منابع، موضوع نوار امنیتی قرار است در مذاکرات مستقیم میان اسرائیل و لبنان که حدود یک هفته و نیم دیگر در آمریکا برگزار می‌شود، مورد بررسی قرار گیرد.
+https://iranintl.com/202606132065
+</div>
+
+## FarsiVOA — post 220613
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺فعالان و نهادهای حقوق ‌‌بشری در مورد اعدام زود هنگام چند جوان مخالف توسط جمهوری اسلامی هشدار می‌دهند
+
+▪️همزمان با افزایش احتمال امضای توافقنامه‌ای میان جمهوری اسلامی و آمریکا برای توقف درگیری‌ها، رژیم ایران چند جوان دیگر را به دلیل مخالفت و اعتراض به شرایط کشور زیر تیغ اعدام قرار داده است. فعالان و نهادهای حقوق بشری روز شنبه ۲۳ خرداد ۱۴۰۵ نسبت به افزایش خطر اجرای حکم اعدام آرمین نورمحمدی، ایمان گنجی و علی کمالی هشدار دادند.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/iran-execution-prison-protest-america-day-war-/8160464.html/?nocach=1
+</div>
+
+## BBCPersian — post 283726
+
+<div align="center">
+  <a href="telegram/content/BBCPersian_283726_1781375596.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️کری‌خوانی نیوزیلندی‌ها برای تیم ملی ایران در حاشیه برد ۴-۱ آمریکا.
+
+دو هوادار نیوزیلندی که برای تماشای مسابقه‌های تیم ملی کشورشان به آمریکا رفته‌اند، در حاشیه تماشای بازی آمریکا و پاراگوئه برای تیم ملی ایران کری‌ خواندند. یکی از آنها اسم بازیکنانی را فهرست کرد که پیش‌بینی می‌کرد در بازی با ایران گل بزنند. در میان آنها هم بازیکن حمله بود، هم هافبک، هم مدافع و هم دروازه‌بان.
+
+مسابقه آمریکا با چهار گلی که این تیم به پاراگوئه زد، بیشتر کسانی که برای تماشا به محوطه هواداران فیفا آمده بودند را خوشحال کرد.
+
+خبرنگارمان سام فرزانه به این محدوده هواداران رفته و این گزارش را تهیه کرده است.
+
+😏راستی پاسخ شما به کری آن نیوزیلندی‌ها چیست؟ در کامنت‌های این پست اینستاگرام بنویسید.
+instagram.com/reel/DZiT5PyIcbv/
+@bbcpersian
+</div>
+
+## Dirty_Kids — post 391916
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391916_1781375598.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شعار امشب تجمعات حکومتی: قالیباف، عراقچی، استعفاء استعفاء😂😂
+
+منتظرم بریزن سرکوبشون کنن
+
+
+@Dirty_Kids 👻
+</div>
+
+## Hranews — post 113591
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صدور و تایید حکم اعدام برای ۳ متهم/ رهایی یک زندانی از مجازات مرگ
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– دو متهم در پرونده‌های مجزا توسط دادگاه کیفری تهران بابت اتهام قتل به اعدام محکوم شدند. حکم اعدام یک متهم نیز در پرونده‌ای با اتهام تجاوز، توسط دیوان عالی کشور تایید شد. از سوی دیگر، یک زندانی در استان خراسان رضوی که پیشتر از بابت اتهام قتل به #اعدام محکوم شده بود، با اعلام رضایت اولیای دم از مجازات مرگ رهایی یافت.
+
+ادامه مطلب
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## alonews — post 127697
+
+<div align="center">
+  <a href="telegram/content/alonews_127697_1781375600.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈الجزیره به نقل از سازمان پخش اسرائیل: ارتش برای احتمال صدور دستور توقف پیشروی زمینی در جنوب لبنان از سوی فرماندهی سیاسی آماده می‌شود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127696
+
+<div align="center">
+  <a href="telegram/content/alonews_127696_1781375600.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈مقام ارشد اسرائیلی به کانال ۱۲ اسرائیل: این یه توافق مزخرفه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127695
+
+<div align="center">
+  <a href="telegram/content/alonews_127695_1781375601.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نشست اضطراری کابینه امنیتی اسرائیل در پی آخرین تحولات ایران
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/23 21:53
 ---
 

@@ -7,6 +7,235 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/23 23:53
+---
+
+## VahidOOnLine — post 245364
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_245364_1781382206.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوهای منتشرشده در رسانه‌های اجتماعی نشان می‌دهد شامگاه شنبه ۲۳ خرداد، جمعی از حامیان تندروی جمهوری اسلامی در تهران تجمع کرده و شعارهایی همچون «قالیباف، عراقچی، پس خون رهبرم چی؟» و «عراقچی حیا کن، مملکت رو رها کن» سر دادند.
+بخشی از حامیان حکومت در روزهای اخیر، وزارت خارجه و تیم مذاکره‌کننده را به دادن امتیاز به آمریکا متهم کرده‌اند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## pm_afshaa — post 93821
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93821_1781382207.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴یک منبع ارشد اسرائیلی به اسرائیل هیوم:
+در صورت شکست توافق، موضوع تغییر حکومت ایران روی میز قرار میگیره.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93820
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بیانیه قالیباف بعد از تجمعات امشب :
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 342142
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342142_1781382208.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوهای منتشرشده در رسانه‌های اجتماعی نشان می‌دهد شامگاه شنبه ۲۳ خرداد، جمعی از حامیان تندروی جمهوری اسلامی در تهران تجمع کرده و شعارهایی همچون «قالیباف، عراقچی، پس خون رهبرم چی؟» و «عراقچی حیا کن، مملکت رو رها کن» سر دادند.
+بخشی از حامیان حکومت در روزهای اخیر، وزارت خارجه و تیم مذاکره‌کننده را به دادن امتیاز به آمریکا متهم کرده‌اند.
+</div>
+
+## FarsiVOA — post 220620
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺نهاد حکومتی در ایران حمله سایبری به چهار بانک بزرگ را تائید کرد
+
+▪️در ایران، «شورای هماهنگی بانک‌ها» که یک نهاد دولتی است، روز شنبه ۲۳ خرداد حمله سایبری به چهار بانک ملی، تجارت، صادرات و توسعه صادرات را تائيد کرد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/the-coordination-council-of-state-owned-banks-confirmed-a-cyberattack-on-fiur-iranian-banks/8160495.html
+@FarsiVOA
+</div>
+
+## BBCPersian — post 283737
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283737_1781382209.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🖊پوریا ژافره، خبرنگار اعزامی بی‌بی‌سی فارسی، لس‌آنجلس
+
+⚽️گزارش شده از ۱۵ عضو فنی و اداری هیئت همراه تیم ملی ایران که درخواست ویزای آمریکا آنها در ترکیه رد شده بود، ۱۰ نفر درخواست تجدیدنظر داده‌اند و حالا چهار نفر موفق به دریافت ویزا شده‌اند؛ دو نفر از اعضای دپارتمان بین‌الملل فدراسیون، یک نماینده حراست و یکی از آنالیزورهای کادر فنی تیم ملی.
+
+اما درخواست شش نفر دیگر بار دیگر رد شده است؛ از جمله مهدی تاج، رئیس فدراسیون فوتبال ایران، مهدی محمدنبی، سرپرست تیم ملی و یکی از مدیران رسانه‌ای فدراسیون.
+
+با وجود این تاییدیه‌های جدید، هنوز مشخص نیست تیم ملی ایران چگونه وارد خاک آمریکا خواهد شد. منابع نزدیک به من گفتند که یکی از گزینه‌های مورد بررسی، انتقال کاروان ایران از تیخوانا در مکزیک به سن‌دیگو از طریق مرز زمینی و سپس حرکت به سمت لس‌آنجلس است، هرچند هنوز احتمال تغییر برنامه‌ها در آخرین لحظات وجود دارد.
+
+فعلا به نظر می‌رسد تیم ملی ایران قصد دارد روز یکشنبه، پیش از دیدار با نیوزیلند، وارد لس‌آنجلس شود تا در برنامه‌های رسمی فیفا پیش از مسابقه، از جمله نشست خبری و تمرین رسمی تیم، شرکت کند.
+📷AFP via Getty
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 391946
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391946_1781382210.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عرزشیا رفتن شعار میدن: قالیباف عراقچی پس خون رهبرم چی؟
+والا شاشیدن تو خون رهبرتون تموم شد رفت دیگه. سخت نگیرید.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391945
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391945_1781382210.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+واقعنی جدی جدی من کیرتونم نبودم 😭😂
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391944
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391944_1781382210.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 بیانیه فوری قالیباف در مورد تجمعات امشب:
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391943
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+میزاشتید یخ‌ش اب بشه بعد توافق میکردید😭😭😭😭
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391942
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391942_1781382211.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+الان باید قلعه‌نویی میومد بین عرزشیا میگفت:
+ساکت باشید این علامت مقوای بزرگ مجتباس احترام بزارید
+
+متاسفانه امریکاس نمیتونه به قالیباف کمک کنه
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 127733
+
+<div align="center">
+  <a href="telegram/content/alonews_127733_1781382211.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈گزارش‌ها از درگیری اغتشاشگران در قم با نیروهای جان برکف امنیتی
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127732
+
+<div align="center">
+  <a href="telegram/content/alonews_127732_1781382211.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کم مونده تندروها شعار:
+لاحکم الا لله خوارج رو بدن
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127731
+
+<div align="center">
+  <a href="telegram/content/alonews_127731_1781382212.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈طبق گزارشات تعداد زیادی از مردم در گردان‌های امام علی ثبت نام کردند تا با اغتشاشات امشب مقابله کنند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127730
+
+<div align="center">
+  <a href="telegram/content/alonews_127730_1781382212.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ثابتی: تصویری از دو لیدر شلوغی‌های امشب
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127729
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تندروها
+❌ بولشویک‌ها
+✔️
+</div>
+
+## alonews — post 127728
+
+<div align="center">
+  <a href="telegram/content/alonews_127728_1781382212.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈گزارش‌ها از اغتشاش تندروها در قم 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127727
+
+<div align="center">
+  <a href="telegram/content/alonews_127727_1781382212.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈گزارش‌ها از اغتشاش تندروها در قم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/23 23:43
 ---
 

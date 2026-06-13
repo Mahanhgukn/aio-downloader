@@ -7,6 +7,176 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/24 00:33
+---
+
+## VahidOOnLine — post 245367
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245367_1781384622.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️بدر عبدالعاطی، وزیر امور خارجه مصر، در تماس تلفنی با استیو ویتکاف، نماینده ویژه رئیس‌جمهوری آمریکا، آخرین تحولات مربوط به مذاکرات واشنگتن و تهران را برای دستیابی به توافق صلح جهت کاهش تنش‌های منطقه‌ای بررسی کرد. در این گفتگوی تلفنی که شنبه‌شب، ۲۳ خردادماه، انجام شد، وزیر خارجه مصر با تاکید بر حمایت قاطع قاهره از تلاش‌ها برای دست‌یابی به یک توافق جامع که دغدغه‌های همه طرف‌ها را در نظر بگیرد، بر اهمیت غنیمت شمردن فرصت کنونی برای پایان دادن به مناقشات و ورود خاورمیانه به مرحله جدیدی از امنیت و ثبات تاکید کرد. ویتکاف نیز با قدردانی از تلاش‌های فشرده کشورهای منطقه از جمله مصر در حمایت از روند این مذاکرات، ابراز امیدواری کرد که توافق احتمالی پیش‌رو به تقویت صلح و ثبات پایدار در منطقه کمک شایانی کند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14754
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک مقام ارشد اسرائیلی به وای نت:
+
+این یک توافق بد است. هیچ‌کس از آن راضی نیست. آنها می‌فهمند که این برای ما خوب نیست و به منافع اسرائیل آسیب می‌زند.
+چیزی که نگران‌کننده است این است که اسرائیل نمی‌تواند تأثیر بگذارد و صدایش شنیده نمی‌شود.
+این عمدتاً یک «توافق جام جهانی-جشن‌های ۲۵۰ سالگی تولد ۸۰ سالگی ترامپ» است.
+هدف این است که برای همه رویدادهای بزرگ فعلی در آمریکا کمی آرامش بخرد. واقعاً چیزی نیست که دوام بیاورد.
+@withyashar
+</div>
+
+## pm_afshaa — post 93829
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شعارهای فراخوان فردا :
+
+1- تا باقر کفن نشود این وطن وطن نشود.
+
+2- مرگ بر سه لاشی، قالی مسعود عراقچی.
+
+3- این توافق خونیه، باقر خودش کونیه.
+
+4- عدس پلو با ماستش، تسبیحم تو دست راستش.
+
+5- دلای ما خونیه، عراقچی‌مون کونیه.
+
+6- باقالی پلو با گردن، قالیبافو کردن.
+
++ نکات امنیتی رو حتما رعایت کنید:
+با چفیه صورت خودتونو بپوشونید، اپ‌های جاسوسی داخلی رو حذف کنید، عطر مشهدی نزنید شناسایی نشید.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93828
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93828_1781384623.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴عبداللهی، سردبیر خبرگزاری تسنیم:
+احتمال توافق نهایی با آمریکا بسیار بسیار ضعیفه؛ باید برای حمله ناگهانی آماده بود.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## Persian_Trend_Official — post 16987
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16987_1781384624.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👥خونخواهی کاروان انتقام در دفتر آیه الله جوادی آملی
+
+
+✊ این کاروان پاشدن پیاده از تهران به قم رفتن😳
+
+
+👺Phantom
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Dirty_Kids — post 391955
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391955_1781384625.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هم‌اکنون جاسوسای روسیه و پوتین در خرم‌آباد: شعار کل کشور، فقط شروط رهبر.
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 127752
+
+<div align="center">
+  <a href="telegram/content/alonews_127752_1781384627.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نبویان، عضو کمیسیون امنیت ملی مجلس که متن نهایی رو دیده :
+
+با امضای این توافق، رسما مستعمره آمریکا می‌شیم!
+هر بار که ترامپ بند جدید اضافه کرد، آقایان عقب‌نشینی کردن و گفتن چشم.
+تنگه‌ی هرمز بلافاصله و بدون محدودیت و عوارض، باز میشه؛ حتی واسه اسرائیل.
+مواد هسته‌ای باید رقیق بشه.
+کوچک‌ترین غنی سازی بخوایم انجام بدیم، قبلش باید از آمریکا اجازه بگیریم! حتی واسه ساختن دارو و برق و...
+آزادسازی پول‌های مسدود شده؟ معلوم نیست.
+منفعت ایران از صندوق 300 میلیارد دلاری؟ معلوم نیست.
+رفع تحریم ها ؟ معلوم نیست.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127751
+
+<div align="center">
+  <a href="telegram/content/alonews_127751_1781384629.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈گویا تندروها فردا هم فراخوان دادن
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127750
+
+<div align="center">
+  <a href="telegram/content/alonews_127750_1781384629.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈یک مقام ارشد اسرائیلی به وای نت:
+
+
+🔴این یک توافق بد است. هیچ‌کس از آن راضی نیست. آنها می‌فهمند که این برای ما خوب نیست و به منافع اسرائیل آسیب می‌زند.
+
+
+🔴چیزی که نگران‌کننده است این است که اسرائیل نمی‌تواند تأثیر بگذارد و صدایش شنیده نمی‌شود.
+
+
+🔴این عمدتاً یک «توافق جام جهانی-جشن‌های ۲۵۰ سالگی تولد ۸۰ سالگی ترامپ» است.
+
+
+🔴هدف این است که برای همه رویدادهای بزرگ فعلی در آمریکا کمی آرامش بخرد. واقعاً چیزی نیست که دوام بیاورد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127749
+
+<div align="center">
+  <a href="telegram/content/alonews_127749_1781384630.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈انتخاب: تو مشهد کلا ۱۰۰نفر تندرو تجمع کردن اما هیاهو راه انداختن
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/24 00:23
 ---
 

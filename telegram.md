@@ -7,6 +7,111 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/23 17:22
+---
+
+## WithYashar — post 14720
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال های خبرگزاری فارس، بابک زنجانی، صرافی نوبیتکس، والکس، رمزینکس و بیت‌پین که تو یوتیوب فعالیت میکردن، به علت تحریمای آمریکا همگی مسدود شدن
+@withyashar
+</div>
+
+## DEJradio — post 5656
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5656_1781358767.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺📷 در جریان جنگ ۴۰ روزه، بیشتر کلانتری‌های تهران و بسیاری از کلانتری‌های سایر شهرها بمباران و تخریب شدند؛ اما با گذشت چند هفته از «آتش‌بس»، حتی عملیات آواربرداری برخی از این مراکز نیز آغاز نشده است.
+
+یک منبع آگاه به «دژ» می‌گوید مهم‌ترین مانع آغاز عملیات بازسازی، «کمبود بودجه» است. با این حال، در سطوح عالی تصمیم‌گیری درباره اصل بازسازی این مراکز نیز اختلاف نظر وجود دارد. به گفته این منبع، برخی مقامات و فرماندهان بانفوذ معتقدند تا زمانی که تکلیف جنگ به‌طور کامل مشخص نشده، بازسازی مراکز نظامی و انتظامی با ریسک بالایی همراه است؛ زیرا احتمال هدف قرار گرفتن و بمباران مجدد آن‌ها وجود دارد.
+
+در حال حاضر، به دلیل تخریب ساختمان‌های کلانتری‌ها، مأموران انتظامی در کانکس‌ها به انجام وظیفه مشغول هستند. این کانکس‌ها نه از سیستم تهویه مناسب برخوردارند و نه امکانات اولیه‌ای مانند سرویس بهداشتی دارند. در نتیجه، مأموران در ساعات خدمت با شرایط دشوار و نامناسبی مواجه هستند.
+
+#جنگ۴۰روزه #آتشبس
+@DEJradio
+</div>
+
+## BBCPersian — post 283695
+
+<div align="center">
+  <a href="telegram/content/BBCPersian_283695_1781358767.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️سرخط خبرها، شنبه ۲۳ خرداد ۱۴۰۵
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 391883
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391883_1781358769.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یادش بخیر! پارسال این موقع رافضی هر ۸ساعت یه دونه اف۳۵ میزد 😂😂😂😂😂😂
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391882
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391882_1781358770.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 یاس انگار از آینده اومده، ۱ سال پیش توی آهنگ «باغ» دقیقا وضعیت این روزا رو مو به مو پیش بینی کرده بود!!!
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 127630
+
+<div align="center">
+  <a href="telegram/content/alonews_127630_1781358770.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈آرزوی یک تندرو: ایشالا عراقچی بمیره
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127629
+
+<div align="center">
+  <a href="telegram/content/alonews_127629_1781358770.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈قطر بسته‌ای به ارزش ۱۲ میلیارد دلار را در مورد دارایی‌های مسدود شده ایران در جریان مذاکرات پیشنهاد داد که شامل آزادسازی ۶ میلیارد دلار از وجوه ایرانی نگهداری شده در قطر و یک خط اعتباری اضافی ۶ میلیارد دلاری است، طبق گزارش خبرگزاری مهر.
+
+
+ایران در ابتدا پیشنهاد دریافت نیمی از دارایی‌های مسدود شده خود را در مراحل اولیه مذاکرات و مابقی را پس از توافق نهایی ارائه داد، اما ایالات متحده آن طرح را رد کرد. سپس قطر بسته جایگزین را برای کمک به شکستن بن‌بست ارائه داد.
+
+۶ میلیارد دلار از دارایی‌های ایرانی نگهداری شده در قطر همچنان مشروط به محدودیت‌های استفاده بشردوستانه خواهد بود.
+
+۶ میلیارد دلار اضافی به عنوان وام یا خط اعتباری مدیریت شده توسط قطر ارائه خواهد شد و ایران تعیین می‌کند که چگونه از آن استفاده شود.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127628
+
+<div align="center">
+  <a href="telegram/content/alonews_127628_1781358771.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈قابل توجه جبهه پایداری🙂
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/23 17:12
 ---
 

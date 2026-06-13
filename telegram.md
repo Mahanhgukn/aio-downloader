@@ -7,6 +7,101 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/23 16:02
+---
+
+## VahidOOnLine — post 245306
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245306_1781353963.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سایت هرانا گزارش داد پیمان گنجی، از بازداشت‌شدگان انقلاب ملی ایرانیان در دی‌ماه ۱۴۰۴، از سوی شعبه ۲۶ دادگاه انقلاب تهران به اتهام «محاربه» به اعدام محکوم شده است.
+
+بر اساس این گزارش، این حکم به ریاست ایمان افشاری صادر شده و پرونده گنجی هم‌اکنون در شعبه ۹ دیوان عالی کشور در دست بررسی است.
+
+هرانا به نقل از یک منبع آگاه نوشت در این پرونده، «سوزاندن اموال عمومی» به‌عنوان مصداق اتهام منتسب به گنجی مطرح شده است.
+
+پیمان گنجی ۳۳ ساله است و پس از بازداشت در دی‌ماه ۱۴۰۴ به زندان تهران بزرگ منتقل شد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342930
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌Fox News (Twitter/X)
+
+👉 Full story here:
+</div>
+
+## FoxNewsTwitter — post 342929
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+TANVI RATNA: Trump's multi-front pressure campaign takes aim at Russia's energy empire — sanctions, tariffs, and drone strikes have knocked 700,000 barrels per day of refining capacity offline while Europe locks in a binding legal phase-out of Russian gas. Putin retains buyers in China and India, but the system that once converted oil into geopolitical power is being dismantled piece by piece.
+</div>
+
+## IranIntlTV — post 342056
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342056_1781353964.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سایت هرانا گزارش داد پیمان گنجی، از بازداشت‌شدگان انقلاب ملی ایرانیان در دی‌ماه ۱۴۰۴، از سوی شعبه ۲۶ دادگاه انقلاب تهران به اتهام «محاربه» به اعدام محکوم شده است.
+
+بر اساس این گزارش، این حکم به ریاست ایمان افشاری صادر شده و پرونده گنجی هم‌اکنون در شعبه ۹ دیوان عالی کشور در دست بررسی است.
+
+هرانا به نقل از یک منبع آگاه نوشت در این پرونده، «سوزاندن اموال عمومی» به‌عنوان مصداق اتهام منتسب به گنجی مطرح شده است.
+
+پیمان گنجی ۳۳ ساله است و پس از بازداشت در دی‌ماه ۱۴۰۴ به زندان تهران بزرگ منتقل شد.
+https://iranintl.com/202606138701
+</div>
+
+## DW_Farsi — post 125926
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶رهبر باند مواد مخدر ونزوئلایی در حمله آمریکا کشته شد
+
+دونالد ترامپ، رئیس‌ جمهور آمریکا طی پیامی از کشته شدن رهبر باند بدنام ونزوئلایی مواد مخدر "ترن د آراگوا" در حمله ارتش ایالات متحده خبر داد.
+
+ترامپ در این پیام که شنبه ۱۳ ژوئن در شبکه تروث سوشال منتشر شد "ترن د آراگوا" را "از خون‌بارترین سازمان‌های تروریستی روی زمین" خواند و نوشت که این عملیات به دستور او و توسط فرماندهی جنوبی ارتش آمریکا انجام شده است.
+
+همچنین به گفته ترامپ، دولت ونزوئلا از این "حمله سریع و مرگبار" علیه نینو گررو، "رهبر بدنام" این گروه و قاچاقچی مواد مخدر حمایت کرده است: «این اقدام با هماهنگی نزدیک با دوستان ما در ونزوئلا انجام شد که با آن‌ها همکاری بسیار خوبی داریم.»
+
+@dw_farsi
+</div>
+
+## alonews — post 127617
+
+<div align="center">
+  <a href="telegram/content/alonews_127617_1781353964.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈بلومبرگ: ایران بخش‌های گسترده‌ای از زرادخانه موشکی خود را بازسازی کرده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127616
+
+<div align="center">
+  <a href="telegram/content/alonews_127616_1781353964.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈با اینکه هنوز حدود ۲هفته تا شروع تابستون مونده، قطعی‌های ۲ تا ۴ ساعته برق تو بعضی از استان‌های کشور شروع شده
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/23 15:53
 ---
 

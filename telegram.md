@@ -7,6 +7,290 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/23 23:23
+---
+
+## VahidOOnLine — post 245359
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245359_1781380385.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمود نبویان، نایب‌رییس کمیسیون امنیت ملی مجلس جمهوری اسلامی، در واکنش به اعلام آمریکا و پاکستان درباره امضای یادداشت تفاهم میان آمریکا و جمهوری اسلامی در روز یکشنبه، گفت: «آمریکا با این توافق به پیروزی کامل می‌رسد.»
+
+او در گفت‌وگو با خبرگزاری دانشجو با اشاره به مفاد این تفاهم افزود: «آمریکا به دنبال این است که همه مشکلات خودش، از جمله قیمت نفت و بنزین، را حل کند و بعد دوباره به کشور حمله کند.»
+
+نبویان همچنین گفت: «هرچه پیام ضعف بفرستیم، جنگ به ما نزدیک‌تر می‌شود. با این توافقات نمی‌شود جلوی دشمن ایستاد.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## pm_afshaa — post 93813
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+fkramo miknm
+</div>
+
+## pm_afshaa — post 93812
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+fkramo miknm
+</div>
+
+## pm_afshaa — post 93811
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🟠وزیر دارایی اسرائیل، بزالل سموتریچ:
+تنها راه: به ازای هر شلیک به سمت قلمرو ما، ده ساختمان در ضاحیه فرو خواهد ریخت
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93810
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93810_1781380386.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیویی دیده نشده از جمعیت پشم ریزون مردم در پونک 19 دی
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## VahidOnline — post 76308
+
+<div align="center">
+  <a href="telegram/content/VahidOnline_76308_1781380388.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قالیباف و عراقچی! پس اون رهبرم چی؟
+
+برخی رسانه‌های داخل ایران تصاویری از تجمع برخی طرفداران حکومت در شامگاه یکشنبه را منتشر کرده‌اند که در مخالفت با امضای توافق احتمالی با آمریکا علیه برخی مقام‌های جمهوری اسلامی شعار می‌دهند.
+
+در یکی از این تجمعات که در میدان ابن سینا در تهران برپا شده، تجمع‌کنندگان علیه وزیر خارجه و رئیس مجلس شورای اسلامی شعارهایی مانند «عراقچی حیا کن مملکت رو رها کن» و «قالیباف، عراقچی / پس خون رهبرم چی؟» سر داده‌اند.
+
+برخی رسانه‌های نزدیک به اصلاح‌طلبان این افراد را «نزدیکان به جبهه پایداری» معرفی کرده‌اند.
+
+خبرگزاری دانشجو نیز عکس‌هایی از یک تجمع در مشهد منتشر کرده که در آن‌ها پلاکاردهایی در مخالفت با توافق و همچنین انتقاد تند از مذاکره‌کنندگان دیده می‌شود.
+@VahidHeadline
+
+📡 @VahidOnline
+</div>
+
+## kianmeli1 — post 87974
+
+<div align="center">
+  <a href="telegram/content/kianmeli1_87974_1781380388.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴اعتراض مقابل ساختمان وزارت خارجه در تهران: عراقچی حیا کن آمریکا را رها کن
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 342134
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342134_1781380389.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمود نبویان، نایب‌رییس کمیسیون امنیت ملی مجلس جمهوری اسلامی، در واکنش به اعلام آمریکا و پاکستان درباره امضای یادداشت تفاهم میان آمریکا و جمهوری اسلامی در روز یکشنبه، گفت: «آمریکا با این توافق به پیروزی کامل می‌رسد.»
+
+او در گفت‌وگو با خبرگزاری دانشجو با اشاره به مفاد این تفاهم افزود: «آمریکا به دنبال این است که همه مشکلات خودش، از جمله قیمت نفت و بنزین، را حل کند و بعد دوباره به کشور حمله کند.»
+
+نبویان همچنین گفت: «هرچه پیام ضعف بفرستیم، جنگ به ما نزدیک‌تر می‌شود. با این توافقات نمی‌شود جلوی دشمن ایستاد.»
+https://iranintl.com/202606135842
+</div>
+
+## FarsiVOA — post 220619
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺ترامپ در حاشیه نشست «گروه ‌هفت» با رهبران خاورمیانه دیدار می‌کند؛ پاکسازی مین‌های تنگه هرمز یکی از موضوعات گفتگوها
+
+▪️دونالد ترامپ رئیس‌جمهوری آمریکا قرار است همزمان با سفرش به فرانسه برای شرکت در اجلاس سالانه «گروه هفت» با رهبران خاورمیانه نیز دیدار و گفت‌وگو کند.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/iran-us-trump-g7-hormuz-negotiations-group/8160489.html
+@FarsiVOA
+</div>
+
+## DW_Farsi — post 125941
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125941_1781380390.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶ترامپ: توافق روز یکشنبه امضا می‌شود و تنگه هرمز بلافاصله باز خواهد شد
+
+دونالد ترامپ، رئیس‌جمهوری آمریکا، روز شنبه ۱۳ ژوئن (۲۳ خرداد) در پیامی در شبکه اجتماعی تروث سوشال نوشت توافقی که در چارچوب تلاش‌ها برای پایان دادن به جنگ با ایران در حال پیگیری است، قرار است روز یکشنبه امضا شود. او افزود بلافاصله پس از امضای این توافق، تنگه هرمز "برای همه" باز خواهد شد.
+
+ترامپ در پیام خود نوشت: توافق قرار است فردا امضا شود و بلافاصله پس از امضا،تنگه هرمز به روی همه باز خواهد شد.
+
+جنگی که با حملات آمریکا و اسرائیل به ایران در پایان ماه فوریه آغاز شد، رفت‌وآمد در این مسیر را به‌شدت محدود کرده و باعث افزایش شدید قیمت‌ها در بازارهای جهانی شده است.
+
+پاکستان، که نقش میانجی را بر عهده دارد، پیش‌تر در همین روز اعلام کرده بود توافق قرار است روز یکشنبه امضا شود.
+
+@dw_farsi
+</div>
+
+## DW_Farsi — post 125940
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125940_1781380391.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶ترامپ در نشست گروه هفت درباره جنگ ایران و نقش کشورها در هرمز گفت‌وگو می‌کند
+
+به گزارش خبرگزاری آلمان، یک مقام ارشد دولت آمریکا پیش از آغاز نشست گروه هفت اعلام کرد دونالد ترامپ قصد دارد در این اجلاس درباره نحوه پیشبرد توافق مربوط به جنگ ایران گفت‌وگو کند. به گفته این مقام، در صورت شکل‌گیری چنین توافقی، برخی از کشورهای گروه هفت آماده‌اند در اقدام‌هایی مانند مین‌روبی در تنگه هرمز نقش ایفا کنند.
+
+بر اساس این گزارش،تحت رهبری فرانسه و بریتانیا، یک ماموریت دریایی "بی‌طرف" در تنگه هرمز در حال آماده‌سازی است. بیش از ۴۰ کشور، از جمله آلمان، حمایت خود را از این طرح اعلام کرده‌اند. موضوع مین‌روبی نیز بخشی از همین برنامه عنوان شده است.
+
+بر اساس اظهارات این مقام دولتی، دونالد ترامپ قصد دارد از اجلاس گروه هفت (G7) برای برگزاری دیدارهای دوجانبه با نمایندگان مصر، قطر و امارات متحده عربی نیز استفاده کند. طبق اعلام مقامات آمریکایی، بنیامین نتانیاهو، نخست‌وزیر اسرائیل در این گفت‌وگوها شرکت نخواهد کرد.
+
+@dw_farsi
+</div>
+
+## IranianMinds — post 22490
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22490_1781380391.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😂😂😂
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 391931
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حکومت نیروهای یگان ویژه رو ریخته تو خیابون که اگه عرزشی ها امشب زنجیر پاره کردن همه رو سرکوب کنن🤣🤣🤣🤣🤣🤣🤣🤣
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391930
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391930_1781380392.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کوکتل‌مولوتف یادتون نره آموزشاش تو یوتوب هست
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391929
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391929_1781380392.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تعداد تجمع کننده ها یک اتوبوس شده ؟حدود ۵۰ نفر، پس کوووو ۳۰ میلیون جانفدا😂😂😂😂😂😂
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391928
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391928_1781380393.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌‎
+خدا لعتتان کند که اینطور طور رهبر شهیدمان را کیر کردید
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 127714
+
+<div align="center">
+  <a href="telegram/content/alonews_127714_1781380394.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈شبکه CNN به نقل از منابع اطلاعاتی: ایران ورودی‌های محل نگهداری از ذخایر اورانیوم خود را مین‌گذاری کرده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127713
+
+<div align="center">
+  <a href="telegram/content/alonews_127713_1781380394.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کانال ۱۲ اسرائیل: مقامات ارشد اسرائیلی و کارشناسانی که سال‌ها در حوزه ایران فعالیت می‌کنند، امروز هشدار دادند که توافق فعلی بین آمریکا و ایران، عمیق‌ترین منافع امنیتی اسرائیل را به خطر می‌اندازد
+
+
+🔴مقامات ارشد اسرائیلی می‌گویند «ایرانی‌ها بی‌دلیل با این توافق موافقت نکرده‌اند، طرف آمریکایی شرایط اصلی آن‌ها را پذیرفته است.»
+
+
+🔴به گفته آنان، این توافق بلافاصله منجر به رفع محاصره دریایی و نجات ایران خواهد
+
+
+🔴اطرافیان نتانیاهو می‌گویند: «نگرانی بزرگ این است که ترامپ در بحث توافق با ایران، با ما همان کاری را بکند که اوباما کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127712
+
+<div align="center">
+  <a href="telegram/content/alonews_127712_1781380394.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کانالای ایتا:
+قالیباف و پزشکیان، رهبری رو زندانی کردن
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127711
+
+<div align="center">
+  <a href="telegram/content/alonews_127711_1781380394.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 وزیر دارایی اسرائیل، بزالل سموتریچ:
+تنها راه: به ازای هر شلیک به سمت قلمرو ما، ده ساختمان در ضاحیه فرو خواهد ریخت. امشب
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127710
+
+<div align="center">
+  <a href="telegram/content/alonews_127710_1781380395.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈اغتشاش مقابل ساختمان وزارت خارجه در تهران: عراقچی حیا کن آمریکا را رها کن
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/23 23:13
 ---
 

@@ -7,6 +7,125 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/23 23:03
+---
+
+## WithYashar — post 14744
+
+
+
+
+## WithYashar — post 14743
+
+
+
+
+## pm_afshaa — post 93808
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+من حاضرم برا سرکوب این اغتژاژ گرا وارد بسیج شم
+</div>
+
+## pm_afshaa — post 93807
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اغتژاژ گر را باید سر جایش نشاند این حرفای رهبر مفعولمون بود😭😭
+</div>
+
+## pm_afshaa — post 93806
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بزنین این اغتشاشگرارو باتون چرب شده یادتون نره براشون استفاده بشه
+</div>
+
+## Persian_Trend_Official — post 16984
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://youtube.com/live/8mEq3_F9y04?feature=share
+</div>
+
+## Dirty_Kids — post 391926
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391926_1781379210.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 امروز توی مشهد، عرزشیا کفن پوشیدن و شعار میدن مرگ بر عراقچی🤣🤣
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391925
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391925_1781379212.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نه ماه پیش:
+
+هم تهدید شد؛ هم‌مذاکره کرد؛ هم‌جنگ شد؛ هم مرد ، دفن نشد و ته مونده هاش تسلیم شدند
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391924
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 از مأموران شجاع نیروی انتظامی درخواست داریم با این اغتشاشگران برخورد قاطع بشه و بهشون تیر خلاص بزنن🙏
+
+خواهشاً هر چه زودتر بله، روبیکا و ایتا رو فیلتر کنین تا نتونن امنیت ملی رو به خطر بندازن.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391923
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391923_1781379214.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ولی یه روزی باید ۲۳خرداد رو به عنوان "روز جهانی عاقبت گنده‌گوزی" نامگذاری کنن :))))))
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391922
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امیرحسین ثابتی:
+
+فردا توی مجلس طرح استیضاح عباس عراقچی رو ارائه میدم تا اونو برکنارکنیم.
+
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 127708
+
+<div align="center">
+  <a href="telegram/content/alonews_127708_1781379214.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ثابتی در اجتماع مخالفان توافق : پس از اظهارات شب گذشته عراقچی ، استیضاح عراقچی در سامانه مجلس ثبت خواهد شد!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/23 22:53
 ---
 

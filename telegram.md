@@ -7,6 +7,166 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/23 17:42
+---
+
+## VahidOOnLine — post 245314
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_245314_1781359966.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایرانیان ملبورن در استرالیا روز شنبه برای زادروز مجیدرضا رهنورد، جانباخته خیزش انقلابی ۱۴۰۱، و ۴۰ هزار جاویدنام انقلاب ملی پرچم شیروخورشید را برای ۴۰ هزار ثانیه برافراشتند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## DEJradio — post 5657
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👑🎥 پاریس؛ برگزاری مراسم یادبود شاهدخت لیلا پهلوی
+
+#پهلوی #شاهدخت_لیلا_پهلوی
+@DEJradio
+</div>
+
+## kianmeli1 — post 87969
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87969_1781359969.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ توییت نخست وزیر پاکستان مبنی بر احتمال امضای توافق ظرف ۲۴ ساعت را بازنشر کرد
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 342063
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342063_1781359969.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرخط خبرهای شنبه ۲۳ خرداد
+
+@iranintltv
+</div>
+
+## IranIntlTV — post 342062
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342062_1781359970.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایرانیان ملبورن در استرالیا روز شنبه برای زادروز مجیدرضا رهنورد، جانباخته خیزش انقلابی ۱۴۰۱، و ۴۰ هزار جاویدنام انقلاب ملی پرچم شیروخورشید را برای ۴۰ هزار ثانیه برافراشتند.
+</div>
+
+## FarsiVOA — post 220582
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Farsi VOA pinned a photo
+</div>
+
+## FarsiVOA — post 220581
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220581_1781359973.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📸اینستاگرام صدای آمریکا را هم اکنون فالو کنید تا از آخرین خبرها مطلع بمانید:
+https://www.instagram.com/voafarsi/
+
+📡همچنین جهت اطلاع از بروزترین فرکانسهای ماهواره‌ای صدای آمریکا به لینک زیر مراجعت فرمایید:
+https://ir.voanews.com/satellite
+
+این پست را با دوستانتان به اشتراک بگذارید
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220580
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220580_1781359973.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️پرزیدنت ترامپ روز شنبه ۲۳ خرداد پیام نخست‌وزیر پاکستان در شبکه اجتماعی ایکس را که در آن نوشته بود توافق صلح میان آمریکا و جمهوری اسلامی احتمالاً ظرف ۲۴ ساعت آینده امضا خواهد شد، بازنشر کرد.
+</div>
+
+## RadioFarda — post 158265
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تیم ملی فوتبال؛ دوگانهٔ عشق به ایران و خشم از حکومت
+
+🔸جام جهانی فوتبال ۲۰۲۶ برای ایران فقط یک تورنمنت فوتبالی نیست؛ به‌خصوص اگر پای بازی در آمریکا و حضور پررنگ ایرانیان مهاجر در میان باشد، تیم ملی دوباره به صحنه‌ای تبدیل می‌شود که در آن فوتبال، خاطره، سیاست، تبعید، خشم و عشق به ایران در کنار هم قرار می‌گیرند.
+
+🔸برای بخشی از ایرانیان، نام ایران روی پیراهن تیم ملی هنوز یادآور چیزی فراتر از حکومت است. برای بخشی دیگر اما همین پیراهن از سایهٔ حکومت جدا دیده نمی‌شود. میان این دو نگاه، یک کشور زخمی ایستاده است؛ کشوری که حتی شادی ورزشی‌اش هم دیگر بی‌دردسر نیست.
+
+🔸گزارش وحید پوراستاد را در وب‌سایت رادیوفردا بخوانید.
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 22469
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22469_1781359973.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴اکانت اسرائیل به فارسی:
+
+یکی از بهترین ویدئوهای جنگ ۱۲ روزه 😂😂😂
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22468
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴آقای عراقچی ، حالم ازت به هم می‌خوره، خودم میکشمت.
+
+@IranianMinds
+</div>
+
+## alonews — post 127635
+
+<div align="center">
+  <a href="telegram/content/alonews_127635_1781359975.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+👈عراقچی فردا راهی پاکستان می‌شود
+
+الحدث به نقل از منابع آگاه:
+
+🔴منابع حاکی از آن است که یک هیئت ایرانی، شامل وزیر امور خارجه، فردا وارد پاکستان خواهد شد.
+
+
+🔴هیئت ایرانی بر مذاکرات فنی مربوط به این توافق نظارت خواهد داشت.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127634
+
+<div align="center">
+  <a href="telegram/content/alonews_127634_1781359975.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ایرانسل همچنان اینترنت ۴۰ هزار تومانی می‌فروشد!
+
+
+🔴با وجود انتقادها به اینترنت پرو و گرانی چند برابری آن، ایرانسل همچنان بسته یک‌ساله اینترنت پرو را به قیمت ۸ میلیون تومان عرضه می‌کند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/23 17:32
 ---
 

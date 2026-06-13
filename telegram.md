@@ -7,6 +7,298 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/23 21:03
+---
+
+## VahidOOnLine — post 245335
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245335_1781371989.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری فارس، رسانه وابسته به سپاه پاسداران، شامگاه شنبه ۲۳ خرداد اصرار دونالد ترامپ بر امضای یادداشت تفاهم با جمهوری اسلامی در روز یکشنبه را «عجیب» و «فشار نمایشی» خواند.
+
+فارس نوشت: «سرنوشت امضای یکشنبه نه‌فقط یک آزمون فنی برای محتوای تفاهم، بلکه آزمونی برای صداقت و ایستادگی مسئولان ایرانی در برابر فشارهای نمایشی نیز خواهد بود.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245334
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245334_1781371990.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری فارس، رسانه وابسته به سپاه پاسداران، شامگاه شنبه ۲۳ خرداد اصرار دونالد ترامپ بر امضای یادداشت تفاهم با جمهوری اسلامی در روز یکشنبه را «عجیب» و «فشار نمایشی» خواند.
+
+فارس نوشت: «سرنوشت امضای یکشنبه نه‌فقط یک آزمون فنی برای محتوای تفاهم، بلکه آزمونی برای صداقت و ایستادگی مسئولان ایرانی در برابر فشارهای نمایشی نیز خواهد بود.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14730
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فارس: با توجه به اینکه فردا تولد ترامپ است مسئولان ایران اجازه نخواهند داد توافق فردا امضا شود
+@withyashar 😂
+</div>
+
+## FoxNewsTwitter — post 342938
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342938_1781371990.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: Trump says a deal with Iran is scheduled to be signed tomorrow.
+
+“Immediately after it is signed, the Hormuz Strait is OPEN TO ALL.”
+
+The president says the agreement will permanently prevent Iran from obtaining a nuclear weapon and described it as the exact opposite of the Obama-era nuclear deal.
+
+Trump also said no money will exchange hands under the agreement and warned that if the process falls apart, the U.S. has “the ultimate alternative.”
+</div>
+
+## pm_afshaa — post 93783
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_93783_1781371992.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به به عالیه ادامه بدید
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93782
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هیچ وقت فکر نمیکردم یه روزی نظرمون با عرزشی‌ها یکی بشه
+</div>
+
+## pm_afshaa — post 93781
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93781_1781371993.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴اطلاعیه و فراخوان تجمع شبانه منتشر شده در کانال ثابتی در اعتراض به تیم مذاکره‌ کننده، با حضور 16 نماینده مجلس! 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93780
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93780_1781371993.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبرگزاری فارس: با توجه به اینکه فردا تولد ترامپ است، مسئولان ایران اجازه نخواهند داد توافق فردا امضا بشه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93779
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93779_1781371994.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴اطلاعیه و فراخوان تجمع شبانه منتشر شده در کانال ثابتی در اعتراض به تیم مذاکره‌ کننده، با حضور 16 نماینده مجلس!
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5661
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5661_1781371995.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺📢 تفکیک مردم و حکومت؛ مخالفت با تخریب زیرساخت‌های عمومی؛
+
+*پژمان گلچین، پژوهشگر فلسفه
+
+#جنگ #زیرساخت
+@DEJradio
+</div>
+
+## mamlekate — post 103703
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدئو از لویزان #الو غرب تهران اول صدای جت اومد بعد ۵ بار صدای بمب. صدای آژیر ماشینا دراومد. اکسیوس زده اسرائیل به ایران حمله کرده شرق تهرانو زدن ۷-۸ تا صدای انفجار اومد دو تاش خیلی مهیب بود دودم بلند شده ولی خوب معلوم نیست شرق تهرانو زدن فکر کنم سمت…
+</div>
+
+## kianmeli1 — post 87972
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴اکسیوس به نقل از منابعی نوشت که دلیل امضای ویدیویی توافق آمریکا و جمهوری اسلامی، موضوعات لجستیکی و عدم امکان سفر جی‌دی‌ونس به پاکستان همزمان با سفر ترامپ برای شرکت در نشست گروه۷ است
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 342117
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342117_1781371996.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری فارس، رسانه وابسته به سپاه پاسداران، شامگاه شنبه ۲۳ خرداد اصرار دونالد ترامپ بر امضای یادداشت تفاهم با جمهوری اسلامی در روز یکشنبه را «عجیب» و «فشار نمایشی» خواند.
+
+فارس نوشت: «سرنوشت امضای یکشنبه نه‌فقط یک آزمون فنی برای محتوای تفاهم، بلکه آزمونی برای صداقت و ایستادگی مسئولان ایرانی در برابر فشارهای نمایشی نیز خواهد بود.»
+https://iranintl.com/202606134488
+</div>
+
+## IranIntlTV — post 342116
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342116_1781371996.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری فارس، رسانه وابسته به سپاه پاسداران، شامگاه شنبه ۲۳ خرداد اصرار دونالد ترامپ بر امضای یادداشت تفاهم با جمهوری اسلامی در روز یکشنبه را «عجیب» و «فشار نمایشی» خواند.
+
+فارس نوشت: «سرنوشت امضای یکشنبه نه‌فقط یک آزمون فنی برای محتوای تفاهم، بلکه آزمونی برای صداقت و ایستادگی مسئولان ایرانی در برابر فشارهای نمایشی نیز خواهد بود.»
+https://iranintl.com/202606134488
+</div>
+
+## FarsiVOA — post 220607
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220607_1781371997.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خواهر دادخواه بابک صادقی محسنی، با انتشار این ویدیو نوشته است به مادرش که تصمیم داشت ۲۲ خرداد تولد ۳۲ سالگی بابک را بر آرامگاه او برگزار کند چند ساعت اجازه خروج از خانه را ندادند.
+
+او با اشاره به اینکه ماموران حاضر در باغ بهشت همدان، گل‌های آرامگاه براردش را تخریب کردند نوشته است: «چرا باید مادرم در خانه خودش زندانی شود و اجازه نداشته باشد به آرامگاه فرزندش برود...»
+
+بابک صادقی محسنی، ۱۹ دی ۱۴۰۴ با شلیک گلوله ماموران حکومتی به سرش در تهرانپارس کشته شد.
+</div>
+
+## Persian_Trend_Official — post 16968
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16968_1781372000.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به گزارش اکسیوس، انتظار می‌رود ایالات متحده و ایران، با میانجیگری پاکستان و قطر، روز یکشنبه یک نشست مجازی برگزار کنند تا به صورت الکترونیکی تفاهم‌نامه‌ای را امضا کنند که آتش‌بس را به مدت 60 روز تمدید می‌کند.
+
+پس از امضا، تنگه هرمز را بازگشایی می‌شود و مذاکرات در مورد برنامه هسته‌ای ایران آغاز می‌شود. این قالب مجازی به دلایل لجستیکی انتخاب شده است.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16967
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16967_1781372000.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تصاویر ماهواره ای با کیفیت از انهدام سیستم راداری TPS-59 در کوه الدخان و دو مخزن سوخت در پایگاه شیخ عیسی بحرین طی حملات موشکی و پهپادی نیروی های مسلح جمهوری اسلامی 📝 Amir 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Dirty_Kids — post 391909
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391909_1781372001.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏❌باور نمیکنین❌
+
+بچه شیعه بالاخره باخت داد!!
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391908
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391908_1781372001.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بَـــه آقای جوان نگرانتون بودیم
+خوبه كه بيدار شدین...
+خوبه كه وسط نيستین…
+تكليفتون روشنه.… «حكومتى كامل»
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391907
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391907_1781372004.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به‌به تو رستم و تهمتنی
+
+
+@Dirty_Kids 👻
+</div>
+
+## Hranews — post 113590
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مرگ و مصدومیت ۲ کارگر از جمله یک زن در سایه فقدان ایمنی کار
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– در سایه فقدان ایمنی محیط و شرایط نامناسب کار، دو #کارگر در شهرهای کاشان و دماوند، حین انجام کار دچار حادثه شدند. طی این حوادث یک کارگر جان باخت و یک کارگر زن مصدوم شد.
+
+ادامه مطلب
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## alonews — post 127684
+
+<div align="center">
+  <a href="telegram/content/alonews_127684_1781372004.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈صداوسیما : یه نفتکش غول‌پیکر از محاصره دریایی آمریکا، رد شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127683
+
+<div align="center">
+  <a href="telegram/content/alonews_127683_1781372005.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فارس: با توجه به اینکه فردا تولد ترامپ است مسئولان ایران اجازه نخواهند داد توافق فردا امضا شود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/23 20:53
 ---
 

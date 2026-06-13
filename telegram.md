@@ -7,6 +7,141 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/23 11:22
+---
+
+## VahidOOnLine — post 245265
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245265_1781337168.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روزنامه جمهوری اسلامی در یادداشتی نوشت: «حمله به پایگاه‌های آمریکا در بحرین و کویت که مبدأ آتشباری آمریکا بودند، اقدامی کاملا طبیعی بود.»
+
+این روزنامه افزود: «رفتن به سراغ پایگاه آمریکایی، مقر هواپیماهای جنگی ارتش آمریکا در اردن، نیز یک ضرورت بود.»
+
+جمهوری اسلامی تاکید کرد: «اگر آتش‌بس را پذیرفته‌ایم و به مذاکره روی خوش نشان می‌دهیم، به این معنا نیست که نمی‌خواهیم انتقام جنایات آمریکا را بگیریم.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14698
+
+<div align="center">
+  <img src="telegram/content/WithYashar_14698_1781337169.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ستون دود الان کرج
+@withyashar
+</div>
+
+## IranIntlTV — post 342016
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342016_1781337170.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جاویدنامان انقلاب ملی ایرانیان
+«علی نوری» نوجوان ۱۷ساله، شامگاه ۱۸ دی‌ماه در اعتراضات شهر اراک با شلیک گلوله به دست نیروهای خامنه‌ای کشته شد. نامش در حافظه‌ این سرزمین می‌ماند و یادش چراغ راه آزادی‌خواهان است.
+@iranintltv
+</div>
+
+## IranIntlTV — post 342015
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342015_1781337172.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻کشف یک جسد در نزدیکی محل تمرین تیم ملی فوتبال ایران در جام جهانی ۲۰۲۶، نگرانی‌هایی را درباره وضعیت امنیتی محل اقامت و تمرین ملی‌پوشان ایران در شهر تیخوانای مکزیک به وجود آورده است.
+
+🔹رسانه آلمانی اسپورت ۱ گزارش داد که یک جسد در حال تجزیه در نزدیکی کمپ تیم ملی ایران در جام جهانی پیدا شده است.
+
+🔹بر اساس این گزارش، پلیس مکزیک جسد را در صندوق عقب یک خودرو در نزدیکی ورزشگاه استادیو کالینته در شهر تیخوانا کشف کرد؛ جایی که تیم ملی ایران این روزها تمرینات خود را برگزار می‌کند. خبرنگاران خبرگزاری فرانسه نیز که در محل حضور داشتند، این اتفاق را تایید کردند.
+
+🔹خودروی مورد نظر، یک شاسی‌بلند با پلاک ایالت کالیفرنیای آمریکا بود که در نزدیکی یک سوپرمارکت مقابل محل تمرین تیم ملی پارک شده بود. ماموران پلیس پس از بازرسی خودرو، جسدی را که در یک کیسه پلاستیکی سیاه‌رنگ پیچیده شده بود، در صندوق عقب پیدا کردند.
+
+🔹یکی از منابع پلیس محلی به خبرگزاری فرانسه گفت: «در جریان بازرسی خودرو، جسدی که داخل کیسه‌ای سیاه قرار داشت، در صندوق عقب کشف شد. آثار ضرب‌وجرح نیز روی جسد مشاهده شده است.»
+
+🔹جزییات بیشتر را اینجا بخوانید
+
+@iranintltvsport
+</div>
+
+## Persian_Trend_Official — post 16917
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16917_1781337173.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اگر شبهه شما هم هست ...
+</div>
+
+## Persian_Trend_Official — post 16916
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16916_1781337174.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+طبق گزارش شبکه المنار، وابسته به حزب الله، نیروی زمینی ارتش اسرائیل در پوشش گلوله باران گسترده توپخانه، حمله خود به سمت جنوب شهر نبطیه، پایتخت حزب‌الله در جنوب لبنان را آغاز کرده است. خودرو های زرهی اسرائیلی به صورت گسترده در حال هجوم به سمت جنوب شهر نبطیه…
+</div>
+
+## IranianMinds — post 22445
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22445_1781337175.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴عراقچی: مسئولیت مذاکرات توسط نظام به آقای قالیباف سپرده شد
+
+
+@IranianMinds
+</div>
+
+## Hranews — post 113571
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دستور توقیف اموال ۱۰۰ شهروند در استان اصفهان صادر شد
+
+
+❗️
+❗️
+❗️
+❗️
+❗️ – رئیس کل دادگستری استان اصفهان از صدور دستور #توقیف_اموال ۱۰۰ شهروند در این استان به دلیل آنچه «حمایت از دشمن» عنوان کرده، خبر داد.
+
+ادامه مطلب
+
+↘️
+@hranews_bot تماس ✉️ -  @Hranews  کانال هرانا 🆑
+</div>
+
+## alonews — post 127565
+
+<div align="center">
+  <a href="telegram/content/alonews_127565_1781337177.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خبرنگار الجزیره: حمله پهپادی اسرائیل به شهر آرامتا در شهرستان جزین در جنوب لبنان
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127564
+
+<div align="center">
+  <a href="telegram/content/alonews_127564_1781337178.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈یک مقام ارشد آمریکایی به نیویورک تایمز گفت: «میانجی‌گران و مقامات نظامی ایرانی تأیید کردند که رهبر ایران از توافق راضی است».
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/23 11:12
 ---
 

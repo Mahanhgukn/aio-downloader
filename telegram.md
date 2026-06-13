@@ -7,6 +7,139 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/23 22:23
+---
+
+## VahidOOnLine — post 245353
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️اعضای خانواده سلطنتی بریتانیا روز شنبه ۲۳ خرداد در رژه رسمی تولد پادشاه در لندن شرکت کردند؛ مراسمی نظامی که هر سال به مناسبت تولد رسمی پادشاه بریتانیا برگزار می‌شود.
+به گزارش رویترز، بیش از ۱۴۰۰ سرباز، ۲۰۰ اسب و ۴۰۰ نوازنده در این مراسم حضور داشتند و رژه‌ای گسترده از توان نظامی، مهارت‌های سواره‌نظام و تشریفات سلطنتی را به نمایش گذاشتند.
+اگرچه تولد رسمی چارلز سوم، پادشاه بریتانیا، هر سال در ماه ژوئن (خرداد) جشن گرفته می‌شود، اما او ۱۴ نوامبر (۲۳ آبان) متولد شده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14741
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه های آمریکایی: مراسم تشییع سید علی خامنه ای رهبر سابق جمهوری اسلامی ایران در روز 4 جولای، زمانی که آمریکا روز استقلال را جشن می گیرد، برگزار خواهد کرد.
+@withyashar
+</div>
+
+## pm_afshaa — post 93798
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93798_1781376819.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رسانه‌های اسرائیلی: کابینه امنیتی اسرائیل فردا شب به دلیل توافق بین آمریکا و ایران تشکیل جلسه خواهد داد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## FarsiVOA — post 220614
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیمان گنجی، از بازداشت‌شدگان اعتراضات دی‌ماه ۱۴۰۵، با اتهام محاربه به اعدام محکوم شد. دو معترض محکوم به اعدام هم به زندان قزلحصار منتقل شدند
+</div>
+
+## Persian_Trend_Official — post 16977
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16977_1781376820.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ عکسی از کیم جونگ اون و خودش در تروث سوشال منتشر کرد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16976
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16976_1781376820.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رشیدی کوچی نماینده مجلس: تندروها به زباله دان تاریخ خواهند پیوست
+
+
+👺Phantom
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16975
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16975_1781376821.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📣شعار های امشب امت حزب الله 
+😁
+
+عراقچی حیا کن
+امریکارو رها کن
+
+
+
+👺Phantom
+
+
+📍@persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16974
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16974_1781376823.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روابط عمومی حزب‌الله لبنان ویدیویی از لحظه رهگیری و انهدام یک فروند پهپاد هرون اسرائیلی توسط موشک پدافندی 358 منتشر کرد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## alonews — post 127699
+
+<div align="center">
+  <a href="telegram/content/alonews_127699_1781376824.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کریستی نوام، نماینده ویژه ایالات متحده برای سپر آمریکا، می‌گوید که فکر می‌کند سپر آمریکا «قوی‌تر از ناتو» خواهد بود.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127698
+
+<div align="center">
+  <a href="telegram/content/alonews_127698_1781376827.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈شعار مرگ بر قالیشاه در اغتشاشات میدان ابن سینا در تجمع پایداری‌ها
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/23 22:13
 ---
 

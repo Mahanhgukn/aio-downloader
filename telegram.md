@@ -7,6 +7,53 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/23 03:42
+---
+
+## FoxNewsTwitter — post 342918
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342918_1781309560.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+RT @FoxUSNews: LISTEN: Father of slain teen Austin Metcalf rips those who 'monetized' his son's death, says the victim's family raised over $600,000 while he was silenced under a gag order.
+
+Jeff Metcalf tells Fox News Digital the race-baiting and false narratives were 'despicable' — all for clicks and money off his dead child.
+</div>
+
+## Shin_Persian — post 7005
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sat, 13 Jun 2026 00:03:08 UTC
+
+A little opinion piece I wrote about the Iran situation:
+https://sh1n.org/news/the-deal-the-trap-and-ghalibaf-waiting-behind-the-curtain
+
+ترجمه خودکار فارسی
+
+یادداشت کوتاهی که درباره وضعیت ایران نوشتم:
+https://sh1n.org/fa/news/the-deal-the-trap-and-ghalibaf-waiting-behind-the-curtain
+𝕏 · @shin_persian
+</div>
+
+## alonews — post 127531
+
+<div align="center">
+  <a href="telegram/content/alonews_127531_1781309563.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈اکسیوس:
+برخی در واشنگتن معتقدند حتی اگر توافق اجرایی شود، نتانیاهو ممکن است بازهم بتواند نقش یک اخلالگر را ایفا کند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/23 03:32
 ---
 

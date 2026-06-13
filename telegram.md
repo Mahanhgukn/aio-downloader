@@ -7,6 +7,160 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/24 00:23
+---
+
+## WithYashar — post 14753
+
+
+
+
+## WithYashar — post 14752
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اتاق فایت با شما : میدون ابن سینا درگیری شده
+بین مامورا و تند روهاااا
+میدون ابن سینا رو کامل بستن
+@withyashar
+</div>
+
+## WithYashar — post 14751
+
+
+
+
+## WithYashar — post 14750
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نبویان: آمریکا پیروز شد
+@withyashar
+</div>
+
+## pm_afshaa — post 93827
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سهام ساندیس سقوط کرد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93826
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+من خودم بسیجی‌ام ولی الان بحث بحث وطنه.
+</div>
+
+## Persian_Trend_Official — post 16986
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16986_1781383993.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+۱۰۰ نفر اما پر سر و صدا!
+
+طبق مشاهدات میدانی خبرنگار «انتخاب» در مشهد، جمعیت سازماندهی شده جریان جلیلی، پایداری و بقایای دولت مرحوم رئیسی جهت تجمع علیه مذاکرات و توافق، از صد نفر هم تجاوز نمی‌کند
+
+همزمان، این جریان از تاکتیکی نخ‌نما جهت القای تعداد بالای حامیان خود استفاده کرده است
+
+بدین منظور، دسته های صدنفره را در سه شهر قم، مشهد و تهران سازماندهی کرده و به آن‌ها ماموریت داده تا برای یک ساعت در مقابل تعدادی از نهادها و دفاتر مختلف از جمله دفاتر مراجع تجمع کنند
+</div>
+
+## Dirty_Kids — post 391954
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 شعارها برای تجمعات:
+
+۱_ نتم شده تیری‌جی، کص ننت عراقچی
+
+۲_ مرگ بر سه لاشی، قالی مسعود عراقچی.
+
+۳_ این توافق خونیه، باقر خودش کونیه.
+
+۴_ خایه بخور با سینی/ عباس بچه قینی.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 127748
+
+<div align="center">
+  <a href="telegram/content/alonews_127748_1781383993.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خبرگزاری فارس گرای ادامه شلوغی‌ها داد
+
+
+🔴۸۰ درصد شرکت‌کنندگان توافق را به ضرر کشور می‌دانند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127746
+
+<div align="center">
+  <a href="telegram/content/alonews_127746_1781383994.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈درگیری به روزنامه‌ها کشیده شد
+
+
+🔴دیس و دیسبک دو روزنامه نوبنیاد و سازندگی
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127745
+
+<div align="center">
+  <a href="telegram/content/alonews_127745_1781383994.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈شعار مرگ بر قالیشاه در تجمع پایداری‌ها
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127744
+
+<div align="center">
+  <a href="telegram/content/alonews_127744_1781383996.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈قیافه یه پایدارچی رندوم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127743
+
+<div align="center">
+  <a href="telegram/content/alonews_127743_1781383997.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🤴رضاشاه روحت شاد
+
+
+🔴فقط تو میدونستی این جماعت چه احمقین.
+
+
+✅@AloNews
+</div>
+
+---
 📅 بروزرسانی: 1405/03/24 00:13
 ---
 

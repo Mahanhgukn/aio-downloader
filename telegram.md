@@ -7,6 +7,179 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/24 02:33
+---
+
+## VahidOOnLine — post 245376
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_245376_1781391815.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک کارشناس جمهوری اسلامی در شبکه افق صداوسیما گفت قرار نیست در خاک ایران با آمریکا بجنگیم، بلکه باید جنگ را به خاک آمریکا ببریم. او همچنین افزود جمهوری اسلامی هنوز کارت‌های نظامی و غیرنظامی خود را رو نکرده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14759
+
+<div align="center">
+  <a href="telegram/content/WithYashar_14759_1781391817.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+توافق دیجیتال فردا
+@withyashar
+</div>
+
+## IranIntlTV — post 342159
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342159_1781391820.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دیدار دو تیم مراکش و برزیل در سومین روز رقابت‌های جام جهانی فوتبال در ورزشگاه نیویورک‌نیوجرسی در حال برگزاری است.
+
+گزارش علیرضا مدیری، خبرنگار ایران‌اینترنشنال، از بیرون ورزشگاه محل برگزاری بازی
+@iranintltv
+</div>
+
+## IranIntlTV — post 342158
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342158_1781391822.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک کارشناس جمهوری اسلامی در شبکه افق صداوسیما گفت قرار نیست در خاک ایران با آمریکا بجنگیم، بلکه باید جنگ را به خاک آمریکا ببریم. او همچنین افزود جمهوری اسلامی هنوز کارت‌های نظامی و غیرنظامی خود را رو نکرده است.
+</div>
+
+## FarsiVOA — post 220626
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220626_1781391825.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️هیجان در «نشنال مال» واشنگتن هنگام بازی تیم ملی فوتبال ایالات متحده آمریکا
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 16992
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16992_1781391826.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+متاسفانه من از دشمن هم شانس نیوردم 😄
+بعید میدونم این یارو با این سطح سواد زبان فارسی، سیکل هم داشته باشه، تو همه شبکه اجتماعی هاش فراخوان داده هرکسی سند و مدرکی از من داره براش بفرسته !😄😄😄
+
+اگر بجای پرسه زدن پشت #پارک_دانشجو ، درست رو ادامه میدادی شاید یه چیزی میشدی 😄
+</div>
+
+## Dirty_Kids — post 391978
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✅توم میخوای از مسابقات جام جهانی فوتبال پول دربیاری؟🏆🥇🏆 
+✅کانال ورسوس بت کارش تحلیل و پیش بینی مسابقات جام جهانی به صورت حرفه ای
+💎 
+⚠️توم میتونی از پیش بینی جام جهانی خیلی راحت پول دربیاری فقط کافیه با کانال ورسوس بت همراه شی
+📣 A23 
+🌐ادرس عضویت کانالشون:
+👇 
+📌h…
+</div>
+
+## Dirty_Kids — post 391977
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391977_1781391829.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✅توم میخوای از مسابقات جام جهانی فوتبال پول دربیاری؟🏆🥇🏆
+
+
+✅کانال ورسوس بت کارش تحلیل و پیش بینی مسابقات جام جهانی به صورت حرفه ای
+💎
+
+
+⚠️توم میتونی از پیش بینی جام جهانی خیلی راحت پول دربیاری فقط کافیه با کانال ورسوس بت همراه شی
+📣
+A23
+
+🌐ادرس عضویت کانالشون:
+👇
+
+📌https://t.me/+cod-WdJafPM3OWI0
+
+📌https://t.me/+cod-WdJafPM3OWI0
+</div>
+
+## Dirty_Kids — post 391976
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391976_1781391831.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#بخوابیم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391975
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391975_1781391832.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 توی برزیل یه دختر اومد پرش با طناب انجام بده، اما بعد اینکه مسئولایِ بازی انداختنش پایین، یادشون اومد بهش طناب نبستن و دختر بیچاره فوت میشه.
+
+⚠️ حاوی صحنه دلخراش، اگه بیماری قلبی دارین باز نکنین.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391974
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391974_1781391833.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فوری، یاسمین ولی‌زاده فعال حقوق بشر: شهردار شهر سیاتل آمریکا پاسخ من رو داد و اعلام کرد از این قانون که فیفا ورود پرچم شیروخورشید به داخل ورزشگاه رو در جام جهانی ممنوع کرده حمایت نمیکنه. شهردار رسما تأیید کرد ورود پرچم شیروخورشید به ورزشگاه آزاد شده
+🇮🇷…
+</div>
+
+## Dirty_Kids — post 391973
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391973_1781391834.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فوری، یاسمین ولی‌زاده فعال حقوق بشر:
+
+شهردار شهر سیاتل آمریکا پاسخ من رو داد و اعلام کرد از این قانون که فیفا ورود پرچم شیروخورشید به داخل ورزشگاه رو در جام جهانی ممنوع کرده حمایت نمیکنه.
+شهردار رسما تأیید کرد ورود پرچم شیروخورشید به ورزشگاه آزاد شده
+🇮🇷
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391972
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391972_1781391834.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رائفی پور تخم عرفات:
+مردم شبا نمیومدن فستیوال که یکی بیاد بالا استیج و واسشون آهنگ بخونه و ایناهم پرچم تکون بدن؛
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/03/24 02:23
 ---
 

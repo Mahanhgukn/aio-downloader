@@ -7,6 +7,246 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/23 15:03
+---
+
+## VahidOOnLine — post 245300
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245300_1781350390.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14712
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سازمان UKMTO گزارشی از وقوع یک حادثه در فاصله ۶ مایل دریایی (6NM) در شرق عمان دریافت کرده است.
+
+گزارش شده است که یک کشتی نفت‌کش در بخش جلو و سمت چپ بدنه (Port Bow) مورد اصابت پرتابه ناشناس قرار گرفته است.
+@withyashar
+</div>
+
+## mwarmonitor — post 10821
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔰نخست وزیر پاکستان
+
+🔴ما به توافق صلح بیش از هر زمان دیگری نزدیک هستیم. انتظار می‌رود نهایی‌سازی آن ظرف ۲۴ ساعت آینده انجام شود و پاکستان بلافاصله پس از آن برای امضای الکترونیکی این توافق صلح آماده می‌شود، و سپس مذاکرات فنی در هفته آینده آغاز خواهد شد.
+
+🔴از ایالات متحده آمریکا و جمهوری اسلامی ایران بابت تعهد مستمرشان در طول مذاکرات تشکر می‌کنیم و همچنین قدردانی صمیمانه خود را از برادرانمان در منطقه برای حمایتشان ابراز می‌داریم. ما مطمئن هستیم که این توافق تاریخی صلح، پایه‌ای محکم برای صلح پایدار خواهد بود.
+
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10820
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_10820_1781350391.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حمله سایبری به چهار بانک در ایران
+</div>
+
+## mwarmonitor — post 10819
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_10819_1781350394.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 فوری — هشدار تخلیه به ساکنان لبنان 🔸به ساکنان حاضر در روستاها و شهرک‌های زیر هشدار فوری داده می‌شود: غسانیه، الزراریه، مزرعه کوثرية الرز، صیر غربی 🔸 در پی نقض توافق آتش‌بس از سوی «حزب‌الله تروریستی»، ارتش دفاعی اسرائیل ناچار است علیه آن با قدرت اقدام کند.…
+</div>
+
+## pm_afshaa — post 93756
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93756_1781350396.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴بلومبرگ: جمهوری اسلامی به‌احتمال زیاد در جریان آتش‌بس، سلاح‌های پیشرفته روسی رو به ذخایر تسلیحاتی خودش اضافه کرده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93755
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93755_1781350396.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴با اینکه هنوز حدود دو هفته تا آغاز تابستان باقی مونده، جمهوری اسلامی در برخی استان‌های کشور قطعی‌های 2 تا 4 ساعته برق رو شروع کرده!
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93754
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جزییات کامل مراسم دفن جنازه علی خامنه‌ای به نقل از خبرگزاری فارس:
+
+- روزهای شنبه ۱۳ و یکشنبه ۱۴ تیرماه: مراسم وداع با جنازه در مصلای خمینی.
+- روز دوشنبه ۱۵ تیرماه: مراسم تشییع در تهران.
+روز سه‌شنبه ۱۶ تیرماه: مراسم تشییع در شهر قم.
+- روز پنج‌شنبه ۱۸ تیرماه: مراسم تشییع در مشهد و تدفین در حرم امام‌رضا
+
+
+💧Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93753
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93753_1781350397.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴شهباز شریف، نخست‌وزیر پاکستان:
+آمریکا و ایران با یک چارچوب برای توافق صلح که به ماه‌ها درگیری در خاورمیانه پایان میده، موافقت کردن.
+
+امضای توافق بین ایران و آمریکا به‌صورت الکترونیکی انجام خواهد شد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## mamlekate — post 103701
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📞 الو سلام الان ساعت ۱۲:۱۶ روز شنبه ۲۳ خرداد. الان نیم ساعتی هست که همه ی همراه بانکا قطع شده و کار نمیکنه، معلوم نیست باز چه گوهی دارن میخورن
+۶ تا همراه بانک دارم و هیچکدوم نمیره داخلشون ، اخطار خطای داخلی میاره
+ملی ، صادرات،مسکن،توسعه تعاون،کشاورزی،سپه
+اینارو من رو گوشیم دارم
+
+
+
+📞 اینجا هم قطع شده وسط اوج روز کاری روز شنبه که همه سر کارن. دم مغازه از ساعت ۱۰ کارتای تجارت ، ملی و صادرات همشون قطعه تا الان که هنوزم اینجوریه
+
+یکجا میگن حمله سایبری بوده یکجا میگن بروزرسانی زیرساخت.
+آخه بروزرسانی اونم توی این ساعت؟
+
+
+
+📞 الو اینترنت بانک سامان هم قطع شده. حرف مذاکره شد همه چیو قطع کردن که کسی نتونه پول بزنه خیلی ارز نریزه
+
+
+
+
+📞 درود . وقت خوش. شنیده شدن صدای پرواز هواپیما و صدای تک انفجار امروز شنبه ۲۳ خردا د ۱۴۰۵ ساعت ۱۳:۲۰ شهر همدان
+</div>
+
+## IranIntlTV — post 342050
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342050_1781350398.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## Shin_Persian — post 7012
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sat, 13 Jun 2026 11:30:03 UTC
+
+Jet activity over Baghdad, #Iraq 🇮🇶
+
+ترجمه خودکار فارسی
+
+فعالیت جنگنده‌ها بر فراز بغداد، #Iraq 🇮🇶
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 220574
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220574_1781350399.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل با صدور هشدار فوری از ساکنان غسانیه، زراریه، مزرعه کوثریه الرز و صیر غربیه در جنوب لبنان خواست فوراً خانه‌های خود را ترک کرده و به شمال رود زهرانی بروند.
+
+در این هشدار آمده است که به‌دلیل نقض توافق آتش‌بس از سوی حزب‌الله، ارتش اسرائیل ناچار است با قدرت علیه مواضع این گروه اقدام کند.
+
+ارتش اسرائیل تأکید کرده حضور در نزدیکی نیروها، تأسیسات و تجهیزات جنگی حزب‌الله، جان غیرنظامیان را در معرض خطر قرار می‌دهد.
+@FarsiVOA
+</div>
+
+## RadioFarda — post 158251
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_158251_1781350400.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸شهباز شریف، نخست‌وزیر پاکستان، روز شنبه ۲۳ خرداد اعلام کرد که تهران و واشینگتن بر سر متن نهایی تفاهم‌نامه به توافق رسیده‌اند.
+
+🔸به گفته این مقام عالی‌رتبه پاکستانی که نقش میانجی را میان ایران و آمریکا داشته است، این تفاهم‌نامه در عرض ۲۴ ساعت آینده «به صورت الکترونیکی» امضا خواهد شد.
+
+🔸شریف ادامه داده است که در پی امضای تفاهم‌نامه، دو طرف در هفته جاری پس از تعطیلات آخر هفته میلادی «مذاکرات فنی» خود را آغاز خواهند کرد.
+
+🔸عباس عراقچی، وزیر خارجه جمهوری اسلامی، پیشتر در مصاحبه‌ای تلویزیونی گفته بود که پس از نهایی‌ شدن پیش‌نویس توافق، مراسم امضا به طور «غیر حضوری» و «از راه دور» انجام خواهد شد.
+
+🔸او پس از آن این توضیح را داد که دونالد ترامپ، رئیس جمهور آمریکا، روز پنجشنبه گفت که این مراسم، احتمالاً در یک کشور اروپایی و با حضور جی‌دی ونس برگزار خواهد شد.
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 22457
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22457_1781350401.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴۱۶ نفر از نماینده مجلس، امشب جلوی وزارت خارجه تجمع اعتراضی برقرار می‌کنند.
+
+@IranianMinds
+</div>
+
+## alonews — post 127608
+
+<div align="center">
+  <a href="telegram/content/alonews_127608_1781350402.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 نخست وزیر پاکستان:  ما اکنون به یک توافق صلح نزدیک‌تر از هر زمان دیگری هستیم. 
+🔴با احتمال نهایی‌سازی در ۲۴ ساعت آینده، پاکستان در حال آماده‌سازی برای امضای الکترونیکی توافق صلح بلافاصله پس از آن است 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127607
+
+<div align="center">
+  <a href="telegram/content/alonews_127607_1781350402.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سازمان UKMTO گزارشی از وقوع یک حادثه در فاصله ۶ مایل دریایی (6NM) در شرق عمان دریافت کرده است.
+
+
+🔴گزارش شده است که یک کشتی نفت‌کش در بخش جلو و سمت چپ بدنه (Port Bow) مورد اصابت پرتابه ناشناس قرار گرفته است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/23 14:53
 ---
 

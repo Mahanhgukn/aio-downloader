@@ -7,6 +7,154 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/24 01:03
+---
+
+## WithYashar — post 14756
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عبداللهی، سردبیر خبرگزاری تسنیم:
+احتمال توافق نهایی با آمریکا بسیار بسیار ضعیفه؛ باید برای حمله ناگهانی آماده بود.
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342942
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌Fox News (Twitter/X)
+
+👉 Full story here:
+</div>
+
+## FoxNewsTwitter — post 342941
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342941_1781386389.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+TAXPAYER RISK: Obama Presidential Center's $470M endowment sits at just $1M as subcontractors claim they're owed millions days before grand opening.
+
+The fund was promised as an insurance policy so Chicago taxpayers wouldn't get stuck covering future costs on the 99-year deal. Construction costs have ballooned from $330M to at least $850M.
+
+The Obama Foundation says the center is 'fully funded' and plans to make 'significant investments' in the endowment in coming years — but critics say a promise to raise money later is not the same as having a funded backstop in place.
+</div>
+
+## pm_afshaa — post 93831
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93831_1781386390.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبرگزاری انتخاب: طبق مشاهده‌ خبرنگارمون، جمعیت کسایی که تو مشهد تجمع کردن و مخالف مذاکرات هستن به 100 نفر هم نمیرسه ولی فقط سر و صدا دارن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93830
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93830_1781386390.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شعار امروز تجمعات :
+اگر چیزی امضا شه، مسئول باید کشته شه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 342147
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342147_1781386393.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در حاشیه تجمع اعتراضی ایرانیان در واشینگتن، سیامک آرام، برگزارکننده، به اردوان روزبه، خبرنگار ایران‌اینترنشنال، گفت: «مبارزه متوقف‌شدنی نیست. ایرانیان داخل کشور به شیوه خودشان مبارزه می‌کنند و ما در خارج از کشور نیز به شیوه خود تلاش می‌کنیم صدای آنها را بازتاب دهیم.»
+
+او افزود: «هدف ما این است که این پیام و این مطالبه زنده بماند و توجه افکار عمومی جهان به آن جلب شود تا این مبارزه ادامه پیدا کند.»
+@iranintltv
+</div>
+
+## IranianMinds — post 22501
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22501_1781386394.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تازه اداشو هم در آورد قبل از ترور کردنش...
+بعد دارن باهاش توافق میکنن 😂😂
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22500
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این توافق خونیه، قالیباف خودش کونیه
+</div>
+
+## Dirty_Kids — post 391959
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 شعار برای اعتراضات، پارت ۲: ۱_ سبزی پلو تو دیسه / عراقچی یه کصلیسه‌. ۲_ نونو پنیر و انبه / عباس شده بی پرده. ۳_ باقالی پلو با گردن / سازشگرا رو کردن.
+</div>
+
+## Dirty_Kids — post 391958
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391958_1781386395.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تازه اداشو هم در آورد قبل از شَتَک کردنش...🤣🫢😂
+
+بعد رفتن توافق کردن عرزشیا کوتاه نیایید
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 127758
+
+<div align="center">
+  <a href="telegram/content/alonews_127758_1781386395.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خروج تعدادی از هواپیماهای سوخت‌رسان آمریکایی از فرودگاه بن‌گوریون!
+
+
+🔴تصاویر ثبت‌شده در روز شنبه نشان می‌دهد که شماری از هواپیماهای سوخت‌رسان آمریکایی پس از ماه‌ها حضور، فرودگاه بین‌المللی بن‌گوریون را ترک کرده‌اند.
+
+
+🔴تنها تعداد اندکی از هواپیماهای سوخت‌رسان آمریکایی در محوطه فرودگاه باقی مانده‌اند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127757
+
+<div align="center">
+  <a href="telegram/content/alonews_127757_1781386396.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حسین طاهری مداح در میدان انقلاب: تندروهایی که امروز شلوغ‌کاری کردن هم ردیف طرفدارای پهلوی هستن که شلوغ کردن، باید مطیع رهبر بود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/24 00:53
 ---
 

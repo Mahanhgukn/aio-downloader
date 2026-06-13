@@ -7,6 +7,21 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/23 07:52
+---
+
+## RadioFarda — post 158240
+
+<div align="center">
+  <a href="https://t.me/radiofarda/158240" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📻بشنوید: سرخط خبرها با رادیوفردا، ۲۳ خرداد ۱۴۰۵‌
+
+@RadioFarda
+</div>
+
+---
 📅 بروزرسانی: 1405/03/23 07:42
 ---
 

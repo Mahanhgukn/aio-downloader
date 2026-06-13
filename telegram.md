@@ -7,6 +7,121 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/23 21:33
+---
+
+## VahidOOnLine — post 245338
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_245338_1781373780.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد که زادروز جاویدنام حجت‌الله فیروزی کنار آرامگاهش گرامی داشته شد. او که ۱۸ دی‌ماه در جریان اعتراضات «انقلاب ملی» در محله نظام‌آباد تهران بازداشت شده بود، بر اثر شکنجه در بازداشتگاه جان باخت.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14733
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسرائیل هیوم: اسرائیل ملزم به امضای توافق با ایران نخواهد بود و قادر به دفاع از خود است، اما رفتار آن باید با ایالات متحده هماهنگ شود
+@withyashar
+</div>
+
+## WithYashar — post 14732
+
+<div align="center">
+  <img src="telegram/content/WithYashar_14732_1781373781.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ در تروث : «کتابخانه اوباما، ده سال دیگر، به “مکه” کسانی تبدیل خواهد شد که از آمریکا نفرت دارند.»
+
+دونالد جی. ترامپ
+
+نکته: واژه “Mecca” در زبان انگلیسی در این‌گونه کاربردها به‌صورت استعاری به معنای «مرکز تجمع»، «کانون» یا «مقصد اصلی» است و لزوماً اشاره مذهبی مستقیم ندارد
+@withyashar
+</div>
+
+## IranIntlTV — post 342120
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342120_1781373782.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد که زادروز جاویدنام حجت‌الله فیروزی کنار آرامگاهش گرامی داشته شد. او که ۱۸ دی‌ماه در جریان اعتراضات «انقلاب ملی» در محله نظام‌آباد تهران بازداشت شده بود، بر اثر شکنجه در بازداشتگاه جان باخت.
+</div>
+
+## Persian_Trend_Official — post 16972
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16972_1781373784.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ صداوسیما: یه نفتکش غول‌پیکر از محاصره دریایی آمریکا رد شده است.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16971
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16971_1781373784.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+و در آخر پس از گذشت تقریبا 19 ساعت از آغاز عملیات طلوع شیران اسرائیل، سپاه پاسداران اولین موج موشکی عملیات وعده صادق-3 را حدودا در همین ساعات انجام داد.
+
+ویدیو متعلق به اصابت یک موشک سپاه به نزدیکی یک لانچر سیستم پدافندی گنبد آهنین است که در بین چند ساختمان در یک پارکینگ پنهان شده بود، هر چند جمهوری اسلامی ادعا داشت در این موج یک مقر زیرزمینی فرماندهی کنترل اسرائیل را هدف قرار داده است ولی مدرکی برای اثبات این ادعای خود منتشر ننمود.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 22481
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22481_1781373785.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴قالیباف، عراقچی، استعفاء استعفاء.
+
+@IranianMinds
+</div>
+
+## alonews — post 127692
+
+<div align="center">
+  <a href="telegram/content/alonews_127692_1781373787.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈اسرائیل هیوم: اسرائیل ملزم به امضای توافق با ایران نخواهد بود و قادر به دفاع از خود است، اما رفتار آن باید با ایالات متحده هماهنگ شود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127691
+
+<div align="center">
+  <a href="telegram/content/alonews_127691_1781373787.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خبرگزاری فارس: ترامپ در تلاش است تا یادداشتی بین آمریکا و ایران روز یکشنبه امضا شود، هرچند مقامات ایرانی می‌گویند که توافق نهایی نشده و امضایی در کار نیست.
+
+
+🔴برخی معتقدند او می‌خواهد این اعلامیه با تولدش همزمان شود و آن را به یک پیروزی نمادین سیاسی تبدیل کند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/23 21:23
 ---
 

@@ -7,6 +7,176 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/23 22:33
+---
+
+## VahidOOnLine — post 245354
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_245354_1781377402.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند ویدیویی به ایران اینترنشنال فرستاد و گفت که در محله شهران تهران از حدود ساعت ۱ ظهر ۲۳ خرداد، آب دچار قطعی کامل شد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## mwarmonitor — post 10837
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبرنگار آمیت سگال از کانال ۱۲ اسرائیل به نقل از یک «مقام بسیار ارشد اسرائیلی» درباره توافق در حال شکل‌گیری می‌گوید:
+«این یک توافق مزخرف است.»
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 93799
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93799_1781377404.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴شورای هماهنگی بانک‌های دولتی:
+امروز اختلال در سامانه‌های 4 بانک ناشی از یک حمله سایبری محدود بود، اما هیچ‌گونه نشت اطلاعات یا دسترسی غیرمجاز به داده‌های مشتریان رخ نداده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5663
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5663_1781377404.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🔸 خبر ۲۱
+شنبه ۲۳ خرداد ۱۴۰۵
+
+#خبر۲۱
+@DEJradio
+</div>
+
+## VahidOnline — post 76307
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری فارس، رسانه وابسته به سپاه پاسداران، شامگاه شنبه ۲۳ خرداد اصرار دونالد ترامپ بر امضای یادداشت تفاهم با جمهوری اسلامی در روز یکشنبه را «عجیب» و «فشار نمایشی» خواند.
+
+فارس نوشت: «سرنوشت امضای یکشنبه نه‌فقط یک آزمون فنی برای محتوای تفاهم، بلکه آزمونی برای صداقت و ایستادگی مسئولان ایرانی در برابر فشارهای نمایشی نیز خواهد بود.»
+@VahidOOnLine
+وب‌سایت خبری اکسیوس به نقل از منابع آگاه نوشت که دلیل امضای ویدیویی توافق آمریکا و جمهوری اسلامی، «ملاحظات اجرایی و لجستیکی» و عدم امکان سفر جی‌دی‌ونس به پاکستان است.
+
+اکسیوس نوشت که یکی از دلایل اصلی امضای ویدیویی توافق آمریکا و جمهوری اسلامی این است که ونس در صورت سفر برای امضای توافق، نمی‌توانست قبل از عزیمت ترامپ برای شرکت در اجلاس گروه ۷ در فرانسه در صبح دوشنبه به آمریکا بازگردد.
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 342129
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342129_1781377405.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند ویدیویی به ایران اینترنشنال فرستاد و گفت که در محله شهران تهران از حدود ساعت ۱ ظهر ۲۳ خرداد، آب دچار قطعی کامل شد.
+</div>
+
+## IranIntlTV — post 342128
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342128_1781377407.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهوری آمریکا، اعلام کرد توافق با جمهوری اسلامی روز یکشنبه امضا خواهد شد و پس از آن تنگه هرمز به روی همه کشورها باز می‌شود. او همچنین گفت برخلاف برجام، هیچ پولی به جمهوری اسلامی پرداخت نخواهد شد.
+
+جزییات بیشتر با اردوان روزبه، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## Iliaen — post 4480
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+از عجایب آخرین فصل از کتاب جمهوری اسلامی:
+
+گزارش‌ها از درگیری طرفداران نظام با ماموران در منطقه دروازه شمیران تهران حکایت دارد. برخی از طرفداران نظام می‌گویند خون رهبر آن‌ها فروخته شده و تهدید به خودسوزی کردند، ماموران نیز با تیم آتش‌نشانی در محدوده تجمع آماده‌باش هستند.
+
+@iliaen
+</div>
+
+## FarsiVOA — post 220617
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گوگل کانال‌های حکومتی مرتبط با جمهوری اسلامی در یوتیوب را مسدود کرد
+</div>
+
+## FarsiVOA — post 220616
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در گفت‌وگو با ستار رحمانی، فعال حقوق معلمان و کارگران، به بازتاب سخنرانی فعالان صنفی مستقل در اجلاس جهانی کار پرداختیم؛ جایی که به گفته او، جمهوری اسلامی در سایه این حضور و افشاگری‌ها نتوانست چهره‌ای دموکرات از خود نشان دهد.
+</div>
+
+## FarsiVOA — post 220615
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺سنتکام: نیروهای آمریکایی مسیر ۱۴۱ کشتی تجاری را برای اجرای محاصره دریایی جمهوری اسلامی تغییر دادند
+
+▪️فرماندهی مرکزی ایالات متحده، سنتکام، اعلام کرد نیروهای آمریکایی تا ۲۳ خرداد، در جریان اعمال محاصره دریایی علیه جمهوری اسلامی، مسیر ۱۴۱ کشتی تجاری را تغییر دادند و ۹ کشتی تجاری دیگر را به دلیل عدم تبعیت از دستورها از کار انداخته‌اند.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/centcom-redirects-141-commercial-vessels/8160481.html/?nocach=1
+</div>
+
+## Persian_Trend_Official — post 16979
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16979_1781377408.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مقامات امنیتی اسرائیل به خبرگزاری کان گفتند که ارتش اسرائیل طبق توافق ایالات متحده و ایران از منطقه امنیتی در جنوب لبنان عقب‌نشینی نخواهد کرد و قرار است این موضوع در طول مذاکرات مستقیم در ایالات متحده در حدود یک هفته و نیم آینده با نمایندگان لبنان مورد بحث…
+</div>
+
+## Persian_Trend_Official — post 16978
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16978_1781377409.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایران در این مرحله خواستار عقب‌نشینی اسرائیل از جنوب لبنان شد.
+</div>
+
+## IranianMinds — post 22488
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴یک مقام آمریکایی به شبکه ۱۳ اسرائیل:
+
+این بحث توافق احتمالی مزخرف هست.
+
+@IranianMinds
+</div>
+
+## alonews — post 127700
+
+<div align="center">
+  <a href="telegram/content/alonews_127700_1781377409.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 حمله هوایی اسرائیلی به شهر كفر جوز در جنوب لبنان
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/23 22:23
 ---
 

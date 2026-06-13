@@ -7,6 +7,26 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/24 02:43
+---
+
+## Shin_Persian — post 7023
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sat, 13 Jun 2026 23:12:07 UTC
+
+Jet activity over Khorram Abad, Lorestan Province, Iran
+
+ترجمه خودکار فارسی
+
+فعالیت جت‌ها بر فراز خرم‌آباد، استان لرستان، ایران
+
+𝕏 · @shin_persian
+</div>
+
+---
 📅 بروزرسانی: 1405/03/24 02:33
 ---
 

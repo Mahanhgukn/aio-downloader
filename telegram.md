@@ -7,6 +7,148 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/23 21:53
+---
+
+## pm_afshaa — post 93794
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تجمع عرزشی‌ها با شعار مرگ بر سازشگر 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93793
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تجمع عرزشی‌ها با شعار مرگ بر سازشگر 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93792
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_93792_1781374987.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سر دبیر مشرق شروط رهبری رو انکار کرد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93791
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93791_1781374988.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تجمع عرزشی‌ها با شعار مرگ بر سازشگر
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93789
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93789_1781374991.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴عرزشی‌ها دارن تو تجمعات شبانه علیه قالیباف و عراقچی شعار میدن :
+
+قالیباف، عراقچی/ پس خون رهبرم چی.
+عراقچی، حیا کن / آمریکا رو رها کن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93788
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رادان :هرکس در تجمعات علیه وحدت ملی و‌ مذاکرات شعار دهد، بعنوان تفرقه‌افکن با او برخورد جدی میشود 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93787
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رادان :هرکس در تجمعات علیه وحدت ملی و‌ مذاکرات شعار دهد، بعنوان تفرقه‌افکن با او برخورد جدی میشود
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 342124
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342124_1781374992.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مهدی مهدوی‌آزاد در برنامه «چشم‌انداز» می‌گوید اگر گزارش رویترز درباره برچیده شدن برنامه هسته‌ای جمهوری اسلامی بر اساس توافق احتمالی درست باشد، این پرسش مطرح می‌شود که چرا حکومت سال‌ها پیش چنین توافقی را نپذیرفت و اجازه داد ده‌ها میلیارد دلار از سرمایه ایران از بین برود.
+@iranintltv
+</div>
+
+## Shin_Persian — post 7022
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sat, 13 Jun 2026 18:17:41 UTC
+
+Watching regime fans in 2 groups of pro-deal and anti-deal fighting each other on X is like watching The Purge, except that it's ACTUAL FUN while you're rooting for neither of the side
+
+ترجمه خودکار فارسی
+
+تماشای درگیری طرفداران رژیم در دو گروهِ موافق توافق و مخالف توافق با یکدیگر در X (توییتر سابق) مانند تماشای فیلم «پاکسازی» (The Purge) است، با این تفاوت که واقعاً سرگرم‌کننده است در حالی که طرف هیچ‌کدام از گروه‌ها را نمی‌گیری.
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 220612
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220612_1781374995.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل می‌گوید نیروهایش در ادامه عملیات پاکسازی شبکه گسترده تونل‌های زیرزمینی در ارتفاعات بوفور «نقشه‌هایی تهدیدآمیز» کشف کرده‌اند؛ شبکه‌ای که به گفته ارتش اسرائيل، با طراحی و تأمین مالی جمهوری اسلامی ایران ساخته شده است.
+
+ارتش اسرائیل اعلام کرد در یکی از مسیرهای زیرزمینی، محلی که چندی پیش تروریست‌هایی شناسایی و حذف شده بودند، نقشه‌هایی روی دیوار کشف شد که کنترل بر فراز شهرک‌های شمالی اسرائیل را نشان می‌دهد.
+
+به گفته ارتش اسرائیل، این شبکه از تونل‌ها در منطقه‌ای غیرنظامی و در حدود شش کیلومتری شهر مرزی متولا قرار دارد و حزب‌الله از آن به‌عنوان یک مرکز عملیاتی در جنوب لبنان استفاده می‌کرده است.
+</div>
+
+## Dirty_Kids — post 391914
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391914_1781374997.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عرزشی‌های شیعه‌سان رافضی تندرو خرمسلک ریختن تو تجمعات شبانه دارن عرعر میکنن علیه قالیباف و عراقچی شعار میدن؛
+
+قالیباف، عراقچی/ پس خون رهبرم چی.
+عراقچی، حیا کن / آمریکا رو رها کن.:)))
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/03/23 21:43
 ---
 
@@ -309,8 +451,6 @@ https://bbc.in/4xwxM44
 
 ✅ @AloNews خبر جنگ
 </div>
-
-
 <!-- MSG END -->
 
 <!-- NAV START -->

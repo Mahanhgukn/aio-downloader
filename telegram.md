@@ -7,6 +7,50 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/23 14:42
+---
+
+## WithYashar — post 14711
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نخست‌وزیر پاکستان: متن نهایی توافقنامه صلح بین ایران و آمریکا به دست آمد
+@withyashar
+</div>
+
+## mwarmonitor — post 10815
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 یک منبع آگاه به شبکه العربیه گفته است که امضای تفاهم‌نامه (MoU) بین آمریکا و ایران در ژنو انجام نخواهد شد و به‌جای آن، به صورت غیرحضوری (از راه دور) انجام می‌شود. @mwarmonitor
+</div>
+
+## IranianMinds — post 22456
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22456_1781349161.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴اکانت اسرائیل به فارسی:
+
+تاریخ خلق تصویر: یک سال پیش.
+
+@IranianMinds
+</div>
+
+## alonews — post 127605
+
+<div align="center">
+  <a href="telegram/content/alonews_127605_1781349161.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈یوتیوب صفحهٔ خبرگزاری فارس رو به خاطر تحریم "مسدود" کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/23 14:32
 ---
 

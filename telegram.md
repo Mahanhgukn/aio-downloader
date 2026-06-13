@@ -7,6 +7,254 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/23 20:23
+---
+
+## WithYashar — post 14729
+
+<div align="center">
+  <img src="telegram/content/WithYashar_14729_1781369585.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ در تروث : «توافق باراک حسین اوباما با ایران، یعنی برجام، راهی آسان، هموار و بی‌دردسر برای دستیابی به سلاح هسته‌ای بود؛ سلاحی که ایران شش سال پیش به آن دست پیدا می‌کرد و مدت‌ها پیش از امروز از آن استفاده کرده بود.
+
+توافق من با ایران دقیقاً نقطه مقابل آن است؛ سدی در برابر سلاح هسته‌ای!
+
+در حقیقت، آن‌ها دیگر خواهان سلاح هسته‌ای نیستند و همچنین هرگز به آن دست نخواهند یافت؛ نه از راه خرید، نه از راه ساخت و نه از هیچ راه دیگری.
+
+قرار است این توافق فردا امضا شود و بلافاصله پس از امضای آن، تنگه هرمز به روی همه باز خواهد شد.
+
+روابط ما با ایران بسیار متفاوت و بسیار بهتر از روابطی است که دولت‌های پیشین با آن داشته‌اند.
+
+برخلاف صدها میلیارد دلاری که اوباما به آن‌ها پرداخت کرد، از جمله یک میلیارد و هفتصد میلیون دلار پول نقد، در این توافق هیچ پولی میان طرفین رد و بدل نخواهد شد.
+
+در زمان مناسب، هنگامی که همه‌جا آرام باشد، ما وارد عمل خواهیم شد و بقایای مواد هسته‌ای را که در اعماق کوه‌های عظیم گرانیتی مدفون شده‌اند ــ به لطف بمب‌افکن‌های بی-۲ ما و خلبانان برجسته آن‌ها ــ خارج خواهیم کرد و آن‌ها را رقیق‌سازی و نابود خواهیم ساخت؛ چه در ایران و چه در ایالات متحده.
+
+ما مشتاق همکاری با ایران و با سراسر خاورمیانه در سال‌های آینده هستیم.
+
+امیدواریم این روند به سرعت، آسانی و بدون مشکل به نتیجه برسد.
+
+اگر چنین نشود، ما گزینه نهایی را در اختیار داریم؛ گزینه‌ای که امیدواریم هرگز دوباره نیازی به استفاده از آن نباشد.
+@withyashar
+</div>
+
+## WithYashar — post 14728
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به گزارش تانکر ترکرز
+
+یک نفتکش VLCC دیگر مرتبط با تحریم‌ها با غیرفعال کردن سیگنال ردیابی AIS خود، محاصره نیروی دریایی آمریکا را شکست.
+
+این کشتی با سابقه پنج ساله نقض تحریم‌های OFAC آمریکا مرتبط با تجارت نفت ایران و ونزوئلا، می‌تواند حدود دو میلیون بشکه نفت حمل کند و به عنوان انبار شناور اضافی برای ایران عمل می‌کند.
+@withyashar
+</div>
+
+## VahidOnline — post 76306
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پست ترامپ ترجمه ماشین:
+
+توافق باراک حسین اوباما با ایران، یعنی برجام، مسیری آسان، زیبا و هموار به سوی سلاح هسته‌ای بود؛ سلاحی که ایران شش سال پیش می‌توانست به آن دست یابد و مدت‌ها پیش از حالا از آن استفاده می‌کرد. توافق من با ایران درست نقطه مقابل آن است: دیوارِ جلوگیری از دستیابی به سلاح هسته‌ای!
+
+در واقع، آن‌ها دیگر سلاح هسته‌ای نمی‌خواهند و چنین سلاحی هم نخواهند داشت؛ نه از طریق خرید، نه توسعه، و نه هیچ شکل دیگری از تهیه و تدارک. قرار است این توافق فردا امضا شود و بلافاصله پس از امضا، تنگه هرمز به روی همه باز خواهد بود.
+
+رابطه ما با ایران بسیار متفاوت و بهتر از رابطه‌ای است که دولت‌های پیشین داشته‌اند. برخلاف صدها میلیارد دلار پرداختی اوباما به آن‌ها، از جمله ۱.۷ میلیارد دلار پول نقدِ سبز و سرد، هیچ پولی رد و بدل نخواهد شد.
+
+در زمان مناسب، وقتی همه چیز آرام باشد، ما وارد خواهیم شد و «غبار هسته‌ای» را که در اعماق کوه‌های قدرتمندِ گرانیتیِ فرورفته زیر آفتاب دفن شده است ــ به لطف بمب‌افکن‌های زیبای B-2 ما و خلبانان درخشانشان ــ به دست خواهیم آورد و آن را رقیق‌سازی و نابود خواهیم کرد؛ چه در ایران و چه در ایالات متحده.
+
+ما مشتاق همکاری با ایران و سراسر خاورمیانه در آینده‌ای طولانی هستیم. امیدوارم این روند همگی سریع، آسان و روان پیش برود. اگر چنین نشود، ما گزینه نهایی را در اختیار داریم؛ گزینه‌ای که امیدوارم هرگز دوباره به کار گرفته نشود!
+
+از توجه شما به این موضوع سپاسگزارم!!!
+رئیس‌جمهور دونالد ج. ترامپ
+realDonaldTrump
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 342109
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342109_1781369586.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻تیم ملی فوتبال آمریکا در نخستین بازی خود در جام جهانی، با ارائه نمایشی تهاجمی پاراگوئه را در هم کوبید تا شاگردان پوچتینو از حالا به فکر مراحل حذفی جام باشند.
+
+🔹گزارش و توضیحات علیرضا مدیری، خبرنگار ایران اینترنشنال
+
+@iranintltvsport
+</div>
+
+## Shin_Persian — post 7020
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_7020_1781369587.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn Sat, 13 Jun 2026 16:51:02 UTC POTUS: "Barack Hussein Obama’s Deal with Iran, the JCPOA, was an easy, beautiful, smooth road to a Nuclear Weapon, which Iran would have had six years ago, and would have used long before now. My Agreement…
+</div>
+
+## Shin_Persian — post 7019
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sat, 13 Jun 2026 16:51:02 UTC
+
+POTUS:
+"Barack Hussein Obama’s Deal with Iran, the JCPOA, was an easy, beautiful, smooth road to a Nuclear Weapon, which Iran would have had six years ago, and would have used long before now. My Agreement with Iran is the exact opposite, A WALL TO NO NUCLEAR WEAPON! In fact, they no longer want a Nuclear Weapon, nor will they have one, either through purchase, development, or any other form of procurement. The Deal is scheduled to get signed tomorrow, and immediately after it is signed, the Hormuz Strait is OPEN TO ALL. Our relationship with Iran is a much different and better one than previous Administrations have had. Unlike Obama’s Hundreds of Billions of Dollars in payments to them, including 1.7 Billion Dollars in green, cold cash, no money will exchange hands. At the appropriate time, when all is calm, we will go in and get the Nuclear Dust, buried deep under the powerful sunken granite mountains, thanks to our beautiful B-2 Bombers and their brilliant pilots, and downblend and destroy it, whether in Iran, or the United States. We look forward to working with Iran, and the entire Middle East, long into the future. Hopefully, this process will all work out quickly, easily, and smoothly. If it doesn’t, we have the ultimate alternative, hopefully never to be used again! Thank you for your attention to this matter!!! President DONALD J. TRUMP"
+
+ترجمه خودکار فارسی
+
+رئیس‌جمهور ایالات متحده (POTUS):
+«توافق باراک حسین اوباما با ایران، برجام (JCPOA)، مسیری آسان، زیبا و هموار به سوی سلاح هسته‌ای بود، که ایران باید شش سال پیش به آن دست می‌یافت و مدت‌ها قبل از آن استفاده می‌کرد. توافق من با ایران دقیقاً برعکس آن است، یک دیوار در برابر سلاح هسته‌ای! در واقع، آن‌ها دیگر نه سلاح هسته‌ای می‌خواهند و نه به آن دست خواهند یافت، چه از طریق خرید، توسعه یا هر شکل دیگری از تهیه و تدارک. برنامه‌ریزی شده است که این توافق فردا امضا شود، و بلافاصله پس از امضای آن، تنگه هرمز به روی همگان باز (OPEN TO ALL) است. رابطه ما با ایران بسیار متفاوت و بهتر از آن چیزی است که دولت‌های قبلی داشته‌اند. برخلاف پرداخت‌های صدها میلیارد دلاری اوباما به آن‌ها، از جمله ۱.۷ میلیارد دلار پول نقد سبز و سرد، هیچ پولی رد و بدل نخواهد شد. در زمان مناسب، وقتی همه چیز آرام است، ما وارد خواهیم شد و غبار هسته‌ای را که در عمق کوه‌های گرانیتیِ محکمِ غرق‌شده دفن شده است، به لطف بمب‌افکن‌های زیبای بی-۲ (B-2 Bombers) و خلبانان درخشان‌شان، بیرون آورده و آن را چه در ایران و چه در ایالات متحده، رقیق‌سازی و نابود خواهیم کرد. ما مشتاقانه منتظر همکاری با ایران و کل خاورمیانه در آینده‌ای طولانی هستیم. امیدواریم این فرآیند سریع، آسان و به آرامی پیش برود. اگر این‌طور نشود، ما جایگزین نهایی را داریم، که امیدواریم هرگز دوباره مورد استفاده قرار نگیرد! از توجه شما به این موضوع سپاسگزارم!!! رئیس‌جمهور دونالد جی. ترامپ»
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 220604
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220604_1781369588.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ستاد فرماندهی مرکزی ایالات متحده آمریکا، سنتکام، اعلام کرد در جریان اجرای محاصره دریایی آمریکا علیه جمهوری اسلامی، تاکنون مسیر ۱۴۱ کشتی تجاری را تغییر داده و ۹ شناور را از کار انداخته است.
+
+سنتکام این به‌روزرسانی را در شبکه اجتماعی ایکس همراه با تصویری از پرواز یک هلیکوپتر سی‌هاک از عرشه ناو «یواس‌اس دلبرت دی‌بلک» در دریای عرب منتشر کرده است.
+
+سنتکام به دستور پرزیدنت ترامپ از اواخر فروردین ۱۴۰۵ محاصره دریایی جمهوری اسلامی در آب‌های خلیج فارس را در واکنش به اقدام این رژیم در بستن تنگه هرمز آغاز کرد.
+</div>
+
+## Persian_Trend_Official — post 16963
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16963_1781369588.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حزب‌الله ویدیویی از حمله پهپاد FPV خود به یک خودرو هاموی ارتش اسرائیل در خیام منتشر کرد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16962
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+احمد الشرع، رئیس جمهور سوریه: هنوز افرادی شایعاتی در مورد دخالت سوریه در لبنان پخش می‌کنند.
+
+من معتقدم که این کاملاً نادرست است. ما همواره از پایان جنگ، تقویت نهادهای دولتی، ادغام اقتصادی و آرام کردن اوضاع در لبنان تا حد امکان حمایت می‌کنیم.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16961
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16961_1781369590.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمود نبویان، نائب رئیس کمسیون امنیت ملی مجلس: بند 5 توافق میان ایران و آمریکا آن است که تنگه هرمز به طور کامل و بدون هیچ پیش شرط و محدودیتی باز خواهد شد و ایران اگر پس از امضای آن دوباره در تنگه اختلال ایجاد کند مورد محکومیت شدید بین‌المللی قرار خواهد گرفت.
+
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Dirty_Kids — post 391906
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391906_1781369592.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شاید باورتون نشه ولی این شورت رو دارن میدن ۲ میلیون و ۱۰۰ هزار تومن!
+
+بند کفش خودمونه که لاشیا.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391905
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391905_1781369592.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ویدئویی که از خوش‌چشم، کارشناس صداوسیما داره تو صفحات حاميان حکومت به شدت دست به دست میشه؛
+
+
+علی خامنه‌ای قبل اینکه ترور بشه، یه جلسه‌ای با سران نظام میذاره و ميگه به زودی قراره یه فتنه‌ای بین مسئولین بشه ، اگه باز هم شماهایی که تعدادتون کمه، خوب مقاومت کنید؛ پیروز می‌شیم و جمهوری اسلامی حداقل 30 سال دیگه مشکلی نخواهد داشت.
+
+حالا این صفحات معتقدن این فتنه، همین توافقیه که قالیباف ، پزشکیان ، عراقچی و ... دارن با آمریکا امضا میکنن...
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391904
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391904_1781369594.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 دیشب عرزشیا رفتن جلو در وزارت خارجه، یکیشون میگه: آقای عراقچی خاک بر سرت، بخدا داریم سکته میکنیم، بر پدر و مادرتون لعنت غربگراها😡
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 127670
+
+<div align="center">
+  <a href="telegram/content/alonews_127670_1781369594.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / ترامپ: قرار است توافق با ایران فردا، یکشنبه، امضا شود.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127669
+
+<div align="center">
+  <a href="telegram/content/alonews_127669_1781369595.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تانکر ترکرز: یک نفتکش VLCC دیگر که تحت تحریم‌ها قرار دارد، با غیرفعال کردن سیگنال ردیابی AIS خود، از خط محاصره نیروی دریایی ایالات متحده عبور کرده است.
+
+
+🔴 این کشتی با سابقه پنج سال تحریم‌های OFAC ایالات متحده، با تجارت نفت ایران و ونزوئلا مرتبط است و می‌تواند تقریباً دو میلیون بشکه نفت حمل کند.
+
+
+🔴 این کشتی همچنین می‌تواند به عنوان ذخیره‌ساز شناور نفت مورد استفاده قرار گیرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127668
+
+<div align="center">
+  <a href="telegram/content/alonews_127668_1781369595.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈یک خودرو در شهر کوثاریت السید، جنوب لبنان، هدف پهپاد اسرائیلی قرار گرفت
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/23 20:12
 ---
 

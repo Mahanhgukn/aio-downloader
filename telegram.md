@@ -7,6 +7,139 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/23 15:42
+---
+
+## WithYashar — post 14716
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نماینده مجلس خطاب به عراقچی وزیر امور خارجه:
+مذاکره بعد از حمله نظامی، دیپلماسی نیست، مستعمره شدن است
+@withyashar
+</div>
+
+## mwarmonitor — post 10823
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚠️اطلاعیه رسمی کانال ⚠️ 🔸بدین‌وسیله به اطلاع همراهان گرامی می‌رسد که کانال خبری ما در پلتفرم X (توییتر سابق) راه‌اندازی شد. 🔸از این پس نیز ، آخرین اخبار و تحلیل‌های نظامی، سیاسی و همچنین مسائل اجتماعی ایران و جهان به‌صورت منظم در آن منتشر خواهد شد. 🔸از…
+</div>
+
+## FoxNewsTwitter — post 342928
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342928_1781352756.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"We will find these vicious murderers and drug lords anytime, anyplace, and send them to the depths of hell where they belong."
+
+President Trump issued the warning after announcing that U.S. Southern Command carried out a strike that killed Tren de Aragua leader Niño Guerrero.
+
+Trump says the operation was coordinated with Venezuelan authorities and marks a major blow against the gang that U.S. officials have accused of spreading violence, extortion, drug trafficking, and terror across the region.
+
+With Guerrero dead, Trump is signaling that other cartel and gang leaders are now on notice.
+</div>
+
+## FoxNewsTwitter — post 342924
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+</div>
+
+## FoxNewsTwitter — post 342920
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+History was made Friday night as Team USA rolled past Paraguay 4-1 in its 2026 FIFA World Cup opener in Southern California.
+
+The victory was historic in more ways than one. It was the first time the U.S. had won a World Cup match by three goals since 1930 — when America also defeated Paraguay.
+
+The four-goal outburst also marked the first time the United States has scored at least four goals in a World Cup match. Folarin Balogun, 24, also made history, becoming the first American player since 1930 to score multiple goals in a World Cup game.
+</div>
+
+## FarsiVOA — post 220577
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220577_1781352757.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️بلومبرگ به نقل از شهباز شریف، نخست‌وزیر پاکستان، گزارش داد که توافق صلح میان آمریکا و جمهوری اسلامی ایران احتمالاً ظرف ۲۴ ساعت آینده نهایی خواهد شد.
+
+شریف گفته دو طرف بر سر چارچوب توافقی که هدف آن پایان دادن به جنگ چندماهه در خاورمیانه است، به تفاهم رسیده‌اند و متن نهایی توافق نیز آماده شده است.
+
+به گفته نخست‌وزیر پاکستان، اسلام‌آباد اکنون در حال آماده‌سازی برای امضای الکترونیکی توافق است؛ امضایی که انتظار می‌رود ظرف ۲۴ ساعت انجام شود. پس از آن، گفت‌وگوهای فنی میان طرف‌ها در هفته آینده دنبال خواهد شد.
+
+پاکستان در ماه‌های گذشته نقش میانجی را در مذاکرات ایالات متحده و جمهوری اسلامی ایفا کرده است. شریف این تحول را نشانه نزدیک شدن طرف‌ها به پایان جنگ دانسته است.
+</div>
+
+## BBCPersian — post 283676
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تیم ملی ایران چهار روز دیگر در نخستین مسابقه خود در جام جهانی ۲۰۲۶ مقابل نیوزلند در لس‌آنجلس به میدان می‌رود.
+
+این تیم که کمپ خود را برای دور زدن محدودیت‌های صدور ویزای آمریکا به شهر مرزی تیخوانا در مکزیک منتقل کرده، چند روزی است مشغول آماده‌سازی و تمرین است.
+
+آمریکا به ۱۵ عضو کاروان ورزشی تیم ملی فوتبال ایران در جام جهانی ویزای ورود به کشورش را نداد و شنیده‌ها درباره «صدور ویزا برای نیمی از آنها» هنوز رنگ واقعیت نگرفته است.
+
+مهدی محمدنبی، سرپرست کاروان تیم ملی که خود از این دسته است، گفت: «رئیس فیفا نتوانسته به وعده‌هایش برای تأمین دسترسی کامل فدراسیون فوتبال ایران به سه بازی تیم در ایالات متحده عمل کند.»
+📸 Getty
+@BBCPersian
+</div>
+
+## BBCPersian — post 283670
+
+
+
+
+## Dirty_Kids — post 391881
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391881_1781352757.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شمخانی وقتی میبینه هم توافق شد هم اورانیوم رو دادن
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391880
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391880_1781352758.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+توافق صلح آمریکا و ایران تا ۲۴ ساعت آینده نهایی می‌شود
+
+شهباز شریف، نخست‌وزیر پاکستان:
+
+«ما بیش از هر زمان دیگری به توافق صلح نزدیک هستیم. با توجه به اینکه احتمالاً نهایی شدن آن در ۲۴ ساعت آینده پیش‌بینی می‌شود، پاکستان در حال آماده‌سازی برای امضای الکترونیکی توافق‌نامه صلح بلافاصله پس از آن است و پس از آن مذاکرات فنی در هفته آینده برگزار خواهد شد.
+ما مایلیم از ایالات متحده آمریکا و جمهوری اسلامی ایران به خاطر تعهد مداومشان در طول مذاکرات تشکر کنیم و از برادرانمان در منطقه به خاطر حمایتشان صمیمانه قدردانی می‌کنیم. ما اطمینان داریم که این توافق‌نامه صلح تاریخی، پایه محکمی برای صلح پایدار ایجاد خواهد کرد.»
+﻿
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 127615
+
+<div align="center">
+  <a href="telegram/content/alonews_127615_1781352758.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈لحظه هدف قرار گرفتن راکت انداز Tos-1A روسی توسط پرتابه FPV اوکراینی
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/23 15:32
 ---
 

@@ -7,6 +7,180 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/23 12:12
+---
+
+## VahidOOnLine — post 245269
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_245269_1781340160.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد که شامگاه ۲۲ خرداد در دزفول، یک شهروند معترض روی دیوار شعار «زن مرد آزادی، شاه میهن آبادی» را نوشت.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## DEJradio — post 5641
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️
+🚀 سرنگونی دوبارۀ پهپادهای جمهوری اسلامی توسط آمریکا؛ تنگه هرمز باز است
+
+ستاد فرماندهی مرکزی ارتش آمریکا روز شنبه اعلام کرد نیروهای این کشور چندین پهپاد تهاجمی جمهوری اسلامی را که به سمت کشتی‌های تجاری در تنگۀ هرمز در حرکت بود، سرنگون کرده‌اند.
+به گزارش سنتکام، همه این پهپادها در بامداد شنبه نابود شد و عبور کشتی‌ها از تنگۀ هرمز بدون مشکل ادامه دارد.
+در بیانیۀ سنتکام تأکید شد که آبراه هرمز برای عبور و مرور بین‌المللی تجاری، همچنان باز است.
+
+#پهپاد #تنگه_هرمز #سنتکام
+@DEJradio
+</div>
+
+## IranIntlTV — post 342021
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342021_1781340163.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد که شامگاه ۲۲ خرداد در دزفول، یک شهروند معترض روی دیوار شعار «زن مرد آزادی، شاه میهن آبادی» را نوشت.
+</div>
+
+## IranianMinds — post 22446
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22446_1781340165.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دیشب توی بازی آمریکا تو جام جهانی «لانا رودز» و «میا خلیفه» هم توی ورزشگاه حضور داشتن.
+
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 283654
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻وزارت علوم ایران از تدوین آیین‌نامه استفاده از هوش مصنوعی در دانشگاه‌ها خبر داد
+
+معاون آموزشی وزارت علوم، تحقیقات و فناوری از تدوین آیین‌نامه‌ای برای نحوه استفاده از هوش مصنوعی در دانشگاه‌ها خبر داده است.
+
+ابوالفضل واحدی با اشاره به این که استفاده از هوش مصنوعی در برخی موارد می‌تواند به «سوءاستفاده منجر شود، به‌ویژه در امتحانات مجازی»، گفت که در شرایط «نبود نظارت کافی، برخی دانشجویان ممکن است از این ابزار برای دسترسی به پاسخ‌ها استفاده کنند.» موضوعی که به گفته او در بررسی‌ها هم دیده شده است.
+
+او همچنین افزود: «حذف کامل هوش مصنوعی نه ممکن است و نه مطلوب، اما باید با تدوین کدهای اخلاقی، تقویت نظارت و ایجاد سازوکارهای کنترلی، استفاده صحیح از آن مدیریت شود.»
+
+https://bbc.in/4onLYbc
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 391867
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391867_1781340165.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این یارو فیروزآبادی حقیقتاً یکی از ترازترین انتصابات آخوندها بود. بدون حتی یک روز سابقه‌ی نظامیگری بهش درجه‌ی سرلشکری داده بودن و کرده بودنش رئیس ستاد کل نیروهای مسلح، اونم برای ۲۷ سال.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391866
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+درس خوندن تو خارج نعمته @Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391865
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391865_1781340166.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+درس خوندن تو خارج نعمته
+
+
+@Dirty_Kids 👻
+</div>
+
+## Hranews — post 113572
+
+<div align="center">
+  <img src="telegram/content/Hranews_113572_1781340167.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش تکمیلی؛ افزایش شمار اعدام شدگان زندان قزلحصار کرج به دو تن
+
+
+❗️
+❗️
+❗️
+❗️
+❗️ – با احتساب یک زندانی دیگر که سحرگاه امروز شنبه ۲۳ خردادماه، در زندان قزلحصار کرج #اعدام شده است، تعداد اعدام شدگان روز جاری در این زندان به دو تن افزایش یافت.
+
+به گزارش خبرگزاری هرانا، ارگان خبری مجموعه فعالان حقوق بشر در ایران، امروز شنبه ۲۳ خرداد ۱۴۰۵، دو زندانی در زندان قزلحصار کرج اعدام شدند.
+
+علاوه بر اجرای حکم سیداکبر بنی‌هاشم، حکم اعدام یک زندانی دیگر نیز در این زندان اجرا شده است. هویت وی، امیرعباس دکاوند توسط هرانا احراز شده است.
+
+ادامه مطلب
+
+#امیرعباس_دکاوند
+
+↘️
+@hranews_bot تماس ✉️ -  @Hranews  کانال هرانا 🆑
+</div>
+
+## alonews — post 127578
+
+<div align="center">
+  <a href="telegram/content/alonews_127578_1781340167.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پهپادهای اوکراینی به پالایشگاه‌های نفت TANECO و TAIF-NK روسیه حمله کردن
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127577
+
+<div align="center">
+  <a href="telegram/content/alonews_127577_1781340168.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈انفجار مهیب تانکر حامل سوخت قاچاق در مکزیک
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127576
+
+<div align="center">
+  <a href="telegram/content/alonews_127576_1781340170.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رئیس کمیسیون امنیت ملی مجلس: طرح مدیریت تنگه هرمز یک اقدام ماندگار مثل ملی شدن صنعت نفت است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127575
+
+<div align="center">
+  <a href="telegram/content/alonews_127575_1781340172.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 وسط اتوبان حکیم تهران، پیاده موبایل یه نفر رو دزدیدن
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/23 12:02
 ---
 

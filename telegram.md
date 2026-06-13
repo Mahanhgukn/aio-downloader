@@ -7,6 +7,202 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/24 00:03
+---
+
+## pm_afshaa — post 93824
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93824_1781382814.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴آخوند نبویان، نایب رئیس کمیسیون امنیت ملی: با این توافق جمهوری اسلامی مستعمره آمریکا خواهد شد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93823
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93823_1781382815.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴آخوند نبویان: طبق متن توافق، همه چیز از دست جمهوری اسلامی خارج خواهد شد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93822
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_93822_1781382817.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+با این حرفا به خودشونم دیس میدن
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## kianmeli1 — post 87975
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87975_1781382817.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴احتمالا با وضعیت امشب در مشهد و قم و تهران اگر مختار زنده بود میگفت
+زبیریان علیه امام عصر شوریده اند
+مالک اشتر به میدان برو و تار و مارشان کن
+https://t.me/kianmeli1
+</div>
+
+## IranianMinds — post 22495
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تو رستم تهمتنی امضا بزن که خوب میزنی
+</div>
+
+## IranianMinds — post 22494
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22494_1781382818.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 عرزشیا درخواست تجمع برای نجات مجتبی از اسارت قالیباف و پزشکیان رو دادن.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22493
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+داداش من بسیجی ام یه ماه دارم تو خیابون پرچم دستم میگیرم تکون میدم رهبرمم هنوز خاک نشده بعد این حرومیا رفتن توافق کردن
+</div>
+
+## IranianMinds — post 22492
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اقا نظرتون چیه بریم توی نیرو سرکوب ثبت نام کنیم اعتراضات رو سرکوب کنیم؟
+</div>
+
+## IranianMinds — post 22491
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22491_1781382818.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 حجت‌السلام نبویان: طبق متن توافق، ما مستعمره آمریکا میشیم. آقای عراقچی هرچی آمریکا گفته رو گفته چشم، رد نکرده.
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 391950
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرزند جمهوری اسلامی و جان فدای اسلام
+
+عبدالله محمدی ۸۰ ساله، ۸۰ ساله، ۸۰ ساله ۲۴ خرداد قم عزیز
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391949
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391949_1781382820.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ریدممممم، عرزشیا چه دیسی به خودشون میدن😂
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391948
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بعضی از کانال‌های حکومتی قحبه خبر از بستن کانال‌های خبری‌ مخالفان تفاهم‌نامه در اپ‌های کیری بله مله می‌دن و خود بله مله رو هم مختل کردن،
+
+ضمن اینکه خبر از گلاویزی بین کسمغزای شیعه‌سان کف خیابونی با نیروهای امنیتی روافظ هزارپدر در شهرهای تهران، مشهد و قم دادن‌.
+</div>
+
+## Dirty_Kids — post 391947
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391947_1781382820.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عاقا موشتبی بَمِرده،رهبر مویوم
+
+همه چیز هم الکترونیکی امضا موکونوم
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 127737
+
+<div align="center">
+  <a href="telegram/content/alonews_127737_1781382821.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ملت درحال تماشای درگیری تندروها و امنیتی‌ها
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127736
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرزند جمهوری اسلامی و جان فدای انقلاب
+
+عبدالله محمدی ۸۰ ساله ۸۰ ساله ۸۰ ساله ۲۴ خرداد قم عزیز
+
+[@AloTweet]
+</div>
+
+## alonews — post 127735
+
+<div align="center">
+  <a href="telegram/content/alonews_127735_1781382821.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈شعار مرگ بر قالیشاه در میدان انقلاب
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127734
+
+<div align="center">
+  <a href="telegram/content/alonews_127734_1781382821.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈بنر عجیب دیده شده در شلوغی‌های امشب
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/23 23:53
 ---
 

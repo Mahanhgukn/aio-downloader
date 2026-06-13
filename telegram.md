@@ -7,6 +7,52 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/23 19:23
+---
+
+## mwarmonitor — post 10833
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ قرار است در حاشیه نشست گروه هفت (G7) هفته آینده در اویانِ فرانسه، با رهبران قطر، مصر و امارات متحده عربی دیدار کند و انتظار می‌رود موضوع ایران محور اصلی گفت‌وگوها باشد - نیویورک تایمز
+
+@mwarmonitor
+</div>
+
+## DEJradio — post 5658
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5658_1781365982.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺📷 در جریان جنگ ۴۰ روزه پایگاه هفتم شکاری شیراز بمباران شد. بخش عمده ادوات و تجهیزات مستقر در این پایگاه از بین رفت. این پایگاه شامگاه پنجشنبه ۱۵ اسفند بمباران شد و در طول جنگ بارها هدف حمله قرار گرفت.
+
+#جنگ۴۰روزه #شیراز
+@DEJradio
+</div>
+
+## IranianMinds — post 22474
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ولی آخرش هم جنگ شد هم مذاکره کردن و هم اورانیومارو دارن تحویل میدن :))
+
+@IranianMinds
+</div>
+
+## alonews — post 127660
+
+<div align="center">
+  <a href="telegram/content/alonews_127660_1781365982.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ادعای شبکه الجزیره به نقل از سخنگوی وزارت خارجه پاکستان گزارش داد که مراسم «امضای الکترونیکی» توافق میان آمریکا و جمهوری اسلامی یکشنبه ۲۳ خرداد برگزار خواهد کرد. به گفته او، پاکستان میزبان این مراسم خواهد بود و مراسم از طریق «ارتباط ویدیویی و آنلاین» برگزار می‌شود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/23 19:13
 ---
 

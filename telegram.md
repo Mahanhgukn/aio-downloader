@@ -7,6 +7,70 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/24 00:43
+---
+
+## IranIntlTV — post 342145
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342145_1781385209.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻تیم ملی فوتبال سوئیس در اولین مسابقه خود در جام جهانی ۲۰۲۶ برابر قطر با تساوی یک بر یک متوقف شد.
+
+🔹شاگردان یاکین با گل دقیقه ۱۷ امبولو از روی نقطه پنالتی از عنابی‌ها پیش افتادند اما شاگردان لوپتگی با گل دقیقه ۵+۹۰ بوعلام خوخی یک امتیاز طلایی را کسب کردند.
+
+🔹به این ترتیب هر چهار تیم کانادا، سوئیس، قطر و بوسنی و هرزگوین با یک امتیاز به کار خود در دور اول بازی‌های گروه B پایان دادند.
+
+@iranintltvsport
+</div>
+
+## FarsiVOA — post 220621
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220621_1781385209.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️حاشیه‌های روز دوم و روز سوم جام جهانی ۲۰۲۶
+@FarsiVOA
+</div>
+
+## Dirty_Kids — post 391957
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 شعارها برای تجمعات: ۱_ نتم شده تیری‌جی، کص ننت عراقچی ۲_ مرگ بر سه لاشی، قالی مسعود عراقچی. ۳_ این توافق خونیه، باقر خودش کونیه. ۴_ خایه بخور با سینی/ عباس بچه قینی. @Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391956
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+با فیلترشکن «الله و عمامه» میتونید وصل بشید به آی‌پی قم و وارد روبیکا و بله بشید
+
+اینو وارد کنید👇
+
+90.90.ko3e.nanat.arzeshi
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 127753
+
+<div align="center">
+  <a href="telegram/content/alonews_127753_1781385211.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈واشنگتن پست:
+قطر به ایران پیشنهاد یک معامله مخفی علیه اسرائیل و آمریکا را داد که بر اساس آن ایران به قطر حمله نخواهد کرد و در عوض قطر تولید گاز را متوقف خواهد کرد تا قیمت انرژی را افزایش دهد و غرب را برای پایان دادن به جنگ تحت فشار قرار دهد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/24 00:33
 ---
 

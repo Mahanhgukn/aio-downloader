@@ -7,6 +7,238 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/23 22:43
+---
+
+## VahidOOnLine — post 245356
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245356_1781378014.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک منبع ارشد دیپلماتیک به روزنامه اسرائیل هیوم گفت اگر مذاکرات جمهوری اسلامی و آمریکا پس از تفاهم شکست بخورد و جمهوری اسلامی به فعالیت‌های نظامی خود ادامه دهد، موضوع تغییر حکومت در تهران روی میز تصمیم‌گیران در واشینگتن قرار خواهد گرفت.
+
+او تاکید کرد دونالد ترامپ، رییس‌جمهوری آمریکا، به بنیامین نتانیاهو، نخست‌وزیر اسرائیل، وعده داده است که موضوع هسته‌ای، موشک‌ها و حزب‌الله در توافق مورد رسیدگی قرار خواهد گرفت و در غیر این صورت توافقی حاصل نخواهد شد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245355
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245355_1781378015.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک منبع ارشد دیپلماتیک به روزنامه اسرائیل هیوم گفت که در صورت توافق آمریکا و جمهوری اسلامی برای پایان جنگ، اسرائیل ملزم به امضای آن نیست. او گفت اسرائیل همچنان حق دفاع از خود را خواهد داشت و قادر خواهد بود از خود در برابر تهدیدها دفاع کند اما اقداماتش باید با آمریکا هماهنگ شود.
+
+به گفته این منبع، دونالد ترامپ، رییس‌جمهوری آمریکا، به بنیامین نتانیاهو، نخست‌وزیر اسراییل، وعده داده است که موضوع هسته‌ای، موشک‌ها و حزب‌الله در توافق مورد رسیدگی قرار خواهد گرفت و در غیر این صورت توافقی حاصل نخواهد شد.
+
+این منبع افزود اگر مذاکرات شکست بخورد و جمهوری اسلامی به فعالیت‌های نظامی خود ادامه دهد، موضوع تغییر حکومت در تهران روی میز تصمیم‌گیران در واشینگتن قرار خواهد گرفت.
+
+این منبع تاکید کرد هماهنگی با آمریکا عمدتا به تعهدات احتمالی واشینگتن در قبال دیگر طرف‌های منطقه مربوط می‌شود.
+
+او در پاسخ به پرسشی درباره ازسرگیری احتمالی برنامه موشکی جمهوری اسلامی گفت هدف توافق، جلوگیری از چنین وضعیتی است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342940
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌Fox News (Twitter/X)
+
+👉 Full story here:
+</div>
+
+## FoxNewsTwitter — post 342939
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342939_1781378016.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+World Cup tourists fall in love with middle America — raving about Waffle House at 1 a.m., Buc-ee's gas stations, and strangers driving them to stadiums in the rain. Oxford Economics expects 1.24 million international visitors for the tournament, and their viral posts are showcasing a side of the country most foreign media never covers.
+</div>
+
+## IranIntlTV — post 342131
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342131_1781378017.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک منبع ارشد دیپلماتیک به روزنامه اسرائیل هیوم گفت اگر مذاکرات جمهوری اسلامی و آمریکا پس از تفاهم شکست بخورد و جمهوری اسلامی به فعالیت‌های نظامی خود ادامه دهد، موضوع تغییر حکومت در تهران روی میز تصمیم‌گیران در واشینگتن قرار خواهد گرفت.
+
+او تاکید کرد دونالد ترامپ، رییس‌جمهوری آمریکا، به بنیامین نتانیاهو، نخست‌وزیر اسرائیل، وعده داده است که موضوع هسته‌ای، موشک‌ها و حزب‌الله در توافق مورد رسیدگی قرار خواهد گرفت و در غیر این صورت توافقی حاصل نخواهد شد.
+https://iranintl.com/202606133783
+</div>
+
+## IranIntlTV — post 342130
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342130_1781378018.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک منبع ارشد دیپلماتیک به روزنامه اسرائیل هیوم گفت که در صورت توافق آمریکا و جمهوری اسلامی برای پایان جنگ، اسرائیل ملزم به امضای آن نیست. او گفت اسرائیل همچنان حق دفاع از خود را خواهد داشت و قادر خواهد بود از خود در برابر تهدیدها دفاع کند اما اقداماتش باید با آمریکا هماهنگ شود.
+
+به گفته این منبع، دونالد ترامپ، رییس‌جمهوری آمریکا، به بنیامین نتانیاهو، نخست‌وزیر اسراییل، وعده داده است که موضوع هسته‌ای، موشک‌ها و حزب‌الله در توافق مورد رسیدگی قرار خواهد گرفت و در غیر این صورت توافقی حاصل نخواهد شد.
+
+این منبع افزود اگر مذاکرات شکست بخورد و جمهوری اسلامی به فعالیت‌های نظامی خود ادامه دهد، موضوع تغییر حکومت در تهران روی میز تصمیم‌گیران در واشینگتن قرار خواهد گرفت.
+
+این منبع تاکید کرد هماهنگی با آمریکا عمدتا به تعهدات احتمالی واشینگتن در قبال دیگر طرف‌های منطقه مربوط می‌شود.
+
+او در پاسخ به پرسشی درباره ازسرگیری احتمالی برنامه موشکی جمهوری اسلامی گفت هدف توافق، جلوگیری از چنین وضعیتی است.
+https://iranintl.com/202606134290
+</div>
+
+## Persian_Trend_Official — post 16981
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16981_1781378018.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دقایقی دیکه لایو داریم
+</div>
+
+## RadioFarda — post 158276
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸برخی رسانه‌های داخل ایران تصاویری از تجمع برخی طرفداران حکومت در شامگاه شنبه را منتشر کرده‌اند که در مخالفت با امضای توافق احتمالی با آمریکا علیه برخی مقام‌های جمهوری اسلامی شعار می‌دهند.
+
+🔸در یکی از این تجمعات که در میدان ابن سینا در تهران برپا شده، تجمع‌کنندگان علیه وزیر خارجه و رئیس مجلس شورای اسلامی شعارهایی مانند «عراقچی حیا کن مملکت رو رها کن» و «قالیباف، عراقچی / پس خون رهبرم چی؟» سر داده‌اند.
+
+🔸برخی رسانه‌های نزدیک به اصلاح‌طلبان این افراد را «نزدیکان به جبهه پایداری» معرفی کرده‌اند.
+
+🔸خبرگزاری دانشجو نیز عکس‌هایی از یک تجمع در مشهد منتشر کرده که در آن‌ها پلاکاردهایی در مخالفت با توافق و همچنین انتقاد تند از مذاکره‌کنندگان دیده می‌شود.
+
+@RadioFarda
+</div>
+
+## Dirty_Kids — post 391921
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391921_1781378019.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چندتا از نماینده‌های قم و تهران به مخالف‌های توافق، فراخوان دادن و گفتن حالا که اینجور شد، همگی بریزیم بیرون. @Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391920
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391920_1781378019.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تیپ رسمی و درست و در شأن یه کشور با اصالت همچین چیزیه آقای قلعه‌نویی
+تازه ساعتت هم پیداست
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391919
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391919_1781378020.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏با آل علی هرکه در افتاد پیروز شد،نصب پرچم اسراییل بالای کلمه یاحسین🤣
+
+#لبنان
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391917
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چندتا از نماینده‌های قم و تهران به مخالف‌های توافق، فراخوان دادن و گفتن حالا که اینجور شد، همگی بریزیم بیرون.
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 127706
+
+<div align="center">
+  <a href="telegram/content/alonews_127706_1781378020.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈گروه‌های تندرو و افراطی اعلام کردن اگه مسئولین توافق کنن، انقد میان تو خیابون تا جمهوری اسلامی سرنگون بشه.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127705
+
+<div align="center">
+  <a href="telegram/content/alonews_127705_1781378020.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈هم اکنون در تجمعات تندروها شعار عراقچی، قالیباف استعفا، استعفا! 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127704
+
+<div align="center">
+  <a href="telegram/content/alonews_127704_1781378021.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈هم اکنون در تجمعات تندروها شعار عراقچی، قالیباف استعفا، استعفا!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127703
+
+<div align="center">
+  <img src="telegram/content/alonews_127703_1781378023.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قمار بازه؟ بچه بازه؟ کصکشه؟
+
+این ده شب رو میخواد امام حسینی باشه
+
+[@AloTweet]
+</div>
+
+## alonews — post 127702
+
+<div align="center">
+  <a href="telegram/content/alonews_127702_1781378024.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈شبکه اسراییلی کان به نقل از منابع آگاه: ارتش برای توقف عملیات زمینی در لبنان به عنوان بخشی از توافقی که در حال شکل‌گیری میان واشنگتن و تهران است آماده می‌شود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127701
+
+<div align="center">
+  <a href="telegram/content/alonews_127701_1781378024.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴یه عمر می‌گفتیم چپ نفهمید ، ولی اینطور نیست.
+
+
+🤔چپ مستقیما از جمهوری اسلامی پول میگیره که اوپوزیسیون رو تخریب کنه.
+
+
+✅@AloNews
+</div>
+
+---
 📅 بروزرسانی: 1405/03/23 22:33
 ---
 

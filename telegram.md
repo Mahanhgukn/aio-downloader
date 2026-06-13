@@ -7,6 +7,209 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/23 20:12
+---
+
+## VahidOOnLine — post 245329
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245329_1781368972.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ رئیس مرکز اطلاع‌رسانی و روابط عمومی وزارت آموزش و پرورش، روز شنبه ۲۳ خرداد اعلام کرد که با توجه به همزمانی امتحانات نهایی مدارس با مراسم تشییع علی خامنه‌ای، رهبر پیشین جمهوری اسلامی در شهرهای تهران، قم و مشهد، موضوع تغییر زمان این امتحانات در دستور بررسی قرار گرفته است.
+
+مراسم تشییع خامنه‌ای قرار است طی شش روز، از ۱۳ تا ۱۸ تیرماه برگزار شود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## IranIntlTV — post 342108
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342108_1781368972.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تیتر اول با نیوشا صارمی، شنبه ۲۳ خرداد
+@iranintltv
+</div>
+
+## Shin_Persian — post 7018
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_7018_1781368973.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sat, 13 Jun 2026 16:39:43 UTC
+
+CENTCOM forces have redirected 141 commercial vessels and disabled 9 to enforce the blockade against Iran in the Arabian Sea, according to a recent update from USS Delbert D. Black.
+
+Source: @CENTCOM
+https://x.com/CENTCOM/status/2065836478429606070
+
+ترجمه خودکار فارسی
+
+نیروهای فرماندهی مرکزی ایالات متحده (سنتکام - CENTCOM) طبق آخرین به‌روزرسانی ناو یو‌اس‌اس دلبرت دی. بلک، برای اعمال محاصره علیه ایران در دریای عرب، ۱۴۱ فروند کشتی تجاری را تغییر مسیر داده و ۹ فروند را متوقف کرده‌اند.
+
+منبع: @CENTCOM
+https://x.com/CENTCOM/status/2065836478429606070
+
+𝕏 · @shin_persian
+</div>
+
+## DW_Farsi — post 125934
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125934_1781368974.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶الجزیره: اسرائیل از توافق آمریکا و ایران نگران است و به پایان جنگ تمایلی ندارد
+
+بر اساس گزارش الجزیره، اسرائیل از توافق احتمالی میان آمریکا و ایران به‌شدت نگران است و تمایلی به توافقی که به جنگ پایان دهد ندارد. در این گزارش آمده هدف راهبردی اسرائیل فراتر از یک توافق موقت است و تل‌آویو توافقی را که به حفظ ساختار فعلی حکومت در ایران بینجامد، مطلوب نمی‌داند.
+
+در این گزارش آمده است نگاه اسرائیل به جنگ، صرفا متوقف کردن درگیری یا رسیدن به یک تفاهم محدود با تهران نیست.
+
+الجزیره می‌گوید از نگاه تل‌آویو، هدف راهبردی گسترده‌تر است و به همین دلیل، هر توافقی که فقط جنگ را متوقف کند اما تغییری در ساختار قدرت در ایران ایجاد نکند، برای اسرائیل رضایت‌بخش نخواهد بود.
+
+این گزارش همچنین می‌گوید بنیامین نتانیاهو همچنان جنوب لبنان را نیز در محاسبات خود دارد.
+
+الجزیره در ادامه نوشته این موضوع می‌تواند در انتخابات نقش تعیین‌کننده داشته باشد.
+
+@dw_farsi
+</div>
+
+## RadioFarda — post 158269
+
+<div align="center">
+  <a href="https://t.me/radiofarda/158269" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📻بشنوید: ایستگاه ۱۹ با رادیوفردا، ۲۳ خرداد ۱۴۰۵
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 22479
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22479_1781368975.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴دیده شده تو تجمعات شبانه؛
+
+همسرم به فدای جمهوری‌اسلامی‌ایران.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22478
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22478_1781368975.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فردا ۲۴ خرداد تولد ۸۰ سالگی ترامپه
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22477
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🟢 در تورنومنت 2.5 میلیاردی رومابت شرکت کنید ، فقط کافیست شرط های جام جهانی را در رومابت ثبت کنید 
+👇
+👇
+
+
+🇪🇺 https://trentivo6402.bar
+</div>
+
+## IranianMinds — post 22476
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22476_1781368976.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔥 تورنومنت ۲.۵ میلیارد تومانی رومابت آغاز شد! 🔥
+
+مسابقات جام جهانی 2026 را در رومابت پیش‌بینی کنید، امتیاز جمع کنید و برای سهمی از جایزه بزرگ ۲.۵ میلیارد تومانی رقابت کنید 😍🏆
+
+هر پیش‌بینی ، شما را یک قدم به صدر جدول و جوایز ویژه نزدیک‌تر می‌کند 🚀
+
+⏳ فرصت را از دست ندهید ؛ هیجان واقعی جام جهانی را با رومابت تجربه کنید!
+
+🆔 @RomaBet_official
+┅━━━━━━━━━━━┅
+🔰 لینک سایت جهت ورود :
+🌐 RomaBet.tournament
+</div>
+
+## Hranews — post 113589
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اجرای حکم حبس؛ سهیلا مطاعی راهی زندان شد
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– امروز شنبه ۲۳ خردادماه، سهیلا مطاعی، شهروند ساکن دهگلان، جهت تحمل دوران محکومیت #حبس خود بازداشت و به کانون اصلاح و تربیت سنندج منتقل شد.
+
+ادامه مطلب
+
+#سهیلا_مطاعی
+
+↘️
+@hranews_bot تماس ✉️ -  @Hranews  کانال هرانا 🆑
+</div>
+
+## alonews — post 127667
+
+<div align="center">
+  <a href="telegram/content/alonews_127667_1781368977.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ایران از لحاظ آی کیو ۴ ام جهانه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127666
+
+<div align="center">
+  <a href="telegram/content/alonews_127666_1781368977.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خواهر امیرحسین مقصودلو:
+تتلو به علت انتشار آهنگ از زندان، ممنوع تماس شد و تا اطلاع ثانوی نمیتواند با کسی از بیرون زندان تماس برقرار کند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127665
+
+<div align="center">
+  <a href="telegram/content/alonews_127665_1781368977.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رئیس‌جمهور سوریه، الشرع درباره لُبنان : هنوز بعضیا دارن شایعه می‌سازن که سوریه داره تو لبنان دخالت می‌کنه
+
+
+🔴 به نظر من این حرف‌ها کاملاً اشتباهه
+
+
+🔴 ما همیشه از پایان جنگ، تقویت نهادهای دولتی، همکاری اقتصادی و آروم شدن اوضاع لُبنان تا حد ممکن حمایت می‌کنیم
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/23 20:03
 ---
 

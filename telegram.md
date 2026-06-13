@@ -7,6 +7,270 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/23 18:33
+---
+
+## WithYashar — post 14724
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آکسیوس:فردا توافق بین ایران و آمریکا امضا میشه. @withyashar
+</div>
+
+## pm_afshaa — post 93770
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93770_1781363026.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴باراک راوید، خبرنگار اکسیوس:
+یک مقام آمریکایی اعلام کرد که دونالد ترامپ روز سه‌شنبه در حاشیه اجلاس گروه هفت با رهبران خاورمیانه دیدار خواهد کرد.
+
+نتانیاهو در مذاکرات دوجانبه ترامپ با رهبران خاورمیانه در گروه هفت شرکت نکرد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93769
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+برین سال قبل اینکه شاهنشاه بره رو مشاهده کنین
+تاریخ داره تکرار میشه کشتار18 و 19 دی و اخرین خیزش مردمو تغییر حکومت 5 ماه مهمی پیش رومونه
+</div>
+
+## pm_afshaa — post 93768
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اگه ریختن تو خیابون برا خون خواهی رهبر ما هم بریم کمکشون 😂
+ما هم نمیخوایم با این کثافتا توافق بشه
+</div>
+
+## pm_afshaa — post 93767
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93767_1781363027.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رضایی، سخنگوی کمیسیون امنیت ملی مجلس:
+
+سخاوتمندی مفرط در پای میز مذاکره، محاسبات دشمن رو عوض کرد تا فکر کنه که ایران ضعیفه و میتونه آن را ببلعد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93766
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93766_1781363028.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وزارت خارجه پاکستان: فردا توافق بین ایران و آمریکا امضا خواهد شد!
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 342081
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻تیم‌های فوتبال برزیل و مراکش ساعت ۱:۳۰ روز یک‌شنبه ۲۴ خرداد ۱۴۰۵ در ورزشگاه مت‌لایف نیوجرسی به مصاف یکدیگر می‌روند تا ششمین بازی جام جهانی ۲۰۲۶ را برگزار کنند.
+
+🔹برزیل به طور سنتی و البته همچنان بر اساس ضرایب شرط‌بندی، شانس اصلی پیروزی در این مسابقه است، اما مراکش در پی تکرار موفقیت تاریخی خود در جام جهانی ۲۰۲۲ است؛ نخستین تیم آفریقایی که به نیمه‌نهایی جام جهانی راه پیدا کرد.
+
+🔹دیدار برزیل و مراکش تنها مسابقه مرحله گروهی میان دو تیم حاضر در جمع ۱۰ تیم برتر رده‌بندی فیفاست.
+
+🔹پیش‌بازی برزیل و مراکش، در وب‌سایت ایران اینترنشنال بخوانید.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 342080
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342080_1781363029.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در پاسخ به فراخوان شاهزاده رضا پهلوی و در آستانه بزرگداشت روز شیر و خورشید، جمعی از ایرانیان در برلین، تجمع کردند.
+
+گفت‌وگوی علی حسن‌پور، خبرنگار ایران‌اینترنشنال با آپامه شوناور، دختر شایسته آلمان در سال ۲۰۲۴
+
+@iranintltv
+</div>
+
+## FarsiVOA — post 220584
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷فرماندهی مرکزی ایالات متحده، سنتکام، تصاویری از هواپیماهای جنگنده ایالات متحده در حال آماده‌سازی برای پرواز از عرشه ناو هواپیمابر «یو‌اس‌اس آبراهام لینکلن» منتشر کرده است. این ناو در حال عبور از دریای عرب است.
+</div>
+
+## Persian_Trend_Official — post 16955
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16955_1781363031.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نبویان: باید در بند اول متن توافق اشاره می‌شد آمریکا آغازکننده جنگ است.
+
+نایب رئیس کمیسیون امنیت ملی مجلس: متن دارای چهارده بند است. بلافاصله بعد از امضای توافق پایان عملیات نظامی اعلام می‌شود. اکثر متن‌های اصلی را دیده ام اما این متن بهتر از قبلی‌هاست.
+
+بند اول متن توافق خوب است اما بین آمریکا و ایران برابر است و باید اشاره می‌شد آمریکا آغازکننده جنگ است.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16954
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16954_1781363034.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رضایی، سخنگوی کمیسیون امنیت ملی مجلس: سخاوتمندی مفرط در پای میز مذاکره، محاسبات دشمن رو عوض کرد تا فکر کند که ایران ضعیف شده و میتواند آن را ببلعد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 22472
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22472_1781363034.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تجمع مردم تبریز در اعتراض به توافق با قاتل خامنه ای
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22471
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 آکسیوس:فردا توافق بین ایران و آمریکا امضا میشه
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 283708
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺ترامپ: رهبر باند ونزوئلایی «ترن د آراگوآ» را در یک حمله نظامی کشتیم
+
+دونالد ترامپ، رئیس‌جمهور آمریکا، اعلام کرد که نیروهای کشورش در عملیاتی که آن را «سریع و مرگبار» توصیف کرد، هکتور روستنفورد گوئررو فلورس، معروف به «نینیو گوئررو»، رهبر گروه ونزوئلایی «ترن د آراگوآ» را کشته‌اند.
+
+آقای ترامپ در شبکه اجتماعی تروث سوشال نوشت که این عملیات به دستور او و توسط فرماندهی جنوبی ارتش آمریکا انجام شده است.
+
+او «ترن د آراگوآ» را «یکی از بی‌رحم‌ترین سازمان‌های تروریستی روی زمین» توصیف کرد و گفت در دوران ریاست‌جمهوری جو بایدن، میلیون‌ها مهاجر غیرقانونی وارد آمریکا شدند و اعضای این گروه مرتکب جرایمی از جمله تجاوز، نقص عضو و قتل شهروندان آمریکایی شدند.
+
+https://bbc.in/4oq6TdV
+@BBCPersian
+</div>
+
+## BBCPersian — post 283707
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283707_1781363036.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻معاون وزارت خارجه ایران گفته است که با سفرای چین و روسیه در تهران درباره مذاکرات ایران و آمریکا دیدار و گفت‌وگو کرده است.
+
+کاظم غریب‌آبادی در پستی در ایکس نوشت «در این دیدار در مورد آخرین تحولات مربوط به پیش‌نویس یادداشت تفاهم اسلام آباد، بحث و تبادل نظر شد.»
+
+پاکستان که میانجی آتش‌‌بس بین ایران و آمریکا و واسطه امضای تفاهم احتمالی میان دو کشور است، اعلام کرده که این توافق احتمالا در شبانه روز آینده نهایی خواهد شد.
+
+معاون وزرات خارجه ایران گفته است:«شراکت راهبردی ایران، چین و روسیه و هماهنگی‌ها و تعاملات میان سه کشور با قوت تداوم خواهد یافت.»
+
+عباس عراقچی، وزیر خارجه ایران شب گذشته به تلویزیون این کشور گفته بود که تهران درباره وضعیت تنگه هرمز و نحوه جدید اداره آن با چین به طور پیوسته در حال مشورت است.
+
+📸entekhab
+
+https://bbc.in/4ejsEHx
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 391888
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+زحمت کشیدم و مجموعه‌‌پستی به روایت تصویر از حال و هوای این لحظات عررزشی‌های قحبه و کله‌ی کیری‌شون براتون می‌گم تا روح و روان‌تون به قدر کافی شاد شه:
+
+
+@Dirty_Kids 👻
+</div>
+
+## Hranews — post 113585
+
+<div align="center">
+  <img src="telegram/content/Hranews_113585_1781363036.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمدرضا فقیهی، وکیل دادگستری از زندان آزاد شد
+
+
+❗️
+❗️
+❗️
+❗️
+❗️ – محمدرضا فقیهی، وکیل دادگستری، امروز شنبه از زندان اوین آزاد شد.
+
+به گزارش خبرگزاری هرانا، ارگان خبری مجموعه فعالان حقوق بشر در ایران، محمدرضا فقیهی از زندان آزاد شد.
+
+آزادی این وکیل دادگستری، امروز شنبه ۲۳ خردادماه، از زندان اوین صورت گرفته است.
+
+ادامه مطلب
+
+#محمدرضا_فقیهی
+
+↘️
+@hranews_bot تماس ✉️ -  @Hranews  کانال هرانا 🆑
+</div>
+
+## alonews — post 127645
+
+<div align="center">
+  <a href="telegram/content/alonews_127645_1781363037.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزیر انرژی آمریکا: تحریم‌ها علیه ایران می‌تواند تا حدی برداشته شود؛ اما نه به طور دائمی و نه کاملاً
+
+
+🔴اگر توافقی حاصل شود و ایران شروط اولیه را اجرا کند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127644
+
+<div align="center">
+  <a href="telegram/content/alonews_127644_1781363037.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ از طریق Truth Social:
+تبریک به تیم آمریکا برای پیروزی بزرگشان، ۴-۱، مقابل تیم بسیار خوب پاراگوئه. ادامه دهید!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/23 18:22
 ---
 

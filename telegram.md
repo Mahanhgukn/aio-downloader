@@ -7,6 +7,197 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/23 11:12
+---
+
+## VahidOOnLine — post 245264
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245264_1781336563.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ارتش اسرائیل روز شنبه ۲۳ خرداد با صدور هشداری از ساکنان ۲۰ شهر و روستا در جنوب لبنان، از جمله مناطق اطراف شهر نبطیه، خواست «فورا» محل سکونت خود را ترک کنند و نسبت به حملات قریب‌الوقوع هشدار داد.
+آویخای ادرعی، سخنگوی عرب‌زبان ارتش اسرائیل، در پیامی در شبکه اجتماعی ایکس اعلام کرد: «برای حفظ امنیت خود، فورا خانه‌هایتان را تخلیه کرده و به شمال رودخانه زهرانی منتقل شوید.»
+او همچنین یادآور شد هر فردی که در نزدیکی تاسیسات یا تجهیزات نظامی حزب‌الله حضور داشته باشد، جان خود را به خطر می‌اندازد.
+حزب‌الله لبنان روز جمعه در بیانیه‌ای اعلام کرده بود نیروهایش با نظامیان اسرائیلی که به سمت یکی از شهرهای جنوب لبنان پیشروی می‌کردند، درگیر شده‌اند.
+در حالیکه آتش‌بس در لبنان از شروط اصلی تهران برای مذاکرات پایان جنگ با آمریکاست، اسرائیل و حزب‌الله یکدیگر را به نقض آتش‌بس متهم می‌کنند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## IranIntlTV — post 342014
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342014_1781336564.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روزنامه جمهوری اسلامی در یادداشتی نوشت: «حمله به پایگاه‌های آمریکا در بحرین و کویت که مبدأ آتشباری آمریکا بودند، اقدامی کاملا طبیعی بود.»
+
+این روزنامه افزود: «رفتن به سراغ پایگاه آمریکایی، مقر هواپیماهای جنگی ارتش آمریکا در اردن، نیز یک ضرورت بود.»
+
+جمهوری اسلامی تاکید کرد: «اگر آتش‌بس را پذیرفته‌ایم و به مذاکره روی خوش نشان می‌دهیم، به این معنا نیست که نمی‌خواهیم انتقام جنایات آمریکا را بگیریم.»
+https://iranintl.com/202606137197
+</div>
+
+## FarsiVOA — post 220558
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Farsi VOA pinned a photo
+</div>
+
+## FarsiVOA — post 220557
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220557_1781336565.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📸اینستاگرام صدای آمریکا را هم اکنون فالو کنید تا از آخرین خبرها مطلع بمانید:
+https://www.instagram.com/voafarsi/
+
+📡همچنین جهت اطلاع از بروزترین فرکانسهای ماهواره‌ای صدای آمریکا به لینک زیر مراجعت فرمایید:
+https://ir.voanews.com/satellite
+
+این پست را با دوستانتان به اشتراک بگذارید
+@FarsiVOA
+</div>
+
+## RadioFarda — post 158246
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_158246_1781336565.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸 ارتش اسرائیل روز شنبه ۲۳ خرداد، با وجود آتش‌بس در جنگ با حزب‌الله، نسبت به حملات قریب‌الوقوع به جنوب لبنان هشدار داد و به ساکنان ۲۰ شهر و روستا در نزدیکی شهر نبطیه گفت که این مناطق را تخلیه کنند.
+
+🔸 ارتش اسرائیل اعلام کرد این هشدار در پی نقض آتش‌بس از سوی حزب‌الله لبنان، صادر شده است.
+
+🔸 آویخای ادرعی، سخنگوی عرب‌زبان ارتش، در متنی در شبکه اجتماعی ایکس نوشت: «برای امنیت خود، باید فوراً خانه‌های خود را تخلیه کرده و به شمال رودخانه زهرانی نقل مکان کنید.»
+
+🔸 او افزود: «هر کسی که در مجاورت تأسیسات یا تجهیزات جنگی حزب‌الله باشد، جان خود را به خطر می‌اندازد.» و این جنبش را به نقض آتش‌بس متهم کرد.
+
+🔸 اسرائیل و ایران روز ۱۸ خرداد پس از درخواست دونالد ترامپ، رئیس‌جمهور آمریکا، برای توقف درگیری‌ها، حملات مستقیم به یکدیگر را متوقف کردند. اما تهران اعلام کرد اگر اسرائیل به حمله به متحدش، شبه‌نظامیان حزب‌الله در لبنان، ادامه دهد، درگیری‌ها را از سر خواهد گرفت.
+
+@RadioFarda
+</div>
+
+## BBCPersian — post 283643
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️چرا روحانیون مسلمان در روسیه بازداشت می‌شوند؟
+
+✍️بخش مانیتورینگ
+بی‌بی‌سی
+
+چندین روحانی مسلمان و شماری از چهره‌های اجتماعی اخیرا توسط نیروهای امنیتی روسیه بازداشت شده‌اند. در حالی که رسانه‌های دولتی کمتر به این بازداشت‌ها پرداختند، در فضای آنلاین روایت‌های متعددی درباره آن‌ها شکل گرفته است.
+
+برای رسانه‌ها و کانال‌های راست افراطی، این بازداشت‌ها آغاز کارزاری بود که مدت‌ها در انتظارش بودند. کارزاری برای برچیدن اداره دینی مسلمانان فدراسیون روسیه، نهادی مورد حمایت کرملین که مسئول نمایندگی مسلمانان در این کشور است.
+
+📲بی‌بی‌سی مانیتورینگ موج بازداشت‌ها، واکنش روحانیون محلی و پیامدهای احتمالی آن برای جوامع مسلمان در روسیه را بررسی کرده است.🔽
+
+📸GettyImages/ TELEGRAM/ Anadolu via Getty Images/ RBC/ SPIRITUAL ADMINISTRATION OF MUSLIMS (DUM) WEBSITE/ AFP via Getty Images/ TSARGRAD
+
+https://bbc.in/4fJ8olc
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 391864
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391864_1781336566.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دختر زیبای مکزیکی تا اینجای جام جهانی
+باید صبر کرد و بقیه گزینه ها رو دید و نظر دختر شایسته جام جهانی رو داد
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391863
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391863_1781336567.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فکرکن پریود هستی، یکیم انقدر زر بزنه
+
+
+@Dirty_Kids 👻
+</div>
+
+## Hranews — post 113570
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فریدون فراهانی بازداشت شد
+
+
+❗️
+❗️
+❗️
+❗️
+❗️ – فریدون فراهانی، استاد موسیقی و استاد مدعو معماری دانشگاه پارس تهران، توسط نیروهای امنیتی #بازداشت شد.
+
+ادامه مطلب
+
+#فریدون_فراهانی
+
+↘️
+@hranews_bot تماس ✉️ -  @Hranews  کانال هرانا 🆑
+</div>
+
+## alonews — post 127563
+
+<div align="center">
+  <a href="telegram/content/alonews_127563_1781336567.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حمله اسرائیل به جنوب لبنان
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127562
+
+<div align="center">
+  <a href="telegram/content/alonews_127562_1781336569.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تو هند، یه هواپیمای روسی نظامی آن-۳۲ سقوط کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127561
+
+<div align="center">
+  <a href="telegram/content/alonews_127561_1781336572.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈عراقچی: مذاکره منجر به جنگ نمیشه بلکه مقاومت منجر به جنگ میشه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127560
+
+<div align="center">
+  <a href="telegram/content/alonews_127560_1781336572.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈روزنامه وال‌استریت ژورنال به نقل از منابع آگاه گزارش داد که سفر یک هیئت دیپلماتیک قطری به تهران، به چند روز حملات متقابل میان ایالات متحده و ایران پس از سقوط یک بالگرد آپاچی آمریکایی پایان داد و رئیس‌جمهور آمریکا، دونالد ترامپ، را متقاعد کرد که حملات شدیدی را که علیه ایران در نظر گرفته بود، لغو کند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/23 11:02
 ---
 

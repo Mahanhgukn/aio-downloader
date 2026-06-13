@@ -7,6 +7,65 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/23 16:12
+---
+
+## VahidOOnLine — post 245307
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245307_1781354565.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️سازمان پزشکی قانونی اعلام کرد در سال ۱۴۰۴، ۱۹ هزار و ۵۴۰ نفر در حوادث رانندگی جان خود را از دست داده‌اند؛ آماری که نسبت به سال قبل تغییر محسوسی نداشته و همچنان از تداوم بحران تلفات جاده‌ای حکایت دارد.
+بر اساس این گزارش، از مجموع جان‌باختگان، ۱۵ هزار و ۶۶۰ نفر مرد و سه هزار و ۸۸۰ نفر زن بوده‌اند. استان‌های تهران، فارس و سیستان و بلوچستان بیشترین آمار فوتی و استان‌های ایلام، کهگیلویه و بویراحمد و قم کمترین تعداد قربانیان را ثبت کرده‌اند.
+بیشترین تلفات با ۱۳ هزار و ۳۸۲ فوتی در محورهای برون‌شهری رخ داده است. همچنین در تصادفات درون‌شهری ۴ هزار و ۹۷۹ نفر و در محورهای روستایی هزار و ۷۳ نفر جان خود را از دست داده‌اند.
+آمارها نشان می‌دهد شهریورماه با ثبت ۲ هزار و ۶۲ فوتی مرگبارترین ماه سال و دی‌ماه با هزار و ۱۷۰ فوتی کم‌تلفات‌ترین ماه بوده است.
+در همین حال، تعداد مصدومان حوادث رانندگی در سال گذشته به ۳۷۸ هزار و ۷۲۹ نفر رسید که نسبت به سال قبل ۰.۷ درصد کاهش داشته است. همچنین آمار فوتی‌های اسفندماه با کاهش ۴.۸ درصدی و تعداد مصدومان این ماه با کاهش ۳۱.۷ درصدی نسبت به اسفند سال قبل همراه بوده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## Shin_Persian — post 7017
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sat, 13 Jun 2026 12:40:19 UTC
+
+Asked Claude to install the latest Win 11 on a local VM, hilariously it bypassed the Microsoft Account requirement with no sweat, I didn't even ask it to do so! I was away from the computer for a few mins, came back and saw everything's done and it was in the desktop already!
+
+ترجمه خودکار فارسی
+
+از کلود (Claude) خواستم آخرین نسخه ویندوز ۱۱ را روی یک ماشین مجازی (VM) محلی نصب کند؛ به طرز خنده‌داری بدون هیچ دردسری الزام حساب کاربری مایکروسافت را دور زد، در حالی که من حتی از او نخواسته بودم این کار را انجام دهد! چند دقیقه از پای کامپیوتر دور شدم، وقتی برگشتم دیدم همه چیز انجام شده و سیستم در دسکتاپ است!
+
+𝕏 · @shin_persian
+</div>
+
+## IranianMinds — post 22461
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22461_1781354565.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴با اینکه هنوز دو هفته به شروع تابستون مونده، در بعضی از مناطق کشور، قطعی‌های دو تا چهار ساعته شروع شده.
+
+@IranianMinds
+</div>
+
+## alonews — post 127618
+
+<div align="center">
+  <a href="telegram/content/alonews_127618_1781354566.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حملات اسرائیل به لبنان ادامه دارد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/23 16:02
 ---
 

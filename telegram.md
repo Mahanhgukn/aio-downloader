@@ -7,6 +7,153 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/23 18:12
+---
+
+## VahidOOnLine — post 245318
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245318_1781361765.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ دونالد ترامپ، رئیس‌جمهوری ایالات متحده روز شنبه ۲۳ خرداد، پیام شهباز شریف، نخست‌وزیر پاکستان، درباره احتمال نهایی شدن تفاهمنامه تهران و واشنگتن تا روز یکشنبه را بازنشر کرد.
+
+شریف در این پیام با تاکید بر این‌که دستیابی به صلح از هر زمان دیگری نزدیک‌تر شده است، اعلام کرد که با توجه به احتمال نهایی شدن متن تفاهمنامه ظرف ۲۴ ساعت آینده، پاکستان برای «امضای الکترونیکی» و آغاز گفتگوهای فنی آماده می‌شود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342936
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342936_1781361766.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+The District Cup Polo Tournament returns to the National Mall as an America250 signature event celebrating one of the oldest team sports.
+</div>
+
+## VahidOnline — post 76300
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نخست‌وزیر پاکستان: تفاهم‌نامه ایران و آمریکا احتمالا تا ۲۴ ساعت آینده نهایی می‌شود
+نخست‌وزیر پاکستان می‌گوید ایران و آمریکا بیش از هر زمانی به توافق صلح نزدیک‌تر شده‌اند.
+شهباز شریف دقایقی پیش در پستی در شبکه ایکس نوشت که انتظار می‌رود تفاهم‌نامه ایران و آمریکا ظرف ۲۴ ساعت آینده نهایی شود.
+او گفت که پاکستان در حال فراهم کردن تدارکات لازم برای «امضای الکترونیکی» این سند است و پس از آن هم «گفت‌و‌گوهای فنی» آغاز خواهد شد.
+@VahidHeadline
+دونالد ترامپ، رییس‌جمهوری آمریکا، شنبه ۲۳ خرداد، در شبکه اجتماعی تروت سوشال، پستی از شهباز شریف، نخست‌وزیر پاکستان، را بازنشر کرد که در آن به احتمال دستیابی تهران و واشینگتن به یک تفاهم طی ۲۴ ساعت آینده اشاره شده بود.
+ترامپ این اظهارات را بدون توضیح اضافی در تروت سوشال بازنشر کرد.
+@VahidOOnLine
+اسماعیل بقایی، سخنگوی وزارت امور خارجه، روز شنبه ۲۳ خرداد با تشریح آخرین وضعیت مذاکرات اعلام کرد: «یادداشت تفاهم اسلام‌آباد که در حال پیگیری است، به طور مشخص بر خاتمه جنگ تمرکز دارد و در این مرحله تصمیم بر این شده که هیچ بحثی در مورد موضوع هسته‌ای صورت نگیرد.»
+بقایی درباره گمانه‌زنی‌های مربوط به زمان امضای این سند گفت: «درباره زمان دقیق امضای تفاهم‌نامه باید منتظر بمانیم؛ اگرچه این رویداد فردا نخواهد بود، اما احتمال اینکه ظرف روزهای آتی رقم بخورد کاملا منتفی نیست.»
+بقایی ایالات متحده را به «تزلزل و بی‌ثباتی در اظهارنظرها» متهم کرد و گفت: «به دلیل تزلزل و عدم ثبات طرف مقابل در اظهارنظرها، باید در هرگونه موضع‌گیری درباره این روند محتاط باشیم.»
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 342077
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342077_1781361768.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرخط خبرهای شنبه ۲۳ خرداد
+@iranintltv
+</div>
+
+## IranIntlTV — post 342076
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342076_1781361769.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فعالان صنعتی با هشدار درباره تشدید بحران تامین انرژی در ایران، نسبت به پیامدهای آن برای تولید و اشتغال ابراز نگرانی کردند. رییس شورای هماهنگی شهرک‌های صنعتی کشور نیز گفت دولت همچنان شهرک‌های صنعتی را در اولویت خاموشی قرار می‌دهد و ادامه این روند، با توجه به مشکلات موجود، می‌تواند به نابودی بسیاری از صنایع منجر شود.
+
+اشکان نظام‌آبادی، روزنامه‌نگار اقتصادی، درباره پیامدهای بحران تامین انرژی در بخش صنعت توضیح می‌دهد
+@iranintltv
+</div>
+
+## Persian_Trend_Official — post 16951
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16951_1781361770.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+العربیه: هیئت ایرانی شامل وزیر خارجه این کشور فردا وارد پاکستان خواهند شد تا در روند گفت‌وگوهای مرتبط با توافق مشارکت کنند.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16950
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16950_1781361771.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسحاق دار، وزیر امور خارجه پاکستان و شاهزاده فیصل بن فرحان، وزیر امور خارجه عربستان سعودی، طی تماس تلفنی تأیید کردند که انتظار می‌رود مراسم امضای الکترونیکی فردا برگزار شود، زیرا مذاکرات ایالات متحده و ایران وارد مرحله نهایی خود شده!
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## BBCPersian — post 283697
+
+<div align="center">
+  <a href="https://t.me/bbcpersian/283697" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📻این هفته در پرگار: دیپلماسی ایرانی، امتیازگیری یا فرصت‌سوزی؟
+
+
+🔻در دیپلماسی کنونی ایران بهرهبرداری حداکثری از امتیازهای میدان جنگ میبینم یا آنچه میبینیم زیادهخواهی و در نهایت فرصتسوزیست؟
+
+میهمانها:
+علم صالح، استاد دانشگاه در روابط بینالملل
+علی مهتدی، تحلیلگر مسائل خاورمیانه
+
+@BBCPersian
+</div>
+
+## alonews — post 127639
+
+<div align="center">
+  <a href="telegram/content/alonews_127639_1781361771.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈بازهم پیش بینی غلط خوش چشم
+
+
+🔴خوش چشم شب قبل از اعلام توافق: آمریکا داره خرد خرد رادارها میزنه و بزودی حمله بزرگ میکنه
+
+
+🔴فرداش توافق اعلام شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127638
+
+<div align="center">
+  <a href="telegram/content/alonews_127638_1781361772.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزیر خارجه پاکستان به همتای سعودی: مراسم امضای الکترونیکی توافق آمریکا و ایران قرار است فردا برگزار شود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/23 18:02
 ---
 

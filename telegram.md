@@ -7,6 +7,364 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/24 18:23
+---
+
+## VahidOOnLine — post 245491
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245491_1781448806.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️همزمان با بالا گرفتن تنش‌های لفظی میان مقام‌های ایران و اسرائیل در بعد از ظهر یکشنبه، روزنامه تایمز اسرائیل به نقل از ارتش این کشور گزارش داد نیروهای اسرائیلی خود را برای شلیک احتمالی موشک از سوی در ساعت‌های آینده آماده می‌کنند.
+بر اساس این گزارش، ایال زمیر، رئیس ستاد ارتش اسرائیل، پس از حمله به بیروت در حال برگزاری نشست ارزیابی با فرماندهان ارشد نظامی است و ارزیابی کنونی ارتش این کشور آن است که ایران ممکن است به این حمله پاسخ دهد.
+این گزارش ساعاتی پس از آن منتشر شد که اسرائیل اهدافی را در ضاحیه جنوبی بیروت هدف قرار داد. همزمان محمدباقر قالیباف، رئیس مجلس شورای اسلامی، این حمله را نشانه ناتوانی یا بی‌میلی آمریکا در اجرای تعهدات خود دانست و هشدار داد ادامه مذاکرات در چنین شرایطی ممکن نیست.
+در مقابل، حساب رسمی وزارت خارجه اسرائیل در شبکه اجتماعی ایکس با رد اظهارات قالیباف، جمهوری اسلامی را به «دروغگویی» متهم کرد و مدعی شد حمله به بیروت در پاسخ به حملات حزب‌الله به شمال اسرائیل انجام شده است.
+محمدجعفر اسدی، معاون بازرسی قرارگاه مرکزی خاتم‌الانبیاء، نیز در واکنش به حمله روز یکشنبه اسرائیل به ضایحه بیروت گفت سپاه پاسداران به این حملات پاسخ خواهد داد.
+تایمز اسرائیل همچنین نوشت با وجود این ارزیابی‌ها، تاکنون تغییری در دستورالعمل‌های امنیتی برای غیرنظامیان اسرائیلی اعلام نشده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14828
+
+<div align="center">
+  <img src="telegram/content/WithYashar_14828_1781448806.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ در تروث : «حمله امروز صبح به بیروت نباید رخ می‌داد، به‌ویژه در چنین روز مهمی که ما تا این اندازه به دستیابی به یک توافق صلح با ایران نزدیک شده‌ایم. اسرائیل حق دارد از خود در برابر تهدیدها دفاع کند، اما حمله‌ای که در واکنش به آن انجام شد بسیار کوچک و بی‌اهمیت بود؛ هیچ‌کس آسیب ندید، مجروح نشد یا کشته نشد و نباید این روند مهم را مختل کند. ما بسیار به توافقی نزدیک هستیم که صلح را برای منطقه، از جمله لبنان، به ارمغان خواهد آورد و همه طرف‌ها باید از درگیری و تشدید تنش خودداری کنند. نباید هیچ حمله دیگری از سوی اسرائیل در هیچ نقطه‌ای از لبنان انجام شود، اما در عین حال نباید هیچ حمله‌ای از سوی هیچ طرف دیگری، از جمله حزب‌الله، علیه اسرائیل صورت گیرد. این می‌تواند آغاز یک صلح طولانی و زیبا باشد؛ نگذارید این فرصت از بین برود! از توجه شما به این موضوع سپاسگزارم. دونالد جی. ترامپ، رئیس‌جمهور ایالات متحده آمریکا»
+@withyashar
+</div>
+
+## WithYashar — post 14827
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هگست، وزیر جنگ آمریکا:
+من انتظار ندارم که حملات اسرائیل به حومه جنوبی بیروت مانع توافق با ایران بشه؛ اگر ایران میخواد این موضوع ادامه پیدا کنه، باید حزب‌الله رو مهار کنه.
+@withyashar
+</div>
+
+## WithYashar — post 14826
+
+
+
+
+## WithYashar — post 14825
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تو ویس گفتی یه سری بزنیم به کانالهی رژیم اسگولا اینو منتشر کردن
+</div>
+
+## WithYashar — post 14824
+
+<div align="center">
+  <img src="telegram/content/WithYashar_14824_1781448807.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کمی‌پیش ستون دود جنوب‌کرج
+@withyashar
+</div>
+
+## mwarmonitor — post 10881
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سخنگوی ارتش اسرائیل:
+
+🔹«پس از ارزیابی وضعیت، تصمیم گرفته شد سیاست دفاعی فرماندهی جبهه داخلی از امروز (یکشنبه) ۱۴ ژوئن ۲۰۲۶ ساعت ۱۸:۰۰ تا روز دوشنبه ۱۵ ژوئن ۲۰۲۶ ساعت ۲۰:۰۰ تغییر کند.
+
+🔹بر اساس این تغییرات، اجازه فعالیت کامل با سقف تجمعات تا ۵۰۰۰ نفر در تمام مناطق کشور، به‌جز مناطق خط مقدم، داده می‌شود.
+
+🔹در مناطق خط مقدم، فعالیت‌ها به‌صورت جزئی و بدون تغییر در دستورالعمل‌ها ادامه خواهد داشت.
+
+🔹فرماندهی جبهه داخلی به ارزیابی‌های مستمر وضعیت ادامه می‌دهد و در صورت هرگونه تغییر در سیاست‌های دفاعی، اطلاع‌رسانی‌های لازم از طریق کانال‌های رسمی فرماندهی جبهه داخلی و سخنگوی ارتش اسرائیل به اطلاع عموم خواهد رسید.»
+
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10880
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ:
+
+«نباید حمله امروز صبح به بیروت رخ می‌داد، به‌ویژه در چنین روز مهمی که ما در آستانه رسیدن به یک توافق صلح با ایران هستیم. اسرائیل حق دارد از خود در برابر تهدیدها دفاع کند، اما حمله‌ای که به آن پاسخ داده شد بسیار محدود و بی‌اهمیت بود و هیچ‌کس در آن کشته یا زخمی نشد. این موضوع نباید این روند مهم را مختل کند. ما در آستانه توافقی هستیم که می‌تواند صلح را در منطقه، از جمله لبنان، برقرار کند و همه طرف‌ها باید عقب‌نشینی کنند.
+
+نباید هیچ حمله دیگری از سوی اسرائیل در هیچ نقطه‌ای از لبنان انجام شود، همان‌طور که نباید هیچ حمله دیگری از سوی هیچ طرفی، از جمله حزب‌الله، علیه اسرائیل صورت گیرد. این می‌تواند آغاز یک صلح طولانی و زیبا باشد—بیایید آن را حفظ کنیم! از توجه شما به این موضوع سپاسگزارم.
+
+دونالد جی. ترامپ»
+
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10877
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وزیر جنگ آمریکا: انتظار ندارم که حملات اسرائیل به ضاحیه جنوبی بیروت، توافق با ایران را مختل کند. اگر ایران می‌خواهد این موضوع پایدار بماند، باید حزب‌الله را مهار کند.
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 93905
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_93905_1781448808.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فراخوان سراسری
+
+امروز یکشنبه ساعت 18 در اعتراض به امضای تسلیم‌نامه در برابر آمریکای مستکبر در مرکز تمام شهرهای کشور با شعار «نه اینوری نه اونوری، جانم فدای رهبری» به خیابان خواهیم آمد.
+ماسک و لباس مشکی فراموشتون نشه
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93904
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: حمله اسرائیل به بیروت نباید اتفاق می‌افتاد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93903
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93903_1781448809.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴هگست، وزیر جنگ آمریکا:
+من انتظار ندارم که حملات اسرائیل به حومه جنوبی بیروت مانع توافق با ایران بشه؛ اگر ایران میخواد این موضوع ادامه پیدا کنه، باید حزب‌الله رو مهار کنه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## kianmeli1 — post 87989
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87989_1781448809.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ در مورد حمله به بیروت:
+
+«این نباید اتفاق می‌افتاد، ما به توافقی که صلح را به منطقه می‌آورد بسیار نزدیک هستیم. بیایید آن را خراب نکنیم.» او از همه طرف‌ها می‌خواهد که عقب‌نشینی کنند و حملات را متوقف کنند.
+https://t.me/kianmeli1
+</div>
+
+## Shin_Persian — post 7054
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_7054_1781448810.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sun, 14 Jun 2026 14:51:03 UTC
+
+POTUS:
+"This morning’s attack on Beirut should not have happened, particularly on a special day when we are so close to a Peace Deal with Iran. Israel has the right to defend itself against threats, but the attack it was responding to was very small and meaningless, nobody was hurt, injured, or killed, and should not disrupt this important process. We are very close to a Deal that will bring peace to the region, including to Lebanon, and all sides should stand down. There should be no more attacks by Israel anywhere in Lebanon, but there should also be no more attacks by any other party, including Hezbollah, against Israel. This could be the beginning of a long and beautiful peace — Let’s not blow it! Thank you for your attention to this matter. President DONALD J. TRUMP"
+
+ترجمه خودکار فارسی در بخش نظرات
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 7053
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sun, 14 Jun 2026 14:49:04 UTC
+
+. @SecWar on Face the Nation:
+"As far as I know, we are on our way to signing the deal. It’s a question of when, not if. Israel is very restrained in its response to Hezbollah."
+
+ترجمه خودکار فارسی
+
+.@SecWar در برنامه «فیس د نیشن» (Face the Nation):
+«تا آنجا که من می‌دانم، ما در مسیر امضای توافق هستیم. مسئله زمان انجام آن است، نه این‌که آیا انجام می‌شود یا خیر. اسرائیل در پاسخ خود به حزب‌الله بسیار خویشتن‌دار است.»
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 7052
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sun, 14 Jun 2026 14:48:37 UTC
+
+. @SecWar on Face the Nation:
+"The document says Iran will never have a nuclear weapon, won't seek one, won't buy one, won't have one."
+
+ترجمه خودکار فارسی
+
+.@SecWar در برنامه «Face the Nation»:
+«این سند می‌گوید که ایران هرگز سلاح هسته‌ای نخواهد داشت، به دنبال آن نخواهد رفت، آن را نخواهد خرید و صاحب آن نخواهد شد.»
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 220691
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+با افزایش احتمال امضای تفاهم میان آمریکا و جمهوری اسلامی، شکاف میان حامیان و مخالفان این روند در ایران عمیق‌تر شده است. همزمان با حمله اسرائیل به ضاحیه بیروت، از تجمعات اعتراضی و درگیری‌ها در چند شهر تا حمایت محتاطانه مقام‌های حکومتی از مذاکرات گزارش شده است.
+</div>
+
+## FarsiVOA — post 220690
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در گفت‌وگو با رضا علیجانی، از ابهام در روایت‌های حکومت ایران و واشینگتن و ماهیت تفاهم احتمالی گفتیم و به گفته او، بعید است جمهوری اسلامی در فرآیند امضای این تفاهم احتمالی، اختلافات خود را آمریکا کنار بگذارد.
+</div>
+
+## Persian_Trend_Official — post 17059
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ وزیر جنگ ایالات متحده: تا آنجا که من می‌دانم، ما در مسیر امضای توافق هستیم. مسئله زمان آن است، نه اینکه آیا این اتفاق می‌افتد یا خیر. اسرائیل در واکنش به حزب‌الله بسیار میانه‌رو است.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17058
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17058_1781448811.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+«حمله‌ای که امروز صبح به بیروت انجام شد، نباید رخ می‌داد؛ به‌ویژه در چنین روز خاصی که ما تا این حد به یک توافق صلح با ایران نزدیک هستیم. اسرائیل حق دارد از خود در برابر تهدیدها دفاع کند، اما حمله‌ای که در واکنش به آن انجام شد بسیار کوچک و بی‌اهمیت بود؛ هیچ‌کس آسیب ندید، زخمی نشد یا کشته نشد، و این نباید این روند مهم را مختل کند.
+
+ما به توافقی بسیار نزدیک هستیم که صلح را به منطقه، از جمله لبنان، خواهد آورد و همه طرف‌ها باید از تنش‌افزایی دست بکشند. دیگر نباید هیچ حمله‌ای از سوی اسرائیل در هیچ نقطه‌ای از لبنان صورت گیرد، اما همچنین نباید هیچ حمله‌ای از سوی هیچ طرف دیگری، از جمله حزب‌الله، علیه اسرائیل انجام شود.
+
+این می‌تواند آغاز یک صلح طولانی و زیبا باشد — خرابش نکنیم! از توجه شما به این موضوع سپاسگزارم.
+
+رئیس‌جمهور دونالد جی. ترامپ»
+</div>
+
+## BBCPersian — post 283801
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻فارس: قطعا امروز توافقی با آمریکا امضا نخواهد شد
+
+خبرگزاری فارس به نقل از «یک منبع نزدیک به تیم مذاکره‌کننده ایران» نوشت: «قطعاً در زمان اعلامی ترامپ هیچ توافقی امضا نخواهد شد.»
+
+دونالد ترامپ، رئیس جمهور آمریکا، گفته بود که توافق با ایران امروز امضا و بلافاصله تنگه هرمز به روی همه کشتی‌ها باز خواهد شد.
+
+بنابر این گزارش، «ساعاتی پیش از حمله» اسرائیل به ضایحه در جنوب بیروت، این منبع به خبرگزاری فارس گفته بود که «تیم قطری هم‌اکنون در تهران حضور دارد و ایران بندهای موردنظر خود را همراه با جزئیات دقیق مدنظرش، از طریق همین تیم قطری به طرف مقابل منتقل می‌کند.»
+
+به گزارش این خبرگزاری که به نهادهای نظامی و امنیتی نزدیک است، این منبع تاکید کرده است که هیچ چیز نهایی نشده است:
+
+«حتی اگر در روند مذاکره پیش و پس برویم و به عقب برگردیم، شرط اساسی ایران این است که در پایان، تمام موارد مدنظرش به طور کامل لحاظ شود.»
+
+«اما حتی در صورت اعمال همه نظرات ایران قطعاً در زمان اعلامی ترامپ هیچ توافقی امضا نخواهد شد.»
+
+https://bbc.in/4fEONCy
+@BBCPersian
+</div>
+
+## alonews — post 127898
+
+<div align="center">
+  <a href="telegram/content/alonews_127898_1781448812.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / ترامپ: حمله صبح امروز به بیروت نباید اتفاق می افتاد، به ویژه در روز خاصی که ما به توافق صلح با ایران بسیار نزدیک هستیم.
+
+
+🔴اسرائیل حق دارد از خود دفاع کند، اما حمله ای که به آن پاسخ داد بسیار کوچک و بی معنی بود، کسی آسیب ندید، مجروح یا کشته نشد و نباید این روند مهم را مختل کند.
+
+
+🔴دیگر نباید در هیچ کجای لبنان حملاتی از سوی اسرائیل انجام شود، اما همچنین نباید از سوی هیچ طرف دیگری از جمله حزب الله علیه اسرائیل حمله شود.
+
+
+🔴این می تواند آغاز یک صلح طولانی و زیبا باشد - بیایید آن را منفجر نکنیم!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127897
+
+<div align="center">
+  <a href="telegram/content/alonews_127897_1781448812.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزیر جنگ، هگِستِ : برخلاف اوباما، رئیس‌جمهور ترامپ تو این چیزا باهوشه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127896
+
+<div align="center">
+  <a href="telegram/content/alonews_127896_1781448815.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 جِی‌دی ونس درباره ایران:
+من فکر می‌کنم رئیس‌جمهور ترامپ هم همین‌طور است. فکر می‌کنم هر دوی ما عموماً نسبت به درگیری‌های نظامی خارجی شکاک هستیم.
+
+
+🔴اما اساساً، این به این معنا نیست که هرگز نمی‌توان از نیروی نظامی استفاده کرد، و من فکر می‌کنم هدف اینجا جلوگیری از داشتن سلاح هسته‌ای توسط ایرانی‌ها است—ما در رسیدن به این هدف موفق خواهیم بود—و وقتی موفق شویم، این نتیجه‌ای بسیار خوب برای مردم آمریکا خواهد بود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127895
+
+<div align="center">
+  <a href="telegram/content/alonews_127895_1781448817.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴هم دفنش نکردن
+
+🔴هم ۱۰۰ شب تو خیابونا عروسی گرفتن
+
+🔴هم با قاتلش توافق کردن
+
+
+🤔هرچه از حرام زاده بودن عرزشی ها گفته بشه کمه
+
+
+✅@AloNews
+</div>
+
+## alonews — post 127894
+
+<div align="center">
+  <a href="telegram/content/alonews_127894_1781448818.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈مقام ارشد اسرائیلی به کان:
+حمله ایران اکنون قریب‌الوقوع به نظر می‌رسد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/24 18:13
 ---
 
@@ -250,8 +608,6 @@ https://iranintl.com/202606145239
 
 ✅ @AloNews خبر جنگ
 </div>
-
-
 <!-- MSG END -->
 
 <!-- NAV START -->

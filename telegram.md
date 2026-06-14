@@ -7,6 +7,34 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/24 09:24
+---
+
+## IranIntlTV — post 342183
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342183_1781416450.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت علوم جمهوری اسلامی اعلام کرد به دلیل تداخل زمان امتحانات دانشگاه‌ها با مراسم تشییع جنازه علی خامنه‌ای، همه این امتحانات به زمان دیگری موکول می‌شود و زمان‌بندی‌ها متعاقبا اعلام خواهد شد.
+
+بر اساس آنچه به صورت رسمی اعلام شده، قرار است جسد خامنه‌ای بین روزهای ۱۳ تا ۱۸ تیرماه، پس از تشییع در تهران، قم و مشهد، در حرم اما هشتم شیعیان دفن شود.
+https://iranintl.com/202606142314
+</div>
+
+## alonews — post 127779
+
+<div align="center">
+  <a href="telegram/content/alonews_127779_1781416451.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 وزارت امور خارجه قطر: نخست وزیر و وزیر امور خارجه کویت ابراز امیدواری کردند که واشنگتن و تهران به زودی توافق را امضا کنند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/24 09:13
 ---
 

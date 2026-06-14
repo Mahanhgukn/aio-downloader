@@ -7,6 +7,368 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/24 23:43
+---
+
+## VahidOOnLine — post 245551
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245551_1781467995.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️شبکه خبری العربیه، شامگاه یکشنبه ۲۴ خرداد ماه به نقل از منابعی آگاه اعلام کرد گروهی از میانجی‌گران قطری در بحبوحه تلاش‌های جاری برای دستیابی به توافق میان آمریکا و ایران، راهی اسلام‌آباد، پایتخت پاکستان شده است.
+خبرگزاری فارس، نیز روز یکشنبه به نقل از منبع نزدیک به تیم مذاکره‌کننده ایران گزارش داده بود که نمایندگانی از قطر در تهران حضور دارند و ایران از طریق این هیئت، بندهای موردنظر و جزئیات مدنظر خود را به طرف آمریکایی منتقل می‌کند.
+این خبر در اوج گمانه‌زنی‌ها در مورد زمان امضاء تفاهم‌نامه پایان جنگ میان تهران و واشنگتن منتشر می‌شود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245550
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245550_1781467995.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علی‌اکبر ولایتی، مشاور رهبر جمهوری اسلامی، با اشاره به حمله اسرائیل به جنوب بیروت، در شبکه ایکس نوشت: «خطای محاسباتی در بیروت، صبر را به پایان رساند و فرمان صادر شد. ساعت صفر فرا رسیده و پرتابگرها آماده می‌شوند.»
+
+او همچنین با اشاره به حزب‌الله افزود: «حزب‌الله پاره تن محور مقاومت است.»
+
+مشاور رهبر جمهوری اسلامی در ادامه هشدار داد: «اگر آتش شیطنت در لبنان خاموش نشود، دو بازوی قدرتمند جغرافیا، یعنی هرمز و باب‌المندب، شاهرگ‌های اقتصادی‌تان را تا خفگی استراتژیک فشار خواهند داد.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14883
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کارشناس شبکه افق: امام شهید ما چونش را برای اورانیوم گذاشت ولی امروز مسئولین جلسه می‌گذارند و می‌گویند اورانیوم به درد نمی‌خورد/ کسانی که امروز به ترامپ امتیاز می‌دهند بدانند که حتی آن‌ها را هم ممکن است آمریکا ترور کند @withyashar
+</div>
+
+## WithYashar — post 14882
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کارشناس شبکه افق:
+
+امام شهید ما چونش را برای اورانیوم گذاشت ولی امروز مسئولین جلسه می‌گذارند و می‌گویند اورانیوم به درد نمی‌خورد/ کسانی که امروز به ترامپ امتیاز می‌دهند بدانند که حتی آن‌ها را هم ممکن است آمریکا ترور کند
+@withyashar
+</div>
+
+## WithYashar — post 14881
+
+<div align="center">
+  <img src="telegram/content/WithYashar_14881_1781467995.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ولایتی: فرمان صادر شد؛ لانچرها آماده پرتاب میشوند
+@withyashar
+</div>
+
+## WithYashar — post 14880
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تیم جمهوری اسلامی با ویزا ساعتی عازم لس آنجلس شد برای بازی با نیوزلند
+@withyashar
+</div>
+
+## WithYashar — post 14879
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وای نت: ممکن است ترامپ در حال آماده‌سازی برای برداشتن فوری محاصره دریایی آمریکا بر بنادر ایران باشد تا از هرگونه حمله ایرانی به اسرائیل جلوگیری کند
+@withyashar
+</div>
+
+## WithYashar — post 14878
+
+<div align="center">
+  <a href="telegram/content/WithYashar_14878_1781467996.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صداوسیما:
+امشب اسرائیل به شدت بمباران خواهدشد.
+@withyashar
+</div>
+
+## pm_afshaa — post 93970
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93970_1781467997.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ولایتی، مشاور مجتبی خامنه‌ای:
+خطا در بیروت صبر رو پایان رسوند؛ پرتابگرها آماده میشن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93969
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93969_1781467998.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رسانه‌های اسرائیلی:
+جمهوری اسلامی در حال بررسی تعویق حمله موشکی به اسرائیل برای فرصت دادن به تلاش‌های ترامپ و ادامه مذاکراته.
+
+نتانیاهو انتظار داشت حمله به بیروت مذاکرات رو از مسیر خارج کنه، اما مذاکرات همچنان ادامه داره.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93968
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93968_1781467998.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴صداوسیما: اسرائیل امشب بمباران میشه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93967
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93967_1781467999.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رضایی، سخنگوی کمیسیون امنیت ملی:
+مقامات نظامی میگن که احتمال یک درگیری دیگر وجود داره و برای یک جنگ بعدی آماده‌‌ان، اما معنایش این نیست که لزوما امشب یا فردا جنگ میشه، اما منطقا و عقلا باید برای یک جنگ دیگری آماده باشیم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## kianmeli1 — post 87998
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ولایتی
+
+ساعت صفر فرارسیده و پرتابگرها آماده می‌شوند
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 342356
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342356_1781468000.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+غسان عاشور، تحلیل‌گر مسائل خاورمیانه، گفت: «دونالد ترامپ می‌خواهد به‌تنهایی با ایران مذاکره و توافق کند، در حالی که جنگ با جمهوری اسلامی خسارت‌های بسیاری برای کشورهای منطقه داشته است.»
+
+او افزود: «اگر توافقی میان تهران و واشینگتن امضا شود، لزوما به نفع کشورهای منطقه نخواهد بود، زیرا جمهوری اسلامی دریافته است که می‌تواند با بستن تنگه هرمز به دیگر کشورها فشار وارد کند و این احتمال نیز وجود دارد که آمریکا در آینده از آنها حمایت قاطع نکند.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 342355
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342355_1781468001.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فاکس‌نیوز به نقل از یک دیپلمات آمریکایی گزارش داد حملات یکشنبه اسرائیل به بیروت با هدف برهم زدن روند توافق و افزایش تنش‌ها میان واشینگتن و تهران انجام شده است.
+
+آرام حسامی، استاد علوم سیاسی، گفت: «بنیامین نتانیاهو با کلیت امضای تفاهم‌نامه احتمالی میان واشینگتن و تهران مخالف است و آن را نوعی مماشات با جمهوری اسلامی می‌داند.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 342354
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342354_1781468002.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علی‌اکبر ولایتی، مشاور رهبر جمهوری اسلامی، با اشاره به حمله اسرائیل به جنوب بیروت، در شبکه ایکس نوشت: «خطای محاسباتی در بیروت، صبر را به پایان رساند و فرمان صادر شد. ساعت صفر فرا رسیده و پرتابگرها آماده می‌شوند.»
+
+او همچنین با اشاره به حزب‌الله افزود: «حزب‌الله پاره تن محور مقاومت است.»
+
+مشاور رهبر جمهوری اسلامی در ادامه هشدار داد: «اگر آتش شیطنت در لبنان خاموش نشود، دو بازوی قدرتمند جغرافیا، یعنی هرمز و باب‌المندب، شاهرگ‌های اقتصادی‌تان را تا خفگی استراتژیک فشار خواهند داد.»
+https://iranintl.com/202606143442
+</div>
+
+## DW_Farsi — post 125971
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📸 جام جهانی ۲۰۲۶؛ آلمان کوراسائو را با اقتدار ۷ بر یک شکست داد
+
+تیم ملی فوتبال آلمان در نخستین دیدار خود در چارچوب مسابقات جام جهانی ۲۰۲۶ به مصاف کوراسائو رفت. ملی‌پوشان آلمان در این دیدار نمایشی تماشایی ارائه کرده و حریف خود را ۷ بر یک شکست دادند.
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 17109
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_17109_1781468003.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وای نت: تهران در حال بررسی به تعویق انداختن حمله موشکی برنامه‌ریزی‌شده خود به اسرائیل است تا به تلاش‌های ترامپ برای جلب رضایتش فرصتی بدهد و احتمالاً امشب به یک توافق چارچوبی برسد.
+
+قطر در حال میانجیگری در مذاکرات است و طبق گزارش‌ها، یکی از پیشنهادها شامل رفع فوری محاصره دریایی ایران و بازگشایی تنگه هرمز به جای کاهش تدریجی تحریم‌ها است.
+
+ترامپ هشدار داد که هرگونه حمله‌ای که باعث تشدید بیشتر تنش‌ها شود، می‌تواند مذاکرات را به خطر بیندازد و ایران را مسئول فروپاشی تلاش دیپلماتیک قرار دهد.
+
+ایالات متحده گفته می‌شود رئیس جمهور در حال بررسی امتیازات اضافی برای زنده نگه داشتن مذاکرات و تضمین توافق است.
+
+یک منبع امنیتی اسرائیلی گفت بنیامین نتانیاهو، نخست وزیر، انتظار داشت که حمله بیروت باعث تشدید تنش و انحراف دیپلماسی شود، اما مذاکرات علیرغم این حادثه ادامه یافته است.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17108
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علی‌اکبر ولایتی، مشاور رهبر جمهوری اسلامی: یک اشتباه محاسباتی در بیروت، صبر را به پایان رساند و دستور صادر شد. ساعت صفر فرا رسیده و پرتابگرها در حال آماده‌سازی هستند.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## BBCPersian — post 283817
+
+<div align="center">
+  <a href="https://t.me/bbcpersian/283817" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این نسخه رادیویی برنامه شصت دقیقه تلویزیون فارسی بی‌بی‌سی است که هرشب بعد از پخش، با حجم کم از اپلیکیشن‌های پادگیر و صفحه تلگرام بی‌بی‌سی فارسی در دسترس است. 
+
+@BBCPersian
+</div>
+
+## BBCPersian — post 283816
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283816_1781468004.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌ ‌ ‌ ‌
+تیم ملی فوتبال آلمان در اولین بازی خود در جام‌جهانی با هفت گل تیم ملی کوراسائو را شکست داد.
+
+این بازی که امروز در هیوستون، تگزاس برگزار شد ابتدا با تک گل آلمان در دقیقه شش توسط فلیکس انمچا همراه بود اما شگفتی زمانی رخ داد که در دقیقه ۲۱ لیوانو کومننسیا گل تساوی را برای کوراسائو که اولین حضور خود در جام‌جهانی را تجربه می‌کرد به ثمر رساند.
+
+با این حال این تساوی ۱۷ دقیقه بیشتر دوام نیاورد و نیکو اشلوتربک گل برتری را در دقیقه ۳۸ زد و پس از آن کای هاورتس در ۵+۴۵ گل سوم را از نقطه پنالتی به ثمر رساند.
+
+در نیمه دوم روند گل زنی آلمان‌ها ادامه یافت و در دقیقه ۴۷ جمال موسیالا، در دقیقه ۶۸ ناتانیل براون، در دقیقه ۷۸ دنیز اونداف و کای هاورتس در دقیقه ۸۸ دومین گل خود و هفتمین گل آلمان را به ثمر رساند.
+
+کوراسائو، کشوری در دریای کارائیب و بخشی از پادشاهی هلند است که در نزدیکی سواحل ونزوئلا قرار دارد که کوچک‌ترین کشور حاضر در این دوره از جام جهانی است.
+
+📷Reuters
+@BBCPersian
+</div>
+
+## alonews — post 128001
+
+<div align="center">
+  <a href="telegram/content/alonews_128001_1781468004.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚀 Exo VPN | سریع، پایدار و بدون تبلیغات 
+✅ اتصال سریع و پایدار 
+✅ سرورهای متعدد جهانی 
+✅ حفظ حریم خصوصی 
+✅ کاملاً رایگان و بدون تبلیغات 
+📌 دانلود از گوگل پلی: https://play.google.com/store/apps/details?id=exo.vpn.app 
+📣 کانال رسمی: @exovpn_dl
+</div>
+
+## alonews — post 128000
+
+<div align="center">
+  <a href="telegram/content/alonews_128000_1781468004.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚀 Exo VPN | سریع، پایدار و بدون تبلیغات
+
+
+✅ اتصال سریع و پایدار
+
+✅ سرورهای متعدد جهانی
+
+✅ حفظ حریم خصوصی
+
+✅ کاملاً رایگان و بدون تبلیغات
+
+
+📌 دانلود از گوگل پلی:
+https://play.google.com/store/apps/details?id=exo.vpn.app
+
+
+📣 کانال رسمی:
+@exovpn_dl
+</div>
+
+## alonews — post 127999
+
+<div align="center">
+  <a href="telegram/content/alonews_127999_1781468005.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 اختلال گسترده در سامانه‌های جی‌پی‌اس سراسر اسرائیل
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127998
+
+<div align="center">
+  <a href="telegram/content/alonews_127998_1781468005.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈منابع میگن که جمهوری‌اسلامی قصد داشته حمله موشکی رو شب انجام بده، احتمالاً هم‌زمان با پخش اصلی تلویزیونی، اما اونو چندین بار پس از دریافت پیام‌های مستقیم از ترامپ به تعویق انداخته.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127997
+
+<div align="center">
+  <a href="telegram/content/alonews_127997_1781468005.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری/ ولایتی: فرمان صادر شد؛ لانچرها آماده پرتاب میشوند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127996
+
+<div align="center">
+  <a href="telegram/content/alonews_127996_1781468005.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴چرا چپ ها از ‎شاه متنفر هستند؟
+
+
+✅@AloNews
+</div>
+
+---
 📅 بروزرسانی: 1405/03/24 23:33
 ---
 

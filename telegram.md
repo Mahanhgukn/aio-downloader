@@ -7,6 +7,193 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/24 12:13
+---
+
+## VahidOOnLine — post 245434
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245434_1781426638.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل برای بیش از ۱۰ شهرک و روستا در محدوده رودخانه زهرانی لبنان هشدار تخلیه صادر کرد و از ساکنان این مناطق خواست خانه‌های خود را تخلیه کرده و به شمال رودخانه زهرانی نقل مکان کنند.
+
+درگیری‌ها در جنوب لبنان پس از ورود پرنده‌های ناشناس از جنوب لبنان به آسمان اسرائیل در روزهای شنبه و یکشنبه ۲۳ و ۲۴ خرداد تشدید شده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245433
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245433_1781426638.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️قیمت ارز در بازار آزاد تهران روز یکشنبه ۲۴ خردادماه و پس از چند ساعت روند نزولی ناشی از تقویت احتمال امضای توافقنامه پایان جنگ میان جمهوری اسلامی ایران و آمریکا، بدون تغییر مانده است.
+
+سایت‌ها و کانال‌های اعلام قیمت ارز، قیمت دلار در بازار آزاد را مانند شنبه شب، ۱۷۰ هزار و ۲۰۰ تومان و قیمت یورو را ۱۹۶ هزار و ۹۰۰ تومان اعلام می‌کنند.
+
+قیمت یورو پس از چند هفته افزایش چشمگیر به کمتر از ۲۰۰ هزار تومان رسیده است.
+
+به نظر می‌رسد بازارهای ایران در انتظار پاسخ نهایی مقام‌های جمهوری اسلامی به گفته‌های ترامپ مبنی بر امضای توافق‌نامه پایان جنگ در روز یکشنبه هستند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## FarsiVOA — post 220657
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220657_1781426639.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل به ساکنان ۲۹ روستا و شهر در جنوب لبنان هشدار داد که پیش از حملات علیه گروه تروریستی حزب‌الله، منطقه را تخلیه کنند.
+
+بر اساس اعلام ارتش اسرائیل، به ساکنان ۱۶ منطقه دستور داده شده که دست‌کم یک کیلومتر از محل خود دور شوند، و به ساکنان ۱۳ شهر دیگر نیز دستور داده شده که به شمال رود زهرانی بروند.
+
+سرهنگ آویخای ادرعی، سخنگوی ارتش اسرائیل، گفت: «با توجه به نقض توافق آتش‌بس توسط حزب‌الله، ارتش اسرائیل ناچار است با قدرت علیه آن اقدام کند.»
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220656
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220656_1781426640.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کره شمالی در واکنش به دیدار مقامات کره جنوبی و آمریکا برای مقابله با تهدیدات هسته‌ای پیونگ‌یانگ اعلام کرد موضوع خلع سلاح هسته‌ای این کشور به‌طور برگشت‌ناپذیر پایان یافته است.
+
+سخنگوی وزارت خارجه پیونگ‌یانگ گفت «لفاظی‌های بی‌معنای آمریکا و نیروهای دست‌نشانده (کره جنوبی) آن علیه کره شمالی و همکاری آنها برای ایجاد تهدید هسته‌ای علیه این کشور، هرگز نمی‌تواند بر جایگاه برگشت‌ناپذیر کره شمالی به‌عنوان یک کشور دارای سلاح هسته‌ای تأثیر بگذارد».
+
+هفته گذشته، مقام‌های آمریکا و کره جنوبی در چارچوب «گروه مشورتی هسته‌ای» در سئول درباره تقویت بازدارندگی هسته‌ای و افزایش آمادگی در برابر برنامه تسلیحاتی رو به گسترش کره شمالی گفت‌وگو کردند.
+@FarsiVOA
+</div>
+
+## DW_Farsi — post 125948
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125948_1781426641.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 عقب‌نشینی ارتش لبنان از روستایی در جنوب این کشور در پی پیشروی نیروهای اسرائیلی
+
+یک مقام ارشد نظامی لبنان که نخواست هویتش فاش شود به خبرگزاری آسوشیتدپرس گفت روز شنبه ۲۳ خرداد (۱۳ ژوئن) پس از پیشروی نیروهای اسرائیلی به سمت روستای کفر تبنیت در جنوب لبنان، ارتش لبنان نیروهای خود را از یک پایگاه نظامی در این روستا خارج کرده است. ارتش اسرائیل پیش از آن برای حدود ۲۰ منطقه از جمله شهر نبطیه و روستاهای اطراف آن هشدار تخلیه صادر کرده بود.
+
+خبرگزاری دولتی لبنان گزارش داد روز شنبه اسرائیل به چندین روستای اطراف نبطیه حمله هوایی انجام داد. طبق این گزارش شهر نبطیه هدف گلوله‌باران توپخانه‌ای قرار گرفت و دو نفر نیز در روستای دیرالزهرانی کشته شدند.
+
+این مقام ارشد نظامی بدون اشاره به جزئیات به آسوشیتدپرس گفت که ارتش لبنان پس از ورود نیروهای اسرائیلی به منطقه، نیروهای خود را از پادگان کفر تنبیت خارج کرد. طبق این گزارش به احتمال زیاد نیروهای اسرائیلی در تلاش بودند تا تپه راهبردی "علی طاهر" را تصرف کنند که در حاشیه کفر تنبیت قرار داد و به بخش‌های وسیعی از شهر نبطیه و برخی جاده‌هایی که این شهر را به روستاهای اطراف متصل می‌کند، مشرف است.
+
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 17007
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17007_1781426641.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیو منتشر شده از لحظه اصابت یک پهپاد انتحاری حزب‌الله از نوع شاهد-101 به نقطه ای در الجلیل واقع در شمال اسرائیل
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 22531
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22531_1781426643.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وضعیت این روزای عرزشیا :
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 391988
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391988_1781426644.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دوستم تو دیت اول از پسره شورت کادو گرفته دوستان شورررررت=)))))
+(فقط جزئیات داخل جعبه z❤️sh)
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391987
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391987_1781426644.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آهای زنده‌ها، این حرومزاده مرده
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391986
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391986_1781426645.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هیچکس نپرسید چرا توی تجمع
+یک کو‌دک را بغل کرده است؟؟!
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 127810
+
+<div align="center">
+  <a href="telegram/content/alonews_127810_1781426645.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کودتای تندروها علیه مجتبی
+‼️
+
+
+🔴جلیل محبی: اگر رهبر هم قبول کنه ما قبول نمیکنیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127806
+
+<div align="center">
+  <a href="telegram/content/alonews_127806_1781426645.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈اوکراین تأسیسات نفتی روسیه رو هدف قرار داد
+
+
+🔴 حملهِ پهپادی به یه مخزن بزرگ نفت، تو یاروسلا
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127805
+
+<div align="center">
+  <a href="telegram/content/alonews_127805_1781426648.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈آخرین قیمت دلار: ۱۶۹.۵۲۰ تومان
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/24 12:03
 ---
 

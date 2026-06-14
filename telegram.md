@@ -7,6 +7,222 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/25 01:32
+---
+
+## WithYashar — post 14917
+
+
+
+
+## WithYashar — post 14916
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+@withyashar
+</div>
+
+## WithYashar — post 14915
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فارس: دقایقی دیگر بیانیه رسمی دبیرخانه شورای عالی انقلاب ملی درباره توافق آتش بس منتشر خواهد شد
+
+بر اساس این گزارش، ایران پس از حمله به ضاحیه بیروت، مذاکرات خود را لغو و آماده حمله به رژیم صهیونیستی شده بود. اما در نهایت با امتیازهای لحظه آخری که از سوی دونالد ترامپ، رئیسجمهور آمریکا ارائه شد، از جمله حفظ تمامیت ارضی لبنان و عقب نشینی اسرائیل از مرز لبنان و بازگشایی بلادرنگ محاصره، متقاعد گردید که از انجام حمله خود صرفنظر کند.
+همچنین مقرر شد نظام حقوقی تردد در آب‌های خلیج فارس با همکاری ایران و عمان تنظیم شود.
+@withyashar
+</div>
+
+## mwarmonitor — post 10934
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴جی دی ونس : من برای شرکت در مراسم امضای توافق با ایران به ژنو خواهم رفت.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10933
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+برگای کل تحلیلگران ارشد بین‌المللی ریخته
+</div>
+
+## mwarmonitor — post 10932
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 به گزارش فارس، دقایقی دیگر بیانیه رسمی دبیرخانه شورای‌عالی امنیت ملی درباره توافق آتش بس منتشر خواهد شد.
+
+🔹براساس این گزارش، ایران پس از حمله به ضاحیه بیروت، مذاکرات خود را لغو و آماده حمله به رژیم صهیونیستی شده بود. اما در نهایت با امتیازهای لحظه آخری که از سوی رئیس‌جمهور آمریکا ارائه شد، از جمله حفظ تمامیت ارضی لبنان و عقب نشینی اسرائیل از مرز لبنان و رفع بلادرنگ محاصره، متقاعد گردید که از انجام حمله خود صرفنظر کند.
+
+🔹همچنین مقرر شد نظام حقوقی تردد در آب‌های خلیج فارس با همکاری ایران و عمان تنظیم شود.
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 94006
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94006_1781474555.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴غریب‌آبادی، معاون وزیر خارجه:
+
+دشمنی که حمله کرده بود تا اهداف شومش رو عملیاتی کنه، در تمامی اهدافش متحمل شکست شد و جمهوری اسلامی ایران پیروزی‌های بزرگی در جنگ کسب کرد.
+
+در پیش نویس تفاهم، تمامی مواضع مهم خود را گنجانده‌ایم و پس از امضای رسمی، متن تفاهم‌نامه منتشر خواهد شد. قبل از امضا هم از طریق رسانه‌های عمومی، ابعاد مختلف یادداشت تفاهم رو تشریح خواهیم کرد و دستاوردها رو خواهیم گفت.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94005
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94005_1781474555.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴غریب‌آبادی، معاون وزیر خارجه:
+پایان فوری و دائمی جنگ و عملیات‌های نظامی در جبهه‌های مختلف و از جمله لبنان، از همین امشب اعلام میشه.
+
+از امشب خاتمه محاصره دریایی آمریکا علیه ایران هم آغاز میشه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94004
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94004_1781474556.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبرگزاری فارس: ایران پس از حمله اسرائیل به ضاحیه بیروت، مذاکرات رو لغو و آماده حمله به اسرائیل شده بود؛ اما در نهایت با امتیازهای لحظه آخری که از سوی دونالد ترامپ ارائه شد، از جمله حفظ تمامیت ارضی لبنان و عقب نشینی اسرائیل از مرز لبنان و بازگشایی فوری محاصره دریایی، متقاعد گردید که از انجام حمله خود صرف نظر کنه.
+
+همچنین مقرر شد نظام حقوقی تردد در آب‌های خلیج فارس با همکاری ایران و عمان تنظیم بشه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94003
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94003_1781474557.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴صداوسیما:
+ترامپ به شکل حقیرانه‌ای عقب‌نشینی کرد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 342367
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342367_1781474557.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻تیم ملی فوتبال هلند در اولین بازی خود در جام جهانی ۲۰۲۶ در ورزشگاه ای‌تی‌اند‌تی در آرلینگتون با نتیجه دو بر دو برابر ژاپن متوقف شد.
+
+🔹شاگردان کومان دو بار با گل‌های فن‌دایک و سامرویل از حریف خود پیش افتادند اما برترین تیم آسیا با گل‌های ناکامورا و کامادا از شکست گریخت.
+
+🔹سوئد و تونس دیگر دیدار این گروه را برگزار خواهند کرد.
+
+@iranintltvsport
+</div>
+
+## Iliaen — post 4488
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+با دستور ترامپ، نیروی دریایی ایالات متحده به محاصره دریایی پایان داد.
+
+@iliaen
+</div>
+
+## IranianMinds — post 22605
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 معاون وزیر خارجه جمهوری اسلامی:
+
+پایان فوری و دائمی جنگ و عملیات‌های نظامی در جبهه‌های مختلف و از جمله لبنان، از همین امشب اعلام می‌شود , محاصره دریایی هم توسط آمریکا برداشته شد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22604
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 معاون وزیر خارجه جمهوری اسلامی:
+
+متن یادداشت تفاهم نهایی شده و امضای رسمی یادداشت تفاهم اسلام آباد روز جمعه در سوئیس انجام خواهد شد.
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 392059
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392059_1781474558.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قماربازه؟ زنش جنده‌ست؟ قاتل آقاست؟ به تو چه، میخواد این ده روز امام حسینی باشه.
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 128050
+
+<div align="center">
+  <a href="telegram/content/alonews_128050_1781474558.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈برخی کانالای انقلابی در ایتا نوشتند که این جام زهر نبود بلکه بشکه زهر بود 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128049
+
+<div align="center">
+  <a href="telegram/content/alonews_128049_1781474558.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😐
+😐
+😐
+😐
+😐
+</div>
+
+## alonews — post 128048
+
+<div align="center">
+  <a href="telegram/content/alonews_128048_1781474560.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈غریب‌آبادی، معاون وزیر خارجه:
+متن یادداشت تفاهم نهایی شده و امضای رسمی‌یادداشت تفاهم اسلام آباد روز جمعه در سوئیس انجام خواهد شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/25 01:22
 ---
 

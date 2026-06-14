@@ -7,6 +7,475 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/25 01:12
+---
+
+## VahidOOnLine — post 245568
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245568_1781473369.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس‌جمهوری آمریکا، با انتشار بیانیه‌ای رسمی در شبکه اجتماعی «تروث سوشال»، از نهایی شدن توافق میان واشنگتن و تهران خبر داد و نوشت: «توافق با جمهوری اسلامی ایران اکنون کامل شده است. تبریک به همه» رئیس‌جمهوری ایالات متحده بلافاصله پس از اعلام حصول این معاهده، دستور رفع محدودیت‌های دریایی علیه ایران را صادر کرد و افزود: «من بدین‌وسیله اجازه کامل بازگشایی بدون عوارض تنگه هرمز را صادر می‌کنم و هم‌زمان با آن، فرمان لغو فوری محاصره دریایی ایالات متحده [علیه ایران] را ابلاغ می‌نمایم.» ترامپ نوشت: «کشتی‌های جهان، موتورهای خود را روشن کنید؛ بگذارید نفت جریان یابد!»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245567
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245567_1781473369.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس‌جمهوری آمریکا، در گفتگو با روزنامه وال‌استریت ژورنال اعلام کرد که در توافق احتمالی و پیش‌رو با تهران، هیچ پول نقدی به ایران پرداخت نخواهد شد، اما در مقابل، واشنگتن احتمالا تحریم‌های اعمال‌شده علیه این کشور را لغو خواهد کرد. ترامپ با تاکید بر اینکه لغو این تحریم‌ها به نحوه رفتار و پایبندی تهران بستگی دارد، اظهار داشت که در این مرحله هیچ عجله‌ای برای استخراج و خروج مواد اتمی از خاک ایران ندارد و این اقدام را مسأله‌ای «بی‌خطر» می‌داند که می‌توان آن را به یک یا دو ماه آینده موکول کرد. رئیس‌جمهوری ایالات متحده با اشاره به اینکه توافق نهایی شامل تعهد رسمی ایران برای عدم دستیابی به سلاح هسته‌ای و بازگشایی فوری تنگه هرمز خواهد بود، تاکید کرد که نظارت‌ها و بازرسی‌های شدیدی بر برنامه‌های ایران اعمال می‌شود، اما از تشریح جزئیات مکانیسم این بازرسی‌ها خودداری کرد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14911
+
+<div align="center">
+  <img src="telegram/content/WithYashar_14911_1781473370.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صداسیما : ترامپو وادار کردیم در همه جبهه ها جنگ رو متوقف کنه
+@withyashar
+</div>
+
+## WithYashar — post 14910
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اتریوم داره پرواز میکنه
+@withyashar
+</div>
+
+## WithYashar — post 14909
+
+<div align="center">
+  <img src="telegram/content/WithYashar_14909_1781473370.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ در تروث : «توافق با جمهوری اسلامی ایران اکنون نهایی شده است. به همه تبریک می‌گویم! من بدین‌وسیله به‌طور کامل مجوز بازگشایی رایگان تنگه هرمز را صادر می‌کنم و هم‌زمان، دستور رفع فوری محاصره دریایی ایالات متحده را نیز صادر می‌نمایم. ای کشتی‌های جهان، موتورهای خود را روشن کنید. بگذارید نفت جاری شود!
+@withyashar
+</div>
+
+## WithYashar — post 14908
+
+
+
+
+## mwarmonitor — post 10928
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_10928_1781473371.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴توافق با جمهوری اسلامی ایران اکنون کامل شده است. تبریک به همه! من بدین‌وسیله اجازه کامل برای بازگشایی بدون عوارض (آزاد) تنگه هرمز را صادر می‌کنم و هم‌زمان با آن، دستور رفع فوری محاصره دریایی ایالات متحده را می‌دهم. کشتی‌های جهان، موتورهای خود را روشن کنید. بگذارید نفت جریان یابد!
+
+رئیس‌جمهور دونالد جی. ترامپ
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 94000
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94000_1781473372.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴اعلام رسمی خبر توافق و توقف جنگ در شبکه خبر صداوسیما 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93999
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93999_1781473373.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴اعلام رسمی خبر توافق و توقف جنگ در شبکه خبر صداوسیما
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93998
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93998_1781473375.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پست جدید ترامپ:
+
+توافق با جمهوری اسلامی اکنون کامل شده. به همه تبریک میگم!
+
+بدین‌وسیله من بازگشایی بدون عوارض تنگه هرمز رو به طور کامل مجاز میدونم، و همزمان با این، لغو فوری محاصره دریایی ایالات متحده آمریکا رو دستور میدم.
+
+ای کشتی‌های جهان، موتورهاتون رو روشن کنید. بگذارید نفت جاری بشه!
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93997
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93997_1781473376.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴دونالد ترامپ: این توافق به صورت الکترونیکی، یا توسط من یا معاون رئیس جمهور جی‌دی ونس، امضا خواهد شد. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93996
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93996_1781473377.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴شهباز شریف، نخست وزیر پاکستان: پس از مذاکرات فشرده، با کمال خرسندی اعلام می‌کنیم که توافق صلحی بین آمریکا و ایران حاصل شده. هر دو طرف توقف فوری و دائمی عملیات نظامی در تمام جبهه‌ها، از جمله در لبنان، رو اعلام کردن. مراسم رسمی امضای توافق‌نامه روز جمعه، 19…
+</div>
+
+## VahidOnline — post 76351
+
+<div align="center">
+  <a href="telegram/content/VahidOnline_76351_1781473378.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اعلام خبر توافق و توقف جنگ در شبکه خبر
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 76350
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76350_1781473379.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+☄️ ترامپ: تبریک به همه، توافق نهایی شد
+
+پست ترامپ ترجمه ماشین:
+توافق با جمهوری اسلامی ایران اکنون کامل شده است. به همه تبریک می‌گویم!
+
+بدین‌وسیله من به‌طور کامل اجازه بازگشایی بدون عوارض تنگه هرمز را صادر می‌کنم و هم‌زمان با این، مجوز برداشته شدن فوری محاصره دریایی ایالات متحده را صادر می‌کنم.
+
+کشتی‌های جهان، موتورهای خود را روشن کنید. بگذارید نفت جریان پیدا کند!
+
+رئیس‌جمهور دونالد جی. ترامپ
+realDonaldTrump
+
+📡 @VahidOnline
+</div>
+
+## kianmeli1 — post 88000
+
+<div align="center">
+  <a href="telegram/content/kianmeli1_88000_1781473380.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴صداوسیما
+پایان رسمی جنگ اعلام شد
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 342365
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342365_1781473382.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهوری آمریکا، اعلام کرد توافق با جمهوری اسلامی ایران نهایی شده است.
+
+ترامپ در پیامی گفت: «به همه تبریک می‌گویم. توافق با جمهوری اسلامی ایران اکنون نهایی شده است.»
+
+او همچنین اعلام کرد دستور بازگشایی تنگه هرمز بدون دریافت عوارض و همزمان دستور لغو فوری محاصره دریایی اعمال‌شده از سوی ایالات متحده را صادر کرده است.
+
+رییس‌جمهوری آمریکا در ادامه نوشت: «ای کشتی‌های جهان، موتورهای خود را روشن کنید. بگذارید نفت جریان یابد.»
+https://iranintl.com/202606142820
+</div>
+
+## FarsiVOA — post 220728
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220728_1781473383.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️دونالد ترامپ، رئیس جمهوری آمریکا اعلام کرد که توافق با جمهوری اسلامی ایران اکنون کامل شده است. او گفت: به همه تبریک می‌گویم! بدینوسیله اجازه کامل بازگشایی تنگه هرمز بدون عوارض را می‌دهم و همزمان با آن، رفع فوری محاصره دریایی ایالات متحده را نیز مجاز می‌دارم. کشتی‌های جهان، موتورهای خود را روشن کنید. بگذارید نفت جریان یابد! رئیس جمهور دونالد جی. ترامپ
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 17128
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_17128_1781473383.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ در تروث سوشال: توافق با جمهوری اسلامی ایران اکنون کامل شده است. به همه تبریک می‌گویم!
+
+من بدینوسیله اجازه کامل بازگشایی تنگه هرمز بدون عوارض را می‌دهم و همزمان با آن، رفع فوری محاصره دریایی ایالات متحده را نیز مجاز می‌دانم.
+
+کشتی‌های جهان، موتورهای خود را روشن کنید. بگذارید نفت جریان یابد!
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17127
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17127_1781473384.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😄😄😄😄😄😄😄
+</div>
+
+## RadioFarda — post 158306
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دبیر کمیسیون حقوق بشر اسلامی ایران رد صلاحیت ها را بدون توجیه قوی دارای پیامدهای حقوقی ویرانگر دانست محمد حسن ضیایی فر ، دبیر کمیسیون حقوق بشر اسلامی ایران رد صلاحیت داوطلبان انتخابات مجلس شورای اسلامی را بدون آنچه توجیه قوی حقوقی و اخلاقی نامید، دارای پیامدهای…
+</div>
+
+## RadioFarda — post 158305
+
+<div align="center">
+  <a href="telegram/content/RadioFarda_158305_1781473385.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸شهباز شریف، نخست‌وزیر پاکستان، در پیامی در شبه ایکس نوشت: «پس از گفت‌وگوهای فشرده، با خرسندی اعلام می‌کنیم که توافق صلح میان ایالات متحده آمریکا و جمهوری اسلامی ایران حاصل شده است. هر دو طرف پایان فوری و دائمی عملیات نظامی در همه جبهه‌ها، از جمله در لبنان، را اعلام کرده‌اند.»
+
+🔸او افزوده است که «مراسم رسمی امضای این توافق روز جمعه ۱۹ ژوئن (۲۹ خرداد) در سوئیس برگزار خواهد شد.»
+
+🔸وی در ادامه نیز نوشته است که «مایلیم از ایالات متحده آمریکا و جمهوری اسلامی ایران به‌دلیل پایبندی‌شان به یافتن راه‌حلی دیپلماتیک برای این مناقشه قدردانی کنیم. همچنین از برادران خود در این تلاش میانجی‌گرانه، رهبری دولت قطر، به‌دلیل حمایتشان در دستیابی به این توافق صمیمانه سپاسگزاریم. افزون بر این، مایلم به‌طور ویژه از رهبری آینده‌نگر پادشاهی عربستان سعودی و جمهوری ترکیه به‌خاطر نقش و مشارکت چشمگیرشان در این زمینه قدردانی کنم.»
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 22602
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 تسنیم :
+
+تا دقایقی دیگر مقامات در مورد توافق با مردم صحبت خواهند کرد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22601
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ولی چه رکبی زد قالبیاف
+
+همه ی تندروهارو برکنار کرد گروهک سعید جلیلیو منحل‌ کرد و راحت توافقشو کرد
+
+نکنه جاسوس از اول همین بود ؟
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22600
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22600_1781473387.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بابا مادرجنده ها شماها چقدر رو دارید 😂😂😂😂😂😂😂😂😂
+
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22599
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ: «توافق با جمهوری اسلامی ایران اکنون کامل شده است. به همه تبریک می‌گویم! من رسماً باز شدن عبور و مرور بدون تعرفه در تنگه هرمز را تأیید می‌کنم و هم‌زمان، دستور لغو فوری محاصره نیروی دریایی ایالات متحده را صادر می‌کنم. کشتی‌های جهان، موتورهای خود…
+</div>
+
+## IranianMinds — post 22598
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22598_1781473388.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ:
+
+«توافق با جمهوری اسلامی ایران اکنون کامل شده است. به همه تبریک می‌گویم!
+
+من رسماً باز شدن عبور و مرور بدون تعرفه در تنگه هرمز را تأیید می‌کنم و هم‌زمان، دستور لغو فوری محاصره نیروی دریایی ایالات متحده را صادر می‌کنم.
+
+کشتی‌های جهان، موتورهای خود را روشن کنید. بگذارید نفت جریان پیدا کند!
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 283822
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283822_1781473389.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌ ‌ ‌ ‌
+دونالد ترامپ، رئیس‌جمهور آمریکا هم اعلام کرد که توافق با ایران نهایی شده است.
+
+آقای ترامپ در پستی در شبکه اجتماعی تروث سوشال نوشت: «توافق با جمهوری اسلامی ایران اکنون کامل شده است. به همه تبریک می‌گویم!»
+
+آقای ترامپ در ادامه نوشته که «اجازه کامل بازگشایی تنگه هرمز بدون عوارض را می‌دهم و هم‌زمان با آن، رفع فوری محاصره دریایی ایالات متحده را نیز مجاز می‌دارم.»
+
+رئیس‌جمهور آمریکا نوشته: «کشتی‌های جهان، موتورهای خود را روشن کنید. بگذارید نفت جریان یابد!»
+
+شهباز شریف، نخست‌وزیر پاکستان، هم دقایقی پیش اعلام کرد که تفاهم‌ نامه میان دو کشور حاصل شده و در روز جمعه ۱۹ ژوئن در سوئیس امضا خواهد شد.
+
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 392057
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392057_1781473390.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تصویری عجیب از یه عرزشی توی تجمعات شبانه، خطش دائمیه یا اعتباری :) @Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392056
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392056_1781473390.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ :
+توافق با جمهوری اسلامی ایران نهایی شد، به همه تبریک میگم!
+
+من رسماً مجوز بازگشایی کامل و بدون عوارض تنگه هرمز رو صادر می‌کنم و همزمان دستور میدم محاصره دریایی نیروی دریایی آمریکا هم فوراً برداشته بشه.
+
+کشتی‌های دنیا، موتورهاتون رو روشن کنید! بذارید نفت دوباره جریان پیدا کنه!
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392055
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392055_1781473391.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انقدرخودکار دزدید که تفاهم نامه رو الکترونیکی امضا میکنند 😂
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 128039
+
+<div align="center">
+  <a href="telegram/content/alonews_128039_1781473392.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈صدا و سیما: عقب نشینی حقیرانه ترامپ
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128038
+
+<div align="center">
+  <a href="telegram/content/alonews_128038_1781473392.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری/ ولایتی: فرمان صادر شد؛ لانچرها آماده پرتاب میشوند 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128037
+
+<div align="center">
+  <a href="telegram/content/alonews_128037_1781473392.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فارس: مسئولان قراره بیان صحبت کنن
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128036
+
+<div align="center">
+  <a href="telegram/content/alonews_128036_1781473393.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴به همه طرفداران جمهوری اسلامی، استعمار شدنتون رو توسط کشوری که 47 سال مرگ بهش فرستادین تبریک میگیم.
+
+
+✅@AloNews
+</div>
+
+## alonews — post 128035
+
+<div align="center">
+  <a href="telegram/content/alonews_128035_1781473393.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈مجری صدا و سیما:
+پیروزی رو به ملت تبریک میگم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128034
+
+<div align="center">
+  <a href="telegram/content/alonews_128034_1781473394.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈راستی ۱ساعت قبل از اعلام رسمی، توافق توسط منابع الونیوز در کانال اعلام شد🙂
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128033
+
+<div align="center">
+  <a href="telegram/content/alonews_128033_1781473394.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حاج حسین توام خسته نباشی😘
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128032
+
+<div align="center">
+  <a href="telegram/content/alonews_128032_1781473394.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈از همین تریبون به این عزیزان هم خسته نباشید میگیم❤️ برید خونه حالا😂
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/25 01:02
 ---
 

@@ -7,6 +7,348 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/24 18:33
+---
+
+## VahidOOnLine — post 245494
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_245494_1781449411.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوهای رسیده به ایران‌اینترنشنال نشان می‌دهند ایرانیان مقیم استرالیا یکشنبه ۲۴ خرداد با فراخوان شاهزاده رضا پهلوی و علیه جمهوری اسلامی در سیدنی تجمع کردند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245493
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245493_1781449413.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️پیت هگست، وزیر دفاع آمریکا، روز یکشنبه ۲۴ خرداد ماه در گفتگو با شبکه سی‌بی‌اس گفت واشنگتن در مسیر امضای توافق با ایران قرار دارد و «سوال این نیست که آیا توافق امضاء خواهد شد یا نه، بلکه این است که چه زمانی امضاء خواهد شد.»
+
+هگست همچنین با اعلام آنکه انتظار ندارد حملات اسرائیل به حومه جنوبی بیروت مانع توافق با ایران شود،  گفت ایران باید حزب‌الله لبنان را مهار کند.
+
+اظهارات هگست در حالی مطرح می‌شود که گمانه‌زنی‌ها درباره زمان امضای چارچوب اولیه توافق میان تهران و واشنگتن افزایش یافته و همزمان تنش‌ها در منطقه پس از حمله اسرائیل به ضاحیه جنوبی بیروت بالا گرفته است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245492
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245492_1781449414.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهوری آمریکا، در تروت سوشال نوشت حمله یکشنبه اسرائیل به بیروت نباید انجام می‌شد، به‌ویژه در شرایطی که واشینگتن و تهران به گفته او «بسیار نزدیک» به دستیابی به توافق صلح هستند.
+ترامپ گفت اسرائیل حق دفاع از خود را دارد، اما واکنش به حمله‌ای که «هیچ کشته یا زخمی نداشته»، نباید روند دستیابی به توافق را مختل کند.
+
+او افزود آمریکا به توافقی نزدیک شده که می‌تواند برای منطقه، از جمله لبنان، صلح به همراه داشته باشد و از همه طرف‌ها خواست از تشدید تنش خودداری کنند.
+ترامپ همچنین گفت نباید حمله دیگری از سوی اسرائیل در لبنان انجام شود و در مقابل، حزب‌الله نیز نباید حملات تازه‌ای علیه اسرائیل انجام دهد.
+رییس‌جمهوری آمریکا در پایان نوشت: «این می‌تواند آغاز یک صلح طولانی و زیبا باشد؛ بیایید آن را خراب نکنیم.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## pm_afshaa — post 93909
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیت هگستث: به خاطر دوراندیشی رئیس‌جمهور ترامپ، ما در داخل کشور به استقلال انرژی دست یافته‌ایم
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93908
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیت هگستث: این قدرت رئیس‌جمهور ترامپ بود که ایران را به این توافق واداشت
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93907
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+منابع عربی :امریکا در پیامی به اسرائیل گفته امشب ایران حملات موشکی انجام خواهد داد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93906
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93906_1781449415.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیویی از شلیک و درگیری نیروهای حکومتی با طرفدارای حکومت در شب گذشته
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## VahidOnline — post 76335
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76335_1781449416.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: بیایید خرابش نکنیم!‍
+
+پست ترامپ، ترجمه ماشین:
+حمله صبح امروز به بیروت نباید اتفاق می‌افتاد؛ به‌ویژه در روزی خاص که ما تا این اندازه به توافق صلح با ایران نزدیک هستیم. اسرائیل حق دارد از خود در برابر تهدیدها دفاع کند، اما حمله‌ای که در پاسخ به آن انجام شد بسیار کوچک و بی‌اهمیت بود؛ هیچ‌کس آسیبی ندید، زخمی نشد یا کشته نشد، و نباید این روند مهم را مختل کند.
+
+ما به توافقی بسیار نزدیک هستیم که صلح را به منطقه، از جمله لبنان، خواهد آورد و همه طرف‌ها باید عقب‌نشینی کنند. دیگر نباید هیچ حمله‌ای از سوی اسرائیل در هیچ نقطه‌ای از لبنان انجام شود، اما همچنین نباید هیچ حمله‌ای از سوی هیچ طرف دیگری، از جمله حزب‌الله، علیه اسرائیل صورت گیرد.
+
+این می‌تواند آغاز یک صلح طولانی و زیبا باشد — بیایید خرابش نکنیم!
+
+از توجه شما به این موضوع سپاسگزارم.
+
+رئیس‌جمهور دونالد جی. ترامپ
+realDonaldTrump
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 342289
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342289_1781449416.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوهای رسیده به ایران‌اینترنشنال نشان می‌دهند ایرانیان مقیم استرالیا یکشنبه ۲۴ خرداد با فراخوان شاهزاده رضا پهلوی و علیه جمهوری اسلامی در سیدنی تجمع کردند.
+</div>
+
+## IranIntlTV — post 342288
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342288_1781449418.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهوری آمریکا، در تروت سوشال نوشت حمله یکشنبه اسرائیل به بیروت نباید انجام می‌شد، به‌ویژه در شرایطی که واشینگتن و تهران به گفته او «بسیار نزدیک» به دستیابی به توافق صلح هستند.
+ترامپ گفت اسرائیل حق دفاع از خود را دارد، اما واکنش به حمله‌ای که «هیچ کشته یا زخمی نداشته»، نباید روند دستیابی به توافق را مختل کند.
+
+او افزود آمریکا به توافقی نزدیک شده که می‌تواند برای منطقه، از جمله لبنان، صلح به همراه داشته باشد و از همه طرف‌ها خواست از تشدید تنش خودداری کنند.
+ترامپ همچنین گفت نباید حمله دیگری از سوی اسرائیل در لبنان انجام شود و در مقابل، حزب‌الله نیز نباید حملات تازه‌ای علیه اسرائیل انجام دهد.
+رییس‌جمهوری آمریکا در پایان نوشت: «این می‌تواند آغاز یک صلح طولانی و زیبا باشد؛ بیایید آن را خراب نکنیم.»
+https://iranintl.com/202606142863
+</div>
+
+## FarsiVOA — post 220692
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220692_1781449419.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ: بسیار به توافقی نزدیک شده‌ایم که صلح را به منطقه، از جمله لبنان، خواهد آورد و همه طرف‌ها باید خویشتنداری کنند. دیگر نباید هیچ حمله‌ای از سوی اسرائیل در هیچ نقطه‌ای از لبنان صورت گیرد، اما در عین حال هیچ حمله‌ای از سوی هیچ طرف دیگری، از جمله حزب‌الله، علیه اسرائیل نیز نباید انجام شود.
+</div>
+
+## Persian_Trend_Official — post 17062
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17062_1781449419.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سردار اسدی: جنایت صهیونیست‌ها بی‌پاسخ نمی‌ماند.
+
+سردار محمدجعفر اسدی معاون بازرسی قرارگاه مرکزی خاتم الأنبیا در گفتگو با دفاع‌پرس در واکنش به حمله مجدد اسرائیل به ضاحیه بیروت اظهار داشت: بدون شک این جنایات بی‌پاسخ نخواهد ماند.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17061
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17061_1781449420.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ وزیر جنگ ایالات متحده: تا آنجا که من می‌دانم، ما در مسیر امضای توافق هستیم. مسئله زمان آن است، نه اینکه آیا این اتفاق می‌افتد یا خیر. اسرائیل در واکنش به حزب‌الله بسیار میانه‌رو است. 📝 Nick 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17060
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبکه العربیه: یک مقام ارشد حزب‌الله، علی الحاج، در حمله ارتش اسرائیل به ضاحیه بیرت کشته شد. همچنین کانال 12 اسرائیل ادعا کرد هدف حمله امروز فرمانده واحد ارتباط حزب‌الله بوده است. 📝 Amir 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## BBCPersian — post 283802
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻اسرائیل: ایران مثل همیشه دروغ می‌گوید
+
+پس از پیام محمدباقر قالیباف در ایکس، وزارت خارجه اسرائیل به آن پاسخ داد و ایران را به دروغگویی متهم کرد.
+
+در این پیام آمده است: «رژیم ایران مثل همیشه دروغ می‌گوید. نیروی نیابتی ایران یعنی حزب‌الله کاملا بی‌دلیل امروز صبح به اسرائیل حمله کرد.»
+
+«حزب‌الله دائم به شهروندان اسرائیل شلیک می‌کند. حتی بعد از آتش‌بس حزب‌الله هدف قرار دادن شهروندان را متوقف نکرده است.»
+
+اسرائیل و حزب در طول آتش‌بس به حمله به یکدیگر ادامه دادند.
+
+حزب‌الله می‌گوید امروز به شمال اسرائیل حمله نکرده و فقط سربازان اسرائیلی در جنوب لبنان را هدف قرار داده است.
+
+https://bbc.in/4fEONCy
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 392014
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392014_1781449420.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+من که مطمئنم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392013
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تو توی سال ۱۳۲۲ برای جذب همکلاسیای دخترت عضو حزب توده میشی،
+من بخاطرت اینجا توی سال ۱۴۰۵ هر دبه ماست رو میگیرم سیصد هزار تومن.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392012
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392012_1781449421.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چقدر حیوونن این اصلاح طلبا
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 127904
+
+<div align="center">
+  <a href="telegram/content/alonews_127904_1781449421.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈برنان: اما الان با آن ذخایر سلاح‌ها مشکلی وجود دارد؟
+
+
+🔴پیت هگستث: خیر، چنین چیزی نیست. این داستانی ساختگی است که رسانه‌ها می‌خواهند آن را پخش کنند. ذخایر ما عالی هستند و فقط قوی‌تر می‌شوند.
+
+
+🔴برنان: شما در مقابل کنگره در این باره شهادت داده‌اید.
+
+
+🔴هگستث: لازم نیست برایم آنچه را که شهادت داده‌ام دوباره بخوانید... من حدس زدم که برخی مهمات زمان بیشتری نسبت به بقیه می‌برند. ما بیشتر از همیشه در حال ساخت هستیم.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127903
+
+<div align="center">
+  <a href="telegram/content/alonews_127903_1781449423.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈برنان: با توجه به اینکه ارتش آمریکا همین حالا این عملیات را در ونزوئلا انجام داده است، آیا آمریکایی‌ها باید بفهمند که آمریکا همچنان از نظر نظامی در آنجا حضور خواهد داشت؟ آیا باید انتظار عملیات مشابهی در جاهایی مانند اکوادور و گواتمالا را داشته باشند؟
+
+
+🔴پیت هگست: بله، باید اینطور باشد. این یک تقویت شگفت‌انگیز از «دکترین دونرو» است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127902
+
+<div align="center">
+  <a href="telegram/content/alonews_127902_1781449425.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پیت هگستث: به خاطر دوراندیشی رئیس‌جمهور ترامپ، ما در داخل کشور به استقلال انرژی دست یافته‌ایم.
+
+
+🔴برنان: قیمت انرژی در حال حاضر نسبتاً بالاست، بنابراین نمی‌دانم این استقلال چقدر به مردم در پمپ بنزین کمک می‌کند.
+
+
+🔴هگستث: قیمت‌ها در حال کاهش است و شما این را دیده‌اید. هه هه هه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127901
+
+<div align="center">
+  <a href="telegram/content/alonews_127901_1781449427.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پیت هگستث: این قدرت رئیس‌جمهور ترامپ بود که ایران را به این توافق واداشت
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127900
+
+<div align="center">
+  <a href="telegram/content/alonews_127900_1781449429.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پیت هگستث: ایران نمی‌تواند قابلیت‌های خود را در اطراف تنگه ببیند و درک کند، به‌ویژه در چند شب گذشته که برای آن‌ها بسیار ویرانگر بود از نظر توانایی‌شان در فهمیدن آنچه در تنگه می‌گذرد.
+
+
+🔴وقتی این توافق امضا شود، انتظار ما این است که ایران شلیک پهپاد به کشتی‌های تجاری را متوقف کند.
+
+
+🔴برنان: آن‌ها همین کار را جمعه گذشته انجام دادند. یک پهپاد هفته گذشته با یک هلیکوپتر آپاچی برخورد کرد. آن‌ها هنوز توانایی آسیب رساندن به دوستان و شرکای ما را دارند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127899
+
+<div align="center">
+  <a href="telegram/content/alonews_127899_1781449431.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈هگِستِ : ما کل این مدت کنترل تنگه‌ها رو دستمون داشتیم
+
+
+🔴مجری : پس چرا دارید باهاشون مذاکره می‌کنید که دوباره بازش کنن؟
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/24 18:23
 ---
 

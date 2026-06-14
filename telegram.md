@@ -7,6 +7,221 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/24 21:43
+---
+
+## WithYashar — post 14856
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🥊 UFC Freedom 250 + مراسم ۲۵۰ سالگی آمریکا (White House Event)
+
+UFC فریدم ۲۵۰ همزمان با جشن ۲۵۰ سالگی آمریکا و برنامه‌های کاخ سفید برگزار می‌شود و به وقت تهران از حدود ساعت ۰۲:۳۰ بامداد روز دوشنبه با بخش‌های قبل از رویداد و برنامه‌های طرفداری شروع می‌شود، سپس بخش پریلمز (مبارزات مقدماتی) از حدود ساعت ۰۴:۳۰ تا ۰۸:۳۰ صبح پخش می‌شود که شامل مبارزات سبک‌تر و مبارزان کم‌تجربه‌تر است و نقش آماده‌سازی فضای اصلی را دارد، بعد از آن بخش مین‌کارت (کارت اصلی) از حدود ساعت ۰۸:۳۰ صبح تا حدود ۱۲:۳۰ ظهر ادامه پیدا می‌کند که شامل مبارزات مهم‌تر و ستاره‌های یو‌اف‌سی است و در نهایت مهم‌ترین مبارزه شب یعنی مین ایونت (مبارزه اصلی) معمولاً نزدیک ساعت ۱۰:۳۰ تا ۱۱:۳۰ صبح به وقت تهران برگزار می‌شود و کل این رویداد به‌صورت زنده از طریق سرویس پارامونت پلاس پخش می‌شود و در آمریکا بخشی از آن هم از شبکه سی‌بی‌اس پخش خواهد شد.
+@withyashar
+</div>
+
+## mwarmonitor — post 10905
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴به نقل از کانال ۱۲: 🔸ایران پیشنهاد ترامپ برای دریافت «مزایای اقتصادی» در ازای خویشتنداری را رد کرده است. 🔸و گفته می‌شود که ایران اعلام کرده «به‌زودی پاسخ خواهد داد». @mwarmonitor
+</div>
+
+## mwarmonitor — post 10904
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨گزارش شده است که یک عملیات جاسوسی به نفع ایران در داخل کنست (پارلمان اسرائیل) کشف شده است.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10903
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ارزیابی اسرائیل: ترامپ انتظار می‌رود به‌زودی یک امتیاز به ایران اعلام کند، در ازای اینکه ایران به حمله ضاحیه پاسخ ندهد. ماهیت این پیشنهاد مشخص نیست، اما گفته می‌شود این بخشی از تلاش‌های پشت‌پرده‌ای است که در حال انجام است - کانال ۱۲ @mwarmonitor
+</div>
+
+## pm_afshaa — post 93943
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93943_1781460825.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴درخواست اعدام عراقچی توسط تجمع کنندگان تندرو:
+
+عراقچی بی غیرت اعدام باید گردد!
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93942
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93942_1781460826.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وای‌نت به نقل از یک مقام اسرائیلی:
+ترامپ از نتانیاهو خواسته آتش‌بس در لبنان رو حفظ کرده و عقب‌نشینی رو آغاز کنه، اما نتانیاهو هر دو درخواست رو رد کرده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93941
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صداوسیما : بزودی به اسرائیل پاسخ میدیم
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## FarsiVOA — post 220710
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هدف جمهوری اسلامی از امضای دیجیتال توافقنامه با آمریکا چیست؟ چرا رژیم از توافق حضوری پرهیز می‌کند؟
+</div>
+
+## FarsiVOA — post 220709
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ابعاد و پیچیدگی حملات سایبری به چهار بانک بزرگ در ایران، گفت‌وگو با کوروش ضیغمی
+</div>
+
+## FarsiVOA — post 220708
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺محاصره دریایی آمریکا علیه جمهوری اسلامی؛ سنتکام: مسیر ۱۴۲ کشتی را تغییر دادیم؛ ۱۴ ملوان هندی نجات یافتند
+
+◾️ستاد فرماندهی مرکزی آمریکا (سنتکام) در یک به‌روز‌رسانی تازه درباره محاصره دریایی علیه جمهوری اسلامی، از افزایش تعداد شناورهایی که در جریان این عملیات وادار به تغییر مسیر شده‌اند، خبر داد.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/naval-blockade-ship-indian-sailor-rescue-centcom-redirect/8160715.html
+</div>
+
+## FarsiVOA — post 220707
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220707_1781460826.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+با نزدیک شدن احتمال امضای توافهم‌نامه میان جمهوری اسلامی و آمریکا، حامیان جمهوری اسلامی با شعار «عراقچی بی‌غیرت اعدام باید گردد» در تجمع حکومتی مخالفت خود را با توافق با آمریکا نشان دادند.
+
+دونالد ترامپ، رئیس‌جمهوری آمریکا، تاکید کرده است توافق با جمهوری اسلامی بسیار نزدیک شده است. پزشکیان نیز در این باره اعلام کرد «تصمیم‌گیری درباره جنگ و مذاکره بر عهده رهبری و شورای عالی امنیت ملی است.»
+</div>
+
+## Persian_Trend_Official — post 17088
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دوستان عزیز
+به هیچ عنوان اخبار یا محتوای سایر چنل ها رو در بخش چت، فروارد یا بازنشر نکنید !
+اگر خبری به نظرتون نیازه مطرح بشه خود متن خبر بدون اشاره به چنل های دیگه یا همراه داشتن امضای آن کانال مشکلی نداره
+اما بخاطر حواشی به وجود آمده متاسفانه در صورت رعایت نکردن بار اول به شکل موقت و بار دوم به شکل دائم از فعالیت در چت محروم میشید
+
+از توجه شما سپاسگزارم
+الیاس فرخ
+</div>
+
+## IranianMinds — post 22581
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 کانال ۱۲ اسرائیل :
+
+یک مقام ایرانی مدعی شده است که دونالد ترامپ در ازای سکوت ایران درباره حمله به ضاحیه بیروت، پیشنهاد پرداخت پول داده است.
+
+به گفته این مقام، تهران این پیشنهاد را رد کرده و تأکید کرده: «به‌زودی پاسخ خواهیم داد.»
+
+مقام‌های ایرانی همچنین گفته‌اند:
+
+ما به متحدان خود خیانت نخواهیم کرد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22580
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 مقام اسرائیلی به خبرگزاری وای نت:
+
+وقتی ایران یک بالگرد آمریکایی را سرنگون کرد، ترامپ دستور یک پاسخ شدید را صادر کرد؛ با وجود اینکه هیچ کشته‌ای وجود نداشت.
+
+چرا کاری که برای آمریکا مجاز است، برای اسرائیل ممنوع باشد؟
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 392032
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392032_1781460828.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 عرزشیا بالاخره بیدار شدن؛ پیام یکیشون:
+
+بی شرف‌های کثیف گوه خوردین از ترس کونتون به ما گفتین بیایم کف میدون، شما مسئولین رو باید مثل سگ آتیش زد تا یاد بگیرین مردم کف خیابون مسخره پدرتون نیستن.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392031
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392031_1781460828.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تموم شدو رفت🤣 ننگ برشما مسئولین😂
+آفرین نپذیرید🤌🏻
+#نمی‌پذیریم
+
++نمیدونستم عرزشیا هم ۴۷ ساله ناراضین
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 127972
+
+<div align="center">
+  <a href="telegram/content/alonews_127972_1781460830.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / یدیعوت آحارونوت: ایران خبر درخواست ترامپ برای عدم حمله به اسرائیل در ازای مزایا در توافق را رد کرده و گفته است که به اسرائیل پاسخ خواهد داد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127971
+
+<div align="center">
+  <a href="telegram/content/alonews_127971_1781460830.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈یارون آبراهام خبرنگار اسرائیلی: ارزیابی اسرائیل این است که ترامپ به زودی امتیازی به ایران خواهد داد، در ازای عدم انتقام‌گیری ایران بابت حمله اسرائیل به ضاحیه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/24 21:34
 ---
 

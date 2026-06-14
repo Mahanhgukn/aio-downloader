@@ -7,6 +7,216 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/24 17:33
+---
+
+## VahidOOnLine — post 245483
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245483_1781445834.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️همزمان با حمله اسرائیل به ضاحیه لبنان و بالاگرفتن تنش‌های لفظی میان مقام‌های ایران و اسرائیل، مایک والتز، سفیر آمریکا در سازمان ملل متحد، اعلام کرد دونالد ترامپ همچنان مصمم است چارچوب اولیه توافق صلح با ایران را در روز یکشنبه امضا کند.
+سفیر آمریکا در سازمان ملل، روز یکشنبه در گفتگو با شبکه خبری ای‌بی‌سی این اظهارات را مطرح کرد.
+محمدباقر قالیباف، مذاکره کننده ارشد ایران، پس از حملات ارتش اسرائیل به جنوب بیروت، با انتشار متنی در ایکس نوشت حمله به مواضع حزب الله با «چراغ سبز» آمریکا انجام شده و نشان می‌دهد این کشور در انجام تعهدات خود جدی نیست.
+وزارت خارجه اسرائیل نیز در واکنش به سخنان قالیباف با متهم کردن رهبران جمهوری اسلامی به دروغگویی، حملات ارتش این کشور به ضاحیه را پاسخی به حملات حزب‌ الله دانست.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245482
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_245482_1781445834.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوهای رسیده به ایران‌اینترنشنال نشان می‌دهند ایرانیان مقیم آلمان شنبه ۲۳ خرداد با فراخوان شاهزاده رضا پهلوی و علیه جمهوری اسلامی در هانوفر تجمع کرده و نام جاویدنامان انقلاب ملی را فریاد زدند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245481
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🗣روایت شما از احتمال توافق میان جمهوری اسلامی و آمریکا - یکشنبه ۲۴ خرداد
+
+🔹مطمئنم با توافق و آزادی پول‌های بلوکه‌شده، دوباره این حکومت خودش را ریکاوری می‌کند و هم خودش و هم نیابتی‌هایش دوباره جان می‌گیرند. زیر توافق زدن هم برایشان کاری ندارد. آن‌وقت ببینیم باز هم ترامپ از توافق خواهد گفت؟
+
+🔹تحقیر یک حکومت گاهی از نابودی آن مرگبارتر است. هیروهیتو مجبور شد بگوید خدا نیست و در مراسم تسلیم، پایان امپراتوری را ببیند. لویی شانزدهم با از دست دادن هیبتش سقوط کرد. تزار نیکلای دوم هم اول تحقیر شد و بعد فروپاشید. اصرار ترامپ بر امضای تسلیم‌نامه نیز از همین جنس است.
+
+🔹یکی بود می‌گفت نه جنگ می‌شود نه مذاکره می‌کنیم. الان نیست ببیند که هم کشته شد، هم جنگ شد و هم مذاکره. تازه بیچاره نمی‌داند که جنازه‌اش هم بعد از ۱۰۷ روز هنوز خاک نشده است.
+
+🔹جوانی ما به ‌دست جمهوری اسلامی و به‌خاطر هسته‌ای نابود شد، اما الان می‌خواهند دو دستی همه‌چیز را تقدیم آمریکا کنند.
+
+🔹از رودهن: هیچ‌کس جز ایرانی دلش برای ایران و جاویدنام‌های دسته‌گل این کشور نسوخته، پس باید با هم باشیم و برای بیرون کردن اشغالگران فقط دست‌هایمان را به همدیگر گره بزنیم.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14817
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سفیر آمریکا در سازمان ملل متحد:
+رئیس جمهور ترامپ و معاونش جی‌دی ونس، کاملاً به امضای توافق امروز متعهد هستن.
+@withyashar
+</div>
+
+## WithYashar — post 14816
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مرندی عضو تیم مذاکره کننده:
+فعلاً مذاکره دیگر در کار نخواهد بود
+@withyashar
+</div>
+
+## WithYashar — post 14815
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت امور خارجه‌اسرائیل در واکنش به تهدیدهای ایران اعلام کرد: “این حکومت طبق معمول دروغ می‌گوید. نماینده ایران، حزب‌الله، همان طرفی است که به اسرائیل حمله کرده است. ما شلیک آتش به سوی خاک خود را تحمل نخواهیم کرد.🚨
+@withyashar
+</div>
+
+## pm_afshaa — post 93896
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93896_1781445836.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کانال 14 اسرائیل:
+اسرائیل ارزیابی میکنه که ایران در واکنش به حمله در حومه جنوبی بیروت، حمله موشکی به خاک اسرائیل انجام خواهد داد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93895
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93895_1781445837.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مرندی، عضو تیم مذاکره کننده:
+فعلاً مذاکره دیگری در کار نخواهد بود.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93894
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93894_1781445837.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مهاجرانی، سخنگوی دولت:
+تصمیم‌گیری درباره تفاهم احتمالی با آمریکا در سطح نظام و حاکمیت انجام میشه و حمله به مذاکره‌کنندگان، حمله به یک تصمیم ملیه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93893
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93893_1781445838.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نماینده آمریکا در سازمان ملل به ای‌بی‌سی:
+ترامپ و ونس کاملا مصمم هستن که امروز توافق با جمهوری اسلامی رو امضا کنن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## kianmeli1 — post 87987
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87987_1781445839.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مرندی عضو تیم مذاکره کننده: فعلاً مذاکره دیگری در کار نخواهد بود
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 342277
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342277_1781445839.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوهای رسیده به ایران‌اینترنشنال نشان می‌دهند ایرانیان مقیم آلمان شنبه ۲۳ خرداد با فراخوان شاهزاده رضا پهلوی و علیه جمهوری اسلامی در هانوفر تجمع کرده و نام جاویدنامان انقلاب ملی را فریاد زدند.
+</div>
+
+## IranIntlTV — post 342276
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🗣روایت شما از احتمال توافق میان جمهوری اسلامی و آمریکا - یکشنبه ۲۴ خرداد
+
+🔹مطمئنم با توافق و آزادی پول‌های بلوکه‌شده، دوباره این حکومت خودش را ریکاوری می‌کند و هم خودش و هم نیابتی‌هایش دوباره جان می‌گیرند. زیر توافق زدن هم برایشان کاری ندارد. آن‌وقت ببینیم باز هم ترامپ از توافق خواهد گفت؟
+
+🔹تحقیر یک حکومت گاهی از نابودی آن مرگبارتر است. هیروهیتو مجبور شد بگوید خدا نیست و در مراسم تسلیم، پایان امپراتوری را ببیند. لویی شانزدهم با از دست دادن هیبتش سقوط کرد. تزار نیکلای دوم هم اول تحقیر شد و بعد فروپاشید. اصرار ترامپ بر امضای تسلیم‌نامه نیز از همین جنس است.
+
+🔹یکی بود می‌گفت نه جنگ می‌شود نه مذاکره می‌کنیم. الان نیست ببیند که هم کشته شد، هم جنگ شد و هم مذاکره. تازه بیچاره نمی‌داند که جنازه‌اش هم بعد از ۱۰۷ روز هنوز خاک نشده است.
+
+🔹جوانی ما به ‌دست جمهوری اسلامی و به‌خاطر هسته‌ای نابود شد، اما الان می‌خواهند دو دستی همه‌چیز را تقدیم آمریکا کنند.
+
+🔹از رودهن: هیچ‌کس جز ایرانی دلش برای ایران و جاویدنام‌های دسته‌گل این کشور نسوخته، پس باید با هم باشیم و برای بیرون کردن اشغالگران فقط دست‌هایمان را به همدیگر گره بزنیم.
+</div>
+
+## FarsiVOA — post 220685
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺منوچهر بختیاری بار دیگر در دادگاه انقلاب محاکمه می‌شود
+
+◾️صبا بختیاری، خواهر منوچهر بختیاری، اعلام کرد جمهوری اسلامی برادر دادخواهش را به «اغوا و تحریک مردم به جنگ و کشتار علیه مردم» متهم کرده و قرار است او را به همین «اتهام سنگین» روز دوشنبه ۲۵ خرداد، در دادگاه انقلاب بندرعباس محاکمه کنند.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/manouchehr-bakhtiari-poya-bakhtiari-court-serious-accusation-iran/8160677.html
+</div>
+
+## IranianMinds — post 22559
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22559_1781445842.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نخست‌وزیر نتانیاهو، اول تصویر حمله به ضاحیه را برای ترامپ پست کرد و در پست بعدی، تولد ترامپ رو بهش تبریک گفت.
+
+@IranianMinds
+</div>
+
+## alonews — post 127885
+
+<div align="center">
+  <a href="telegram/content/alonews_127885_1781445842.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈مرندی عضو تیم مذاکره کننده:
+فعلاً مذاکره دیگری در کار نخواهد بود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/24 17:23
 ---
 

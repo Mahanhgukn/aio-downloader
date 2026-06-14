@@ -7,6 +7,206 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/24 21:03
+---
+
+## mwarmonitor — post 10899
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴به نقل از منابع کرملین و مشاور «یوری اوشاکوف»، گفته شده است که:
+
+🔸ترامپ به پوتین تأکید کرده پایان جنگ اوکراین «ضروری» است و اعلام کرده آماده کمک در این زمینه است.
+
+🔸همچنین او به پوتین اطلاع داده که یک توافق برای پایان درگیری مرتبط با ایران «تقریباً نهایی شده» است.
+
+
+🔸این اظهارات در چارچوب گفت‌وگوهای دیپلماتیک و تحولات هم‌زمان چند پرونده بین‌المللی (اوکراین و ایران) مطرح شده‌اند.
+
+@mwarmonitor
+</div>
+
+## iaghapour — post 2675
+
+<div align="center">
+  <img src="telegram/content/iaghapour_2675_1781458421.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💠 Mega Center 💠
+
+🪩📈 ابزار مورد نیاز شما در دنیای کریپتو و تریدینگ / احراز هویت پلتفرم های خارجی
+
+از افتتاح حساب های ارزی بین المللی
+تا خدمات وریفای تضمینی صرافی ها ، سایت های فریلنسری و گیمینگ
+صدور مستر کارت و ویزا کارت و خدمات
+ارزی
+سیم کارت های فیزیکی خارجی
+اکانت های اماده دیتاسنترها
+آیپی رزیدنتال اختصاصی
+اشتراک ویندسکرایب و ...
+👨‍💻لینک دسترسی ها و ارتباط :
+www.megacenterx.com      
+www.megacenterx.com
+www.megacenterx.com
+
+https://t.me/megacenter0
+https://t.me/megacenter0
+
+@Megav_admin22
+@Megav_admin22
+
+
+در صورت بالا نیامدن سایت ، بدون وی پی ان امتحان نمایید ✅
+سایت دارای اینماد و درگاه پرداخت اختصاصی و کریپتو ✅
+</div>
+
+## iaghapour — post 2674
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✍🏻 دوستان، در حال حاضر بیش از ۷ اسکریپت (شامل اسکریپت‌های تانل و روش‌های مستقیم و رایگان) رو در دست بررسی داریم. هر کدوم که بدون مشکل جواب بده رو توی یوتیوب معرفی می‌کنیم. اما مواردی رو که به هر دلیلی (مثل محدودیت‌های دیتاسنتر سرورهایی که استفاده میکنیم و...) نتونیم خودمون ازشون جواب بگیریم، داخل کانال تلگرام معرفی میکنیم تا شما بتونید تست کنید.
+
+ممنون از حمایت همیشگی شما.💚
+</div>
+
+## VahidOnline — post 76339
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76339_1781458421.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نصب تصاویر #مجتبی خامنه‌ای و آدولف #هیتلر با هم عکس جعلی چهره رهبر جدید جمهوری اسلامی (دستکاری شده با هوش مصنوعی) رو با استناد و افتخار به سخنان جعلی و چرندیات هرگز گفته نشده آن جنایتکار دیگر منتشر می‌کنند. عکس دریافتی از بابلسر، سه‌شنبه ۴ فروردین Vahid 📡…
+</div>
+
+## Shin_Persian — post 7071
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_7071_1781458421.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سهیل مادرجنده اگه این کانالو می خونی جواب توییتمو بده ابن لواط
+</div>
+
+## Shin_Persian — post 7070
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_7070_1781458421.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sun, 14 Jun 2026 17:28:08 UTC
+
+U.S. Central Command reports that as of June 14, forces enforcing the blockade against Iran have redirected 142 commercial ships and disabled 9 vessels that failed to comply.
+
+Source: @CENTCOM
+https://x.com/CENTCOM/status/2066211045740335312
+
+ترجمه خودکار فارسی
+
+فرماندهی مرکزی ایالات متحده (CENTCOM) گزارش می‌دهد که تا تاریخ ۱۴ ژوئن، نیروهای مجری محاصره علیه ایران، مسیر ۱۴۲ کشتی تجاری را تغییر داده و ۹ شناور را که از دستورات پیروی نکرده بودند، متوقف کرده‌اند.
+
+منبع: @CENTCOM
+https://x.com/CENTCOM/status/2066211045740335312
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 7069
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sun, 14 Jun 2026 17:25:42 UTC
+
+Qatari delegation on the way to Islamabad
+
+ترجمه خودکار فارسی
+
+هیئت قطری در راه اسلام‌آباد
+
+𝕏 · @shin_persian
+</div>
+
+## Persian_Trend_Official — post 17084
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تراست vpn رو چندین بار معرفی کردم
+قابل اعتمادن و میتونین ازشون خرید کنین
+
+ایندفعه علاوه بر کاهش قیمت مجدد قیمت روز از گیگی ۶ هزار تومن گذاشتن
+
+حتما بهشون پیام بدین و جزییاتشو بپرسین
+👇👇👇
+
+@trusstvpnn_admin
+@trusstvpnn_admin
+</div>
+
+## Persian_Trend_Official — post 17083
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مقام ارشد اسرائیلی به کانال 12 اسرائیل گفت: از نظر ما، ایران مسئله ترامپ است و او حق دارد به دنبال توافق باشد، اما لبنان مسئله ماست.
+
+ما نباید با معادله ایران موافقت کنیم، حتی اگر به قیمت رویارویی شدید با ایالات متحده تمام شود.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 22574
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22574_1781458422.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فاکس نیوز :
+
+بعد از حملات امروز اسرائیل به لبنان ترامپ با نتانیاهو تماس گرفت و گفت چه غلطی داری میکنی ؟!
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22573
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️
+⭕️ کانفیگای این ربات تو نت ملی وصله به محض استارت ۱ گیگابایت کانفیگ میده بدون هیچ هزینه ای و رفرالی کانفیگ رو تحویلتون میده با بهترین سرعت و بدون قطعی 
+⭕️ ربات دریافت کانفیگ رایگان | @daeijoonbot 
+⭕️ ربات دریافت کانفیگ رایگان | @daeijoonbot
+</div>
+
+## IranianMinds — post 22572
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️
+⭕️ کانفیگای این ربات تو نت ملی وصله به محض استارت ۱ گیگابایت کانفیگ میده
+بدون هیچ هزینه ای و رفرالی کانفیگ رو تحویلتون میده با بهترین سرعت و بدون قطعی
+
+
+⭕️ ربات دریافت کانفیگ رایگان | @daeijoonbot
+
+⭕️ ربات دریافت کانفیگ رایگان | @daeijoonbot
+</div>
+
+## alonews — post 127965
+
+<div align="center">
+  <a href="telegram/content/alonews_127965_1781458424.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈طبق گزارشات اختلال هر ۴ بانک که مورد حمله سایبری قرار گرفته بودند، رفع شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/24 20:53
 ---
 

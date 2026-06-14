@@ -7,6 +7,213 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/24 16:43
+---
+
+## VahidOOnLine — post 245474
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🗣روایت شما از احتمال توافق میان آمریکا و جمهوری‌اسلامی - یکشنبه ۲۵ خرداد
+
+🔹تنها موردی که مخالفان و موافقان جمهوری اسلامی بر آن تفاهم دارند و با آن مخالفند، توافق با آمریکاست.
+
+🔹ما باید خودمان بلند شویم و کار را تمام کنیم. در این توافق هیچ اسمی از ما مردم ایران آورده نشده، چون برای ترامپ و جمهوری اسلامی اهمیتی ندارد.
+
+🔹ترامپ با توافق، شکافی در بدنه نظام ایجاد کرد که هیچ‌کس نمی‌تونست انجامش بده.
+
+🔹این حق مردم ایران نیست؛ واقعا ما باید چقدر تاوان حماقت بقیه را بدیم؟ عمرمون سر مذاکره و توافق رفت. دقیقا این جنگ افتاد وسط جوونی‌مون. این همه جوون کشتن که الان توافق کنن؟
+
+🔹ما مردم ایران خیلی گناه داریم. هیچ‌کس پشت ما نبود و نیست. فقط امیدوارم زودتر از شر این روزگار سیاه خلاص شویم.
+
+🔹از آقای ترامپ بابت کمکی که کرد ممنونم؛ هم در جنگ و هم در مذاکره جمهوری اسلامی را شکست دادی.
+
+🔹دردها و مشکلات همه به جای خودش عزیز و مهمه؛ از دانش‌آموزها تا افراد سالمند، از پدران و مادران تا بچه‌ها، همه به نحوی از جمهوری اسلامی آسیب دیدیم، اما تنها چیزی که می‌خوایم سرنگونی جمهوری اسلامیه.
+
+🔹در این کانال‌های خبری، ارزشی‌ها می‌گن اگر توافق کنین روی صورت دخترهای بی‌حجاب اسید می‌پاشیم. خداروشکر شهر هرت هم شد.
+
+🔹واقعا هیچ‌کس نمی‌خواد توافق بشه و همه دنبال جنگ هستند؛ چه طرفداران حکومت و چه مخالفان حکومت.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14805
+
+<div align="center">
+  <img src="telegram/content/WithYashar_14805_1781442827.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+استاد بزرگ شترنچ نتانیاهو اول تصویری از حمله به بیروت رو منتشر کرد و تو پست بعدی تولد ترامپ رو تبریک گفت :
+@withyashar 😁
+</div>
+
+## WithYashar — post 14804
+
+
+
+
+## pm_afshaa — post 93891
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93891_1781442828.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴موسوی، سخنگوی پیشین هیات رئیسه مجلس:
+
+هدف حمله امروز اسرائیل به ضاحیه بیروت در روزی که قرار بود توافق امضا بشه، تحقیر جمهوری اسلامی بود.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93890
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93890_1781442829.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نتانیاهو اول تصویری از حمله به بیروت رو منتشر کرد و تو پست بعدی تولد ترامپ رو تبریک گفت :
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93889
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علی موسی دقدوق یکی از چهره‌های کلیدی و تأثیرگذار در محور مقاومت و حزب الله و مسئول پرونده جولان در حمله اسرائیل به درک واصل شد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 342267
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🗣روایت شما از احتمال توافق میان آمریکا و جمهوری‌اسلامی - یکشنبه ۲۵ خرداد
+
+🔹تنها موردی که مخالفان و موافقان جمهوری اسلامی بر آن تفاهم دارند و با آن مخالفند، توافق با آمریکاست.
+
+🔹ما باید خودمان بلند شویم و کار را تمام کنیم. در این توافق هیچ اسمی از ما مردم ایران آورده نشده، چون برای ترامپ و جمهوری اسلامی اهمیتی ندارد.
+
+🔹ترامپ با توافق، شکافی در بدنه نظام ایجاد کرد که هیچ‌کس نمی‌تونست انجامش بده.
+
+🔹این حق مردم ایران نیست؛ واقعا ما باید چقدر تاوان حماقت بقیه را بدیم؟ عمرمون سر مذاکره و توافق رفت. دقیقا این جنگ افتاد وسط جوونی‌مون. این همه جوون کشتن که الان توافق کنن؟
+
+🔹ما مردم ایران خیلی گناه داریم. هیچ‌کس پشت ما نبود و نیست. فقط امیدوارم زودتر از شر این روزگار سیاه خلاص شویم.
+
+🔹از آقای ترامپ بابت کمکی که کرد ممنونم؛ هم در جنگ و هم در مذاکره جمهوری اسلامی را شکست دادی.
+
+🔹دردها و مشکلات همه به جای خودش عزیز و مهمه؛ از دانش‌آموزها تا افراد سالمند، از پدران و مادران تا بچه‌ها، همه به نحوی از جمهوری اسلامی آسیب دیدیم، اما تنها چیزی که می‌خوایم سرنگونی جمهوری اسلامیه.
+
+🔹در این کانال‌های خبری، ارزشی‌ها می‌گن اگر توافق کنین روی صورت دخترهای بی‌حجاب اسید می‌پاشیم. خداروشکر شهر هرت هم شد.
+
+🔹واقعا هیچ‌کس نمی‌خواد توافق بشه و همه دنبال جنگ هستند؛ چه طرفداران حکومت و چه مخالفان حکومت.
+</div>
+
+## FarsiVOA — post 220679
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺پلمب دو واحد صنفی در آران و بیدگل به بهانه «کشف حجاب»
+
+◾️فرمانده انتظامی آران و بیدگل، از پلمب دو محل کسب به بهانه اجرای طرح موسوم به «ارتقاء امنیت اجتماعی و برخورد با ناهنجاری‌های اخلاقی و اجتماعی» خبر داد.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/social-security-promotion-plan-hijab-iran-seal-of-trade-unions/8160665.html
+</div>
+
+## DW_Farsi — post 125961
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اشتباه کوچک، جریمه بزرگ؛ این‌جا قانون شوخی‌بردار نیست
+
+در آلمان نه تنها برای جزئی‌ترین مسائل قانون و مقررات و استاندارد وجود دارد، بلکه رعایت قانون بسیار جدی گرفته می‌شود. شما با این همه مقررات چطور کنار می‌آیید؟
+
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 17054
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نتانیاهو ابتدا تصویر حمله به بیروت را منتشر کرد و در پست بعد تولد ترامپ را تبریک گفت 😄
+</div>
+
+## Persian_Trend_Official — post 17053
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17053_1781442830.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+منتظرم خبر خاصی بشه بریم لایو فعلا با چشم باز نظاره میکنیم
+</div>
+
+## alonews — post 127878
+
+<div align="center">
+  <a href="telegram/content/alonews_127878_1781442831.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚀 Exo VPN | سریع، پایدار و بدون تبلیغات 
+✅ اتصال سریع و پایدار 
+✅ سرورهای متعدد جهانی 
+✅ حفظ حریم خصوصی 
+✅ کاملاً رایگان و بدون تبلیغات 
+📌 دانلود از گوگل پلی: https://play.google.com/store/apps/details?id=exo.vpn.app 
+📣 کانال رسمی: @exovpn_dl
+</div>
+
+## alonews — post 127877
+
+<div align="center">
+  <a href="telegram/content/alonews_127877_1781442831.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚀 Exo VPN | سریع، پایدار و بدون تبلیغات
+
+
+✅ اتصال سریع و پایدار
+
+✅ سرورهای متعدد جهانی
+
+✅ حفظ حریم خصوصی
+
+✅ کاملاً رایگان و بدون تبلیغات
+
+
+📌 دانلود از گوگل پلی:
+https://play.google.com/store/apps/details?id=exo.vpn.app
+
+
+📣 کانال رسمی:
+@exovpn_dl
+</div>
+
+## alonews — post 127876
+
+<div align="center">
+  <a href="telegram/content/alonews_127876_1781442831.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ویدیو دیده نشده از هوچی گری دیشب تندروها
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/24 16:34
 ---
 

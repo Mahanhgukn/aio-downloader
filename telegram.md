@@ -7,6 +7,61 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/24 05:13
+---
+
+## VahidOOnLine — post 245392
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245392_1781401423.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جلیل محبی، معاون سیاسی و حقوقی مرکز پژوهش‌های مجلس شورای اسلامی، در شبکه اجتماعی ایکس نوشت: «حتی اگر رهبری، موافقتنامه را تایید کند هم نمی‌پذیریم.»
+
+با توجه به متن پست‌هایی که پیش از این منتشر کرده، به نظر می‌رسد این فعال سیاسی حامی قالیباف به مخالفان تفاهم طعنه زده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342944
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342944_1781401424.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Former 49ers star Aldon Smith has died at 36.
+
+Smith reached 30 career sacks in just 27 games, becoming the fastest player in NFL history to hit that milestone, breaking a record previously held by Hall of Famer Reggie White.
+
+The 49ers called his passing "sudden and tragic." No cause of death has been released.
+</div>
+
+## IranIntlTV — post 342171
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342171_1781401425.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جلیل محبی، معاون سیاسی و حقوقی مرکز پژوهش‌های مجلس شورای اسلامی، در شبکه اجتماعی ایکس نوشت: «حتی اگر رهبری، موافقتنامه را تایید کند هم نمی‌پذیریم.»
+
+با توجه به متن پست‌هایی که پیش از این منتشر کرده، به نظر می‌رسد این فعال سیاسی حامی قالیباف به مخالفان تفاهم طعنه زده است.
+https://iranintl.com/202606147766
+</div>
+
+## FarsiVOA — post 220634
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220634_1781401426.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️آیا اجلاس گروه هفت می‌تواند باعث هم‌گرایی فرانسه با آمریکا در تقابل با جمهوری اسلامی منجر شود؟
+@FarsiVOA
+</div>
+
+---
 📅 بروزرسانی: 1405/03/24 05:03
 ---
 

@@ -7,6 +7,240 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/24 21:53
+---
+
+## VahidOOnLine — post 245530
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_245530_1781461419.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️با گذشت بیش از ۹ سده از مرگ حسن صباح، نام الموت بار دیگر در کانون توجه قرار گرفته، زیرا پرونده «منظر فرهنگی و تاریخی قلعه‌های الموت» به مراحل نهایی بررسی در یونسکو رسیده است و در صورت تصویب، سی‌امین اثر ایران در فهرست میراث جهانی خواهد بود.
+
+بیست‌ودوم خرداد، سالگرد درگذشت حسن صباح، بنیان‌گذار حکومت اسماعیلیان نزاری در الموت است. کسی که نامش در تاریخ با دژهای کوهستانی البرز گره خورده است. او اواخر قرن پنجم هجری با تبدیل قلعه الموت به مرکز حکومت اسماعیلیان نزاری در میان صخره‌های بلند البرز، بنیان حکومتی را گذاشت که پس از مرگ او نیز نزدیک به دو قرن در برابر قدرت‌های بزرگ زمان خود دوام آورد و سرانجام با یورش مغولان در میانه سده هفتم هجری سقوط کرد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245529
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245529_1781461420.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️محمدباقر ذوالقدر، دبیر شورای عالی امنیت ملی، شامگاه یکشنبه ۲۴ خرداد ماه، در واکنش به حمله اسرائیل به ضاحیه جنوبی بیروت اعلام کرد که «پاسخ رزمندگان اسلام در پیش است».
+ذوالقدر در پیامی کوتاه که در رسانه‌های رسمی داخل ایران منتشر شده است نوشت: «وحدت میدان‌ها یک زنجیره امنیتی در دفاع از منطقه ایجاد کرده است.»
+دبیر شورای عالی امنیت ملی همچنین هشدار داد: «لبنان جان ماست و نقض خطوط قرمز جمهوری اسلامی تحمل نخواهد شد.»
+پیش از ذوالقدر، رییس و معاون قرارگاه خاتم‌الانبیا و همچنین محمد باقر قالیباف، مسئول مذاکره‌کنندگان جمهوری اسلامی ایران به این حملات واکنش نشان داده بودند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14857
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یدیعوت آحارونوت: ایران خبر درخواست ترامپ برای عدم حمله به اسرائیل در ازای مزایا در توافق را رد کرده و گفته است که به اسرائیل پاسخ خواهد داد
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342963
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: Authorities in Missouri say 12 people were killed when a plane crashed near Butler Memorial Airport, roughly 65 miles south of Kansas City.
+</div>
+
+## FoxNewsTwitter — post 342962
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342962_1781461420.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Ukrainian President Zelenskyy says he had a "great conversation" with President Trump during a phone call on Trump's 80th birthday as the two leaders prepare to meet at G7 this week in France.
+
+"I congratulated President Trump on his birthday, and we have had quite a detailed discussion about many key things – peace, surely, was among them. I wished President Trump every success, above all in his work to end Russia’s war against Ukraine," Zelenskyy said.
+</div>
+
+## pm_afshaa — post 93945
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93945_1781461421.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴آی۲۴ نیوز:
+اسرائیل ارزیابی میکنه که جمهوری اسلامی قصد داره به اسرائیل حمله کنه، با وجود تلاش ترامپ برای مهار تهران.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93944
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93944_1781461422.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کانال 12 اسرائیل: جمهوری اسلامی پیشنهاد ترامپ برای دریافت «مزایای اقتصادی» در ازای خویشتنداری رو رد کرده.
+
+جمهوری اسلامی اعلام کرده «به‌زودی پاسخ خواهد داد».
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 342332
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/342332" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی تیتراول با نیوشا صارمی: تلاش فوری ترامپ برای کنترل تنش اسراییل و ایران: تفاهم‌نامه امضا خواهد شد
+@iranintlTV
+</div>
+
+## FarsiVOA — post 220711
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺پرزیدنت ترامپ: توافق صلح با جمهوری اسلامی «ظرف چند ساعت» امضا می‌شود
+
+◾️دونالد ترامپ، رئیس جمهوری آمریکا، می‌گوید انتظار دارد توافق صلح با جمهوری اسلامی «ظرف چند ساعت» امضا شود.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/president-trump-says-iran-peace-deal-just-hours-away/8160717.html
+</div>
+
+## DW_Farsi — post 125970
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125970_1781461422.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 "سم‌پاشی گسترده با گلیفوسات توسط اسرائیل"
+
+دولت لبنان، بنا بر اعلام وزارت امور خارجه این کشور در بیروت، شکایتی را به دلیل ادعای "پاشیدن علف‌کش گلیفوسات توسط اسرائیل در جنوب لبنان" به سازمان ملل متحد ارائه کرده است.
+
+در نامه‌ای که بهشورای امنیت سازمان ملل و آنتونیو گوترش،دبیرکل سازمان ملل، ارسال شده، آمده است که "اسرائیل در ماه فوریه مقادیر زیادی از ماده شیمیایی گلیفوسات را در سه روستای لبنانی واقع در نزدیکی مرز پخش کرده است".
+
+وزارت امور خارجه لبنان در این شکایت به نتایج تحقیق مؤسسه پژوهشی " CNRS" استناد کرده است. این مؤسسه از "غلظت بالای گلیفوسات" سخن گفته که "بسیار بیشتر" از مقداری است که "به‌طور معمول در مزارع لبنان" یافت می‌شود. گلیفوسات می‌تواند به محیط زیست آسیب برساند و گفته می‌شود که سرطان‌زا است.
+
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 17090
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_17090_1781461423.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سردار قاآنی: پیروزی عظیم حزب‌الله در راه است ان‌شاءالله
+
+فرمانده نیروی قدس: مردم دنیا، استقلال لبنان را با عظمت فداکاری حزب الله می‌شناسند نه با وابستگی بعضی حکمرانان. همه دنیا با چشمان بازتر نگاه کنند، پیروزی مقاومت عظیم حزب الله قهرمان بر پست‌فطرتان صهیونیست در راه است.ان‌شاءالله
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17089
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_17089_1781461424.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبکه 12 اسرائیل: ایران پیشنهاد ترامپ برای دریافت پول در ازای خویشتنداری را رد کرده و اعلام کرده است که به‌زودی پاسخ خواهد داد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 22583
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22583_1781461424.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 آسمان ایران.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22582
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22582_1781461425.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیام یک عرزشی به مسئولین در باب مذاکرات :
+
+@IranianMinds
+</div>
+
+## alonews — post 127976
+
+<div align="center">
+  <a href="telegram/content/alonews_127976_1781461425.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 ترامپ از نخست‌وزیر اسرائیل نتانیاهو خواسته است که آتش‌بس در لبنان را اعلام کند و شروع به عقب‌نشینی نیروهای ارتش اسرائیل نماید، اما نتانیاهو هر دو درخواست را رد کرده است، طبق گزارش ینت
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127975
+
+<div align="center">
+  <a href="telegram/content/alonews_127975_1781461425.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈یک منبع غربی به کانال ۱۲ اسرائیل گفت که ایران هنوز در حال بررسی پیشنهاد رئیس‌جمهور ترامپ است که شامل پول برای عدم پاسخ به حمله اسرائیل در بیروت می‌باشد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127974
+
+<div align="center">
+  <a href="telegram/content/alonews_127974_1781461425.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کانال ۱۲ عبری:ایران درخواست ترامپ را رد کرد و تأکید کرد: به بمباران بیروت پاسخ خواهیم داد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127973
+
+<div align="center">
+  <a href="telegram/content/alonews_127973_1781461426.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزیر علوم: از 13 تا 20 تیرماه هیچ آزمونی در کشور برگزار نمی‌شود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/24 21:43
 ---
 

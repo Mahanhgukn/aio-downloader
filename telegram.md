@@ -7,6 +7,95 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/24 11:23
+---
+
+## pm_afshaa — post 93848
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴العربیه: قالیباف و ‌ونس توافق صلح ایران و آمریکا را آنلاین امضا می‌کنن
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## FarsiVOA — post 220652
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺سقوط سهمگین درآمدهای مالیاتی در دو ماه ابتدایی ۱۴۰۵
+
+▪️گزارش جدید سازمان امور مالیاتی از سقوط سهمگین درآمدهای مالیاتی در دو ماه ابتدایی سال جاری خورشیدی خبر داده است.
+
+▪️کل درآمد مالیاتی اخذ شده طی دوره یاد شده تنها ۱۵۲ همت بوده که از لحاظ اسمی ۲۹ درصد کمتر از دور مشابه پارسال است.
+
+▪️اگر مبلغ یاد شده به قیمت‌های سال ۱۴۰۰ حقیقی شود، درآمدهای مالیاتی نسبت به دو ماه ابتدایی پارسال در واقع ۶۰ درصد سقوط کرده است.
+
+▪️چنین سقوط سهمگینی در درآمدهای مالیاتی در حالی است که دولت برای سال جاری درآمدهای مالیاتی را ۴۲ درصد افزایش داده بود و در مجموع، تقریباً نیمی از بودجه عمومی دولت قرار بود از همین منبع تامین شود.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8160649.html
+</div>
+
+## RadioFarda — post 158283
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_158283_1781423617.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸نیروهای مسلح بریتانیا روز یک‌شنبه ۲۴ خرداد یک نفتکش حامل نفت مرتبط با ناوگان موسوم به «ناوگان سایه» روسیه را که در تلاش برای عبور از کانال مانش بود، متوقف و بازرسی کردند.
+
+🔸بر اساس بیانیه وزارت دفاع بریتانیا، این نفتکش تا زمان تکمیل تحقیقات در نزدیکی سواحل جنوبی بریتانیا تحت نظارت و توقیف باقی خواهد ماند.
+
+🔸 همچنین تأکید شده که این اقدام در آب‌های سرزمینی بریتانیا و مطابق با قوانین داخلی و بین‌المللی انجام شده است.
+
+🔸در همین حال کی‌یر استارمر، نخست‌وزیر بریتانیا، اعلام کرد که شخصاً دستور اجرای این عملیات را صادر کرده است.
+
+🔸این خبر در حالی منتشر می‌شود که کشورهای غربی در ماه‌های اخیر فشارها بر شبکه‌های حمل‌ونقل نفت روسیه را افزایش داده‌اند.
+
+@RadioFarda
+</div>
+
+## alonews — post 127799
+
+<div align="center">
+  <a href="telegram/content/alonews_127799_1781423618.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈مشکل خدمات بانک‌های تجارت و صادرات رفع شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127796
+
+<div align="center">
+  <a href="telegram/content/alonews_127796_1781423618.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حملهِ به لُبنان
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127795
+
+<div align="center">
+  <a href="telegram/content/alonews_127795_1781423620.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈منابع العربیه: قالیباف و ‌ ونس توافق صلح ایران و آمریکا را آنلاین امضا می‌کنند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/24 11:13
 ---
 

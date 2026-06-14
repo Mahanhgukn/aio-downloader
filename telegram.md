@@ -7,6 +7,328 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/24 14:24
+---
+
+## VahidOOnLine — post 245455
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_245455_1781434445.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوهای رسیده به ایران‌اینترنشنال حاکی است گروهی از رانندگان پیک‌های موتوری شرکت «اسنپ» در شیراز، روز یکشنبه ۲۴ خرداد در اعتراض به کمیسیون بالا، مالیات سنگین، کرایه کم، حذف سهمیه سوخت و نداشتن بیمه اعتصاب کردند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245454
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245454_1781434448.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دفتر بنیامین نتانیاهو، نخست‌وزیر اسرائیل، و یسرائیل کاتز، وزیر دفاع اسرائیل، اعلام کردند ارتش این کشور در پاسخ به شلیک پرتابه از سوی حزب‌الله به خاک اسرائیل، اهدافی را در منطقه ضاحیه بیروت هدف قرار داده است.
+
+در بیانیه مشترک نتانیاهو و کاتز آمده است که این حمله در واکنش به شلیک پرتابه از لبنان انجام شده است.
+
+مقام‌های اسرائیلی همچنین افزودند که اسرائیل شلیک به خاک خود را تحمل نخواهد کرد.
+
+این حمله پس از آن انجام شد که ارتش اسرائیل اعلام کرد حزب‌الله یکشنبه ۲۴ خرداد سه پرتابه به سوی شهرهای شمال اسرائیل شلیک و آتش‌بس را نقض کرد.
+
+پیش‌تر مقام‌های جمهوری اسلامی اعلام کرده بودند در صورت حمله اسرائیل به جنوب لبنان و به طور خاص، بیروت، حملات تلافی‌جویانه علیه اسرائیل انجام خواهند داد.
+iranintl
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245453
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245453_1781434449.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ارتش اسرائیل روز یکشنبه ۲۴ خرداد بار دیگر منطقه شیعه‌نشین ضاحیه در حومه بیروت را بمباران کرد.
+
+این بمباران همزمان با تشدید تلاش‌های دیپلماتیک برای پایان دادن به جنگ و در روزی انجام شد که دونالد ترامپ اعلام کرده بوبود قرار است توافق پایان جنگ میان ایران و آمریکا امضاء شود.
+
+جمهوری اسلامی ایران هفته پیش و پس از بمباران این منطقه چند موشک به سوی اسرائیل شلیک کرد و اسرائیل هم در پاسخ، مناطقی در غرب، مرکز و همچنین پایتخت ایران را بمباران کرد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14775
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بیانیه مشترک نتانیاهو و کاتز:
+ارتش اسرائیل اکنون در پاسخ به شلیک حزب‌الله به سمت اراضی اسرائیل، اهداف متعلق به سازمان حزب‌الله را در بیروت مورد حمله قرار می‌دهد. اسرائیل با شلیک به سمت اراضی‌اش مدارا نخواهد کرد.
+@withyashar
+</div>
+
+## mwarmonitor — post 10855
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_10855_1781434450.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبر فوری
+
+🔸اسرائیل در نهایت دوباره به جنوب بیروت حمله کرد
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 342947
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Start spreading the news 🎶
+
+The New York Knicks have finally ended their championship drought, capturing their first NBA Finals title in 53 years after another wild comeback in Game 5 to defeat the San Antonio Spurs.
+</div>
+
+## pm_afshaa — post 93857
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرماندهی حزب الله در ضایحه بیروت مورد حمله قرار گفت 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93856
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+منتظر جواب جمهوری اسلامی باشین
+</div>
+
+## pm_afshaa — post 93855
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرماندهی حزب الله در ضایحه بیروت مورد حمله قرار گفت 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93854
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93854_1781434451.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرماندهی حزب الله در ضایحه بیروت مورد حمله قرار گفت
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93853
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نخست‌وزیر و وزیر دفاع اسراییل در بیانیه‌ای مشترک: ارتش اسرائیل اهداف حزب‌الله را در منطقه ضایحه در بیروت هدف قرار داد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## kianmeli1 — post 87981
+
+<div align="center">
+  <a href="telegram/content/kianmeli1_87981_1781434454.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴حمله سنگین اسراییل به بیروت
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87980
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏🔴یک مقام ارشد ایرانی به رویترز گفت که جمهوری اسلامی پذیرفته تا زمان دستیابی به توافق نهایی، وضعیت موجود هسته‌ای را حفظ کند؛ از جمله غنی‌سازی نکردن اورانیوم و گسترش ندادن تاسیسات هسته‌ای
+
+‏در پیش‌نویس تفاهم، آمریکا با رقیق‌سازی ذخایر اورانیوم با غنای بالا در داخل ایران موافقت کرده و سازوکار اجرای این موضوع در ۶۰ روز آینده مورد بحث قرار خواهد گرفت
+
+بر اساس پیش‌نویس تفاهم‌نامه، جمهوری اسلامی بلافاصله تنگه هرمز را به روی همه کشتی‌های تجاری باز خواهد کرد و آمریکا نیز محاصره دریایی را لغو خواهد کرد
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 342244
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342244_1781434455.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوهای رسیده به ایران‌اینترنشنال حاکی است گروهی از رانندگان پیک‌های موتوری شرکت «اسنپ» در شیراز، روز یکشنبه ۲۴ خرداد در اعتراض به کمیسیون بالا، مالیات سنگین، کرایه کم، حذف سهمیه سوخت و نداشتن بیمه اعتصاب کردند.
+</div>
+
+## IranIntlTV — post 342243
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342243_1781434459.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻جزیره‌ای کوچک، خیره‌کننده و واقع در دریای کارائیب، با نفوذ گسترده فرهنگ هلندی اما هویتی مستقل و پرغرور؛ کوراسائو تا امروز شاید بیش از هر چیز به خاطر نوشیدنی الکلی مشهورش با همین نام شناخته می‌شد. اما اکنون به کوچک‌ترین کشور تاریخ جام جهانی از نظر وسعت و جمعیت تبدیل شده است.
+
+🔹کوراسائو با جمعیتی حدود ۱۵۸ هزار نفر، حتی از شهرری تهران هم کوچکتر است.حتی جمعیت آن از بیش از ۶۰ شهر و شهرستان ایران کمتر است؛ کمتر از رفسنجان. این کشور حتی یک کشور مستقل کامل هم نیست و بخشی از پادشاهی هلند به شمار می‌رود.
+
+🔹از ۲۶ بازیکن فهرست تیم ملی کوراسائو در جام جهانی ۲۰۲۶، تنها یک نفر یعنی تاهیث چونگ در خود جزیره متولد شده است و ۲۵ بازیکن دیگر در هلند به دنیا آمده‌اند.
+
+🔹کوراسائو در گروه E با آلمان، اکوادور و ساحل عاج هم‌گروه است و یکشنبه‌شب مقابل آلمان به میدان می‌رود.
+
+🔹روایتی از کوراسائو و اولین حضور در جام جهانی را در‌ وب‌سایت ایران اینترنشنال بخوانید.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 342242
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342242_1781434460.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دفتر بنیامین نتانیاهو، نخست‌وزیر اسرائیل، و یسرائیل کاتز، وزیر دفاع اسرائیل، اعلام کردند ارتش این کشور در پاسخ به شلیک پرتابه از سوی حزب‌الله به خاک اسرائیل، اهدافی را در منطقه ضاحیه بیروت هدف قرار داده است.
+
+در بیانیه مشترک نتانیاهو و کاتز آمده است که این حمله در واکنش به شلیک پرتابه از لبنان انجام شده است.
+
+مقام‌های اسرائیلی همچنین افزودند که اسرائیل شلیک به خاک خود را تحمل نخواهد کرد.
+
+این حمله پس از آن انجام شد که ارتش اسرائیل اعلام کرد حزب‌الله یکشنبه ۲۴ خرداد سه پرتابه به سوی شهرهای شمال اسرائیل شلیک و آتش‌بس را نقض کرد.
+
+پیش‌تر مقام‌های جمهوری اسلامی اعلام کرده بودند در صورت حمله اسرائیل به جنوب لبنان و به طور خاص، بیروت، حملات تلافی‌جویانه علیه اسرائیل انجام خواهند داد.
+iranintl.com/202606141547
+</div>
+
+## DW_Farsi — post 125955
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125955_1781434460.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 "رفع" اختلال فنی خدمات بانک‌های تجارت و صادرات پس از حمله سایبری
+
+در پی حمله سایبری به چهار بانک ایران، اسماعیل آریانی، مدیر روابط عمومی "شرکت ملی انفورماتیک"، روز یکشنبه ۲۴ خرداد (۱۴ ژوئن) در گفت‌وگو با خبرگزاری صداوسیما اعلام کرد اختلال فنی در خدمات کارت‌های بانکی بانک‌های تجارت و صادرات "برطرف" شده است و "تمامی تراکنش‌ها با موفقیت در حال انجام است".
+
+او افزود پیگیری‌ها برای رفع مشکل در بانک ملی و بانک توسعه صادرات همچنان در حال انجام است و در این مدت مشتریان بانک توسعه صادرات می‌توانند به صورت حضوری و با مراجعه به شعب این بانک، خدمات ضروری بانکی را دریافت کنند.
+
+بانک‌های ملی، تجارت، صادرات و توسعه صادرات روز شنبه هدف حملات سایبری قرار گرفتند و خدمات رسانی به مشتریان از طریق همراه بانک و برخی عابربانک‌ها دچار اختلال شد.
+
+شورای هماهنگی بانک‌ها شامگاه شنبه در بیانیه‌ای، حمله سایبری به این بانک‌ها را تأیید کرده و آن را "محدود" خواند. در این بیانیه ادعا شده بود که "هیچ‌گونه دسترسی غیرمجاز به اطلاعات مشتریان و هیچ موردی از نشت اطلاعات رخ نداده است".
+
+@dw_farsi
+</div>
+
+## DW_Farsi — post 125954
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎥 شعارهای تند علیه قالیباف و عراقچی در تهران و مشهد و قم
+
+شامگاه شنبه در تجمعاتی در تهران و مشهد شعارهای تندی علیه رئیس هیئت مذاکره‌کننده و وزیر خارجه جمهوری اسلامی سر داده شد. این افراد "جمعیت سازماندهی‌شده جریان جلیلی، پایداری و بقایای دولت مرحوم رئیسی" توصیف شده است.
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 17029
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17029_1781434461.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تصاویری بیشتر از بمباران ضاحیه بیروت توسط نیروی هوایی ارتش اسرائیل 📝 Amir 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17023
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17023_1781434462.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+منابع عبری می گویند یکی از ستاد های فرماندهی حزب الله مورد هدف قرار گرفت، آنها ادعا می کنند این حمله در ذیل سایه آرامشی که ایران برای حزب الله در معادله ضاحیه ایجاد کرده بود، اتفاق افتاده است.
+</div>
+
+## Persian_Trend_Official — post 17022
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17022_1781434463.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حمله اسرائیل به ضاحیه
+</div>
+
+## Persian_Trend_Official — post 17019
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17019_1781434465.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تصاویری بیشتر از بمباران ضاحیه بیروت توسط نیروی هوایی ارتش اسرائیل
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 22545
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22545_1781434466.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴حملات اسرائیل به ضاحیه.
+
+@IranianMinds
+</div>
+
+## alonews — post 127841
+
+<div align="center">
+  <a href="telegram/content/alonews_127841_1781434467.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / کانال ۱۲ عبری: اهمیت این حمله در لبنان این است که ایران قبلاً تهدید کرده بود به هر حمله اسرائیل به بیروت پاسخ خواهد داد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127840
+
+<div align="center">
+  <a href="telegram/content/alonews_127840_1781434467.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 ضاحیه بیروت هم اکنون
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127839
+
+<div align="center">
+  <a href="telegram/content/alonews_127839_1781434468.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فیلمی از محل حمله اسرائیل به ضاحیه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/24 14:14
 ---
 

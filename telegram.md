@@ -7,6 +7,184 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/24 19:23
+---
+
+## VahidOOnLine — post 245501
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245501_1781452414.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مجید موسوی، فرمانده نیروی هوافضای سپاه پاسداران، در پیامی از حامیان جمهوری اسلامی خواست در مسیر تحقق آرمان‌های نظام، از مجتبی خامنه‌ای تبعیت کنند.
+او نوشت: «ملت بصیر و غیور که در خونخواهی علی خامنه‌ای مبعوث شدید و در راه تحقق آرمان‌های بلند انقلاب اسلامی با مجتبی خامنه‌ای عهدی تازه بستید، هوشیار باشید که از شئون متعهد بودن، تبعیت کردن است.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## mwarmonitor — post 10885
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴روزنامه اسرائیلی معاریو به نقل از منابع آگاه گزارش داد که بنیامین نتانیاهو در تماس اخیر خود با دونالد ترامپ هرگونه عقب‌نشینی اسرائیل از سراسر جنوب لبنان ــ از جمله پنج نقطه‌ای که در اختیار ارتش اسرائیل (IDF) است ــ را رد کرده است.
+
+🔸به گفته این منابع، نتانیاهو همچنین از عقب‌نشینی از اراضی اشغالی سوریه که پس از سقوط بشار اسد تصرف شده‌اند، خودداری کرده است.
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 342957
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342957_1781452414.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Jalen Brunson hugs his father after leading the Knicks past the Spurs to win the NBA championship.
+
+Knicks assistant coach Rick Brunson witnessed his son make history 27 years after reaching the NBA Finals as a player himself.
+</div>
+
+## IranIntlTV — post 342310
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342310_1781452415.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مجید موسوی، فرمانده نیروی هوافضای سپاه پاسداران، در پیامی از حامیان جمهوری اسلامی خواست در مسیر تحقق آرمان‌های نظام، از مجتبی خامنه‌ای تبعیت کنند.
+او نوشت: «ملت بصیر و غیور که در خونخواهی علی خامنه‌ای مبعوث شدید و در راه تحقق آرمان‌های بلند انقلاب اسلامی با مجتبی خامنه‌ای عهدی تازه بستید، هوشیار باشید که از شئون متعهد بودن، تبعیت کردن است.»
+https://iranintl.com/202606141119
+</div>
+
+## FarsiVOA — post 220699
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺بی‌خبری از زرتشت احمدی راغب پس از انتشار پیام صوتی از زندان مرکزی کرج
+
+◾️زرتشت احمدی راغب، زندانی سیاسی در زندان مرکزی کرج، در پیامی صوتی به مناسبت سالگرد انتشار «بیانیه ۱۴»، بر ضرورت آزادی زندانیان سیاسی، صلح، برگزاری انتخابات آزاد، تدوین قانون اساسی جدید، و پایان دادن به چرخه سرکوب و استبداد در ایران تأکید کرد.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/iran-prisoner-disappears-after-message/8160696.html
+</div>
+
+## FarsiVOA — post 220698
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خلع سلاح در عراق؛ نخستین گام‌های عملی بغداد و نگرانی جمهوری اسلامی
+</div>
+
+## Persian_Trend_Official — post 17077
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_17077_1781452416.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ولادیمر زلنسکی: دقایقی پیش گفت‌وگوی بسیار خوبی با دونالد ترامپ داشتم.
+
+رئیس‌جمهور را در جریان آخرین تحولات میدان نبرد قرار دادم و توضیح دادم که مواضع ما تقویت شده است. همچنین توافق کردیم که در دیدار خود در نشست گروه هفت (G7) درباره این موضوعات بیشتر گفت‌وگو کنیم.
+
+ایده‌های خوبی در اختیار داریم که می‌تواند به نزدیک‌تر شدن به صلح و حفظ جان انسان‌ها کمک کند.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17076
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17076_1781452417.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💛گزارش الجزیره از محاصره دریایی ایران
+
+شبکه خبری الجزیره در گزارشی به محاصره دریایی ایران توسط آمریکا پرداخته است.
+
+
+👺Phantom
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17075
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇮🇱 گزارش رسانه اسرائیلی از تلاش آمریکا برای جلوگیری از تشدید تنش با ایران
+
+
+📰 کانال ۱۴ اسرائیل مدعی شد ایالات متحده از طریق چندین واسطه منطقه‌ای و بین‌المللی در تلاش است از هرگونه حمله احتمالی ایران به خاک اسرائیل جلوگیری کند.
+🔹 بر اساس این گزارش، واشنگتن در روزهای اخیر پیام‌هایی را با هدف جلوگیری از گسترش درگیری‌ها میان تهران و تل‌آویو منتقل کرده است.
+🔹 کانال ۱۴ همچنین مدعی شد اسرائیل در پاسخ به این پیام‌ها تأکید کرده است:
+💬 «اگر ایران به ما حمله کند، پاسخ اسرائیل سریع و شدید خواهد بود.»
+🔹 تاکنون هیچ مقام رسمی در ایران، آمریکا یا اسرائیل به این گزارش واکنش نشان نداده است.
+
+
+👺Phantom
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## BBCPersian — post 283804
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسرائیل اعلام کرد که پس از حملات امروز حزب‌الله، به اهدافی در ضاحیه در حومه جنوبی بیروت حمله کرده است.
+ارتش اسرائیل گفت که حزب‌الله سه پرتابه به مناطق شمالی اسرائیل شلیک کرد که «نقض آشکار آتش‌بس» است.
+
+گزارش نفیسه کوهنورد را ببینید.
+
+@BBCPersian
+</div>
+
+## alonews — post 127933
+
+<div align="center">
+  <a href="telegram/content/alonews_127933_1781452417.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈گزارش‌هایی مبنی بر بازشدن پناهگاه‌ها در سراسر کشور اسرائیل
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127932
+
+<div align="center">
+  <a href="telegram/content/alonews_127932_1781452417.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈بنیامین نتانیاهو، نخست‌وزیر اسرائیل، در تماس اخیر با رئیس‌جمهور ترامپ گفت که اسرائیل با عقب‌نشینی کامل از جنوب لبنان، از جمله پنج نقطه‌ای که در حال حاضر توسط نیروهای دفاعی اسرائیل (IDF) در اختیار است، موافقت نخواهد کرد، طبق گزارش معاریو.
+
+
+🔴 نتانیاهو همچنین عقب‌نشینی از خاک سوریه را که اسرائیل از زمان سقوط بشار اسد اشغال کرده است، رد کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127931
+
+<div align="center">
+  <a href="telegram/content/alonews_127931_1781452418.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کانال ۱۳ اسرائیل به نقل از منابع: جلسه امروز کابینه امنیتی به دلیل نگرانی از شلیک موشک از سوی ایران در یک پناهگاه مستحکم برگزار خواهد شد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/24 19:13
 ---
 

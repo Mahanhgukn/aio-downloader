@@ -7,6 +7,201 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/24 14:43
+---
+
+## WithYashar — post 14783
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه های اسرائیلی از اماده باش کامل ارتش اسرائیل برای حمله احتمالی ایران خبر می‌دهند.
+@withyashar
+</div>
+
+## WithYashar — post 14782
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بیانیه نتانیاهو و کاتس: ارتش اسرائیل اهدافی متعلق به حزب‌الله در ضاحیه جنوبی را هدف حمله قرار داد
+
+زیرساخت‌های حزب‌الله در ضاحیه جنوبی را با دقت هدف قرار دادیم
+@withyashar
+</div>
+
+## WithYashar — post 14781
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبکه ۱۴ اسرائیل : ما جشن تولد ترامپ رو امروز تو بیروت جشن گرفتیم!
+@withyashar
+</div>
+
+## mwarmonitor — post 10859
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴«ارتش اسرائیل: دقایقی پیش یک مقر متعلق به سازمان تروریستی حزب‌الله را در بیروت هدف قرار دادیم. این مقر برای پیشبرد طرح‌های تروریستی علیه شهروندان دولت اسرائیل و نیروهای ارتش اسرائیل که در جنوب لبنان فعالیت می‌کنند، مورد استفاده عناصر حزب‌الله قرار می‌گرفت.…
+</div>
+
+## pm_afshaa — post 93864
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رسانه های اسرائیلی از اماده باش کامل ارتش اسرائیل برای حمله احتمالی ایران خبر می‌دهن
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 342246
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342246_1781435619.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تیم فوتبال ایران برای نخستین دیدار خود در جام جهانی ۲۰۲۶، امشب، یکشنبه ۲۴ خرداد، تیخوانا را به مقصد لس‌آنجلس ترک می‌کند. مزدک میرزایی، عضو تحریریه ورزشی ایران‌اینترنشنال، می‌گوید نتایج خوب تیم‌های آسیایی در این رقابت‌ها سطح انتظارات از عملکرد تیم ایران را افزایش داده است.
+@iranintltv
+</div>
+
+## Shin_Persian — post 7040
+
+<div align="center">
+  <a href="telegram/content/Shin_Persian_7040_1781435621.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Emanuel (Mannie) Fabian ✓ @manniefabian
+Sun, 14 Jun 2026 10:59:13 UTC
+
+The IDF publishes footage of its airstrike on a Hezbollah headquarters in Beirut a short while ago.
+
+The military says the site was used by Hezbollah to advance attacks on Israeli civilians and IDF troops operating in southern Lebanon.
+
+"The strike was carried out after earlier today, the Hezbollah terror organization launched aerial targets toward the territory of the State of Israel," the IDF says, referring to three drones that exploded in military zones in northern Israel.
+
+ترجمه خودکار فارسی در بخش نظرات
+
+𝕏 · @shin_persian
+</div>
+
+## IranianMinds — post 22546
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22546_1781435622.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴طبق دستور نخست‌وزیر نتانیاهو و اسرائیل کاتز وزیر دفاع، ارتش اسرائیل اکنون در پاسخ به شلیک حزب‌الله به خاک اسرائیل، به اهداف تروریستی حزب‌الله در محل ضاحیه حمله کرده است.
+اسرائیل شلیک به خاک خود را تحمل نخواهد کرد.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 283789
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻امیر قلعه‌نویی؛ مردی که همیشه برمی‌گردد
+
+🖌امیر عطایی, روزنامه‌نگار
+
+امیر قلعه‌نویی مرداد ۱۴۰۱، پس از شکست تیمش مقابل استقلال در نیمه‌نهایی جام حذفی، جمله‌ای را مقابل دوربین صداوسیما به زبان آورد که کمتر کسی انتظار شنیدنش را از یکی از شناخته‌شده‌ترین چهره‌های فوتبال ایران داشت: «در این چهل سال فقط ظلم بوده و ظلم بوده و ظلم.»
+
+https://bbc.in/4fLtU8U
+@BBCPersian
+</div>
+
+## BBCPersian — post 283788
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روز شنبه ۲۳ خرداد گروهی از ایرانیان در واشنگتن‌دی‌سی تجمع کردند.
+
+این تجمع برای بیست و سومین شنبه متوالی، هم‌زمان با نزدیکی دویست و پنجاهمین سالگرد تاسیس آمریکا و حواشی جام جهانی برگزار شد.
+
+معترضان خواستار تغییر رژیم در ایران، آزادی زندانیان سیاسی و توقف احکام اعدام شدند.
+
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 392002
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392002_1781435622.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 پزشکیان تو مراسم امین ایران : رسول خدا و اصحابش، رفتن تو جنگ لت و پار شدن😂😂😂
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391999
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391999_1781435623.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری؛ اسرائیل و سربازان گمنام حضرت موسی دوباره به بیروت حمله کردن
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391998
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391998_1781435624.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بازی سوئیس و قطر بود،
+اما ما ایرانی‌ها هرجا باشیم، پرچم‌
+قشنگ‌مون رو به رخ همه می‌کشیم. 😍
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 127848
+
+<div align="center">
+  <a href="telegram/content/alonews_127848_1781435626.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈بیانیه نتانیاهو و کاتس: ارتش اسرائیل اهدافی متعلق به حزب‌الله در ضاحیه جنوبی را هدف حمله قرار داد
+
+
+🔴زیرساخت‌های حزب‌الله در ضاحیه جنوبی را با دقت هدف قرار دادیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127847
+
+<div align="center">
+  <a href="telegram/content/alonews_127847_1781435626.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رسانه های اسرائیلی از اماده باش کامل ارتش اسرائیل برای حمله احتمالی ایران خبر می‌دهند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127846
+
+<div align="center">
+  <a href="telegram/content/alonews_127846_1781435626.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 شبکه ۱۴ اسرائیل : ما جشن تولد ترامپ رو امروز تو بیروت جشن گرفتیم!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/24 14:33
 ---
 

@@ -7,6 +7,216 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/24 12:24
+---
+
+## VahidOOnLine — post 245436
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_245436_1781427260.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ترانه‌ها و آهنگ‌های فارسی در میان شماری از جوانان ازبک محبوبیت یافته است و آنان این آثار را اجرا و بازخوانی و در رسانه‌های اجتماعی منتشر می‌کنند. انتشار این ویدیوها با استقبال فارسی‌‌زبانان در کشورهای مختلف روبه‌رو شده است. 
+
+در یکی از این ویدیوها، که در رسانه‌های اجتماعی دست‌‌به‌‌دست می‌شود، دو دختر ازبک آهنگ «دلبر یگانه من، شیرین‌‌زبان من» را اجرا می‌کنند. 
+
+بخشی از شهروندان ازبکستان به زبان فارسی صحبت می‌کنند. فارسی‌‌زبانان این کشور اغلب از الفبای سیریلیک برای نوشتن استفاده می‌کنند. 
+
+شماری از کاربران رسانه‌های اجتماعی گسترش علاقه به موسیقی و ترانه‌های فارسی در میان جوانان ازبک را نشانه تداوم پیوندهای تاریخی، فرهنگی و زبانی میان کشورهای حوزه تمدنی نوروز توصیف می‌کنند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245435
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245435_1781427263.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علیرضا عبادی، امام جمعه بیرجند گفت: «گذر زمان به نفع اسلام، انقلاب اسلامی و جبهه مقاومت است و وعده‌های الهی درباره پیروزی حق بر باطل محقق خواهد شد.»
+
+او ادامه داد: «امروز فلسطین، غزه، لبنان و همه ملت‌های مظلوم در خط مقدم مقابله با ظلم و استکبار قرار دارند و بی‌تردید آینده از آنِ ملت‌هایی خواهد بود که در مسیر حق و عدالت ایستادگی می‌کنند.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14768
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/boost/withyashar
+</div>
+
+## WithYashar — post 14767
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/boost/withyashar
+</div>
+
+## DEJradio — post 5666
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️ 🎬 فوتبال زیر سایه فاشیسم
+برگزاری دومین دوره مسابقات جام جهانی در ایتالیا در اوج قدرت دیکتاتوری موسولینی، رهبری که حتی در انتخاب داوران سابقات دخالت می‌کرد.
+
+#مستند #فوتبال
+@DEJradio
+</div>
+
+## DEJradio — post 5665
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5665_1781427264.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎥📢 در شرایطی که جریان حامی توافق با آمریکا در داخل حکومت خود را آماده امضاء توافق می‌کند هواداران نظام احساس کرده‌اند که بازی گرفته شده‌اند. آنها در تجمعات شبانه علیه قالیباف و عراقچی شعار دادند و چرا با قاتلان خامنه‌ای در حال توافق هستند؟
+
+#توافق #مذاکرات #عرزشی
+@DEJradio
+</div>
+
+## DEJradio — post 5664
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5664_1781427266.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️
+🔺 محمدحسین میثاقی حنجره سپاه در فوتبال، که امروز برای مردم رجزخوانی می‌کند و به دیگران لقب «مُفت بر» می‌دهد کسی است که خودش دنبال پاترول برنامه ۹۰ می‌دوید و متهم ردیف اول پرونده فساد «مس رفسنجان» است.
+
+مهدی رستم‌پور خبرنگار ورزشی در برنامه دژ فوتبالی پاسخ توهین‌های امیرحسین میثاقی به مردم و منتقدان تیم فوتبال جمهوری اسلامی را می‌دهد.
+
+#دژفوتبالی #جام_جهانی
+@DEJradio
+</div>
+
+## IranIntlTV — post 342220
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342220_1781427267.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علیرضا عبادی، امام جمعه بیرجند گفت: «گذر زمان به نفع اسلام، انقلاب اسلامی و جبهه مقاومت است و وعده‌های الهی درباره پیروزی حق بر باطل محقق خواهد شد.»
+
+او ادامه داد: «امروز فلسطین، غزه، لبنان و همه ملت‌های مظلوم در خط مقدم مقابله با ظلم و استکبار قرار دارند و بی‌تردید آینده از آنِ ملت‌هایی خواهد بود که در مسیر حق و عدالت ایستادگی می‌کنند.»
+https://iranintl.com/202606144281
+</div>
+
+## Shin_Persian — post 7025
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_7025_1781427268.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+افيخاي ادرعي ✓ @AvichayAdraee Sun, 14 Jun 2026 07:17:43 UTC #عاجل ‼️كما نتوجه بانذار عاجل الى سكان لبنان المتواجدين في البلدات والقرى التالية: اركي, بنعفول, جباع, جرنايا, حومين التحتا, حومين الفوقا, كفر بيت, كفر ملكي, كفر فيلا, كفر شلال, عين بوسوار, عزة…
+</div>
+
+## Shin_Persian — post 7024
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+افيخاي ادرعي ✓ @AvichayAdraee
+Sun, 14 Jun 2026 07:17:43 UTC
+
+#عاجل ‼️كما نتوجه بانذار عاجل الى سكان لبنان المتواجدين في البلدات والقرى التالية: اركي, بنعفول, جباع, جرنايا, حومين التحتا, حومين الفوقا, كفر بيت, كفر ملكي, كفر فيلا, كفر شلال, عين بوسوار, عزة (النبطية), عين قانا, عرب الجل, صربا (النبطية), رومین
+
+🔸في ضوء قيام حزب الله الارهابي بخرق اتفاق وقف اطلاق النار يضطر جيش الدفاع للعمل ضده بقوة. جيش الدفاع لا ينوي المساس بكم.
+
+🔸حرصًا على سلامتكم، عليكم إخلاء منازلكم فوراً والابتعاد عن القرى والبلدات لمسافة لا تقل عن 1000 متر إلى أراضي مفتوحة.
+
+🔸كل من يتواجد بالقرب من عناصر حزب الله ومنشآته ووسائله القتالية، يعرّض حياته للخطر!
+
+English
+
+#Urgent ‼️ We are also issuing an urgent warning to the residents of Lebanon located in the following towns and villages: Erkay, Bnaafoul, Jbaa, Jernaya, Houmin al-Tahta, Houmin al-Fawqa, Kfar Beit, Kfar Melki, Kfar Fila, Kfar Shallal, Ain Bouswar, Azza (Nabatieh), Ain Qana, Arab al-Jall, Sarba (Nabatieh), Roumin.
+
+🔸 In light of the terrorist Hezbollah organization violating the ceasefire agreement, the IDF (Israel Defense Forces) is compelled to act against it forcefully. The IDF does not intend to harm you.
+
+🔸 For your safety, you must evacuate your homes immediately and move away from the villages and towns to a distance of no less than 1,000 meters into open areas.
+
+🔸 Anyone found in the vicinity of Hezbollah members, its facilities, or its combat equipment is putting their life in danger!
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 220658
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220658_1781427269.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سی‌ان‌ان به نقل از یک منبع دیپلماتیک گزارش داد مذاکره‌کنندگان قطری پس از رایزنی با آمریکا راهی تهران شده‌اند تا با مقام‌های جمهوری اسلامی درباره کاهش اختلاف‌های باقی‌مانده و نهایی کردن تفاهم احتمالی میان تهران و واشنگتن گفت‌وگو کنند.
+
+رسانه‌های ایران نیز گزارش دادند این هیئت قطری به تهران سفر کرده است.
+
+این سفر در ادامه رفت‌وآمدهای دیپلماتیک قطر انجام می‌شود. چهارشنبه گذشته نیز مذاکره‌کنندگان قطری پس از مشورت با طرف آمریکایی به تهران رفتند و درباره متن احتمالی تفاهم با مقام‌های جمهوری اسلامی رایزنی کردند.
+
+تحرک تازه قطر در حالی گزارش می‌شود که دونالد ترامپ، رئیس‌جمهوری آمریکا، گفته است توافق با جمهوری اسلامی قرار است امروز، یکشنبه، امضا شود و پس از آن تنگه هرمز به روی همه کشورها باز خواهد شد.
+
+در مقابل، مقام‌های ایرانی زمان‌بندی امضا را قطعی ندانسته‌اند.
+
+عباس عراقچی، وزیر خارجه جمهوری اسلامی، گفته است اگر مرحله نهایی گفت‌وگوها انجام شود، تفاهم می‌تواند از راه دور امضا و سپس اعلام شود.
+@FarsiVOA
+</div>
+
+## IranianMinds — post 22533
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚩 ما همه خون‌خواه رهبر شهیدمان ایم
+
+امروز ساعت 18:00 در خیابان های اصلی تمام کشور
+
+با شعار :
+
+توپ تانک نفربر، ریدید تو خون رهبر
+</div>
+
+## IranianMinds — post 22532
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22532_1781427269.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 یکی از‌ پیشگویی های ۷ سال قبل «مانوک خدابخشیان»:
+جمهوری اسلامی اگه توافق کنه یعنی خلع سلاح کامل شده و بازم عین صدام میزننش.
+آمریکا جایی برای مذاکره نمیره؛ میره حکم میکنه.
+ترامپ تنها خواستش اینه با یکی از اینا سلفی بگیره تا تحقیرشون کنه‌.
+هرکاری هم بکنن باید برن. چون بازی تموم شده.
+مانوک خدابخشیان این حرفا رو سال ۱۳۹۸ زد و چند ماه بعد از دنیا رفت کرد.
+
+@IranianMinds
+</div>
+
+## alonews — post 127812
+
+<div align="center">
+  <a href="telegram/content/alonews_127812_1781427272.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈عصر ایران: کسانی که با مذاکره مخالف‌اند و از جنگ دفاع می‌کنند حاضرند لباس رزم بپوشند و نه در جنوب لبنان با اسرائیل ، بلکه در همین جنوب ایران خودمان با دشمن بجنگند؟
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127811
+
+<div align="center">
+  <a href="telegram/content/alonews_127811_1781427272.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈قابل توجه جبهه پایداری🙂
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/24 12:13
 ---
 

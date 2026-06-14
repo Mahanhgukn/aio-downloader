@@ -7,6 +7,151 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/24 23:33
+---
+
+## VahidOOnLine — post 245549
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245549_1781467420.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️وزارت امور خارجه جمهوری اسلامی ایران با صدور بیانیه‌ای، حمله اسرائیل به منطقه‌ای مسکونی در ضاحیه جنوبی بیروت را به شدت محکوم کرد و آن را نقض آشکار حاکمیت لبنان و تفاهم آتش‌بس میان ایران و آمریکا دانست.
+در این بیانیه آمده است تجاوز نظامی اسرائیل به ضاحیه بیروت که به کشته و زخمی شدن شماری از شهروندان لبنانی منجر شد، علاوه بر نقض حاکمیت ملی و تمامیت ارضی لبنان، «نقض فاحش تفاهم آتش‌بس مورخ ۱۹ فروردین ۱۴۰۵ بین ایران و آمریکا» محسوب می‌شود.
+وزارت خارجه ایران با یادآوری «مسئولیت مستقیم دولت آمریکا» در قبال اقدامات اسرائیل و نقض مکرر آتش‌بس از سوی این رژیم، تأکید کرد جمهوری اسلامی ایران مصمم است تمامی تدابیر لازم را برای اعمال حق ذاتی دفاع مشروع اتخاذ کند.
+در پایان این بیانیه هشدار داده شده است که مسئولیت پیامدهای خطرناک اقدامات اسرائیل علیه صلح و امنیت منطقه‌ای بر عهده آمریکا و اسرائیل خواهد بود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## mwarmonitor — post 10918
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رسانه‌های اسرائیلی:
+
+🔸تهران در حال بررسی به تعویق انداختن پاسخ برنامه‌ریزی‌شده خود با شلیک موشک به اسرائیل است تا به تلاش‌های ترامپ برای کاهش تنش فرصت بدهد و احتمال رسیدن به یک توافق چارچوبی احتمالی در امشب فراهم شود.
+
+🔸قطر در حال میانجی‌گری در مذاکرات است و گزارش‌ها حاکی از آن است که یکی از پیشنهادها شامل لغو فوری محاصره دریایی ایران و بازگشایی تنگه هرمز به‌جای کاهش تدریجی آن است.
+
+🔸منابع می‌گویند ایران قصد داشت حمله موشکی را در شب اجرا کند، احتمالاً هم‌زمان با پخش اصلی تلویزیونی، اما چندین بار آن را پس از دریافت پیام‌های مستقیم از ترامپ به تعویق انداخته است.
+
+🔸ترامپ هشدار داده است که هرگونه حمله‌ای که به چرخه‌ای گسترده‌تر از تشدید تنش منجر شود می‌تواند مذاکرات را به خطر بیندازد و ایران را مسئول فروپاشی تلاش‌های دیپلماتیک بداند.
+
+🔸گفته می‌شود رئیس‌جمهور آمریکا در حال بررسی ارائه امتیازات اضافی برای حفظ مذاکرات و تضمین یک توافق است.
+
+🔸یک منبع امنیتی اسرائیلی گفته است که بنیامین نتانیاهو انتظار داشت حمله بیروت باعث تشدید تنش و خارج شدن دیپلماسی از مسیر شود، اما با وجود این حادثه، مذاکرات ادامه یافته است.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10917
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴«ترامپ ممکن است حاضر باشد فوراً محاصره دریایی ایران و تنگه هرمز را لغو کند، به‌جای اینکه طبق توافق فعلی آن را به‌صورت تدریجی لغو کند. 🔴«ترامپ آماده است برای حفظ قول خود و امضای توافق در امروز، امتیازهای بیشتری فراتر از مواردی که قبلاً توافق شده به ایران…
+</div>
+
+## pm_afshaa — post 93966
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93966_1781467421.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کانال 12 اسرائیل: جمهوری اسلامی پیشنهاد ترامپ برای دریافت «مزایای اقتصادی» در ازای خویشتنداری رو رد کرده. جمهوری اسلامی اعلام کرده «به‌زودی پاسخ خواهد داد». 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93965
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93965_1781467422.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وای‌نت: ترامپ ممکنه حاضر باشه فورا محاصره دریایی ایران و تنگه هرمز رو لغو کنه، به‌جای اینکه طبق توافق فعلی اونو به‌صورت تدریجی لغو کنه!
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## Persian_Trend_Official — post 17107
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17107_1781467422.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سکوت عجیبی تو رسانه هاست چند دقیقه هیچ خبری نیومده🤔
+</div>
+
+## Persian_Trend_Official — post 17106
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17106_1781467423.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش پرواز رهگیرهای ارتش بر روی پایگاه های موشکی
+
+🌟
+🌟
+🌟
+🌟
+🌟
+🌟
+🌟
+🌟
+🌟
+</div>
+
+## Persian_Trend_Official — post 17105
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17105_1781467423.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📰یدیعوت آحرونوت از منابع مطلع گزارش می‌دهد: ایالات متحده پیشنهاد رفع فوری محاصره دریایی به ایران را داده است و نه به صورت تدریجی، در مقابل عدم حمله به اسرائیل
+</div>
+
+## alonews — post 127995
+
+<div align="center">
+  <a href="telegram/content/alonews_127995_1781467423.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سه ساعت از زمانی که ترامپ گفت توافق ظرف دو ساعت دیگه انجام می‌شه گذشت
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127994
+
+<div align="center">
+  <a href="telegram/content/alonews_127994_1781467424.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سه انفجار مهیب در شهرک الطیری در جنوب لبنان
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127993
+
+<div align="center">
+  <a href="telegram/content/alonews_127993_1781467424.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وای نت: ممکن است ترامپ در حال آماده‌سازی برای برداشتن فوری محاصره دریایی آمریکا بر بنادر ایران باشد تا از هرگونه حمله ایرانی به اسرائیل جلوگیری کند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/24 23:23
 ---
 

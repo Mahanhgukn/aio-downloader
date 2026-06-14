@@ -7,6 +7,403 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/24 14:33
+---
+
+## VahidOOnLine — post 245456
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_245456_1781435026.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوهای رسیده به ایران‌اینترنشنال نشان می‌دهند ایرانیان مقیم یونان شنبه ۲۳ خرداد با فراخوان شاهزاده رضا پهلوی و علیه جمهوری اسلامی در آتن تجمع کرده و نام جاویدنامان انقلاب ملی را فریاد زدند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14780
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پنج ساختمان در بیروت مورد حمله هدفمند قرار گرفته اند!
+@withyashar 🚨
+</div>
+
+## WithYashar — post 14779
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال ۱۲ اسرائیل: هدف در حمله به ضاحیه جنوبی نعیم قاسم بوده است
+@withyashar
+</div>
+
+## WithYashar — post 14778
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اتاق جنگ با یاشار : سفت بگو یا موسییییییییی @withyashar
+</div>
+
+## WithYashar — post 14777
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل: حزب‌الله با نقض آتش‌بس، سه موشک به سمت شهرهای شمالی اسرائیل شلیک کرد و ما در پاسخ به بیروت حمله کردیم
+@withyashar
+</div>
+
+## WithYashar — post 14776
+
+<div align="center">
+  <a href="telegram/content/WithYashar_14776_1781435029.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حمله اسرائیل به بیروت 🚨🚨🚨
+@withyashar
+</div>
+
+## mwarmonitor — post 10858
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_10858_1781435030.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبر فوری 🔸اسرائیل در نهایت دوباره به جنوب بیروت حمله کرد @mwarmonitor
+</div>
+
+## mwarmonitor — post 10857
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝با توجه به آخرین بیانیه صادرشده از سوی قرارگاه خاتم‌ مبنی بر اینکه هدف قرار دادن ضاحیهٔ جنوبی بیروت خط قرمز ایران محسوب می‌شود، انتظار می‌رود جمهوری اسلامی حمله‌ای علیه اسرائیل انجام دهد.»
+
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10856
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبر فوری 🔸اسرائیل در نهایت دوباره به جنوب بیروت حمله کرد @mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 342951
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342951_1781435031.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+President Trump sends a celebratory message to the New York Knicks after they won their first NBA Finals title in 53 years.
+
+A longtime Knicks fan, Trump became the first sitting president to attend an NBA Finals game when he sat alongside team owner James Dolan at Game 3 of the series, as New York finished off the San Antonio Spurs in five games to clinch the championship.
+</div>
+
+## pm_afshaa — post 93863
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کانال 12 اسرائیل به نقل از یک مقام امنیتی: این بار، ما حتی پرتاب یک موشک از ایران به خاک اسرائیل را تحمل نخواهیم کرد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93862
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرماندهی حزب الله در ضایحه بیروت مورد حمله قرار گفت 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93861
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+منابع عبری از ترور شیخ نعیم قاسم اطلاع میدن
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93860
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بزنامه هاتونو کنسل کنین بی بی کیرشو میکنه تو پلناتون
+😂
+</div>
+
+## pm_afshaa — post 93859
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️در اقدامی بی سابقه،دقایقی پیش ارتش اسرائیل به ساکنان 45 شهر و روستا در جنوب لبنان به صورت همزمان هشدار داد هرچه سریع‌تر مناطق خود را ترک کنن
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93858
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♨️
+♨️
+♨️
+♨️
+</div>
+
+## IranIntlTV — post 342245
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342245_1781435032.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوهای رسیده به ایران‌اینترنشنال نشان می‌دهند ایرانیان مقیم یونان شنبه ۲۳ خرداد با فراخوان شاهزاده رضا پهلوی و علیه جمهوری اسلامی در آتن تجمع کرده و نام جاویدنامان انقلاب ملی را فریاد زدند.
+</div>
+
+## Shin_Persian — post 7039
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet: Commentator @News1Commentary Sun, 14 Jun 2026 11:00:15 UTC @hey_itsmyturn What if Iran attacks ↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید. ترجمه خودکار فارسی @hey_itsmyturn چه می‌شود اگر ایران حمله کند؟ 𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 7038
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+Commentator @News1Commentary
+Sun, 14 Jun 2026 11:00:15 UTC
+
+@hey_itsmyturn What if Iran attacks
+
+↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
+
+ترجمه خودکار فارسی
+
+@hey_itsmyturn چه می‌شود اگر ایران حمله کند؟
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 7037
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sun, 14 Jun 2026 11:00:01 UTC
+
+Seems like a senior Hezballah member was targeted in Dahieh, southern Beirut.
+
+ترجمه خودکار فارسی
+
+به نظر می‌رسد یک عضو ارشد حزب‌الله در ضاحیه در جنوب بیروت هدف قرار گرفته است.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 7035
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_7035_1781435034.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔁 Quoting above tweet:
+DPR @D_3141592_R
+Sun, 14 Jun 2026 10:55:05 UTC
+
+محل حمله امروز نیروی هوایی اسرائیل به ساختمانی در ضاحیه بیروت
+
+Location: 33.858834, 35.508403
+
+https://maps.app.goo.gl/eUYtxdVV2tcvFLQ19
+
+English
+
+Location of today's Israeli Air Force (IAF) attack on a building in the Dahiyeh of Beirut
+
+Location: 33.858834, 35.508403
+
+https://maps.app.goo.gl/eUYtxdVV2tcvFLQ19
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 7033
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+Shin ✓ @hey_itsmyturn
+Sun, 14 Jun 2026 10:42:51 UTC
+
+More from Dahieh, Southern Beirut
+Lebanon
+
+↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
+
+ترجمه خودکار فارسی
+
+جزئیات بیشتر از ضاحیه، جنوب بیروت
+لبنان
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 7032
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sun, 14 Jun 2026 10:53:01 UTC
+
+I doubt these strikes do any good or bad on the deal, JD and Araghchi already got their virtual motel room. https://x.com/ManageYourIm/status/2066109977295512007
+
+ترجمه خودکار فارسی
+
+شک دارم این حملات سود یا ضرری برای توافق داشته باشند، جی‌دی و عراقچی همین حالا هم اتاق هتل مجازی خود را گرفته‌اند. https://x.com/ManageYourIm/status/2066109977295512007
+
+𝕏 · @shin_persian
+</div>
+
+## Persian_Trend_Official — post 17032
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17032_1781435034.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سخنگوی ارتش اسرائیل: در یک حمله دقیق در ضاحیه، بیروت ارتش اسرائیل به مقر سازمان تروریستی حزب الله حمله کرد.
+
+ارتش اسرائیل اخیراً به مقر سازمان تروریستی حزب الله در بیروت حمله کرد. مقر مورد حمله توسط تروریست‌های سازمان تروریستی حزب الله برای پیشبرد توطئه‌های تروریستی علیه شهروندان کشور اسرائیل و نیروهای ارتش اسرائیل که در جنوب لبنان فعالیت می‌کنند، استفاده می‌شد.
+
+این حمله پس از آن انجام شد که اوایل امروز (یکشنبه)، سازمان تروریستی حزب الله اهداف هوایی را به سمت خاک کشور اسرائیل شلیک کرد. سازمان تروریستی حزب الله همچنان به پیشبرد توطئه‌های تروریستی علیه شهروندان کشور اسرائیل و نیروهای ارتش اسرائیل ادامه می‌دهد.
+
+ارتش اسرائیل به اقدامات خود برای از بین بردن هرگونه تهدیدی علیه کشور اسرائیل و نیروهای ارتش اسرائیل و مطابق با دستورالعمل‌های رده سیاسی ادامه خواهد داد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17031
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17031_1781435037.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال 12 اسرائیل: این بار، ما حتی پرتاب یک موشک از ایران به خاک اسرائیل را تحمل نخواهیم کرد.
+
+اگر چنین اتفاقی بیفتد، اسرائیل آماده است تا یک حمله نظامی گسترده و خردکننده علیه زیرساخت‌های نظامی و اقتصادی ایران انجام دهد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17030
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17030_1781435037.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حزب‌الله لبنان ویدیویی از عملیات پهپادی امروز خود در شمال اسرائیل منتشر کرد.
+
+حداقل یکی از دو پهپاد پرتاب شده به سمت شمال اسرائیل به هدف خود اصابت کرد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## BBCPersian — post 283787
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻حمله سایبری به چند بانک در ایران؛ برخی خدمات برقرار شده اما اختلال ادامه دارد
+
+شرکت ملی انفورماتیک اعلام کرد اختلال در خدمات بانک ملی که ازدیروز آغاز شده همچنان ادامه دارد اما برخی خدمات برقرار شده‌اند.
+
+شورای هماهنگی بانک‌ها دیروز اختلال در ارائه خدمات بانک‌های ملی، تجارت، صادرات و توسعه صادرات را به یک «حمله سایبری محدود» نسبت داد اما به منشا اشاره‌ای نکرد.
+
+به گفته شورای هماهنگی بانک‌ها بررسی‌های فنی نشان می‌دهد که «هیچ‌گونه دسترسی غیرمجاز به اطلاعات مشتریان و هیچ موردی از نشت اطلاعات» رخ نداده است.
+
+این اختلال در بخش‌های مختلف، از جمله «موبایل‌بانک، اینترنت‌بانک، خودپردازها، پایانه‌های فروش (کارتخوان) و برخی خدمات کارتی» ایجاد شده بود.
+
+به گفته شرکت ملی انفورماتیک در حال حاضر مشکل خدمات بانکی در بانک‌های تجارت و صادرات رفع شده و در بانک توسعه صادرات سرویس‌های ضروری حضوری به مشتریان ارائه می‌شود.
+
+این شرکت گفته است که پیگیری‌ها برای رفع این مشکل در بانک ملی ادامه دارد.
+
+https://bbc.in/4fEONCy
+@BBCPersian
+</div>
+
+## alonews — post 127845
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / کانال 12 اسرائیل به نقل از یک مقام امنیتی: این بار، ما حتی پرتاب یک موشک از ایران به خاک اسرائیل را تحمل نخواهیم کرد.
+
+
+🔴اگر چنین اتفاقی بیفتد، اسرائیل آماده است تا یک حمله نظامی گسترده و خردکننده علیه زیرساخت‌های نظامی و اقتصادی ایران انجام دهد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127844
+
+<div align="center">
+  <a href="telegram/content/alonews_127844_1781435039.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ارتش اسرائیل ویدیو‌یی از حمله‌ِ به ضاحیه بیروت منتشر کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127843
+
+<div align="center">
+  <a href="telegram/content/alonews_127843_1781435040.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خسارات وارده به ضاحیه بعد از حمله اسرائیل
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127842
+
+<div align="center">
+  <a href="telegram/content/alonews_127842_1781435040.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / کانال ۱۲ اسرائیل: هدف در حمله به ضاحیه جنوبی نعیم قاسم بوده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/24 14:24
 ---
 

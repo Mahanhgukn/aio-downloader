@@ -7,6 +7,140 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/24 15:03
+---
+
+## WithYashar — post 14789
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+منابع عبری: ارزیابی‌های کنونی در اسرائیل نشان می‌دهد که ایران تعادل را حفظ کرده و به حمله در حومه جنوبی بیروت پاسخ خواهد داد.
+@withyashar
+</div>
+
+## WithYashar — post 14788
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مقام اسرائیلی به نیویورک تایمز :
+
+توافق آمریکا و ایران آخر بازی نیست و هنوز ماجرا ادامه داره
+ما از آمریکا خواستیم تو محدود کردن عملیات نظامی‌ تو لُبنان دخالت نکنه
+@withyashar
+</div>
+
+## WithYashar — post 14787
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سخنگوی آتش نشانی تهران: دود مشاهده در قسمت شمالی شهر تهران، مربوط به حریق فضای سبز در محدوده ولنجک است.
+@withyashar
+</div>
+
+## mwarmonitor — post 10864
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴«جبهه داخلی اسرائیل: سطح آماده‌باش به بالاترین درجه افزایش یافته است، بدون هیچ تغییری در دستورالعمل‌های صادرشده برای عموم تا این لحظه.»
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 93869
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یاداوری:
+
+مشاهده
+
+به جا مانده از 18 و 19 دی
+</div>
+
+## pm_afshaa — post 93868
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93868_1781436815.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وضعیت بیروت درپی حمله اسرائیل :
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 342248
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342248_1781436816.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻در حالی که نیمار به همراه تیم ملی برزیل در جام جهانی ۲۰۲۶ حضور دارد، خانواده و نزدیکان او نیز زندگی لوکسی را در آمریکا تجربه می‌کنند.
+
+🔹بر اساس گزارش رسانه‌های آلمانی، پدر نیمار برای مدت برگزاری مسابقات، ویلایی مجلل در ایالت فلوریدا اجاره کرده است که هزینه اقامت در آن حدود ۳ هزار پوند در روز برآورد می‌شود. این اقامتگاه در مجموعه ریونیون ریزورت قرار دارد و تنها ۲۰ دقیقه با مجموعه تفریحی دیزنی‌ورلد فاصله دارد.
+
+🔹این ویلای ۱۴ خوابه که ارزشی در حدود ۱۰.۸ میلیون پوند دارد، امکاناتی کم‌نظیر از جمله استخر بزرگ، سالن بدنسازی، زمین بسکتبال، سالن بولینگ اختصاصی، سینمای خانگی، اتاق بازی و شبیه‌ساز رانندگی را در اختیار ساکنان قرار می‌دهد.
+
+🔹یکی از بخش‌های جالب این عمارت، فضایی با تم مجموعه «جنگ ستارگان» است که برای کودکان خانواده در نظر گرفته شده و شامل اتاق‌های ویژه و دکوراسیونی الهام‌گرفته از این مجموعه سینمایی مشهور می‌شود.
+
+🔹گفته می‌شود برونا بیانکاردی، شریک زندگی نیمار، به همراه دو فرزند این ستاره برزیلی نیز در این اقامتگاه حضور دارند و مسابقات جام جهانی را از نزدیک دنبال می‌کنند.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 342247
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342247_1781436817.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مروری بر رسانه‌ها و خبرگزاری‌ها در ایران، یکشنبه ۲۴ خرداد، با مجتبی هاشمی، روزنامه‌نگار
+@iranintltv
+</div>
+
+## IranianMinds — post 22547
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22547_1781436819.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴طبق دستور نخست‌وزیر نتانیاهو و اسرائیل کاتز وزیر دفاع، ارتش اسرائیل اکنون در پاسخ به شلیک حزب‌الله به خاک اسرائیل، به اهداف تروریستی حزب‌الله در محل ضاحیه حمله کرده است. اسرائیل شلیک به خاک خود را تحمل نخواهد کرد. @IranianMinds
+</div>
+
+## Hranews — post 113600
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به دلیل “عدم رعایت شئونات اسلامی”؛ ۲ واحد صنفی در آران و بیدگل پلمب شدند
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– فرمانده انتظامی آران و بیدگل از #پلمب دو واحد صنفی در این شهرستان به دلیل آنچه «عدم رعایت شئونات اسلامی» و «کشف حجاب» عنوان کرده، خبر داد.
+
+ادامه مطلب
+
+↘️
+@hranews_bot تماس ✉️ -  @Hranews  کانال هرانا 🆑
+</div>
+
+## alonews — post 127852
+
+<div align="center">
+  <a href="telegram/content/alonews_127852_1781436820.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری/ منابع عبری: ارزیابی‌های کنونی در اسرائیل نشان می‌دهد که ایران تعادل را حفظ کرده و به حمله در حومه جنوبی بیروت پاسخ خواهد داد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/24 14:53
 ---
 

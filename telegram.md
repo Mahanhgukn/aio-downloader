@@ -7,6 +7,308 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/24 14:53
+---
+
+## VahidOOnLine — post 245457
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️پارک «مینی‌ورلد» ملایر (جهان کوچک) به عنوان نخستین مجموعه مینیاتوری در خاورمیانه و چهارمین پارک مینیاتوری جهان، یکی از شاخص‌ترین جاذبه‌های گردشگری ایران به شمار می‌رود؛ مجموعه‌ای که با گردآوری ماکت‌هایی دقیق و هنرمندانه از مشهورترین آثار تاریخی، فرهنگی و معماری جهان، تجربه‌ای متفاوت از سفر را برای بازدیدکنندگان رقم می‌زند.
+در این پارک، علاقه‌مندان می‌توانند در مدت زمانی کوتاه، از شکوه تخت‌جمشید و میدان نقش جهان تا عظمت برج ایفل، تاج‌محل و دیگر بناهای شناخته‌شده جهان بازدید کنند و جلوه‌ای کوچک اما واقع‌گرایانه از شاهکارهای معماری را از نزدیک ببینند.
+طراحی دقیق ماکت‌ها در کنار فضای سبز، آب‌نماها و محوطه‌سازی چشم‌نواز، فضایی آرام و دلنشین ایجاد کرده که «مینی‌ورلد» را به مقصدی جذاب برای خانواده‌ها، گردشگران و علاقه‌مندان به عکاسی و معماری تبدیل کرده است.
+این تصاویر را مریم رحمانی ثبت کرده و در خبرگزاری ایسنا منتشر شده‌اند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14786
+
+<div align="center">
+  <a href="telegram/content/WithYashar_14786_1781436215.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل: مرکز فرماندهی حزب‌الله تو ضاحیه بیروت رو زدیم
+@withyashar
+</div>
+
+## WithYashar — post 14785
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال ۱۲ اسرائیل: هدف حمله هوایی در ضاحیه جنوبی، فرمانده ارشد در سیستم ارتباطات حزب‌الله بود
+@withyashar
+</div>
+
+## WithYashar — post 14784
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اتاق جنگ با یاشار : این موج مکزیکی بلند رو مدیون بی بی هستیم
+@withyashar
+</div>
+
+## mwarmonitor — post 10863
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸«نیروهای اسرائیلی یک سامانه ارتباطی متعلق به حزب‌الله را در حومه جنوبی بیروت هدف قرار داده‌اند - کانال ۱۲.»
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10862
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📌مارک لوین ؛ حزب‌اللهِ ایران همچنان در حال شلیک موشک به سمت اسرائیل است. این دقیقاً همان چیزی است که من و دیگران درباره آن هشدار داده بودیم.»
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10861
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رسانه‌های اسرائیلی: پس از بمباران ضاحیه جنوبی بیروت، فشارهای شدیدی از سوی قطر و پاکستان برای توقف دور دیگری از درگیری‌ها اعمال شده است؛ دوری که می‌تواند مذاکرات را با شکست مواجه کند.»
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10860
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴«خبرگزاری ملی لبنان گزارش داد که در حمله اسرائیل به بیروت، دست‌کم یک نفر کشته و چهار نفر دیگر زخمی شده‌اند.»
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 93867
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_93867_1781436217.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏+ ای کسکش، بجای انتقام توافق کردی؟
+- زیاد حرف بزنی تاریخ دفنتم میندازم عقب.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93866
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93866_1781436218.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴حمید رسایی، نماینده مجلس:
+اگر میخواید روزی این اجتماعات تموم بشه، باید انتقام خون علی خامنه‌ای رو بگیرید و تنها در صورتی این اتفاق میفته که اسرائیل از رو کره‌ی زمین محو بشه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93865
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93865_1781436220.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴حمله اسرائیل به جنوب بیروت :
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## Shin_Persian — post 7042
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_7042_1781436221.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sun, 14 Jun 2026 11:18:59 UTC
+
+PM @netanyahu cancels his attendance to the Karnii Shomron's housing development event minutes before the event.
+
+(Per Amit Segal)
+
+ترجمه خودکار فارسی
+
+بنیامین نتانیاهو (@netanyahu)، نخست‌وزیر، حضور خود در مراسم توسعه مسکن کارنی شومرون را دقایقی پیش از آغاز مراسم لغو کرد.
+
+(به نقل از آمیت سگال)
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 7041
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sun, 14 Jun 2026 11:13:46 UTC
+
+There are casualties in the target site.
+
+ترجمه خودکار فارسی
+
+تلفاتی در محل هدف وجود دارد.
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 220665
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺بریتانیا ممنوعیت شبکه‌های اجتماعی را برای زیر شانزده ‌سال‌ اعلام می‌کند
+
+▪️دولت بریتانیا قرار است این هفته محدودیت‌های تازه برای استفاده کودکان و نوجوانان از شبکه‌های اجتماعی را اعلام کند.
+
+▪️طرحی که بر اساس گزارش بلومبرگ و ساندی تایمز، شامل ممنوعیت استفاده افراد زیر ۱۶ سال از برخی پلتفرم‌های پرخطر و محدودیت زمانی برای نوجوانان بزرگ‌تر خواهد بود.
+
+▪️قرار است جزئیات محدودیت‌ها توسط کی‌یر استارمر، نخست‌وزیر بریتانیا، اعلام شود.
+
+▪️بر اساس گزارش ساندی تایمز، در این طرح حداقل سن استفاده از پلتفرم‌هایی مانند تیک‌تاک، اسنپ‌چت، یوتیوب، ردیت و اینستاگرام به ۱۶ سال افزایش می‌یابد.
+
+▪️همچنین نوجوانان ۱۶ و ۱۷ ساله با محدودیت استفاده روزانه و منع استفاده شبانه روبه‌رو خواهند شد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8160654.html
+</div>
+
+## Persian_Trend_Official — post 17034
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_17034_1781436222.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سخنگوی کمیسیون امنیت ملی: نباید دچار خطای محاسباتی شد.
+
+حتی اگر توافق با تفاهمی هم بخواهید مسیر آن تأدیب رژیم صهیونی است. اگر سگ هار کنترل نشود، امضای تفاهم خشک نشده، پای خودمان را گاز خواهد گرفت.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17033
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حمله به ضاحیه تا به این لحظه 1 کشته و 4 زخمی بر جای گذاشته است.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## RadioFarda — post 158287
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸مرکز منتهن در نیویورک شامگاه شنبه صحنه شادی خشونت‌آمیز هواداران تیم بسکتبال نیویورک نیکس پس از قهرمانی این تیم در فینال NBA بود.
+
+🔸به گزارش رویترز با نزدیک شدن به شب، صدها نفر از هواداران نیویورک نیکس که بیشتر آن‌ها جوان بودند، پس از انتقال هواداران فوتبال از اولین بازی جام جهانی در منطقه نیویورک سیتی بین برزیل و مراکش که با تساوی به پایان رسید، به کاروانی متشکل از حدود ۱۵ اتوبوس در میدان تایمز هجوم آوردند.
+
+🔸در این فضای خشونت‌آمیز یک اتوبوس‌ زرد مدرسه که برای کمک به حمل و نقل هواداران فوتبال در نظر گرفته شد بود، به آتش کشیده شد و حداقل سه اتوبوس شاتل دیگر هم به شدت آسیب دیدند.
+
+🔸به گفته یک افسر پلیس نیویورک در جریان خشونت‌های نیویورک یک جوان ۱۷ ساله در میدان تایمز از ناحیه پا مورد اصابت گلوله قرار گرفت. در این ارتباط سه نفر بازداشت شدند.
+
+🔸نیویورک نیکس از سال ۱۹۷۳ تاکنون عنوانی کسب نکرده است و این تنها سومین حضور آنها در فینال پس از شکست در سال‌های ۱۹۹۴ و ۱۹۹۹ مقابل هیوستون راکتس و سن آنتونیو اسپرز بود که شنبه شب آنها را شکست دادند.
+
+@RadioFarda
+</div>
+
+## idfinfarsi — post 11843
+
+<div align="center">
+  <a href="telegram/content/idfinfarsi_11843_1781436223.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ در یک حمله دقیق در ضاحیه بیروت: ارتش اسرائیل مقر سازمان تروریستی حزب‌الله را هدف قرار داد
+
+ارتش اسرائیل مدتی پیش مقر سازمان تروریستی حزب‌الله را در بیروت مورد حمله قرار داد.
+
+🔸مقر هدف قرارگرفته توسط تروریست‌های سازمان تروریستی حزب‌الله برای پیشبرد طرح‌های تروریستی علیه شهروندان کشور اسرائیل و نیروهای ارتش اسرائیل در حال فعالیت در جنوب لبنان مورد استفاده قرار می‌گرفت.
+
+🔸این حمله پس از آن انجام شد که پیش‌تر امروز (یکشنبه)، سازمان تروریستی حزب‌الله پرتابه هایی را به سمت حریم کشور اسرائیل پرتاب کرد.
+
+🔸سازمان تروریستی حزب‌الله به تلاش برای پیشبرد طرح‌های تروریستی علیه شهروندان کشور اسرائیل و نیروهای ارتش اسرائیل ادامه می‌دهد.
+
+🔸ارتش اسرائیل به فعالیت خود برای رفع هرگونه تهدید علیه کشور اسرائیل و نیروهای ارتش اسرائیل، مطابق با دستورالعمل‌های رده سیاسی ادامه خواهد داد.
+</div>
+
+## Hranews — post 113599
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک زندانی در زندان رودان اعدام شد
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– سحرگاه امروز یکشنبه ۲۴ خردادماه، حکم یک زندانی که پیشتر از بابت اتهامات مرتبط با جرائم مواد مخدر به #اعدام محکوم شده بود، در زندان رودان اجرا شد.
+
+ادامه مطلب
+
+#علی‌بخش_رئیسی
+
+↘️
+@hranews_bot تماس ✉️ -  @Hranews  کانال هرانا 🆑
+</div>
+
+## alonews — post 127851
+
+<div align="center">
+  <a href="telegram/content/alonews_127851_1781436225.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سخنگوی آتش نشانی تهران: دود مشاهده در قسمت شمالی شهر تهران، مربوط به حریق فضای سبز در محدوده ولنجک است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127850
+
+<div align="center">
+  <a href="telegram/content/alonews_127850_1781436226.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کانال ۱۲ اسرائیل: هدف حمله هوایی در ضاحیه جنوبی، فرمانده ارشد در سیستم ارتباطات حزب‌الله بود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127849
+
+<div align="center">
+  <a href="telegram/content/alonews_127849_1781436226.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ارتش اسرائیل: مرکز فرماندهی حزب‌الله تو ضاحیه بیروت رو زدیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/24 14:43
 ---
 

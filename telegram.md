@@ -7,6 +7,167 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/24 15:13
+---
+
+## WithYashar — post 14790
+
+<div align="center">
+  <a href="telegram/content/WithYashar_14790_1781437415.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسرائیل به فارسی با انتشار این گیف از ظریف نوشت: هفته خوبی داشته باشید
+@withyashar
+</div>
+
+## pm_afshaa — post 93872
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یاداوری: مشاهده به جا مانده از 18 و 19 دی
+</div>
+
+## pm_afshaa — post 93871
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سخنگوی کمیسیون امنیت مجلس: اگر این سگ هار کنترل نشود، امضای تفاهم خشک نخواهد شد و پای خودمان را گاز خواهد گرفت
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93870
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یاداوری:
+
+مشاهده
+
+به جا مانده از 18 و 19 دی
+</div>
+
+## kianmeli1 — post 87982
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87982_1781437417.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ارتش اسرائیل: مرکز فرماندهی حزب‌الله در ضاحیه بیروت را بمباران کردیم
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 342249
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342249_1781437417.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گفت‌وگوی ویژه با وثاق سنائی، سخنگوی فارسی‌زبان جامعه جهانی بهائی
+در این گفت‌وگو وثاق سنائی درباره هویت، پایداری، حمایت‌های بین‌المللی و نقش این جامعه در آینده ایران آزاد می‌گوید.
+تماشای نسخه کامل این برنامه در یوتیوب:
+
+https://youtu.be/Xx9h1PKb-QQ
+
+@iranintltv
+</div>
+
+## FarsiVOA — post 220666
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220666_1781437419.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حمله اوکراین به یک کارخانه شیمیایی و انبار سوخت در عمق خاک روسیه؛
+
+بلومبرگ به نقل از رئیس‌جمهور اوکراین، گزارش داد نیروهای اوکراینی یک کارخانه کود و مواد شیمیایی در منطقه تولا و یک تأسیسات ذخیره سوخت در منطقه یاروسلاول روسیه را هدف قرار داده‌اند. این حملات تازه‌ترین نمونه از ضربات دوربرد اوکراین در عمق خاک روسیه است.
+
+زلنسکی در حساب ایکس خود نوشته است که کارخانه آزوت در تولا در فعالیت‌هایی نقش دارد که برای توان تولید مواد منفجره روسیه اهمیت دارد.
+
+بلومبرگ همچنین به نقل از اینترفکس نوشت دیمیتری میلیایف، فرماندار منطقه تولا، اعلام کرده بقایای یک پهپاد در محوطه یک کارخانه صنعتی در نوموسکوفسک سقوط کرده و میزان خسارت در حال بررسی است.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8160655.html
+</div>
+
+## RadioFarda — post 158288
+
+<div align="center">
+  <a href="https://t.me/radiofarda/158288" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📻بشنوید: ساعت ۱۴ با رادیوفردا، ۲۴ خرداد ۱۴۰۵‌
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 22548
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مجری شبکه ۱۴ اسرائیل:
+
+ما هم تولد ترامپ را امروز در بیروت جشن گرفتیم.
+
+@IranianMinds
+</div>
+
+## alonews — post 127856
+
+<div align="center">
+  <a href="telegram/content/alonews_127856_1781437421.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری/ سخنگوی کمیسیون امنیت ملی:
+نباید اشتباه محاسباتی کنیم
+
+
+🔴حتی اگر بخواهیم به توافق یا تفاهم برسیم، راه آن انضباط دادن به رژیم صهیونیستی است. اگر این سگ هار کنترل نشود، امضای تفاهم خشک نخواهد شد و پای ما را خواهد گاز گرفت.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127855
+
+<div align="center">
+  <a href="telegram/content/alonews_127855_1781437421.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خبرنگار صداوسیما: تنگه هرمز طبق اعلام نهاد مدیریت آب‌راه خلیج فارس تا اطلاع بعدی همچنان مسدود است و هیچ کشتی خارجی حق ورود و خروج ندارد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127854
+
+<div align="center">
+  <a href="telegram/content/alonews_127854_1781437422.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈باراک راوید(اکسیوس) : ایران همونطور که گفته بود، حمله به بیروت رو پاسخ میده
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127853
+
+<div align="center">
+  <a href="telegram/content/alonews_127853_1781437422.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خبرگزاری العربیه: قطری ها و پاکستانی ها فشار زیادی می‌آورند تا تشدید تنش رخ ندهد!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/24 15:03
 ---
 

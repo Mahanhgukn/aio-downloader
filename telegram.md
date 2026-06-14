@@ -7,6 +7,140 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/24 11:33
+---
+
+## VahidOOnLine — post 245428
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_245428_1781424234.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوهای رسیده به ایران‌اینترنشنال نشان می‌دهند گروهی از ایرانیان مقیم استرالیا یکشنبه ۲۴ خرداد در حمایت از شاهزاده رضا پهلوی و علیه جمهوری اسلامی، در هوای بارانی ملبورن راهپیمایی کردند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14765
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+منابع مطلع به شبکه «العربیه» : هیئت‌های نمایندگی آمریکا و ایران به منظور امضای نهایی توافق صلح، در یک نشست مجازی (ویدیویی کنفرانس) حضور خواهند یافت. یادداشت تفاهم صلح در جریان این نشست آنلاین با نظارت مستقیم میانجیگرانی از کشورهای پاکستان و قطر با حضور «جی‌دی ونس» (نماینده آمریکا) و «محمدباقر قالیباف» (نماینده ایران) به امضا خواهد رسید. بلافاصله پس از امضای این توافقنامه، محاصره بنادر ایران لغو خواهد شد. از دیگر نکات، بازگشایی تنگه هرمز و صدور مجوز عبور و مرور برای کشتی‌ها بدون نیاز به پرداخت هیچ‌گونه عوارض عبور خواهد بود.
+@withyashar
+</div>
+
+## pm_afshaa — post 93849
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_93849_1781424236.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جلیل محبی روحانی اصولگرا: آقا مجتبی گوه میخوره قبول کنه
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 342210
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342210_1781424236.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوهای رسیده به ایران‌اینترنشنال نشان می‌دهند گروهی از ایرانیان مقیم استرالیا یکشنبه ۲۴ خرداد در حمایت از شاهزاده رضا پهلوی و علیه جمهوری اسلامی، در هوای بارانی ملبورن راهپیمایی کردند.
+</div>
+
+## IranIntlTV — post 342209
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/342209" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی اخبار بامدادی | یکشنبه ۲۴ خرداد
+@iranintlTV
+</div>
+
+## FarsiVOA — post 220653
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220653_1781424238.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📸اینستاگرام صدای آمریکا را هم اکنون فالو کنید تا از آخرین خبرها مطلع بمانید:
+https://www.instagram.com/voafarsi/
+
+📡همچنین جهت اطلاع از بروزترین فرکانسهای ماهواره‌ای صدای آمریکا به لینک زیر مراجعت فرمایید:
+https://ir.voanews.com/satellite
+
+این پست را با دوستانتان به اشتراک بگذارید
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 17006
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+العربیه: هیئت‌های نمایندگی آمریکا و ایران به منظور امضای نهایی توافق صلح، در یک نشست مجازی (ویدیویی) حضور خواهند یافت.
+
+این نشست آنلاین با حضور و نظارت مستقیم میانجیگرانی از کشورهای پاکستان و قطر برگزار خواهد شد. به گفته این منابع، یادداشت تفاهم صلح در جریان این نشست مجازی و با حضور جی‌دی ونس (نماینده آمریکا) و محمدباقر قالیباف (نماینده ایران) به امضا خواهد رسید.
+
+منابع العربیه تاکید کردند بلافاصله پس از امضای این توافقنامه، محاصره بنادر ایران لغو خواهد شد.
+از دیگر نکات مهم این توافق، بازگشایی تنگه هرمز و صدور مجوز عبور و مرور برای کشتی‌ها بدون نیاز به پرداخت هیچ‌گونه عوارض عبور خواهد بود.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## BBCPersian — post 283782
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻ارتش اسرائیل از حمله پهپادی به شمال کشور خبر داد
+
+ارتش اسرائیل گفت دو پهپاد که از خاک لبنان شلیک شد امروز به شمال اسرائیل اصابت کرد اما تلفات جانی نداشت.
+
+بنابر بیانیه ارتش، «دو برخورد مربوط به اهداف هوایی مشکوک در خاک اسرائیل در نزدیکی مرز اسرائیل و لبنان شناسایی شد. هیچ گزارشی از مجروح شدن افراد دریافت نشده است.»
+
+پس از این حملات، بتسالل اسموتریچ و ایتامار بن گویر، دو وزیر راست‌گرای افراطی اسرائیل خواستار حملات تلافی‌جویانه به ضاحیه در حومه جنوبی بیروت شدند که که پایگاه حزب‌الله است.
+
+مقام‌های اسرائیلی از جمله بنیامین نتانیاهو، نخست‌وزیر، پیش‌تر هشدار داده بودند که در صورت حمله حزب‌الله به مناطق شمالی اسرائیل، به ضاحیه حمله خواهد کرد؛ اقدامی که به گفته آن‌ها از حمایت واشنگتن نیز برخوردار است.
+
+پس از آخرین حمله اسرائیل به ضاحیه، ایران به اسرائیل حمله موشکی کرد که اسرائیل با حملاتی به ایران پاسخ داد.
+
+https://bbc.in/4fEONCy
+@BBCPersian
+</div>
+
+## alonews — post 127801
+
+<div align="center">
+  <a href="telegram/content/alonews_127801_1781424239.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈دونالد ترامپ امروز ۸۰ ساله می‌شود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127800
+
+<div align="center">
+  <a href="telegram/content/alonews_127800_1781424239.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 ایندیپندنت: ذخایر نفت آمریکا به پایین‌ترین سطح در بیش از ۴۰ سال اخیر رسیده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/24 11:23
 ---
 

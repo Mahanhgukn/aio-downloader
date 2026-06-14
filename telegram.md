@@ -7,6 +7,466 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/25 01:02
+---
+
+## VahidOOnLine — post 245566
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245566_1781472752.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شهباز شریف، نخست‌وزیر پاکستان، در پیامی در شبکه ایکس اعلام کرد پس از گفت‌وگوهای فشرده، «توافق صلح» میان آمریکا و جمهوری اسلامی حاصل شده است.
+
+او نوشت هر دو طرف پایان فوری و دائمی عملیات نظامی در همه جبهه‌ها، از جمله لبنان، را اعلام کرده‌اند و مراسم رسمی امضای این توافق روز جمعه در سوئیس برگزار خواهد شد.
+
+نخست‌وزیر پاکستان در ادامه از آمریکا و جمهوری اسلامی به دلیل آنچه تعهد به یافتن راه‌حلی دیپلماتیک برای مناقشه خواند، قدردانی کرد.
+
+شریف همچنین از دولت قطر به دلیل نقش آن در روند میانجیگری تشکر کرد و از عربستان سعودی و ترکیه نیز به خاطر مشارکت در دستیابی به این توافق قدردانی کرد.
+
+او افزود با نهایی شدن توافق، میانجی‌ها در طول این هفته مجموعه‌ای از نشست‌ها را برگزار خواهند کرد تا زمینه برای مذاکرات فنی و مراسم رسمی امضای توافق فراهم شود.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245565
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245565_1781472753.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️شهباز شریف، نخست‌وزیر پاکستان، با انتشار پیامی در اکس، از دستیابی به یک توافق صلح تاریخی میان تهران و واشنگتن خبر داد و اعلام کرد: «در پی گفتگوهای فشرده، خرسندیم اعلام کنیم که توافق صلح میان ایالات متحده آمریکا و جمهوری اسلامی ایران حاصل شده است و هر دو طرف توقف فوری و دائمی عملیات نظامی در تمامی جبهه‌ها، از جمله در لبنان را اعلام کرده‌اند.» نخست‌وزیر پاکستان با اعلام اینکه مراسم امضای رسمی این معاهده در روز جمعه، ۱۹ ژوئن در کشور سوئیس برگزار خواهد شد، افزود: «ما می‌خواهیم از ایالات متحده آمریکا و جمهوری اسلامی ایران برای تعهدشان به یافتن یک راهکار دیپلماتیک جهت حل این منازعه تشکر کنیم؛ همچنین مراتب قدردانی صمیمانه خود را از برادرانمان در این تلاش میانجی‌گرانه، یعنی رهبری عالی‌رتبه دولت قطر برای حمایت‌هایشان در دستیابی به این توافق ابراز می‌داریم و به‌طور ویژه از رهبری آینده‌نگر پادشاهی عربستان سعودی و جمهوری ترکیه به خاطر ماموریت و مشارکت عظیم‌شان در این زمینه سپاسگزاری می‌کنیم.» شهباز شریف در پایان تصریح کرد که با به سرانجام رسیدن این توافق، میانجی‌ها در طول این هفته مجموعه‌ای از نشست‌ها را تسهیل خواهند کرد و این گفتگوهای پیش از اجرا، پایه‌ای برای مباحث فنی و آماده‌سازی مراسم رسمی امضا خواهد بود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14907
+
+
+
+
+## WithYashar — post 14906
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چیزی‌ امظا نشده
+@withyashar
+</div>
+
+## WithYashar — post 14905
+
+<div align="center">
+  <img src="telegram/content/WithYashar_14905_1781472753.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+زیرنویس شبکه خبر :توافق با امریکا انجام شد
+@withyashar
+</div>
+
+## WithYashar — post 14904
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نخست وزیر پاکستان: پس از مذاکرات فشرده، با کمال خرسندی اعلام می‌کنیم که توافق صلحی بین ایالات متحده آمریکا و جمهوری اسلامی ایران حاصل شده است. هر دو طرف توقف فوری و دائمی عملیات نظامی در تمام جبهه‌ها، از جمله در لبنان، را اعلام کرده‌اند.
+
+مراسم رسمی امضای توافق‌نامه روز جمعه، ۱۹ ژوئن، در سوئیس برگزار خواهد شد.
+@withyashar
+</div>
+
+## mwarmonitor — post 10927
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نخست وزیر پاکستان
+
+پس از گفتگوهای فشرده، خرسندیم اعلام کنیم که توافق صلح میان ایالات متحده آمریکا و جمهوری اسلامی ایران حاصل شده است. هر دو طرف پایان فوری و دائمی عملیات نظامی در تمامی جبهه‌ها، از جمله در لبنان را اعلام کرده‌اند.
+مراسم رسمی امضای این توافق، روز جمعه ۱۹ ژوئن در سوئیس برگزار خواهد شد.
+ما مایلیم از ایالات متحده آمریکا و جمهوری اسلامی ایران به خاطر تعهدشان به یافتن یک راه‌حل دیپلماتیک برای این مناقشه تشکر کنیم. همچنین می‌خواهیم مراتب قدردانی صمیمانه خود را از برادرانمان در این تلاش میانجی‌گرانه، یعنی رهبری عالی‌قدر دولت قطر، به خاطر حمایت‌هایشان در دستیابی به این توافق ابراز نماییم. من همچنین به طور ویژه از رهبری آینده‌نگر پادشاهی عربستان سعودی و جمهوری ترکیه به خاطر مشارکت و نقش‌آفرینی بی‌اندازه‌شان در این زمینه تشکر می‌کنم.
+با برقراری این توافق، میانجی‌ها مجموعه‌ای از نشست‌ها را در این هفته تسهیل خواهند کرد. این گفتگوهای پیش از اجرا، پایه‌ای را برای مذاکرات فنی و مراسم رسمی امضای توافق بنا خواهد کرد.
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 93995
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93995_1781472754.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴شبکه خبر صداوسیما:
+نخست وزیر پاکستان از دستیابی به توافق پایان جنگ آمریکا علیه ایران خبر داد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93994
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تتر 166 هزار تومن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93993
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴شهباز شریف، نخست وزیر پاکستان: پس از مذاکرات فشرده، با کمال خرسندی اعلام می‌کنیم که توافق صلحی بین آمریکا و ایران حاصل شده. هر دو طرف توقف فوری و دائمی عملیات نظامی در تمام جبهه‌ها، از جمله در لبنان، رو اعلام کردن. مراسم رسمی امضای توافق‌نامه روز جمعه، 19…
+</div>
+
+## VahidOnline — post 76349
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76349_1781472755.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبکه خبر: نخست‌وزیر پاکستان از دستیابی به توافق و پایان جنگ خبر داد
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 76348
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76348_1781472756.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+☄️ نخست‌وزیر پاکستان: توافق حاصل شد، جمعه در سوئیس امضا می‌شود
+
+پست شهباز شریف، ترجمه ماشین:
+در پی مذاکرات فشرده، خوشحالیم اعلام کنیم که توافق صلح میان ایالات متحده آمریکا و جمهوری اسلامی ایران حاصل شده است. هر دو طرف پایان فوری و دائمی عملیات نظامی در همه جبهه‌ها، از جمله در لبنان، را اعلام کرده‌اند.
+
+مراسم رسمی امضای توافق روز جمعه، ۱۹ ژوئن، [۲۹ خرداد] در سوئیس برگزار خواهد شد.
+
+مایلیم از ایالات متحده آمریکا و جمهوری اسلامی ایران به‌خاطر تعهدشان به یافتن راه‌حلی دیپلماتیک برای این مناقشه تشکر کنیم. همچنین مایلیم قدردانی صمیمانه خود را از برادرانمان در این تلاش میانجی‌گرانه، رهبری بزرگ دولت قطر، به‌خاطر حمایتشان در دستیابی به این توافق ابراز کنیم. به‌ویژه از رهبری دوراندیش پادشاهی عربستان سعودی و جمهوری ترکیه نیز به‌خاطر مشارکت‌های عظیمشان در این زمینه تشکر می‌کنم.
+
+اکنون که توافق برقرار شده است، میانجی‌ها مجموعه‌ای از نشست‌ها را در این هفته تسهیل خواهند کرد. این گفت‌وگوهای پیش از اجرا، زمینه را برای مذاکرات فنی و مراسم رسمی امضا فراهم خواهد کرد.
+
+📡 @VahidOnline
+</div>
+
+## kianmeli1 — post 87999
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87999_1781472756.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴زیرنویس شبکه خبر
+
+توافق با امریکا انجام شد
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 342364
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342364_1781472757.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شهباز شریف، نخست‌وزیر پاکستان، در پیامی در شبکه ایکس اعلام کرد پس از گفت‌وگوهای فشرده، «توافق صلح» میان آمریکا و جمهوری اسلامی حاصل شده است.
+
+او نوشت هر دو طرف پایان فوری و دائمی عملیات نظامی در همه جبهه‌ها، از جمله لبنان، را اعلام کرده‌اند و مراسم رسمی امضای این توافق روز جمعه در سوئیس برگزار خواهد شد.
+
+نخست‌وزیر پاکستان در ادامه از آمریکا و جمهوری اسلامی به دلیل آنچه تعهد به یافتن راه‌حلی دیپلماتیک برای مناقشه خواند، قدردانی کرد.
+
+شریف همچنین از دولت قطر به دلیل نقش آن در روند میانجیگری تشکر کرد و از عربستان سعودی و ترکیه نیز به خاطر مشارکت در دستیابی به این توافق قدردانی کرد.
+
+او افزود با نهایی شدن توافق، میانجی‌ها در طول این هفته مجموعه‌ای از نشست‌ها را برگزار خواهند کرد تا زمینه برای مذاکرات فنی و مراسم رسمی امضای توافق فراهم شود.
+https://iranintl.com/202606149414
+</div>
+
+## Shin_Persian — post 7080
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_7080_1781472758.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sun, 14 Jun 2026 21:30:37 UTC
+
+POTUS:
+"The Deal with the Islamic Republic of Iran is now complete. Congratulations to all! I hereby fully authorize the toll free opening of the Strait of Hormuz, and, simultaneously herewith, authorize the immediate removal of the United States Naval blockade. Ships of the World, start your engines. Let the oil flow! President DONALD J. TRUMP"
+
+ترجمه خودکار فارسی
+
+رئیس‌جمهور ایالات متحده:
+«توافق با جمهوری اسلامی ایران اکنون نهایی شده است. تبریک به همه! من بدین‌وسیله اجازه کامل برای بازگشایی بدون عوارض تنگه هرمز را صادر کرده و هم‌زمان با آن، دستور رفع فوری محاصره دریایی نیروی دریایی ایالات متحده را صادر می‌کنم. کشتی‌های جهان، موتورهای خود را روشن کنید. بگذارید نفت جریان یابد! رئیس‌جمهور دونالد جی. ترامپ»
+
+𝕏 · @shin_persian
+</div>
+
+## Iliaen — post 4485
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نخست‌وزیر پاکستان لحظاتی قبل اعلام کرد توافق میان جمهوری اسلامی و ایالات متحده حاصل شد و مراسم امضای آن در روز جمعه برگزار خواهد شد.
+
+@iliaen
+</div>
+
+## Persian_Trend_Official — post 17126
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_17126_1781472758.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+زیرنویس شبکه خبر تاییده خبر توافق
+</div>
+
+## Persian_Trend_Official — post 17125
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17125_1781472759.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ به زودی بیانیه صادر خواهند کرد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17124
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نخست‌ وزیر پاکستان: پس از مذاکرات فشرده، خرسندیم اعلام کنیم که توافق صلح میان ایالات متحده آمریکا و جمهوری اسلامی ایران حاصل شده است. دو طرف پایان فوری و دائمی عملیات نظامی در تمام جبهه‌ها، از جمله در لبنان، را اعلام کرده‌اند. مراسم امضای رسمی این توافق روز…
+</div>
+
+## IranianMinds — post 22597
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ولی در آخر هم جنگ شد هم مذاکره کردن و هم کشتنش :)
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22596
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22596_1781472760.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ روز اول جنگ به مردم ایران :
+
+وقتی کارمان تمام شد، دولت خودتان را در دست بگیرید؛ آن برای شما خواهد بود.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22595
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+با قاتل رهبر شهید ؟ با قاتل خوانواده رهبر ؟ با قاتل هزاران سرباز و سردار ؟
+</div>
+
+## IranianMinds — post 22594
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22594_1781472761.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 رسمی توافق شد نخست‌وزیر پاکستان، شهباز شریف: «پس از مذاکرات فشرده، خوشحالیم اعلام کنیم که توافق صلح میان ایالات متحده آمریکا و جمهوری اسلامی ایران حاصل شده است.» «هر دو طرف پایان فوری و دائمی عملیات نظامی در تمامی جبهه‌ها، از جمله لبنان، را اعلام کرده‌اند.»…
+</div>
+
+## IranianMinds — post 22593
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22593_1781472762.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 رسمی توافق شد
+
+نخست‌وزیر پاکستان، شهباز شریف:
+
+«پس از مذاکرات فشرده، خوشحالیم اعلام کنیم که توافق صلح میان ایالات متحده آمریکا و جمهوری اسلامی ایران حاصل شده است.»
+
+«هر دو طرف پایان فوری و دائمی عملیات نظامی در تمامی جبهه‌ها، از جمله لبنان، را اعلام کرده‌اند.»
+
+مراسم رسمی امضای توافق روز جمعه ۱۹ ژوئن در سوئیس برگزار خواهد شد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22592
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ درباره ایران :
+
+تغییر رژیم هیچ‌ وقت برام مهم نبوده .
+
+این سومین گروهیه که باهاشون طرف شده‌ایم و این گروه، منطقی‌ترین گروهیه که تا امروز باهاشون حرف زدیم.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22591
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خون آقا رو زمین موند
+
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 283821
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283821_1781472763.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌ ‌ ‌
+خبرگزاری‌ها گزارش کرده‌اند که اعضای تیم فوتبال ایران روز یکشنبه پس از پروازی کوتاه از شهر تیخوانا در مکزیک برای اولین دیدار خود مقابل نیوزیلند در فرودگاه لس‌آنجلس آمریکا فرود آمده‌اند.
+
+هواپیمای حامل تیم ایران ساعت ۴:۱۱ بعد از ظهر به وقت شرق آمریکا در فرودگاه فرود آمد. این فرودگاه حدود ۱۵ دقیقه با ورزشگاه لس‌آنجلس که میزبان بازی ایران است، فاصله دارد.
+
+رویترز نوشته انتظار می‌رود «تیم از فرودگاه به هتل خود برود، جایی که نیروهای امنیتی پلیس از قبل در آنجا حاضر هستند.»
+
+ساعاتی پس از آن قرار است امیر قلعه‌نویی، سرمربی و مهدی طارمی، مهاجم سرشناس این تیم در یک کنفرانس رسانه‌ای در ورزشگاه لس‌آنجلس شرکت کنند.
+
+ایران پس از جنگ آمریکا و اسرائیل با این کشور، کمپ اصلی خود در جام جهانی را از یک مجموعه ورزشی در آریزونا به مکزیک منتقل کرد.
+
+تیم ایران در گروه جی به ترتیب قرار است با نیوزیلند، بلژیک و مصر بازی کند.
+
+https://bbc.in/4gkV86n
+📷Patrick T. Fallon / AFP via Getty Images
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 392054
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ: برای مراسم تشییع خامنه‌ای، حتما به ایران میام.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392053
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392053_1781472764.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فقط من اضافه بودم لاشیا.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392052
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تموم شد، رسما و شرعا با قاتل رهبر، امام شهید، توافق کردن😊
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392051
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392051_1781472764.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فورییییی، شهباز شریف، نخست وزیر پاکستان: تموم شد، ایران و آمریکا توافق کردن و ۱۹ ژوئن( ۲۹ خرداد) توافق به صورت نهایی امضا میشه.
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 128031
+
+<div align="center">
+  <a href="telegram/content/alonews_128031_1781472764.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈دکتر ترامپ:
+توافق با جمهوری اسلامی ایران نهایی شد. به همه تبریک می‌گویم! بدین‌وسیله من به طور کامل اجازه بازگشایی بدون عوارض تنگه هرمز را می‌دهم و همزمان اجازه رفع فوری محاصره دریایی ایالات متحده را صادر می‌کنم. کشتی‌های صلح، موتورهای خود را روشن کنید. بگذارید نفت جریان یابد!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128030
+
+<div align="center">
+  <a href="telegram/content/alonews_128030_1781472765.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: توافق انجام شد، تبریک به همه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128029
+
+<div align="center">
+  <a href="telegram/content/alonews_128029_1781472765.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#انتقام_سخت
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128028
+
+<div align="center">
+  <a href="telegram/content/alonews_128028_1781472765.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈شبکه خبر هم توافق پایان جنگ بین ایران و آمریکا رو زیرنویس کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128027
+
+<div align="center">
+  <a href="telegram/content/alonews_128027_1781472766.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈از صبح توئیت و .. که میزنیم میزنیم، نگو منظورشون امضا بود نه حمله😂
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128026
+
+<div align="center">
+  <a href="telegram/content/alonews_128026_1781472766.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رسایی: توافق با قاتل رهبر را #نمی‌پذیریم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/25 00:52
 ---
 

@@ -7,6 +7,177 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/24 11:13
+---
+
+## VahidOOnLine — post 245427
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245427_1781423034.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری فارس، وابسته به سپاه پاسداران، به نقل از «منبع آگاه نزدیک به تیم مذاکره‌کننده جمهوری اسلامی» نوشت که تصمیم نهایی تهران درباره تفاهم‌نامه هنوز در دست بررسی است و تصمیم نهایی درباره متن این تفاهم اعلام نشده است.
+
+بنا بر این گزارش، بررسی ابعاد سیاسی، حقوقی و فنی پیشنهادهای مطرح‌شده همچنان ادامه دارد.
+
+این رسانه وابسته به سپاه اضافه کرد بررسی ابعاد مختلف پیشنهادهای مطرح‌شده همچنان در سطوح کارشناسی و تصمیم‌گیری ادامه دارد و نهادهای مسئول در حال ارزیابی جوانب سیاسی، حقوقی و فنی موضوع هستند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245426
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245426_1781423035.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️خبرگزاری‌های دولتی و نیمه‌دولتی ایران روز یکشنبه ۲۴ خرداد از سفر دوباره یک هیئت دیپلماتیک قطری به تهران خبر دادند.
+
+این خبر در حالی منتشر می‌شود که دونالد ترامپ تاکید کرده است که توافق برای پایان جنگ میان ایالات متحده و جمهوری اسلامی روز یکشنبه امضاء خواهد شد. با این حال مقام‌های حکومت ایران و به‌ویژه عباس عراقچی، وزیر امور خارجه، می‌گویند که جمع‌بندی نهایی در حال انجام است و توافق به‌زودی امضاء خواهد شد.
+
+خبرگزاری دولت جمهوری اسلامی (ایرنا) با اعلام این خبر نوشت «هیئت قطری به ریاست یکی از مشاوران وزیر خارجه این کشور در راستای پیشبرد مذاکرات بین تهران و واشنگتن و در ادامه مذاکرات هفته گذشته وارد تهران شد.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## mwarmonitor — post 10848
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴هیئت‌های قطریِ مذاکره‌کننده امروز صبح به تهران پرواز کردند تا بخشی از تلاش‌ها برای نهایی‌سازی توافقی جهت پایان دادن به جنگ آمریکا و ایران باشند — به گفته رویترز.
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 93847
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴یاسمین ولی‌زاده :شهردار سیاتل جوابم رو داد و گفت از ممنوعیت پرچم شیر و خورشید در ورزشگاه‌های جام جهانی حمایت نمی‌کنه؛ در نتیجه ورود پرچم شیر و خورشید  به ورزشگاه‌ها آزاد شده
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 342207
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342207_1781423035.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری فارس، وابسته به سپاه پاسداران، به نقل از «منبع آگاه نزدیک به تیم مذاکره‌کننده جمهوری اسلامی» نوشت که تصمیم نهایی تهران درباره تفاهم‌نامه هنوز در دست بررسی است و تصمیم نهایی درباره متن این تفاهم اعلام نشده است.
+
+بنا بر این گزارش، بررسی ابعاد سیاسی، حقوقی و فنی پیشنهادهای مطرح‌شده همچنان ادامه دارد.
+
+این رسانه وابسته به سپاه اضافه کرد بررسی ابعاد مختلف پیشنهادهای مطرح‌شده همچنان در سطوح کارشناسی و تصمیم‌گیری ادامه دارد و نهادهای مسئول در حال ارزیابی جوانب سیاسی، حقوقی و فنی موضوع هستند.
+https://iranintl.com/202606149130
+</div>
+
+## Persian_Trend_Official — post 17004
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17004_1781423036.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل هشدارهای تخلیه برای ۲۹ شهر و روستا در جنوب لبنان پیش از حملات علیه حزب‌الله صادر کرد:
+
+الزراریه، کفر بدا، الخریب، انصار، ارزای، بریقا، مزرعه بسفور، مزرعه الیهودیّه، مزرعه الوسطى، مزرعه جمجیم، مزرعه کوثریات الرز، مطریات الشومر، کفر سر، ارکای، بنافول، جبع، جرنایا، حومین التحتا، حومین الفوقا، کفر بیت، کفر ملکی، کفر فیلا، کفر شلال، عین بو سوار، عازه، عین قانا، عرب الجل، سربا، رومینه.
+
+
+👺Phantom
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Dirty_Kids — post 391985
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وضعیت جوری شده نمیفهمی کی عرزشیه که برانداز 😂
+
+این اگر رژیم چنج نیست پس چیه؟
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391984
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391984_1781423037.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پس قدیما بخاطر همین بود 10 تا 20 بچه میاوردن واقعا سرگرمی خاصی نبود جدا
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391983
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391983_1781423037.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عزیزان عرزشی در حرکتی نمادین و در مخالفت به توافق با آمریکا تهدید میکنن که رو دخترای مردم اسید میپاشن
+بد مادرجنده‌هایی هستین فرزاد جان
+
+
+@Dirty_Kids 👻
+</div>
+
+## Hranews — post 113593
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند توسط نیروهای امنیتی در بوکان بازداشت شد
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– روز گذشته، یوسف امینی، معلم بازنشسته ساکن بوکان توسط نیروهای امنیتی در این شهرستان بازداشت و به مکان نامعلومی منتقل شد.
+
+ادامه مطلب
+
+#یوسف_امینی
+
+↘️
+@hranews_bot تماس ✉️ -  @Hranews  کانال هرانا 🆑
+</div>
+
+## alonews — post 127794
+
+<div align="center">
+  <a href="telegram/content/alonews_127794_1781423037.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزارت امور خارجه قطر: نخست وزیر و وزیر امور خارجه کویت ابراز امیدواری کردند که واشنگتن و تهران به زودی توافق را امضا کنند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127793
+
+<div align="center">
+  <a href="telegram/content/alonews_127793_1781423038.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خبرگزاری فارس : جمهوری اسلامی هنوز تصمیم نهایی خودشو درباره تفاهم‌نامه، اعلام نکرده
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/24 11:03
 ---
 

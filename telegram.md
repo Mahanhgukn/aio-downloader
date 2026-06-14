@@ -7,6 +7,296 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/25 01:42
+---
+
+## VahidOOnLine — post 245570
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245570_1781475154.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کاظم غریب‌آبادی، معاون وزیر خارجه جمهوری اسلامی، اعلام کرد متن یادداشت تفاهم با آمریکا نهایی شده و مراسم رسمی امضای آن روز جمعه در سوئیس برگزار خواهد شد.
+
+غریب‌آبادی با اشاره به ماهیت این توافق تاکید کرد: «این یادداشت تفاهم به معنای اعتماد به دشمن نیست و در عین بی‌اعتمادی نوشته شده است.»
+
+معاون وزیر خارجه جمهوری اسلامی همچنین گفت نیروهای مسلح جمهوری اسلامی در تمام مراحل مذاکرات آمادگی خود را حفظ کرده‌اند.
+
+او افزود: «نیروهای مسلح همواره برای مقابله با توطئه‌های دشمنان دستشان روی ماشه خواهد بود و برای ارائه پاسخ قاطع آماده بودند.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14920
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جنگ تمام نمیشود بشینید و ببینید ✌🏾
+</div>
+
+## WithYashar — post 14919
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جی‌دی ونس، معاون ترامپ اعلام کرد: من برای شرکت در امضای توافق با ایران به ژنو خواهم رفت
+@withyashar
+</div>
+
+## WithYashar — post 14918
+
+
+
+
+## FoxNewsTwitter — post 342969
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342969_1781475155.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+JUST IN: VP JD Vance reacts to the completion of the U.S.-Iran peace deal, calling it a "big win."
+</div>
+
+## FoxNewsTwitter — post 342968
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342968_1781475158.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: Trump says the U.S. and Iran have reached a peace deal. FOX News' @TreyYingst has the latest.
+</div>
+
+## pm_afshaa — post 94010
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94010_1781475161.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴معاون عراقچی: روز گذشته هیئتی از قطر برای تکمیل گفتگوها تهران بود و بیش از 15 ساعت گفتگو صورت گرفت و اصلاحاتی انجام دادیم که مورد پذیرش قرار گرفت. امضای رسمی یادداشت تفاهم روز جمعه خواهد بود. دو اتفاق فوری بامداد امروز باید اتفاق بیفته: یک پایان فوری و…
+</div>
+
+## pm_afshaa — post 94009
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_94009_1781475162.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترکیب زیرنویس شبکه خبر و عکس عالیه
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94008
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94008_1781475162.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴جی‌دی ونس، معاون ترامپ:
+من برای شرکت در مراسم امضای توافق با ایران به ژنو خواهم رفت.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94007
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94007_1781475163.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴معاون عراقچی: روز گذشته هیئتی از قطر برای تکمیل گفتگوها تهران بود و بیش از 15 ساعت گفتگو صورت گرفت و اصلاحاتی انجام دادیم که مورد پذیرش قرار گرفت.
+
+امضای رسمی یادداشت تفاهم روز جمعه خواهد بود.
+
+دو اتفاق فوری بامداد امروز باید اتفاق بیفته: یک پایان فوری و دائمی جنگ در جبهه‌های مختلف از جمله لبنان؛ دوم هم خاتمه محاصره دریایی.
+
+تعهدات ما از روز جمعه صورت خواهد گرفت.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## kianmeli1 — post 88003
+
+
+
+
+## IranIntlTV — post 342368
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342368_1781475164.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کاظم غریب‌آبادی، معاون وزیر خارجه جمهوری اسلامی، اعلام کرد متن یادداشت تفاهم با آمریکا نهایی شده و مراسم رسمی امضای آن روز جمعه در سوئیس برگزار خواهد شد.
+
+غریب‌آبادی با اشاره به ماهیت این توافق تاکید کرد: «این یادداشت تفاهم به معنای اعتماد به دشمن نیست و در عین بی‌اعتمادی نوشته شده است.»
+
+معاون وزیر خارجه جمهوری اسلامی همچنین گفت نیروهای مسلح جمهوری اسلامی در تمام مراحل مذاکرات آمادگی خود را حفظ کرده‌اند.
+
+او افزود: «نیروهای مسلح همواره برای مقابله با توطئه‌های دشمنان دستشان روی ماشه خواهد بود و برای ارائه پاسخ قاطع آماده بودند.»
+https://iranintl.com/202606146242
+</div>
+
+## Persian_Trend_Official — post 17132
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17132_1781475165.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## Persian_Trend_Official — post 17131
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فایل صوتی لایو امشب در اسپاتیفای
+https://open.spotify.com/episode/0wL5IqRAcYrXM4Y1uuI9ix
+</div>
+
+## RadioFarda — post 158309
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸کمی پیش از انتشار این پیام، دونالد ترامپ عصر یک‌شنبه به روزنامه وال‌استریت جورنال گفت قصد دارد به‌زودی بیانیه‌ای منتشر کند و در آن تأیید کند که ایالات متحده با ایران به توافق رسیده است. 🔸ترامپ گفت این توافق، که ایران هنوز موافقت خود با آن را تأیید نکرده،…
+</div>
+
+## RadioFarda — post 158308
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸دونالد ترامپ، رئیس جمهوری آمریکا در پیامی در شبکه تروث سوشال نوشت: «توافق با جمهوری اسلامی ایران اکنون نهایی شده است. به همه تبریک می‌گویم!» 🔸او ادامه داد: «بدین‌وسیله بازگشایی کامل و بدون دریافت عوارض تنگه هرمز را مجاز اعلام می‌کنم و همزمان دستور رفع فوری…
+</div>
+
+## BBCPersian — post 283825
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283825_1781475166.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌ ‌ ‌ ‌
+شهباز شریف در پستی در شبکه اجتماعی ایکس نوشته است که مراسم امضای رسمی توافق میان ایران و آمریکا همین جمعه، ۲۹ خرداد، ۱۹ ژوئن در سوئیس خواهد بود.
+
+نخست‌وزیر پاکستان گفته است که هر دو طرف پایان فوری و دائمی عملیات نظامی در همه جبهه‌ها از جمله در لبنان را اعلام کرده‌اند.
+
+دونالد ترامپ، رئیس‌جمهور آمریکا هم اعلام کرد که توافق با ایران نهایی شده است.
+
+آقای ترامپ در پستی در شبکه اجتماعی تروث سوشال نوشت: «توافق با جمهوری اسلامی ایران اکنون کامل شده است. به همه تبریک می‌گویم!»
+
+آقای ترامپ در ادامه نوشته که «اجازه کامل بازگشایی تنگه هرمز بدون عوارض را می‌دهم و هم‌زمان با آن، رفع فوری محاصره دریایی ایالات متحده را نیز مجاز می‌دارم.»
+
+رئیس‌جمهور آمریکا نوشته: «کشتی‌های جهان، موتورهای خود را روشن کنید. بگذارید نفت جریان یابد!»
+
+https://bbc.in/4uz2VRC
+📷 Tingshu Wang - Pool/Getty Images
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 392062
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392062_1781475166.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وضعیت عرزشیا هم اکنون😂
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392061
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392061_1781475167.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عرزشی تو غیرت داری؟
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392060
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392060_1781475167.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+زیرنویس شبکه خبر با عکسی که گذاشته خیلی جالبه:))))
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 128054
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وضعیت عرزشیا هم اکنون😂 [@AloTweet]
+</div>
+
+## alonews — post 128053
+
+<div align="center">
+  <a href="telegram/content/alonews_128053_1781475168.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈جی‌دی ونس در مورد اینکه چه کسانی در مراسم امضای توافق صلح با ایران شرکت خواهند کرد:
+
+«قطعاً برنامه دارم که آنجا باشم»
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128052
+
+<div align="center">
+  <a href="telegram/content/alonews_128052_1781475168.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تصویر عجیب همزمان با تیتر در شبکه خبر
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128051
+
+<div align="center">
+  <a href="telegram/content/alonews_128051_1781475168.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈بصورت کلی یک پیروزی و یک شکست برای جمهوری اسلامی بود
+
+
+🔴اما چگونه؟ ترامپ یک تارگت بزرگ رو به همه نشون داد(رژیم‌چنج) اما صرفا یک تارگت کاذب بود و به هدف خودش یعنی اورانیوم‌ها رسید
+
+
+🔴اما چرا پیروزی برای جمهوری اسلامی؟ صرفا به همه میتونه بگه تارگت ترامپ یعنی رژیم‌ چنج موفق نشد
+
+
+🔴جمهوری اسلامی در این جنگ علاوه بر رهبران ارشد، اورانیوم‌ها داد و زیرساخت‌های اقتصادی به شدت آسیب دید
+
+
+🔴ترامپ صرفا دو تارگت معرفی کرد یکی بزرگتر از دیگری که از قضا همون بزرگه احتمالا کاذب بود تا کوچیکه راحتتر بدست بیاد
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/25 01:32
 ---
 

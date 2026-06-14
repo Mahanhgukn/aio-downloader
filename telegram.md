@@ -7,6 +7,193 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/24 22:04
+---
+
+## VahidOOnLine — post 245531
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245531_1781462080.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسماعیل قاآنی، فرمانده نیروی قدس سپاه پاسداران، یکشنبه ۲۴ خرداد، همزمان با افزایش گمانه‌زنی‌ها درباره حمله احتمالی جمهوری اسلامی به اسرائیل در واکنش به هدف قرار گرفتن جنوب بیروت، گفت: «پیروزی حزب‌الله بر اسرائیل در راه است.»
+
+قاآنی نوشت: «مردم دنیا، استقلال لبنان را با عظمت فداکاری حزب‌الله می‌شناسند نه با وابستگی بعضی حکمرانان.»
+
+فرمانده نیروی قدس سپاه پاسداران همچنین افزود: «همه دنیا با چشمان بازتر نگاه کنند، پیروزی مقاومت عظیم حزب‌الله قهرمان بر اسرائیل در راه است.»
+
+او در این پیام به جزییات بیشتری درباره اظهارات خود اشاره نکرد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14860
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارسالی : دوست پسرم سربازه میگفت که لانچر اینا اماده کردن 🤷🏻‍♀️
+@withyashar
+</div>
+
+## WithYashar — post 14859
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دیده بان اتاق جنگ : اطراف سایت موشکی شهرک مسکونی ویلاشهرنجف آباد تحرکات زیادی دیده میشه ورود ماشین های سنگین به پارک‌‌ کوهستانی پشت سایت
+@withyashar
+</div>
+
+## WithYashar — post 14858
+
+
+
+
+## mwarmonitor — post 10906
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 ترامپ کله زرد بالاخره به تنظیمات کارخانه‌ای و شغل واقعی‌اش یعنی بنگاهیِ املاک برگشت؛ انگار کلاً یادش رفته که رئیس‌جمهور ابرقدرت جهان است! حالا او دقیقاً مثل این دلال‌های هولِ بنگاهی رفتار می‌کند که ایران و اسرائیل را مثل خریدار و فروشنده‌ای می‌بیند که به جون هم افتاده‌اند و معامله‌شان در حال فسخ شدن است. ترامپِ دلال، فقط برای اینکه این معامله را به هر قیمتی جوش بدهد و کمیسیونِ چربش را از دست ندهد، زونکن فایل‌های اکازیون را زیر بغل زده و وسط این رینگ خونین، برای متقاعد کردن ایران به عدم حمله، حاضر است هر باج و خفتی را قبول کند؛ پیرمرد حریصی که فرق « توافق زورکی» و «سند منگوله‌دار» را فقط در میزان سود خالصش می‌بیند و نگران است که با شروع جنگ، آژانسِ معاملاتی‌اش در خاورمیانه کلاً روی هوا برود.
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 93948
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هواپیماهای مهر اباد در حال تخلیه هستن
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93947
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴اسمون کشور در حال کلییر شدنه
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93946
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قاآنی: پیروزی مقاومت عظیم حزب الله قهرمان بر پست‌فطرتان صهیونیست در راه است
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## kianmeli1 — post 87994
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87994_1781462080.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ایران حریم هوایی خود را بسته و بنا به گزارش‌ها در حال آماده شدن برای حمله موشکی احتمالی به اسرائیل است.
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 342333
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342333_1781462082.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسماعیل قاآنی، فرمانده نیروی قدس سپاه پاسداران، یکشنبه ۲۴ خرداد، همزمان با افزایش گمانه‌زنی‌ها درباره حمله احتمالی جمهوری اسلامی به اسرائیل در واکنش به هدف قرار گرفتن جنوب بیروت، گفت: «پیروزی حزب‌الله بر اسرائیل در راه است.»
+
+قاآنی نوشت: «مردم دنیا، استقلال لبنان را با عظمت فداکاری حزب‌الله می‌شناسند نه با وابستگی بعضی حکمرانان.»
+
+فرمانده نیروی قدس سپاه پاسداران همچنین افزود: «همه دنیا با چشمان بازتر نگاه کنند، پیروزی مقاومت عظیم حزب‌الله قهرمان بر اسرائیل در راه است.»
+
+او در این پیام به جزییات بیشتری درباره اظهارات خود اشاره نکرد.
+https://iranintl.com/202606144237
+</div>
+
+## FarsiVOA — post 220712
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺افزایش تنش در مرز اسرائیل و لبنان؛ حزب‌الله مناطقی در شمال اسرائیل را هدف قرار داد
+
+◾️ارتش اسرائیل می‌گوید حزب‌الله لبنان روز یکشنبه ۲۴ خرداد ۱۴۰۵ چند راکت و پهپاد به سوی مناطق شمالی اسرائیل و مواضع نیروهای اسرائیلی در جنوب لبنان شلیک کرده است؛ حملاتی که همزمان با افزایش نگرانی‌ها از پاسخ احتمالی جمهوری اسلامی به حمله هوایی اسرائیل در جنوب بیروت صورت گرفت.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/hezbollah-rockets-escalate-israel-tensions/8160718.html
+</div>
+
+## Persian_Trend_Official — post 17091
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مکالمه امروز ترامپ و نتانیاهو !!! 😄
+</div>
+
+## RadioFarda — post 158299
+
+<div align="center">
+  <a href="https://t.me/radiofarda/158299" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📻بشنوید: ایستگاه ۱۹ با رادیوفردا، ۲۴ خرداد ۱۴۰۵
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 22584
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22584_1781462083.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴درخواست اعدام عباس هم داده شد.
+
+@IranianMinds
+</div>
+
+## Hranews — post 113616
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دستکم ۸ تجمع اعتراضی برگزار شد
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– جمعی از بازنشستگان تامین اجتماعی در شهرهای تهران، مشهد، رشت، قزوین، اهواز، شوش و کرمانشاه با برگزاری تجمعات اعتراضی خواستار رسیدگی به مطالبات خود شدند. همچنین، شماری از کارگران شهرداری بخش لیکک واقع در شهرستان بهمئی در مقابل ساختمان شهرداری لیکک #تجمع_اعتراضی برگزار کردند.
+
+ادامه مطلب
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## alonews — post 127977
+
+<div align="center">
+  <a href="telegram/content/alonews_127977_1781462085.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈به نظر فضای هوایی ایران بسته شده
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/24 21:53
 ---
 

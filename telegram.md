@@ -7,6 +7,339 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/24 19:03
+---
+
+## VahidOOnLine — post 245498
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245498_1781451210.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیت هگست، وزیر دفاع آمریکا، در گفت‌وگو با شبکه سی‌بی‌اس گفت دولت دونالد ترامپ برنامه هسته‌ای جمهوری اسلامی را به‌طور جدی عقب رانده و هرگونه توافق احتمالی با تهران بر پایه نظارت، بازرسی و ارزیابی عملکرد اجرا خواهد شد.
+او گفت جمهوری اسلامی باید مواد هسته‌ای مورد نظر آمریکا را از بین ببرد، از کشور خارج کند یا رقیق‌سازی کند و واشینگتن بر اجرای این روند نظارت خواهد داشت.
+هگست گفت اگر جمهوری اسلامی به تعهدات خود عمل نکند، ممکن است بار دیگر با اقدام نظامی آمریکا مواجه شود.
+وزیر دفاع آمریکا افزود قدرت نظامی آمریکا عامل اصلی کشاندن جمهوری اسلامی به میز مذاکره بوده و هدف نهایی این است که تهران هرگز به سلاح هسته‌ای دست پیدا نکند.
+او گفت ارتش آمریکا آماده است با تمام توان از دستیابی جمهوری اسلامی به سلاح هسته‌ای جلوگیری کند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245497
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245497_1781451210.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️مسعود پزشکیان، رئیس‌جمهوری ایران، روز یکشنبه ۲۴ خرداد در نشستی با رسانه‌ها تاکید کرد تصمیم‌گیری درباره جنگ و مذاکره بر عهده شورای عالی امنیت ملی است و سیاست‌های کلان کشور باید از مسیر این شورا ابلاغ شود.
+پزشکیان گفت: «تصمیم‌گیری درباره جنگ و مذاکره بر عهده شورای عالی امنیت ملی است؛ شورایی که نمایندگان تمامی ارکان حاکمیت از جمله رهبری عالیقدر در آن حضور دارند و سیاست‌های کلان باید از آن مسیر ابلاغ شود.»
+او افزود: «شورای عالی امنیت ملی به این جمع‌بندی رسیده است که مسیر گفتگو باید دنبال شود.»
+رئیس‌جمهور ایران همچنین هشدار داد که نمی‌توان برداشت‌ها و خواسته‌های شخصی را به‌عنوان مطالبه عمومی مطرح کرد و با فشار رسانه‌ای یا سیاسی درصدد تحمیل آن بر ساختار تصمیم‌گیری کشور برآمد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14830
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های اسرائیلی: شهرداری‌های ایلات، تل‌آویو بزرگ، نتانیا و حیفا پناهگاه‌های عمومی را باز کرده‌اند.»
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342956
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342956_1781451211.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+🇺🇸Happy Birthday to the United States Army!
+
+Today we honor 251 years of courage, sacrifice, and unwavering service to our nation.
+</div>
+
+## pm_afshaa — post 93918
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93918_1781451211.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پزشکیان: آنچه گاها در رسانه ملی درباره جنگ و مذاکره مطرح میشه، لزوماً بازتاب‌دهنده دیدگاه شورای عالی امنیت ملی، شورای عالی دفاع یا حتی رهنمودهای رهبر انقلاب نیست.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 342293
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻دیدار تیم‌های ملی فوتبال هلند و ژاپن یکشنبه ۲۴ خرداد ۱۴۰۵، در روز چهارم جام جهانی ۲۰۲۶ یکی از مهم‌ترین مسابقات مرحله گروهی تورنمنت محسوب می‌شود.
+
+🔹هلندی‌ها که سه بار نایب‌قهرمان جهان شده‌اند، رقابت‌های خود را برابر تیمی آغاز می‌کنند که در شگفتی‌سازی، تکراری شده‌اند.
+
+🔹ژاپن در جام جهانی ۲۰۲۲ قطر با شکست آلمان و اسپانیا همه را شگفت‌زده کرد و حالا امیدوار است بار دیگر معادلات را بر هم بزند.
+
+🔹هر دو تیم رویایی دست‌نیافتنی دارند؛ یکی قهرمانی و دیگری رسیدن به نیمه‌نهایی.
+
+🔹طبق پیش‌بینی ابررایانه اوپتا، هلند با ۵۰.۲ درصد شانس پیروزی، بخت نخست این مسابقه است. احتمال برد ژاپن ۲۴.۵ درصد و شانس تساوی ۲۵.۲ درصد برآورد شده است.
+
+🔹پیش‌بازی هلند-ژاپن را در وب‌سایت ایران اینترنشنال بخوانید.
+
+@iranintltvsport
+</div>
+
+## Shin_Persian — post 7058
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn Sun, 14 Jun 2026 15:31:24 UTC Someone in IRGC-owned Fars News' discussion group: "If they sign a deal, we, value-driven people will conduct acid attacks on women without hijabs. There must be no agreement with the killer of our leader."…
+</div>
+
+## Shin_Persian — post 7057
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_7057_1781451212.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sun, 14 Jun 2026 15:31:24 UTC
+
+Someone in IRGC-owned Fars News' discussion group:
+
+"If they sign a deal, we, value-driven people will conduct acid attacks on women without hijabs. There must be no agreement with the killer of our leader."
+
+Here's a direct link for that very message:
+https://t.me/farsna98/19202386
+
+ترجمه خودکار فارسی
+
+شخصی در گروه بحث خبرگزاری فارس (متعلق به سپاه پاسداران انقلاب اسلامی - IRGC):
+
+«اگر توافقی را امضا کنند، ما ارزشی‌ها روی زنان بی‌حجاب اسیدپاشی خواهیم کرد. نباید هیچ توافقی با قاتل رهبرمان صورت بگیرد.»
+
+این هم لینک مستقیم همان پیام:
+https://t.me/farsna98/19202386
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 220696
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انجمن مددکاران اجتماعی ایران هشدار داد با افزایش فقر، تعداد کودکان کار بیشتر شده ‌و آنها با بهره‌کشی جنسی، خشونت و سوءتغذیه مواجه‌اند
+</div>
+
+## FarsiVOA — post 220695
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺سفیر آمریکا در سازمان ملل: ترامپ قطعا قصد دارد امروز با رژیم ایران یادداشت تفاهم امضا کند
+
+◾️مایک والتز، سفیر آمریکا در سازمان ملل، می‌گوید دونالد ترامپ، رئیس جمهوری ایالات متحده، «قطعا قصد دارد» امروز یک یادداشت تفاهم با حکومت ایران امضا کند.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/mike-waltz-says-president-trump-has-every-intent-to-sign-deal-with-iran-today/8160691.html
+</div>
+
+## FarsiVOA — post 220694
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺ترامپ: به توافق صلح با حکومت ایران نزدیک شده‌ایم؛ اسرائیل و حزب‌الله به یکدیگر حمله نکنند
+
+◾️دونالد ترامپ رئیس جمهوری آمریکا، از حمله صبح یکشنبه ۲۴ خرداد اسرائیل به بیروت انتقاد کرد و در شبکه اجتماعی تروت سوشال نوشت: «حمله صبح امروز به بیروت نباید رخ می‌داد، به‌ویژه در چنین روز مهمی که ما تا این حد به دستیابی به یک توافق صلح با [رژیم] ایران نزدیک شده‌ایم.»
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/donald-trump-iran-deal-beirut-attack-israel-agreement-with-iran/8160689.html
+</div>
+
+## DW_Farsi — post 125965
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125965_1781451212.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 "مبارزات قفس" در جشن هشتادمین سالروز تولد ترامپ
+
+در محوطه کاخ سفید جایگاهی برای مسابقه هنرهای رزمی برپا شده تا امروز ۱۴ ژوئن دونالد ترامپ همزمان با هشتادمین زادروز خود شاهد آن باشد. منتقدان از "نمایش خونین" سخن گفته و قصد دارند دست به اعتراض بزنند.
+
+دونالد ترامپ، رئیس‌جمهور آمریکا، امروز ۱۴ ژوئن (۲۴ خرداد) همزمان با روز پرچم که سالروز تصویب رسمی پرچم ایالات متحده است ۸۰ ساله می‌شود و جشن بزرگی به راه می‌اندازد.
+
+او هشتادسالگی‌اش را با تماشای مسابقه قهرمانی مبارزه نهایی (UFC) که "مبارزات قفس" نام گرفته و برای آن جایگاهی در محوطه کاخ سفید بنا شده جشن می‌گیرد.
+
+ترامپ پیش از این با شور و اشتیاق در مورد این مسابقه گفته بود: «این بی‌نظیر است، یک رویداد یو‌اف‌سی [UFC] در چمن جنوبی!»
+
+کاخ سفید امروز میزبان رویداد UFC در قالب برنامه "یو‌اف‌سی فریدم ۲۵۰" (UFC Freedom 250) به مناسبت ۲۵۰مین سالگرد استقلال آمریکا خواهد بود.
+
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 17070
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل همچنین اهدافی را در شوکن، المنصوری و کفار سیر بمباران کرد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17069
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به گزارش کانال 14 اسرائیل، ایالات متحده در حال حاضر تلاش می‌کند از طریق واسطه‌های مختلف از هرگونه حمله قریب‌الوقوع ایران به خاک اسرائیل جلوگیری کند.
+
+پیامی که اسرائیل در پاسخ ارسال کرد: اگر ایرانی‌ها به ما حمله کنند، ما به شدت و به سرعت پاسخ خواهیم داد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17067
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نیروی هوایی ارتش اسرائیل دقایقی پیش هدفی را در تبنین واقع در جنوب لبنان بمباران کرد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17066
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17066_1781451213.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مجری: اما الان با آن ذخایر سلاح‌ها (که در جنگ ایران استفاده شد) مشکلی وجود دارد؟
+
+پیت هگست: خیر، چنین چیزی نیست. این داستانی ساختگی است که رسانه‌ها می‌خواهند آن را پخش کنند. ذخایر ما عالی هستند و فقط قوی‌تر می‌شوند.
+
+مجری: شما در مقابل کنگره در این‌باره (که بازسازی ذخایر طول خواهد کشید) شهادت داده‌اید.
+
+هگست: لازم نیست برایم آنچه را که شهادت داده‌ام دوباره بخوانید... من حدس زدم که برخی مهمات زمان بیشتری نسبت به بقیه می‌برند.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## RadioFarda — post 158295
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸یک گربه در جریان اجرای باله «رومئو و ژولیت» در شهر ازمیر ترکیه، ناگهان وارد صحنه شد.
+
+🔸این اتفاق در صحنه پایانی نمایش و هنگام اجرای «گروه باله امپراتوری روسیه» رخ داد.
+
+🔸ویدئوهای منتشرشده نشان می‌دهد گربه به رومئو، که در بخشی از داستان روی صحنه بی‌حرکت افتاده است، نزدیک می‌شود و با موهای او بازی می‌کند.
+
+🔸در همان حال، ژولیت در حال اجرای صحنه سوگواری برای مرگ معشوق خود است.
+
+🔸رقصندگان بدون وقفه به اجرای خود ادامه دادند و واکنشی به حضور این مهمان غیرمنتظره نشان ندادند.
+
+@RadioFarda
+</div>
+
+## Dirty_Kids — post 392017
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392017_1781451214.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مدارک لازم جهت اخذ انتقام رهبری ! 😂😂😂😂
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392015
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392015_1781451216.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 کسی که به مرد عنکبوتی یمنی معروف بود و روی صخره حرکت نمایشی اجرا میکرد، موقع اجرای نمایش افتاد ته دره و مُرد.
+
+⚠️ حاوی صحنه دلخراش، اگه ناراحتی قلبی دارین باز نکنین.
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 127919
+
+<div align="center">
+  <a href="telegram/content/alonews_127919_1781451217.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 کانال ۱۲ اسرائیل به نقل از یک مقام آمریکایی: حمله اسرائیل به ضاحیه، تلاشی آشکار برای نابودی توافق است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127918
+
+<div align="center">
+  <a href="telegram/content/alonews_127918_1781451217.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پزشکیان: درحالی که برخی افراد بدون آنکه آثار تورم و دشواری‌های اقتصادی را در زندگی خود لمس کنند، صرفاً به بیان شعارها و دیدگاه‌هایی می‌پردازند که هزینه‌ای برای آنان ندارد و از سوی دیگر زندگی‌های مرفه دارند و تورم به معیشت آنان لطمه نمی‌زند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127917
+
+<div align="center">
+  <a href="telegram/content/alonews_127917_1781451217.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈واکنش پزشکیان به شایعات پیرامون استعفای وی: بنده شخصاً برای کار و تلاش و خدمتگزاری به مردم کشور هیچ تردیدی به خود راه نداده‌ام
+
+
+🔴اگر به پیش از انتخابات هم بازگردیم و این باور را داشته باشم که با آمدنم می‌توانم گره‌ای از مشکلات کشور و مردم باز کنم، قطعاً بازهم خواهم آمد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127916
+
+<div align="center">
+  <a href="telegram/content/alonews_127916_1781451217.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری/ارتش دفاعی اسرائیل گزارش داد که موشک‌های بیشتری از حزب‌الله در خاک اسرائیل، درست در جنوب مرز لبنان-اسرائیل، اصابت کرده‌اند.
+
+
+🔴اسرائیل وعده داده بود که به ازای هر حمله حزب‌الله به شمال اسرائیل، بیروت را هدف قرار دهد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/24 18:53
 ---
 

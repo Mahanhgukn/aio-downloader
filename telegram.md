@@ -7,6 +7,395 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/25 02:02
+---
+
+## VahidOOnLine — post 245574
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️کاظم غریب‌آبادی، معاون وزیر امور خارجه جمهوری اسلامی، در یک گفتگوی زنده تلویزیونی با تشریح جزئیات یادداشت تفاهم اخیر میان تهران و واشنگتن، با تاکید بر اینکه این تفاهم در عین «بی‌اعتمادی کامل ما به دشمن» صورت گرفته است، روند مذاکرات آتی را تشریح کرد و گفت: «ما امیدوار هستیم که مذاکرات ظرف ۶۰ روز آینده جمع‌بندی بشود و اگر اراده جدی در طرف مقابل وجود داشته باشد، این مدت کفایت خواهد کرد؛ هرچند در صورت نیاز به مباحث فنی و پیچیده، این زمان با توافق طرفین قابل تمدید است.» غریب‌آبادی با تبیین چهار محور اصلی این مذاکرات افزود: «موضوع اول، خاتمه و رفع تمامی تحریم‌های یک‌جانبه، اعم از اولیه و ثانویه، علیه جمهوری اسلامی و همچنین خاتمه قطعنامه‌های شورای امنیت و شورای حکام آژانس است که همگی در متن پیش‌نویس پیش‌بینی شده‌اند؛ محورهای بعدی نیز شامل موضوعات هسته‌ای، تعیین سازوکار بازسازی و توسعه اقتصادی، و در نهایت تبیین یک سیستم نظارتی برای سنجش پایبندی طرفین است.» معاون وزیر امور خارجه در پایان تصریح کرد که مبنای اجرای اقدامات ایران کاملا «منطبق، متناسب و متناظر» با پایبندی طرف مقابل خواهد بود و هر جا که کاهشی در اجرای تعهدات آمریکا مشاهده شود، ایران نیز متوازن با آن اقدام خواهد کرد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245573
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245573_1781476370.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وب‌سایت انتخاب به نقل از «یک منبع آگاه» نوشت: «به‌دنبال پافشاری هیات مذاکراتی ایران در مورد نکاتی در متن تفاهم‌نامه ایران و آمریکا، توافق شد که تنگه هرمز با ترتیباتی که ایران اتخاد خواهد کرد بازگشایی شود.»
+
+این منبع آگاه که به نام و سمت او اشاره نشده است، به انتخاب گفت: «براین اساس، نحوه اداره تردد در تنگه و شیوه ارائه خدمات دریایی و دریافت هزینه‌های مربوط به آن، به ایران و عمان به عنوان کشورهای ساحلی تنگه محول شد.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14924
+
+<div align="center">
+  <img src="telegram/content/WithYashar_14924_1781476372.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ در تروث : این توافق بزرگ، صلح و امنیت را برای سراسر منطقه به ارمغان خواهد آورد. بسیاری از رؤسای‌جمهور تلاش کردند با ایران صلح کنند، اما همگی پیش از من شکست خوردند. رهبران منطقه برای نخستین بار، رئیس‌جمهوری را یافته‌اند که می‌تواند به آنان در دستیابی به صلحی واقعی کمک کند. با بازگشایی تنگه پس از امضای توافق در روز جمعه، به‌منظور رفع موانع مورد نظر من، نفت دوباره از هر دو سو برای منطقه و جهان جریان خواهد یافت!
+@withyashar
+</div>
+
+## WithYashar — post 14923
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش از سیریک پهپاد شلیک شد به سمت کشتی ها !🚨🚨🚨🚨
+@withyashar
+</div>
+
+## mwarmonitor — post 10936
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+«این توافق بزرگ، صلح و امنیت را برای کل منطقه به ارمغان خواهد آورد. رؤسای جمهور بسیاری تلاش کرده‌اند با ایران صلح کنند و همگیِ آن‌ها پیش از من شکست خورده‌اند. رهبران منطقه، برای اولین بار، رئیس‌جمهوری را یافته‌اند که می‌تواند به آن‌ها در دستیابی به صلحی واقعی کمک کند. با بازگشایی تنگه پس از امضای توافق در روز جمعه به منظور مین‌روبی، نفت بار دیگر از هر دو سو برای منطقه و جهان جریان خواهد یافت!
+
+رئیس‌جمهور دونالد جی. ترامپ»
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 94022
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94022_1781476373.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پست جدید ترامپ:
+
+این توافق بزرگ، صلح و امنیت رو برای سراسر منطقه به ارمغان خواهد آورد. بسیاری از رؤسای‌جمهور تلاش کردن با ایران صلح کنند، اما همگی پیش از من شکست خوردن.
+
+رهبران منطقه برای نخستین بار، رئیس‌جمهوری رو یافتن که میتونه به آنان در دستیابی به صلحی واقعی کمک کنه. با بازگشایی تنگه هرمز پس از امضای توافق در روز جمعه، به‌منظور رفع موانع مورد نظر من، نفت دوباره از هر دو سو برای منطقه و جهان جریان خواهد یافت!
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94021
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+الان مرگ بر آمریکا بگیم مجرم میشیم؟
+</div>
+
+## pm_afshaa — post 94020
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94020_1781476374.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴غریب‌آبادی، معاون وزیر امور خارجه: قراره توی 60 روز با آمریکا مذاکره کنیم تا به توافق نهایی برسیم. چیزایی که قراره راجع بهش مذاکره کنیم : 1- لغو همه تحریم‌ها درصورت نهایی شدن توافق 2- موضوع هسته‌ای 3- بازسازی و توسعه اقتصادی ایران 4- تعیین سازوکار اجرایی…
+</div>
+
+## pm_afshaa — post 94019
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94019_1781476374.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴جی‌دی ونس، معاون ترامپ:
+کاری که ترامپ انجام داده، ایجاد فضای واقعی برای تغییر همکاری‌های منطقه‌ای بین متحدان عرب خلیج فارس و اسرائیلی‌هاست، و اکنون امیدواریم عصر جدیدی با ایرانی‌ها آغاز بشه. این فقط یک چیز بزرگ برای مردم آمریکاست.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94018
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تتر 163 هزار تومن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94017
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94017_1781476375.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴جی‌دی ونس: احتمال حضور ترامپ در مراسم امضای تفاهم وجود داره.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## VahidOnline — post 76353
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ:
+این توافق بزرگ، صلح و امنیت را برای کل منطقه به ارمغان خواهد آورد. بسیاری از روسای جمهور تلاش کرده‌اند با ایران صلح کنند و همه قبل از من شکست خورده‌اند. رهبران منطقه برای اولین بار رئیس جمهوری پیدا کرده‌اند که می‌تواند به آنها در دستیابی به صلح واقعی کمک کند. با باز شدن تنگه هرمز پس از امضای توافق در روز جمعه، به منظور مین‌روبی، نفت دوباره از هر دو طرف برای منطقه و جهان جریان خواهد یافت! رئیس جمهور دونالد جی. ترامپ
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 76352
+
+<div align="center">
+  <a href="telegram/content/VahidOnline_76352_1781476376.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جی‌دی ونس، معاون رییس‌جمهوری آمریکا، گفت قصد دارد در مراسم رسمی امضای یادداشت تفاهم میان آمریکا و جمهوری اسلامی حضور داشته باشد، اما احتمال دارد دونالد ترامپ نیز شخصا در این مراسم شرکت کند.
+
+ونس در گفت‌وگویی کوتاه با شبکه فاکس نیوز گفت: «فکر می‌کنم هنوز در حال بررسی جزییات و هماهنگی‌ها درباره افرادی هستیم که در مراسم امضا حضور خواهند داشت. من قطعا قصد دارم در آنجا باشم، اما این احتمال وجود دارد که خود رییس‌جمهوری نیز در مراسم حضور پیدا کند.»
+
+سرویس مخفی آمریکا معمولا حضور همزمان رییس‌جمهوری و معاون رییس‌جمهوری را، به‌ویژه در سفرهای خارجی، به دلایل امنیتی و ملاحظات جانشینی توصیه نمی‌کند.
+
+این اظهارات ساعاتی پس از آن مطرح شد که شهباز شریف، نخست‌وزیر پاکستان، از برگزاری مراسم رسمی امضای توافق میان آمریکا و جمهوری اسلامی در روز جمعه در ژنو سوئیس خبر داد.
+
+قرار است دونالد ترامپ پیش از آن برای شرکت در نشست سالانه گروه هفت به فرانسه سفر کند.
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 342373
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342373_1781476378.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وب‌سایت انتخاب به نقل از «یک منبع آگاه» نوشت: «به‌دنبال پافشاری هیات مذاکراتی ایران در مورد نکاتی در متن تفاهم‌نامه ایران و آمریکا، توافق شد که تنگه هرمز با ترتیباتی که ایران اتخاد خواهد کرد بازگشایی شود.»
+
+این منبع آگاه که به نام و سمت او اشاره نشده است، به انتخاب گفت: «براین اساس، نحوه اداره تردد در تنگه و شیوه ارائه خدمات دریایی و دریافت هزینه‌های مربوط به آن، به ایران و عمان به عنوان کشورهای ساحلی تنگه محول شد.»
+https://iranintl.com/202606145654
+</div>
+
+## IranIntlTV — post 342372
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342372_1781476379.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شهرام خلدی، پژوهشگر تاریخ خاورمیانه و روابط بین‌الملل، درباره واکنش حامیان جمهوری اسلامی به توافق با آمریکا، گفت: «هر مسیری که جمهوری اسلامی انتخاب کند، با هزینه‌های سنگینی همراه است. عقب‌نشینی می‌تواند بحران مشروعیت در میان حامیان حکومت را تشدید کند و ادامه تقابل نیز خطر فشارهای نظامی و اقتصادی بیشتر را به دنبال دارد.»
+
+او افزود: «اگر این توافق‌نامه در نهایت امضا شود، نشانه شکست راهبردی سپاه پاسداران در این دور از تقابل و مذاکرات خواهد بود.»
+@iranintltv
+</div>
+
+## Shin_Persian — post 7084
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_7084_1781476382.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sun, 14 Jun 2026 22:30:56 UTC
+
+POTUS:
+"This Great Deal will bring Peace and Security to the whole Region. Many presidents have tried to make Peace with Iran, and all have failed before me. The Leaders of the Region have, for the first time, found a President who can help them achieve real Peace. With the opening of the Strait upon the signing of the Deal on Friday, for purposes of mine removal, oil will flow on both ends again for the Region, and the World! President DONALD J. TRUMP"
+
+ترجمه خودکار فارسی
+
+رئیس‌جمهور ایالات متحده (POTUS):
+«این توافق بزرگ، صلح و امنیت را به کل منطقه خواهد آورد. رؤسای جمهور بسیاری سعی کرده‌اند با ایران صلح کنند و همگی پیش از من شکست خورده‌اند. رهبران منطقه، برای اولین بار، با رئیس‌جمهوری روبرو شده‌اند که می‌تواند به آن‌ها در دستیابی به صلحی واقعی کمک کند. با بازگشایی تنگه بلافاصله پس از امضای توافق در روز جمعه، به منظور مین‌روبی، نفت بار دیگر از هر دو سو برای منطقه و جهان جریان خواهد یافت! رئیس‌جمهور دونالد جی. ترامپ»
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 7083
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sun, 14 Jun 2026 22:27:39 UTC
+
+Intense jet activity over southern Lebanon
+
+ترجمه خودکار فارسی
+
+فعالیت شدید جنگنده‌ها بر فراز جنوب لبنان
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 7082
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sun, 14 Jun 2026 22:25:33 UTC
+
+IRGC-Owned Fars:
+
+“Fars News Agency reports that the official statement from the Secretariat of the Supreme National Security Council regarding the ceasefire agreement will be released in a few moments.
+
+According to this report, Iran had canceled its negotiations and prepared to attack the Zionist regime following the assault on Beirut's Dahiyeh district. However, Iran was ultimately persuaded to refrain from the attack due to eleventh-hour concessions offered by the American president, including the preservation of Lebanon's territorial integrity, Israel's withdrawal from the Lebanese border, and the immediate lifting of the blockade.
+
+Additionally, a legal framework for navigation in the Persian Gulf waters is to be established through cooperation between Iran and Oman.”
+
+ترجمه خودکار فارسی
+
+خبرگزاری فارس (متعلق به سپاه پاسداران):
+
+«خبرگزاری فارس گزارش می‌دهد که بیانیه رسمی دبیرخانه شورای عالی امنیت ملی در خصوص توافق آتش‌بس تا لحظاتی دیگر منتشر خواهد شد.
+
+طبق این گزارش، ایران در پی حمله به منطقه ضاحیه بیروت، مذاکرات خود را لغو کرده و برای حمله به رژیم صهیونیستی (ارتش دفاعی اسرائیل) آماده شده بود. با این حال، ایران در نهایت به دلیل امتیازات لحظه آخری ارائه شده توسط رئیس‌جمهور آمریکا، از جمله حفظ تمامیت ارضی لبنان، عقب‌نشینی اسرائیل از مرز لبنان و رفع فوری محاصره، متقاعد شد که از حمله خودداری کند.
+
+علاوه بر این، قرار است چارچوب قانونی برای دریانوردی در آب‌های خلیج فارس از طریق همکاری بین ایران و عمان ایجاد شود.»
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 220733
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺ترامپ در مورد جمهوری اسلامی: خواهیم دید چگونه رفتار می‌کنند؛ وقتی که آماده شدیم وارد عمل شویم و مواد هسته‌ای در ایران را جمع‌ می‌کنیم
+
+▪️دونالد ترامپ، رئيس جمهوری آمریکا، در مصاحبه‌ای با وال‌استریت ژورنال که مدتی پیش از اعلام توافق با جمهوری اسلامی منتشر شد گفت این توافق شامل تعهد جمهوری اسلامی به عدم دستیابی به سلاح هسته‌ای است و در پی آن، تنگه هرمز بلافاصله بازگشایی خواهد شد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8160759.html
+@FarsiVOA
+</div>
+
+## Dirty_Kids — post 392065
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392065_1781476383.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یادی هم بکنیم از این دلقک که آرزوش این بود
+تنگه رو ببنده قیمت هر بشکه نفت بشه 400 دلار
+هم تنگه باز شد هم خودش کتلت شد😂
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392064
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392064_1781476384.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ولی ما با آمریکا پدرکشتگی داریم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392063
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392063_1781476384.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قالیباف، عراقچی
+پس کون پاره ام چی
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 128066
+
+<div align="center">
+  <a href="telegram/content/alonews_128066_1781476385.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ:
+این توافق بزرگ، صلح و امنیت رو برای سراسر منطقه به ارمغان خواهد آورد. بسیاری از رؤسای‌جمهور تلاش کردن با ایران صلح کنند، اما همگی پیش از من شکست خوردن.
+
+
+🔴رهبران منطقه برای نخستین بار، رئیس‌جمهوری رو یافتن که میتونه به آنان در دستیابی به صلحی واقعی کمک کنه. با بازگشایی تنگه هرمز پس از امضای توافق در روز جمعه، به‌منظور رفع موانع مورد نظر من، نفت دوباره از هر دو سو برای منطقه و جهان جریان خواهد یافت!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128065
+
+<div align="center">
+  <a href="telegram/content/alonews_128065_1781476385.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈طبق یک بند از یادداشت تفاهم بین ایران و آمریکا، پول های بلوک شده ایران طی ۶۰ روز باید آزاد شود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128064
+
+<div align="center">
+  <a href="telegram/content/alonews_128064_1781476385.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تصویر منتشر شده در ایتا و روبیکا
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128063
+
+<div align="center">
+  <a href="telegram/content/alonews_128063_1781476386.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ادعای معاریو:
+نتانیاهو به ترامپ گفت که اسرائیل خود را ملزم به رعایت بخش مربوط به لبنان در توافق پیشنهادی آمریکا و ایران نمی‌داند.
+
+
+🔴بر اساس منابع اسرائیلی، اسرائیل قصد دارد نیروهای خود را در لبنان نگه دارد، عملیات علیه حزب‌الله را ادامه دهد و در صورت نیاز به حملات پاسخ دهد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128062
+
+<div align="center">
+  <a href="telegram/content/alonews_128062_1781476386.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈گویا به جاهایی که غذا و نوشیدنی رایگان تو تجمعات میدادن گفتن جمع کنید برید مهمونی تعطیله
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128061
+
+<div align="center">
+  <a href="telegram/content/alonews_128061_1781476386.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈معاون رئیس جمهور جی دی ونس:
+من قطعاً قصد دارم برای امضای توافق در سوئیس آنجا باشم، اما ممکن است خود رئیس جمهور ترامپ نیز آنجا باشد. ما این موضوع را حل خواهیم کرد.
+
+
+🔴فکر می‌کنم می‌توانیم با اطمینان بگوییم که ایران هرگز سلاح هسته‌ای نخواهد داشت.
+
+
+🔴ما کارهای زیادی برای انجام دادن داریم، اما امشب یک پیروزی بزرگ به دست آوردیم.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/25 01:52
 ---
 

@@ -7,6 +7,175 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/24 23:23
+---
+
+## VahidOOnLine — post 245548
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245548_1781466823.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس جمهوری آمریکا، عصر یکشنبه ۲۴ خرداد ماه در گفتگو با آکسیوس اعلام کرد حمله اسرائیل به بیروت روند امضاء توافق میان آمریکا و ایران را مختل کرده، اما مانع نهایی‌شدن آن نشده است. رئیس‌جمهور آمریکا گفت: «این حمله همه‌چیز را به هم ریخت. امضای توافق را چند ساعت به تأخیر انداخت. قرار بود همین حالا انجام شود اما حالا چند ساعت دیگر انجام خواهد شد.»
+این سخنان ترامپ در حالی مطرح می‌شود که با وجود اعلام ترامپ و مقام‌های کاخ سفید، مسئولان و رسانه‌های دولتی ایران اعلام کرد‌ه‌اند تفاهنامه پایان جنگ روز یکشنبه امضاء نخواهد شد.
+کارشناسان معتقدند، تاخیر مورد نظردر سخنان ترامپ و همچنین تاکید مسئولان جمهوری اسلامی مبنی بر امضاء نشدن توافق در روز یکشنبه، منجر به امضا آن در بامداد دوشنبه به وقت تهران خواهد شد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245547
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_245547_1781466824.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی منتشرشده در شبکه‌های اجتماعی نشان می‌دهد جمعی از حامیان تندروی جمهوری اسلامی کفن‌پوش شده و در تجمعی مقابل استانداری زنجان شعار «اگر چیزی امضا شه، مسئول باید کشته شه» سر دادند.
+تاریخ دقیق انتشار این ویدیو مشخص نیست.
+بخشی از حامیان حکومت در روزهای اخیر، وزارت خارجه و تیم مذاکره‌کننده را به دادن امتیاز به آمریکا متهم کرده‌اند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## mwarmonitor — post 10916
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 ترامپ کله زرد بالاخره به تنظیمات کارخانه‌ای و شغل واقعی‌اش یعنی بنگاهیِ املاک برگشت؛ انگار کلاً یادش رفته که رئیس‌جمهور ابرقدرت جهان است! حالا او دقیقاً مثل این دلال‌های هولِ بنگاهی رفتار می‌کند که ایران و اسرائیل را مثل خریدار و فروشنده‌ای می‌بیند که به…
+</div>
+
+## mwarmonitor — post 10915
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_10915_1781466826.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝«عراقچی بر فرازِ دار؛ آخرین پرده ز سیرکِ تزویر»
+
+ببند آن حلقه‌ی دارِ دمِ صبح
+بکش صندلی از یارِ دمِ صبح
+
+جواد و شیخ رفتند و نوبت شد
+عراقچی را ببر، کارِ دمِ صبح
+
+به روی چوبه رقصش دیدنی نیست؟
+پِندِل، لرزان و پندارِ دمِ صبح؟
+
+ببین تف بر رخِ بی‌غیرتِ‌شان
+شده آرایشِ تارِ دمِ صبح
+
+ولی مبهوت ماندم من ز قومی
+که می‌رقصد به پرگارِ دمِ صبح!
+
+تو می‌خندی به اعدامِ رفیقت؟
+تویی اعدامیِ زارِ دمِ صبح!
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 93964
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93964_1781466828.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کابینه اسرائیل: اگر ایران حمله کنه، ما هم حمله خواهیم کرد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 342353
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342353_1781466829.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی منتشرشده در شبکه‌های اجتماعی نشان می‌دهد جمعی از حامیان تندروی جمهوری اسلامی کفن‌پوش شده و در تجمعی مقابل استانداری زنجان شعار «اگر چیزی امضا شه، مسئول باید کشته شه» سر دادند.
+تاریخ دقیق انتشار این ویدیو مشخص نیست.
+بخشی از حامیان حکومت در روزهای اخیر، وزارت خارجه و تیم مذاکره‌کننده را به دادن امتیاز به آمریکا متهم کرده‌اند.
+</div>
+
+## FarsiVOA — post 220721
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺اسرائیل برای حمله احتمالی موشکی جمهوری اسلامی آماده است؛ جروزالم پست: اورشلیم به هر حمله‌ای پاسخ خواهد داد
+
+▪️رئیس ستاد ارتش اسرائیل، ایال زمیر، اعلام کرد نیروهای این کشور برای حمله احتمالی موشکی بالستیک رژیم ایران در ساعات آینده آماده هستند و از شهروندان خواست دستورالعمل‌های جبهه داخلی را جدی بگیرند.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/israel-braces-for-iran-attack/8160735.html
+@FarsiVOA
+</div>
+
+## Dirty_Kids — post 392041
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392041_1781466831.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هیتلر داره از نزدیک بازی آلمان رو میبینه
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392040
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392040_1781466832.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 یه آخوند: سازمان انتقال خون، باید خون آقایون و خانما رو جدا کنه، بخاطر اینکه این قاطی شدن خون باعث زیادتر شدن گناه میشه، اینا همش کار یهودی هاست.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392038
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392038_1781466833.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴این خانم ایرانی انقدر خوب و دقیق صدای سگ درمیاره که خود سگ‌ها هم خایه کردن؛
+
+
+ویدئو‌هاش تو چند روز اخیر بالای 10 میلیون بازدید داشتن!
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 127992
+
+<div align="center">
+  <a href="telegram/content/alonews_127992_1781466835.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 بیانیه وزارت امور خارجه درباره تداوم حملات اسرائیل در حمله به ضاحیه بیروت
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127990
+
+<div align="center">
+  <a href="telegram/content/alonews_127990_1781466835.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈صحنه‌های باورنکردنی از پالایشگاه نووکویبیشف در منطقه سامارا روسیه از دید یک پهپاد FP-1 اوکراینی در جریان حمله در ۱۰ ژوئن
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/24 23:13
 ---
 

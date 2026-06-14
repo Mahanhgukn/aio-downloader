@@ -7,6 +7,540 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/25 00:52
+---
+
+## VahidOOnLine — post 245564
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245564_1781472154.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️به گزارش روزنامه وال‌استریت ژورنال، دونالد ترامپ، رئیس‌جمهوری آمریکا، عصر روز یکشنبه در گفتگویی اختصاصی اعلام کرد که قصد دارد تا لحظاتی دیگر با صدور بیانیه‌ای رسمی، موافقت ایالات متحده با توافق با ایران را تایید کند؛ توافقی بزرگ که به گفته او یا توسط خودش و یا توسط معاونش، جی‌دی ونس، به صورت الکترونیکی امضا خواهد شد. ترامپ با بیان اینکه این معاهده، که مقامات تهران هنوز موافقت نهایی با آن را تایید نکرده‌اند، شامل تعهد ایران برای عدم دستیابی به سلاح هسته‌ای و بازگشایی فوری تنگه هرمز است، تاکید کرد که در این مرحله عجله‌ای برای خروج مواد اتمی از ایران ندارد و این کارِ «بی‌خطر» را به ماه‌های آینده موکول می‌کند. رئیس‌جمهوری آمریکا با رد مواضع منتقدانش درباره لزوم تغییر حکومت در ایران گفت: «من هیچ‌وقت اهمیت نداده‌ام. این سومین گروهی است که با آن‌ها معامله می‌کنیم و منطقی‌ترینِ آن‌ها تا به امروز هستند.» او همچنین با تاکید بر اثربخشی محاصره دریایی ایران، از اقدامات نظامی اخیر بنیامین نتانیاهو در لبنان که نزدیک بود این مذاکرات حساس را به هم بزند، به شدت انتقاد کرد و گفت: «نتانیاهو نباید این کار را می‌کرد؛ من اصلا از این اقدام خوشم نیامد.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245563
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245563_1781472154.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهوری آمریکا، در گفت‌وگو با وال استریت ژورنال گفت توافق با جمهوری اسلامی قریب‌الوقوع است، اما تهران هنوز موافقت خود با آن را تایید نکرده است.
+
+ترامپ افزود قصد دارد به‌زودی بیانیه‌ای صادر کند که در آن اعلام خواهد شد آمریکا با جمهوری اسلامی به توافق رسیده است.
+
+او گفت این توافق، در صورت نهایی شدن، یا توسط خود او یا از سوی جی‌دی ونس، معاون رییس‌جمهوری آمریکا، به‌صورت الکترونیکی امضا خواهد شد.
+
+رییس‌جمهوری آمریکا روز یکشنبه این توافق را گامی بزرگ در مسیر پایان دادن به درگیری نزدیک به چهارماهه توصیف کرد.
+
+ترامپ همچنین گفت این توافق شامل تعهد جمهوری اسلامی به دست نیافتن به سلاح هسته‌ای و بازگشایی فوری تنگه هرمز خواهد بود. او افزود عجله‌ای برای خارج کردن مواد هسته‌ای از ایران وجود ندارد و این موضوع می‌تواند در مرحله‌ای بعدی دنبال شود.
+
+ترامپ گفت: «بعدا و زمانی که آماده باشیم وارد عمل شویم، مواد هسته‌ای را جمع‌آوری خواهیم کرد. به نظرم طی یک یا دو ماه آینده این کار انجام می‌شود و عجله‌ای وجود ندارد.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14903
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: «بعداً مسائل هسته‌ای را حل می‌کنیم» و افزود که «هیچ عجله‌ای نیست» و می‌توان ظرف یک یا دو ماه آینده به آن پرداخت
+@withyashar
+</div>
+
+## WithYashar — post 14902
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: بزودی یک بیانیه خواهم داد
+@withyashar
+</div>
+
+## WithYashar — post 14901
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبر تسنیم فیکه مثل خودش
+@withyashar
+</div>
+
+## WithYashar — post 14900
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🤣🤣
+</div>
+
+## WithYashar — post 14898
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ می‌گوید توافق با ایران قریب‌الوقوع است، اما تهران تاکنون آن را تأیید نکرده است رئیس‌جمهور در مصاحبه‌ای می‌گوید که قصد دارد به زودی بیانیه‌ای صادر کند و تأیید کند که ایالات متحده با ایران به توافق رسیده است @withyashar
+</div>
+
+## WithYashar — post 14897
+
+<div align="center">
+  <img src="telegram/content/WithYashar_14897_1781472155.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ می‌گوید توافق با ایران قریب‌الوقوع است، اما تهران تاکنون آن را تأیید نکرده است
+
+رئیس‌جمهور در مصاحبه‌ای می‌گوید که قصد دارد به زودی بیانیه‌ای صادر کند و تأیید کند که ایالات متحده با ایران به توافق رسیده است
+@withyashar
+</div>
+
+## pm_afshaa — post 93992
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نخست وزیر پاکستان:
+پس از مذاکرات فشرده، با کمال خرسندی اعلام می‌کنیم که توافق صلحی بین آمریکا و ایران حاصل شده. هر دو طرف توقف فوری و دائمی عملیات نظامی در تمام جبهه‌ها، از جمله در لبنان، رو اعلام کردن.
+
+مراسم رسمی امضای توافق‌نامه روز جمعه، 19 ژوئن، در سوئیس برگزار خواهد شد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93991
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فوری: رسما توافق شد.
+</div>
+
+## pm_afshaa — post 93990
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93990_1781472156.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: تحریم‌های ایران طبق توافق در آینده برداشته میشه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93989
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93989_1781472157.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ به وال استریت ژورنال: بازرسی‌های کاملی از ایرانی‌ها انجام خواهد شد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93988
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93988_1781472158.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: انتظار میره توافق پیشنهادی با ایران شامل آتش بس در لبنان باشه.
+
+این توافق باعث برقراری آتش‌بس میشه و در عین حال به اسرائیل اجازه میده در صورت حمله تلافی جویانه اقدام کنه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93987
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93987_1781472159.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ به وال استریت ژورنال:
+قصد دارم به‌زودی اعلام کنم آمریکا به توافق با ایران دست یافته.
+
+بعدا مسائل هسته‌ای رو حل می‌کنیم؛ هیچ عجله‌ای نیست و میشه ظرف یک یا دو ماه آینده به اون پرداخت.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93986
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93986_1781472160.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ به وال استریت ژورنال:
+در مورد تغییر رژیم، من هرگز به تغییر رژیم اهمیت ندادم. این سومین گروهی است که با آن سروکار داشتیم و این منطقی ترین گروهی است که تاکنون وجود داره.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## VahidOnline — post 76347
+
+<div align="center">
+  <a href="telegram/content/VahidOnline_76347_1781472161.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی منتشرشده در شبکه‌های اجتماعی نشان می‌دهد جمعی از حامیان تندروی جمهوری اسلامی کفن‌پوش شده و در تجمعی مقابل استانداری زنجان شعار «اگر چیزی امضا شه، مسئول باید کشته شه» سر دادند.
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 76346
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهوری آمریکا، در گفت‌وگو با وال استریت ژورنال گفت توافق با جمهوری اسلامی قریب‌الوقوع است، اما تهران هنوز موافقت خود با آن را تایید نکرده است.
+
+ترامپ افزود قصد دارد به‌زودی بیانیه‌ای صادر کند که در آن اعلام خواهد شد آمریکا با جمهوری اسلامی به توافق رسیده است.
+
+او گفت این توافق، در صورت نهایی شدن، یا توسط خود او یا از سوی جی‌دی ونس، معاون رییس‌جمهوری آمریکا، به‌صورت الکترونیکی امضا خواهد شد.
+
+رییس‌جمهوری آمریکا روز یکشنبه این توافق را گامی بزرگ در مسیر پایان دادن به درگیری نزدیک به چهارماهه توصیف کرد.
+
+ترامپ همچنین گفت این توافق شامل تعهد جمهوری اسلامی به دست نیافتن به سلاح هسته‌ای و بازگشایی فوری تنگه هرمز خواهد بود. او افزود عجله‌ای برای خارج کردن مواد هسته‌ای از ایران وجود ندارد و این موضوع می‌تواند در مرحله‌ای بعدی دنبال شود.
+
+ترامپ گفت: «بعدا و زمانی که آماده باشیم وارد عمل شویم، مواد هسته‌ای را جمع‌آوری خواهیم کرد. به نظرم طی یک یا دو ماه آینده این کار انجام می‌شود و عجله‌ای وجود ندارد.»
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 342363
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342363_1781472162.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهوری آمریکا، در گفت‌وگو با وال استریت ژورنال گفت توافق با جمهوری اسلامی قریب‌الوقوع است، اما تهران هنوز موافقت خود با آن را تایید نکرده است.
+
+ترامپ افزود قصد دارد به‌زودی بیانیه‌ای صادر کند که در آن اعلام خواهد شد آمریکا با جمهوری اسلامی به توافق رسیده است.
+
+او گفت این توافق، در صورت نهایی شدن، یا توسط خود او یا از سوی جی‌دی ونس، معاون رییس‌جمهوری آمریکا، به‌صورت الکترونیکی امضا خواهد شد.
+
+رییس‌جمهوری آمریکا روز یکشنبه این توافق را گامی بزرگ در مسیر پایان دادن به درگیری نزدیک به چهارماهه توصیف کرد.
+
+ترامپ همچنین گفت این توافق شامل تعهد جمهوری اسلامی به دست نیافتن به سلاح هسته‌ای و بازگشایی فوری تنگه هرمز خواهد بود. او افزود عجله‌ای برای خارج کردن مواد هسته‌ای از ایران وجود ندارد و این موضوع می‌تواند در مرحله‌ای بعدی دنبال شود.
+
+ترامپ گفت: «بعدا و زمانی که آماده باشیم وارد عمل شویم، مواد هسته‌ای را جمع‌آوری خواهیم کرد. به نظرم طی یک یا دو ماه آینده این کار انجام می‌شود و عجله‌ای وجود ندارد.»
+https://iranintl.com/202606145458
+</div>
+
+## IranIntlTV — post 342362
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342362_1781472163.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هواپیمای حامل اعضای تیم ملی فوتبال ایران در فرودگاه بین‌المللی لس‌آنجلس به زمین نشست و اعضای تیم در هتل محل اقامت خود مستقر شدند.
+
+نخستین دیدار ایران در مرحله گروهی جام جهانی روز دوشنبه در لس‌آنجلس برگزار خواهد شد.
+
+گزارش رضا محدث، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## FarsiVOA — post 220727
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220727_1781472165.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️تشدید شکاف درون جمهوری اسلامی و بازیگران «پنهان» توافق با آمریکا؛ گفت‌وگو با فرزانه روستایی
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220726
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺ترامپ به وال‌استریت ژورنال: توافق با جمهوری اسلامی را یا خودم امضا می‌کنم یا جی‌دی ونس
+
+▪️دونالد ترامپ، رئیس‌جمهور آمریکا، عصر یکشنبه به روزنامه وال‌استریت ژورنال گفت که قصد دارد به‌زودی بیانیه‌ای صادر کند و در آن تأیید کند که ایالات متحده با جمهوری اسلامی ایران به توافق رسیده است.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8160751.html
+@FarsiVOA
+</div>
+
+## DW_Farsi — post 125982
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎥روز ملی پرچم شیر و خورشید
+
+شماری از ایرانیان مقیم شهر کلن روز یکشنبه ۲۴ خرداد، همزمان با زادروز مجیدرضا رهنورد از کشته‌شدگان خیزش زن، زندگی، آزادی روز ملی پرچم شیر و خورشید را گرامی داشته و دست به تجمع زدند.
+
+
+
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 17123
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17123_1781472167.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نخست‌ وزیر پاکستان: پس از مذاکرات فشرده، خرسندیم اعلام کنیم که توافق صلح میان ایالات متحده آمریکا و جمهوری اسلامی ایران حاصل شده است. دو طرف پایان فوری و دائمی عملیات نظامی در تمام جبهه‌ها، از جمله در لبنان، را اعلام کرده‌اند.
+
+مراسم امضای رسمی این توافق روز جمعه 19 ژوئن در سوئیس برگزار خواهد شد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17122
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ درباره ایران گفت: در مورد تغییر رژیم، من اصلاً به تغییر رژیم اهمیت نداده‌ام. این سومین گروهی است که با آن‌ها طرف بوده‌ایم و این گروه، منطقی‌ترین آن‌ها تا به امروز است. این توافق شامل موافقت ایران با عدم دستیابی به سلاح هسته‌ای و بازگشایی فوری تنگه هرمز…
+</div>
+
+## Persian_Trend_Official — post 17121
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ درباره ایران گفت: در مورد تغییر رژیم، من اصلاً به تغییر رژیم اهمیت نداده‌ام. این سومین گروهی است که با آن‌ها طرف بوده‌ایم و این گروه، منطقی‌ترین آن‌ها تا به امروز است.
+
+این توافق شامل موافقت ایران با عدم دستیابی به سلاح هسته‌ای و بازگشایی فوری تنگه هرمز خواهد بود.
+
+نتانیاهو هم با توافق موافق است.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 22590
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 شهباز شریف نخست وزیر پاکستان از توافق ایران و آمریکا خبر داد:
+
+پس از گفتگوهای فشرده، خرسندیم اعلام کنیم که توافق صلح بین ایالات متحده آمریکا و جمهوری اسلامی ایران محقق شده است. هر دو طرف پایان فوری و دائمی عملیات نظامی در همه جبهه‌ها از جمله لبنان را اعلام کرده‌اند.
+
+مراسم رسمی امضای قرارداد در روز جمعه 19 ژوئن در سوئیس خواهد بود.
+
+مایلیم از تعهد ایالات متحده آمریکا و جمهوری اسلامی ایران برای یافتن راه حل دیپلماتیک برای این مناقشه تشکر کنیم. ما همچنین می‌خواهیم از برادرانمان در این تلاش میانجی‌گری، یعنی رهبری بزرگ کشور قطر، به خاطر حمایتشان از دستیابی به این توافق قدردانی کنیم. همچنین به ویژه از رهبری بصیر پادشاهی عربستان سعودی و جمهوری ترکیه برای کمک های بی شمارشان در این زمینه تشکر می کنم.
+
+با توافق در حال حاضر، میانجی ها مجموعه ای از جلسات را در این هفته تسهیل خواهند کرد. این گفتگوهای پیش از اجرا، پایه و اساس مذاکرات فنی و مراسم امضای رسمی را خواهد گذاشت.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22589
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبر امضاء شدن توافق که در رسانه‌ها در حال پخش شدن هست فیک هست. @IranianMinds
+</div>
+
+## IranianMinds — post 22588
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبر امضاء شدن توافق که در رسانه‌ها در حال پخش شدن هست فیک هست.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 283820
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283820_1781472167.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌ ‌ ‌ ‌
+وزارت خارجه ایران ضمن محکوم کردن حملات امروز اسرائیل به منطقه ضاحیه بیروت، مسئولیت مستقیم آن را متوجه آمریکا کرده است.
+
+در بیانیه وزارت خارجه ایران در این مورد آمده است: «این جنایت تروریستی، نه تنها نقض آشکار حاکمیت ملی و تمامیت سرزمینی لبنان است، بلکه نقض فاحش تفاهم آتش‌بس مورخ ۱۹ فروردین ۱۴۰۵ بین ایران و آمریکا محسوب می‌شود.»
+
+این بیانیه حملات اسرائیل را «نقض مکرر آتش‌بس علیه لبنان یا ایران» خوانده و اضافه کرده است که آمریکا در قبال اقدامات اسرائیل و نقض آتش‌بس، مسئولیت مستقیم دارد.
+
+وزارت خارجه ایران در این بیانیه گفته است که جمهوری اسلامی «از عزم خود برای اتخاذ کلیه تدابیر لازم جهت اعمال حق ذاتی دفاع مشروع تاکید می‌کند.»
+
+اسرائیل گفته است در حملات امروز خود به منطقه ضاحیه بیروت، یک مقر فرماندهی حزب‌الله را هدف گرفته و در پاسخ به آتشباری حزب‌الله به سمت شمال اسرائیل، دست به این حمله زده است.
+
+حمله امروز اسرائیل به منطقه ضاحیه بیروت که گروه حزب‌الله در آن مستقر است، بعد از آن رخ داد که آمریکا گفت تفاهم‌نامه با ایران در همین روز امضا می‌شود.
+
+https://bbc.in/4e5G0IE
+📷Getty
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 392050
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392050_1781472168.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+میگن ترامپ از صبح منتظره مجتبی این مرحله از زدن امضای دیجیتال رو رد کنه هنوز نتونسته
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392049
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392049_1781472169.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 توی تجمعات شبانه تندروهای انقلابی، مأموران اونارو با گاز اشک اور و شلیک پراکنده کردن😂😂😂😂😂
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392048
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392048_1781472171.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴تسنیم:
+توافق ایران و آمریکا توسط هر دو طرف امضا شد.
+
+
+
+🔴ترامپ:
+تحریم های ایران طبق توافق برداشته میشه
+</div>
+
+## Dirty_Kids — post 392047
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392047_1781472172.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 حسین پاک، خبرنگار صداوسیما تو لبنان:
+
+انشاالله امشب قراره ایران، یمن و حزب‌الله به صورت همزمان به اسرائیل حمله کنن و انتقام بگیرن.
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 128025
+
+<div align="center">
+  <a href="telegram/content/alonews_128025_1781472175.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خب حملات موشکی هم انجام نخواهد شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128024
+
+<div align="center">
+  <a href="telegram/content/alonews_128024_1781472175.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نخست‌وزیر پاکستان:
+پس از گفت‌وگوهای فشرده، خرسندیم اعلام کنیم که توافق صلح بین ایالات متحده آمریکا و جمهوری اسلامی ایران حاصل شده است. هر دو طرف پایان فوری و دائمی عملیات نظامی در همه جبهه‌ها، از جمله در لبنان را اعلام کرده‌اند.
+
+
+🔴مراسم رسمی امضای توافق روز جمعه، ۱۹ ژوئن در سوئیس برگزار خواهد شد.
+
+
+🔴ما از ایالات متحده آمریکا و جمهوری اسلامی ایران به خاطر تعهدشان به یافتن راه‌حلی دیپلماتیک برای درگیری تشکر می‌کنیم. همچنین قدردانی صمیمانه خود را از برادرانمان در این تلاش میانجی‌گرانه، رهبری بزرگ دولت قطر، برای حمایتشان در دستیابی به این توافق ابراز می‌داریم. به‌ویژه از رهبری دوراندیش پادشاهی عربستان سعودی و جمهوری ترکیه به خاطر کمک‌های عظیمشان در این زمینه سپاسگزارم.
+
+
+🔴اکنون که توافق امضا شده است، میانجی‌گران مجموعه‌ای از جلسات را در این هفته تسهیل خواهند کرد. این گفت‌وگوهای پیش از اجرا، پایه‌گذار مذاکرات فنی و مراسم رسمی امضای توافق خواهد بود.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128023
+
+<div align="center">
+  <a href="telegram/content/alonews_128023_1781472175.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فووووووووووری/توافق رسمی شد
+
+
+🔴پایان جنگ اعلام شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128022
+
+<div align="center">
+  <a href="telegram/content/alonews_128022_1781472176.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: ایران در توافق پول نمی گیرد اما احتمالا تحریم ها از آن برداشته می شود و خواهیم دید که آنها چگونه رفتار خواهند کرد‌‌
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128021
+
+<div align="center">
+  <a href="telegram/content/alonews_128021_1781472176.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: «بعداً مسائل هسته‌ای را حل می‌کنیم» و افزود که «هیچ عجله‌ای نیست» و می‌توان ظرف یک یا دو ماه آینده به آن پرداخت
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128020
+
+<div align="center">
+  <a href="telegram/content/alonews_128020_1781472176.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کانال ۱۲ اسرائیل: از دید آمریکا علی خامنه‌ای مانع توافق بود که حذف شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128019
+
+<div align="center">
+  <a href="telegram/content/alonews_128019_1781472177.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: رهبران فعلی ایران بسیار منطقی تر از رهبران قبلی هستند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/25 00:42
 ---
 

@@ -7,6 +7,259 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/25 00:42
+---
+
+## VahidOOnLine — post 245562
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245562_1781471556.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهوری آمریکا، شامگاه یکشنبه همزمان با احتمال امضای یادداشت تفاهم میان جمهوری اسلامی و ایالات متحده، در شبکه تروت سوشال نوشت که جمهوری اسلامی هرگز به سلاح هسته‌ای دست نخواهد یافت و تنگه هرمز نیز به‌زودی برای تجارت باز خواهد شد.
+
+ترامپ در پیامی دیگر نوشت: «توافق ما دیواری در برابر دستیابی جمهوری اسلامی به سلاح هسته‌ای است؛ دقیقا برعکس توافق اوباما.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245561
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245561_1781471557.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس‌جمهوری آمریکا، با انتشار پیامی در شبکه اجتماعی «تروث سوشال»، بار دیگر مواضع سرسختانه واشنگتن در قبال توافق با تهران را تکرار کرد و نوشت: «ایران هرگز به سلاح هسته‌ای دست نخواهد یافت و تنگه هرمز نیز بسیار به‌زودی برای تجارت بازگشایی خواهد شد.» ترامپ این اظهارات را در جریان تقدیر از ویکتوریا کوتس، معاون اندیشکده محافظه‌کار «هریتیج» و مشاور سابق امنیت ملی خود مطرح کرد و افزود: «ویکتوریا کوتس واقعا فوق‌العاده است. او مسائل را طوری درک می‌کند که کمتر کسی قادر به فهم آن است. ممنون ویکتوریا.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14896
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ به وال استریت ژورنال گفت که قصد دارد به زودی بیانیه‌ای صادر کند و در آن توافق آمریکا با ایران را تأیید کند
+@withyashar
+ترامپ کله پوک: من علاقه‌ای به تغییر رژیم در ایران ندارم
+</div>
+
+## WithYashar — post 14895
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+توییت وزیر کشور پاکستان: الله اکبر
+@withyashar
+</div>
+
+## WithYashar — post 14894
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+میگن توافق امضا شد
+@withyashar
+</div>
+
+## pm_afshaa — post 93985
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93985_1781471557.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ امروز عصر به وال‌استریت ژورنال:
+قصد دارم به‌زودی بیانیه‌ای صادر کنم و تأیید کنم که با ایران به توافق رسیدیم؛ هرچند ایران هنوز تأیید نکرده که با این شرایط موافقت کنه.
+
+ترامپ گفت: توافق الکترونیکی توسط خودش یا معاونش JD Vance امضا خواهد شد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93984
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93984_1781471558.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴توییت وزیر کشور پاکستان: الله اکبر 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93983
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93983_1781471559.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴توییت وزیر کشور پاکستان: الله اکبر
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 342361
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342361_1781471559.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهوری آمریکا، شامگاه یکشنبه همزمان با احتمال امضای یادداشت تفاهم میان جمهوری اسلامی و ایالات متحده، در شبکه تروت سوشال نوشت که جمهوری اسلامی هرگز به سلاح هسته‌ای دست نخواهد یافت و تنگه هرمز نیز به‌زودی برای تجارت باز خواهد شد.
+
+ترامپ در پیامی دیگر نوشت: «توافق ما دیواری در برابر دستیابی جمهوری اسلامی به سلاح هسته‌ای است؛ دقیقا برعکس توافق اوباما.»
+https://iranintl.com/202606146911
+</div>
+
+## Shin_Persian — post 7079
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+laurence norman @laurnorman
+Sun, 14 Jun 2026 20:32:30 UTC
+
+It is now Monday in Tehran.
+On Saturday, they said not tomorrow for a deal. It’s no longer tomorrow.
+
+ترجمه خودکار فارسی
+
+اکنون در تهران دوشنبه است.
+روز شنبه، آن‌ها گفتند که فردا توافقی در کار نخواهد بود. حالا دیگر فردا نیست.
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 220725
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️در حالی که کی‌یر استارمرنخست وزیر بریتانیا و دونالد ترامپ در آستانه نشست گروه هفت درباره جمهوری اسلامی و روند مذاکرات تلفنی گفت‌وگو کرده‌اند، گزارش‌ها حاکی است رئیس‌جمهور آمریکا قصد دارد در دیدار حضوری با نخست‌وزیر بریتانیا، موضوع مهاجرت را هم مطرح کند.
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 17120
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_17120_1781471560.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨🇵🇰توییت وزیر کشور پاکستان: الله و اکبر!!!
+
+عده‌ای این توییت رو به معنی انجام توافق دونسته‌اند
+</div>
+
+## Persian_Trend_Official — post 17119
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_17119_1781471561.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻پرزیدنت ترامپ به وال استریت ژورنال گفت که قصد دارد به زودی بیانیه‌ای صادر کند و در آن توافق آمریکا با ایران را تأیید کند
+</div>
+
+## Persian_Trend_Official — post 17116
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17116_1781471561.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بیانیۀ جمعی از اعضای مجلس خبرگان رهبری و اساتید حوزۀ علمیه دربارۀ مذاکرات جاری بین ایران و آمریکا ا
+</div>
+
+## Dirty_Kids — post 392046
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392046_1781471562.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هوادار ژاپنی کاملا لخت شده که لباس تیم کشورشو روش با ماژیک بکشن،
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392044
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392044_1781471563.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ببخشید وسط فوتبال هلند و ژاپن مزاحم می‌شم،
+
+ولایتی قحبه که جونش داره از کونش درمیاد و با مصرف همزمان صنعتی‌سنتی زنده‌ست، اسرائیل‌رو تهدید کرده.
+
+ببینیم روافض می‌تونه سرشو بخوره یا نه.
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 128018
+
+<div align="center">
+  <a href="telegram/content/alonews_128018_1781471563.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: توافق ما شامل تعهد ایران به نداشتن سلاح اتمی و باز کردن تنگه هرمز است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128017
+
+<div align="center">
+  <a href="telegram/content/alonews_128017_1781471564.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری/ترامپ: امضای توافق احتمالا توسط خودم انجام خواهد شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128016
+
+<div align="center">
+  <a href="telegram/content/alonews_128016_1781471564.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری/ترامپ:
+علاقه‌ای به تغییر رژیم در ایران نداشته و ندارم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128015
+
+<div align="center">
+  <a href="telegram/content/alonews_128015_1781471564.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری/ترامپ: بزودی یک بیانیه خواهم داد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128014
+
+<div align="center">
+  <a href="telegram/content/alonews_128014_1781471564.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈توییت وزیر کشور پاکستان: الله اکبر
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/25 00:32
 ---
 

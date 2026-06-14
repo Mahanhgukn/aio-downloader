@@ -7,6 +7,245 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/24 22:33
+---
+
+## VahidOOnLine — post 245538
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245538_1781463802.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری تسنیم، رسانه وابسته به سپاه پاسداران، گزارش داد پروازهای فرودگاه‌های غرب ایران تا اطلاع ثانوی لغو شده است. این رسانه نوشت این تصمیم در پی «شرایط موجود» اتخاذ شده است.
+
+تسنیم جزییات بیشتری درباره علت لغو پروازها یا زمان احتمالی ازسرگیری آن‌ها منتشر نکرد.
+
+همزمان، داده‌های پروازی وب‌سایت فلایت‌رادار در حدود ساعت ۲۲:۱۵ به وقت تهران نشان داد آسمان ایران تقریبا خالی است و تنها یک پرواز از مبدا تهران به سوی شمال غرب در حال حرکت است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245537
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245537_1781463803.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️خبرگزاری تسنیم، وابسته به سپاه پاسداران، شامگاه دوشنبه ۲۴ خرداد ماه، در خبری اعلام کرد پروازهای فرودگاه‌های غرب کشور «تا اطلاع ثانوی» لغو شده است.
+این خبرگزاری حکومتی با ذکر آنکه «این تصمیم در پی شرایط موجود اتخاذ شده است» نوشت، با وجود اجرای این محدودیت، تاکنون نوتام (اطلاعیه هوانوردی) رسمی درباره لغو پروازها در فرودگاه‌های غرب کشور صادر نشده است.
+این خبر در حالی منتشر می‌شود که محمدباقر ذوالقدر، دبیر شورای عالی امنیت ملی، پیشتر در واکنش به حمله اسرائیل به ضاحیه جنوبی بیروت اعلام کرده بود: «پاسخ رزمندگان اسلام در پیش است».
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14868
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👻
+</div>
+
+## WithYashar — post 14867
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هیچ نوتام جدیدی درباره محدودیت پروازی صادر نشده است
+
+مجید اخوان، سخنگوی سازمان هواپیمایی کشوری در گفتگو با خبرنگار مهر درباره برخی اخبار منتشرشده در فضای مجازی مبنی بر صدور نوتام جدید برای محدودیت پروازی در فضای هوایی کشور، اظهار کرد: هیچ‌گونه نوتام جدیدی در این خصوص صادر نشده است.
+نوتام مربوط به محدودیت پروازی در غرب کشور، همان نوتام قبلی است و اطلاعیه جدیدی در این زمینه صادر نشده است.
+@withyashar
+</div>
+
+## WithYashar — post 14866
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تسنیم گفت ایران با هشدار NOTAM پروازهای فرودگاه‌های غرب کشور تا اطلاع ثانوی لغو شده است. این تصمیم در پی شرایط موجود اتخاذ شده است. @withyashar
+</div>
+
+## mwarmonitor — post 10914
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴باقر تویتری ؛ هرگز نمی‌توانند هیچ بخشی از ارکان مقاومت را تک و تنها گیر بیاورند؛ مجاهدت‌های رزمندگان غیور لبنان و دیپلماسی مقتدرانهٔ جمهوری اسلامی ایران حاکمیت و تمامیت ارضی لبنان عزیز را تضمین می‌کند و بساط دیوانه‌بازی و جنگ‌افروزی رژیم اسرائیل را بر هم خواهد زد، بچرخ تا بچرخیم.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10913
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_10913_1781463803.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✈️🔴«لغو تمام پروازها و بسته شدن حریم هوایی در غرب ایران» @mwarmonitor
+</div>
+
+## mwarmonitor — post 10912
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+❌در پایان هفته گذشته: ارتش اسرائیل علی موسى دقدوق — یکی از فرماندهان ارشد سازمان تروریستی حزب‌الله و فرمانده پیشین «پرونده جولان» — را در جنوب لیتانی به هلاکت رساند ⭕️ارتش اسرائیل در پایان هفته (جمعه) در جنوب لبنان حمله کرد و تروریست علی موسى دقدوق — فرمانده…
+</div>
+
+## pm_afshaa — post 93958
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93958_1781463804.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سناتور لیندسی گراهام:
+از ارتش اسرائیل و همه کسانی که در حذف این تروریست (علی موسی دقوق) نقش داشتن تشکر میکنم.
+
+اسرائیل بهترین دوست آمریکا و نعمتی برای امنیت ملی این کشور است.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93957
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وای نت:نتانیاهو درخواست‌های ترامپ برای توقف آتش‌بس علیه لبنان و عقب‌نشینی نیروهای ارتش اسرائیل از این کشور را رد کرد 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## VahidOnline — post 76342
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76342_1781463805.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری تسنیم و صدا و سیما:
+پروازهای فرودگاه‌های غرب کشور تا اطلاع ثانوی لغو شده است.
+
+این تصمیم در پی شرایط موجود اتخاذ شده است.
+
+سازمان هواپیمایی تا این لحظه هیچ نوتامی منتشر نکرده است.
+
+خبرگزاری مهر:
+هیچ نوتام جدیدی درباره محدودیت پروازی صادر نشده است
+
+🔺مجید اخوان، سخنگوی سازمان هواپیمایی کشوری در گفتگو با خبرنگار مهر درباره برخی اخبار منتشرشده در فضای مجازی مبنی بر صدور نوتام جدید برای محدودیت پروازی در فضای هوایی کشور، اظهار کرد: هیچ‌گونه نوتام جدیدی در این خصوص صادر نشده است.
+
+🔺نوتام مربوط به محدودیت پروازی در غرب کشور، همان نوتام قبلی است و اطلاعیه جدیدی در این زمینه صادر نشده است.
+
+📡 @VahidOnline
+</div>
+
+## kianmeli1 — post 87995
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فرودگاه مهراباد تهران در حال تخلیه شدن است
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 342341
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342341_1781463805.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻تیم ملی فوتبال آلمان در نخستین مسابقه خود در جام جهانی ۲۰۲۶ با نتیجه ۱-۷ برابر کوراسائو به پیروزی رسید. انمچا، اشلوتربک، موسیالا، براون، اونداو و هاورتس (دو بار) برای شاگردان ناگلزمن گلزنی کردند و لیوانو کومننسیا نیز در نیمه اول تک گل تاریخی تیمش را وارد دروازه مانوئل نویر کرد.
+
+🔹آلمان با این نتیجه در صدر جدول گروه E قرار گرفت. ساحل عاج و اکوادور دو حریف دیگر آلمان در این گروه خواهند بود.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 342339
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342339_1781463806.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری تسنیم، رسانه وابسته به سپاه پاسداران، گزارش داد پروازهای فرودگاه‌های غرب ایران تا اطلاع ثانوی لغو شده است. این رسانه نوشت این تصمیم در پی «شرایط موجود» اتخاذ شده است.
+
+تسنیم جزییات بیشتری درباره علت لغو پروازها یا زمان احتمالی ازسرگیری آن‌ها منتشر نکرد.
+
+همزمان، داده‌های پروازی وب‌سایت فلایت‌رادار در حدود ساعت ۲۲:۱۵ به وقت تهران نشان داد آسمان ایران تقریبا خالی است و تنها یک پرواز از مبدا تهران به سوی شمال غرب در حال حرکت است.
+https://iranintl.com/202606141075
+</div>
+
+## Iliaen — post 4483
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ساعت ۲۲:۲۰ یکشنبه؛ برخی از پروازها در آسمان مرکز ایران به صورت ناگهانی به سمت شمال کشور تغییر مسیر دادند. @iliaen
+</div>
+
+## FarsiVOA — post 220715
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220715_1781463806.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📸اینستاگرام صدای آمریکا را هم اکنون فالو کنید تا از آخرین خبرها مطلع بمانید:
+https://www.instagram.com/voafarsi/
+
+📡همچنین جهت اطلاع از بروزترین فرکانسهای ماهواره‌ای صدای آمریکا به لینک زیر مراجعت فرمایید:
+https://ir.voanews.com/satellite
+
+این پست را با دوستانتان به اشتراک بگذارید
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220714
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺بسته‌شدن حریم هوایی ایران در پی تهدید شدن اسرائیل از سوی جمهوری اسلامی
+
+◾️بر اساس داده‌های ردیابی پرواز در روز یکشنبه، حریم هوایی ایران بسته شده است.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/iran-airspace-closed-before-attack/8160724.html
+</div>
+
+## Persian_Trend_Official — post 17099
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_17099_1781463807.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قالیباف خطاب به اسرائیل: بچرخ تا بچرخیم!
+
+رئیس هیئت مذاکره‌کننده جمهوری اسلامی: هرگز نمی‌توانند هیچ بخشی از ارکان مقاومت را تک و تنها گیر بیاورند؛ مجاهدت‌های رزمندگان لبنان و دیپلماسی مقتدرانه جمهوری اسلامی ایران حاکمیت و تمامیت ارضی لبنان عزیز را تضمین می‌کند و بساط دیوانه‌بازی و جنگ‌افروزی رژیم اسرائیل را بر هم خواهد زد، بچرخ تا بچرخیم.
+
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17098
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال رسمی پرشین ترند pinned «https://youtube.com/live/suzEnh0ejFw?feature=share»
+</div>
+
+## IranianMinds — post 22585
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 تسنیم :
+
+حریم هوایی غرب کشور‌ تا اطلاع ثانوی بسته شد.
+
+@IranianMinds
+</div>
+
+---
 📅 بروزرسانی: 1405/03/24 22:24
 ---
 

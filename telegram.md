@@ -7,6 +7,146 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/24 17:14
+---
+
+## VahidOOnLine — post 245476
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245476_1781444644.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فاطمه مهاجرانی، سخنگوی دولت جمهوری اسلامی، با انتقاد از حملات برخی جریان‌ها به تیم مذاکره‌کننده گفت تصمیم‌گیری درباره تفاهم احتمالی با آمریکا در سطح «نظام و حاکمیت» انجام می‌شود و حمله به مذاکره‌کنندگان، حمله به یک «تصمیم ملی» است.
+او در گفت‌وگو با ایرنا از محمدباقر قالیباف، رییس مجلس جمهوری اسلامی، و عباس عراقچی، وزیر امور خارجه، دفاع کرد و گفت هر دو سابقه دفاع از «منافع ملی» را دارند.
+مهاجرانی افزود: «دیپلماسی در برابر میدان نیست، بلکه ادامه میدان است» و افزود مذاکره از موضع اقتدار به معنای عقب‌نشینی نیست.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14814
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ بیدار شد
+@withyashar
+</div>
+
+## WithYashar — post 14813
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+الحدث: علی الحاج، از فرماندهان ارشد حزب‌الله در حمله به ضاحیه بیروت هدف قرار گرفت. تداوم ضربات سنگین به بدنه فرماندهی گروه‌های نیابتی رژیم ایران در لبنان. @withyashar
+</div>
+
+## WithYashar — post 14812
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+الحدث: علی الحاج، از فرماندهان ارشد حزب‌الله در حمله به ضاحیه بیروت هدف قرار گرفت.
+تداوم ضربات سنگین به بدنه فرماندهی گروه‌های نیابتی رژیم ایران در لبنان.
+@withyashar
+</div>
+
+## mwarmonitor — post 10867
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نماینده آمریکا در سازمان ملل به شبکه ABC: رئیس‌جمهور ترامپ و معاون او کاملاً مصمم هستند که امروز این توافق را امضا کنند.
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 342955
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342955_1781444645.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+New York City descends into chaos after the Knicks won the NBA championship over the San Antonio Spurs.
+
+Footage captured firefighters desperately trying to extinguish a school bus engulfed in flames in Times Square as rowdy fans chanted, “Knicks in five!"
+</div>
+
+## IranIntlTV — post 342272
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342272_1781444648.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فاطمه مهاجرانی، سخنگوی دولت جمهوری اسلامی، با انتقاد از حملات برخی جریان‌ها به تیم مذاکره‌کننده گفت تصمیم‌گیری درباره تفاهم احتمالی با آمریکا در سطح «نظام و حاکمیت» انجام می‌شود و حمله به مذاکره‌کنندگان، حمله به یک «تصمیم ملی» است.
+او در گفت‌وگو با ایرنا از محمدباقر قالیباف، رییس مجلس جمهوری اسلامی، و عباس عراقچی، وزیر امور خارجه، دفاع کرد و گفت هر دو سابقه دفاع از «منافع ملی» را دارند.
+مهاجرانی افزود: «دیپلماسی در برابر میدان نیست، بلکه ادامه میدان است» و افزود مذاکره از موضع اقتدار به معنای عقب‌نشینی نیست.
+https://iranintl.com/202606145685
+</div>
+
+## FarsiVOA — post 220683
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220683_1781444648.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گروهی از بازنشستگان در تهران، روز یکشنبه، ۲۴ خرداد ۱۴۰۵، با شعار «معیشت، منزلت، حق مسلم ماست» در اعتراض به شرایط دشوار معیشتی تجمع کردند.
+
+این اعتراض‌ها در شرایطی ادامه دارد که گزارش‌های رسمی از تداوم تورم سنگین در ایران حکایت دارد. در ماه‌های اخیر، افزایش قیمت مواد غذایی، اجاره مسکن، دارو و خدمات درمانی فشار بیشتری بر بازنشستگان و مستمری‌بگیران وارد کرده است؛ گروهی که بخش بزرگی از درآمد آنان به هزینه‌های درمان، اجاره‌خانه و نیازهای روزمره اختصاص می‌یابد.
+</div>
+
+## Persian_Trend_Official — post 17056
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبکه العربیه: یک مقام ارشد حزب‌الله، علی الحاج، در حمله ارتش اسرائیل به ضاحیه بیرت کشته شد.
+
+همچنین کانال 12 اسرائیل ادعا کرد هدف حمله امروز فرمانده واحد ارتباط حزب‌الله بوده است.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 22557
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴موسوی، سخنگوی پیشین هیئت رئیسه مجلس:
+
+هدف حمله امروز اسرائیل به ضاحیه بیروت، درست در روزی که قرار است توافق امضاء بشود، تحقیر جمهوری اسلامی بود.
+
+@IranianMinds
+</div>
+
+## alonews — post 127884
+
+<div align="center">
+  <a href="telegram/content/alonews_127884_1781444651.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خبرنگار الجزیره:
+بر اساس آنچه چند روز پیش نوشتم، و با توجه به ابعاد تازه لبنان، افزایش مخالفت‌ها در داخل ایران با توافق، تردیدهای مداوم در مورد تعهد واشنگتن به تعهداتش، تغییر مواضع دونالد ترامپ هر روز و اصرار اسرائیل بر شرایط غیرممکن خود، هرگونه توافقی بین واشنگتن و تهران بیشتر شبیه یک سراب است.
+
+
+🔴در دوردست‌ها به نظر می‌رسد و نشان می‌دهد که رسیدن به آن فقط مسئله زمان است. سپس محو می‌شود.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127882
+
+<div align="center">
+  <a href="telegram/content/alonews_127882_1781444652.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تتر هم اکنون 173000تومان
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/24 17:04
 ---
 

@@ -7,6 +7,347 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/24 16:13
+---
+
+## VahidOOnLine — post 245466
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245466_1781441037.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وب‌سایت اکسیوس گزارش داد ارتش اسرائیل اندکی پیش از حمله به منطقه ضاحیه بیروت، فرماندهی مرکزی آمریکا (سنتکام) را از این عملیات مطلع کرده بود.
+
+ارتش اسرائیل پیش‌تر در بیانیه‌ای اعلام کرد در واکنش به شلیک پرتابه از سوی حزب‌الله به شمال اسرائیل و نقض آتش‌بس از سوی این گروه تحت حمایت جمهوری اسلامی، یکی از مقرهای حزب‌الله را در ضاحیه بیروت به طور دقیق هدف قرار داده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245465
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245465_1781441038.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وب‌سایت اکسیوس گزارش داد ارتش اسرائیل اندکی پیش از حمله به منطقه ضاحیه بیروت، فرماندهی مرکزی آمریکا (سنتکام) را از این عملیات مطلع کرده بود.
+
+ارتش اسرائیل پیش‌تر در بیانیه‌ای اعلام کرد در واکنش به شلیک پرتابه از سوی حزب‌الله به شمال اسرائیل و نقض آتش‌بس از سوی این گروه تحت حمایت جمهوری اسلامی، یکی از مقرهای حزب‌الله را در ضاحیه بیروت به طور دقیق هدف قرار داده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245464
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245464_1781441039.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عبدالاله الحجر، مشاور رییس شورای عالی سیاسی حوثی‌های یمن تحت حمایت جمهوری اسلامی، به خبرگزاری تسنیم، وابسته به سپاه پاسداران گفت در صورت تشدید تنش‌ها و در صورت لزوم، حوثی‌ها ممکن است از بستن تنگه باب‌المندب به عنوان ابزاری برای فشار بر دشمنان خود استفاده کنند.
+
+او گفت حوثی‌های یمن پیش‌تر نیز تجربه بستن این آبراه به روی کشتی‌های مرتبط با اسرائیل را داشتند و در صورت نیاز، این اقدام را «به شکلی حساب‌شده» تکرار خواهند کرد.
+
+تسنیم در گزارشی از صنعا نوشت باب‌المندب یکی از مسیرهای اصلی انتقال انرژی و تجارت جهانی است و بسته شدن آن می‌تواند بر زنجیره تامین کالا و قیمت انرژی در جهان تاثیر بگذارد.
+
+حوثی‌های یمن از زمان آغاز جنگ غزه پس از حادثه هفتم اکتبر بارها کشتی‌های مرتبط با اسرائیل و برخی شناورهای تجاری را در دریای سرخ و تنگه باب‌المندب هدف قرار دادند؛ حملاتی که با واکنش نظامی آمریکا و متحدانش همراه شده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14799
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فاکس‌نیوز: یک دیپلمات حاضر در روند مذاکرات گفته حمله اسرائیل به بیروت فعلاً توافقات رو به گره انداخته و به همین خاطر امضای توافق تا این لحظه انجام نشده.
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342954
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌Fox News (Twitter/X)
+
+👉 Full story here:
+</div>
+
+## FoxNewsTwitter — post 342953
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342953_1781441040.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NO KINGS: A coalition of 400 organizations with $3 billion in combined revenue rolls out a rival fight card to Trump's UFC Freedom 250 — staging nationwide protests, a Jane Fonda concert, and a professionally coordinated operation designed to funnel protest energy into midterm election organizing. Internal toolkits obtained by Fox News Digital's reveal watch parties are 'strategic community gatherings' built to collect contacts, recruit organizers, and schedule follow-up meetings long after June 14.
+</div>
+
+## pm_afshaa — post 93886
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93886_1781441041.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فاکس نیوز: حملات اسرائیل به بیروت نهایی کردن مذاکرات رو پیچیده کرد!
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93885
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ستاد قرارگاه تروریستی خاتم‌الانبیا در واکنش به حمله اسرائیل به ضاحیه اعلام کرد: حمله اسرائیلی ها به ضاحیه بی‌پاسخ نخواهد ماند
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93884
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93884_1781441042.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴قالیباف: تجاوز به بیروت نشان داد آمریکا اراده یا قدرت اجرای تعهدات خودش رو نداره. اگه همچین قدرتی ندارید، سخن گفتن از ادامه مسیر ممکن نیست.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93883
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93883_1781441042.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴باراک راوید، خبرنگاه آکسیوس به نقل از مقامات اسرائیلی: ما قبل از انجام حملات به حومه جنوبی بیروت آمریکا رو مطلع کردیم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5676
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5676_1781441043.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🛩️ 
+🔥 انهدام تأسیسات نفتی روسیه با پهپادهای اوکراینی
+
+ولودیمیر زلنسکی رئیس جمهوری اوکراین با انتشار ویدیویی از حملات پهپادی اوکراین به تأسیسات نفتی روسیه، اعلام کرد نقاطی که هدف قرار گرفت در فاصله ۷۰۰ کیلومتری از خاک اوکراین قرار داشت.
+در این مخازن نفتی منطقه یاروسلاول روسیه هدف قرار گرفت.
+او در ایکس نوشت: نیروهای ارتش ما همچنین به اهداف خود در منطقه تولا در روسیه دست یافتند؛ به‌طور مشخص، کارخانه «آزوت» که فعالیت آن برای توانایی تولید مواد منفجره اهمیت حیاتی دارد، مورد اصابت قرار گرفت.
+زلنسکی افزود: اوکراین در حال اجرای برنامه خود برای اعمال فشار و حملات دوربرد علیه روسیه و همچنین انجام مأموریت‌های تعیین‌شده مربوط به حملات میان‌برد در پاسخ به امتناع روسیه از پایان دادن به این جنگ است.
+
+#اوکراین #روسیه #پهپاد
+
+@DEJradio
+</div>
+
+## DEJradio — post 5675
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5675_1781441046.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔥
+🚨 ارتش اسرائیل مواضع تروریست‌های حزب‌الله در ضاحیه بیروت را بمباران کرد. در این حملات شماری از فرماندهن و نیروهای این گروه کشته و زخمی شدند. ساعت‌ها پیش از این حمله دستور تخلیه چندین محله صادر شده بود. #اسرائیل #ضاحیه #لبنان @DEJradio
+</div>
+
+## DEJradio — post 5674
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️🏆 جام‌جهانی ۲۰۲۶؛
+لس‌آنجلس؛ وی‌آی‌پی کم‌نظیر استادیوم گرانقیمت "سوفای"
+
+سوفای SoFi یک شرکت فناوری مالی آمریکایی است. این شرکت که در سال ۲۰۱۱ در دانشگاه استنفورد تأسیس شد، به عنوان یک بانک مستقیم فعالیت می‌کند و پلتفرم فناوری خود را در اختیار سایر موسسات مالی قرار می‌دهد. سوفی بزرگ‌ترین وام دهنده آنلاین در ایالات متحده است.
+
+در بخش وی‌آی‌پی این استادیوم از تماشاگران با انواع غذاها، نوشیدنی‌ها و دسرها پذیرایی می‌شوند.
+
+#جام_جهانی #سوفای #فوتبال
+@DEJradio
+</div>
+
+## DEJradio — post 5673
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5673_1781441048.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔥
+🚨 ارتش اسرائیل مواضع تروریست‌های حزب‌الله در ضاحیه بیروت را بمباران کرد. در این حملات شماری از فرماندهن و نیروهای این گروه کشته و زخمی شدند. ساعت‌ها پیش از این حمله دستور تخلیه چندین محله صادر شده بود.
+
+#اسرائیل #ضاحیه #لبنان
+@DEJradio
+</div>
+
+## kianmeli1 — post 87985
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87985_1781441051.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴توییت قالیباف
+
+‏تجاوز صهیونیست‌ها به ضاحیه باردیگر نشان داد آمریکا یا اراده‌ای برای اجرای تعهدات خود ندارد یا توان آن را. با چراغ سبز نشان دادن به رژیم نمی‌توانید امتیاز بگیرید. بازی پلیس بد و پلیس خوب قدیمی شده است.
+‏اگر اراده و توان اجرای تعهدات خود را ندارید، سخن گفتن از ادامه مسیر ممکن نیست.
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 342259
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342259_1781441052.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وب‌سایت اکسیوس گزارش داد ارتش اسرائیل اندکی پیش از حمله به منطقه ضاحیه بیروت، فرماندهی مرکزی آمریکا (سنتکام) را از این عملیات مطلع کرده بود.
+
+ارتش اسرائیل پیش‌تر در بیانیه‌ای اعلام کرد در واکنش به شلیک پرتابه از سوی حزب‌الله به شمال اسرائیل و نقض آتش‌بس از سوی این گروه تحت حمایت جمهوری اسلامی، یکی از مقرهای حزب‌الله را در ضاحیه بیروت به طور دقیق هدف قرار داده است.
+https://iranintl.com/202606140903
+</div>
+
+## Persian_Trend_Official — post 17052
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_17052_1781441052.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بسسسسسسسه حاج باقر
+کشتیش 😄
+انقدر قاطعیت هم دیگه خوب نیست !
+</div>
+
+## Persian_Trend_Official — post 17051
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/persian_trend_official/17044?comment=670219
+
+
+نه داداش تا امضای من پای توافق نباشه نمیزارم هیچ چیزی امضا بشه ! الانم به بنیامین گفتم ضاحیه رو بزنه به سپاه هم گفتم دوباره جواب بده
+دارم فکر میکنم بعدش بگم چیکار کنن 😒
+</div>
+
+## Persian_Trend_Official — post 17050
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17050_1781441053.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قالیباف: پس از چراغ سبز آمریکا به رژیم برای تجاوز به ضاحیه، سخن گفتن از ادامه مسیر ممکن نیست!
+
+رئیس مجلس شورای اسلامی در پستی در حساب شخصی خود در شبکه X: تجاوز صهیونیست‌ ها به ضاحیه بار دیگری نشان داد آمریکا یا اراده‌ای برای اجرای تعهدات خود ندارد یا توان آن را. با چراغ سبز نشان دادن به رژیم نمی‌توانید امتیاز بگیرید. بازی پلیس بد و پلیس خوب قدیمی شده است. اگر اراده و توان اجرای تعهدات خود را ندارید، سخن گفتن از ادامه مسیر ممکن نیست.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17049
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17049_1781441054.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سخنگوی ارتش اسرائیل: در یک حمله دقیق در ضاحیه، بیروت ارتش اسرائیل به مقر سازمان تروریستی حزب الله حمله کرد. ارتش اسرائیل اخیراً به مقر سازمان تروریستی حزب الله در بیروت حمله کرد. مقر مورد حمله توسط تروریست‌های سازمان تروریستی حزب الله برای پیشبرد توطئه‌های…
+</div>
+
+## IranianMinds — post 22553
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22553_1781441055.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴اسدی، معاون بازرسی قرارگاه خاتم‌الانبیاء:
+
+بدون شک این جنایات اسرائیل بدون پاسخ نمی‌ماند.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 283794
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283794_1781441055.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻میرحسین موسوی هنوز در بیمارستان است و نیروهای امنیتی هم حضور دارند.
+
+یک منبع نزدیک به خانواده میرحسین موسوی به بی‌بی‌سی فارسی گفت رفع حصر «هنوز در حد شایعه» است.
+
+در هفته‌های اخیر اخبار تایید نشده‌ای از رفع حصر میرحسین موسوی و همسرش زهرا رهنورد منتشر شده است.
+
+یک منبع نزدیک به خانواده میرحسین موسوی گفت که پس از حمله آمریکا و اسرائیل به منطقه پاستور در روز اول جنگ، میرحسین موسوی و زهرا رهنورد از خانه‌شان در خیابان پاستور به جای دیگری منتقل شدند اما جایشان معلوم نبود و فقط می‌توانستند با فرزندانشان برای تهیه لباس تماس بگیرند.
+
+به گفته این فرد مطلع، شدت انفجار به‌حدی بود که در و پنجره‌های خانه آقای موسوی آسیب دید و آوار ساختمان بغلی روی خودرویی که در خانه آنها پارک بود ریخت.
+
+در طول جنگ ۴۰ روزه چندین بار به منطقه پاستور حمله شد و بر اثر این حملات خانه به‌حدی آسیب دید که وقتی فرزندان آقای موسوی و خانم رهنورد با اجازه نهادهای امنیتی برای انتقال نقاشی‌ها و کتاب‌ها و اثاثیه دیگر به خانه مراجعه کردند، دیدند که گربه‌ها در خانه ساکن شد‌ه‌اند.
+
+📸 کلمه
+
+https://bbc.in/4fEONCy
+@BBCPersian
+</div>
+
+## alonews — post 127869
+
+<div align="center">
+  <a href="telegram/content/alonews_127869_1781441056.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈آمیت سگال خبرنگار اسرائیلی: رهبر حزب الله با موفقیت حذف شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127868
+
+<div align="center">
+  <a href="telegram/content/alonews_127868_1781441057.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تصویر عجیب منتشر شده از عراقچی در ایتا
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127867
+
+<div align="center">
+  <a href="telegram/content/alonews_127867_1781441057.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈قالیباف : تجاوز صهیونیست‌ها به ضاحیه دوباره ثابت کرد که آمریکا یا اراده‌ای برای اجرای تعهداتش نداره
+
+- یا توانش رو با چراغ سبز دادن به رژیم نمی‌شه امتیاز گرفت
+
+- بازی پلیس بد و پلیس خوب هم دیگه قدیمی شده
+
+- اگه نه اراده دارید نه توان اجرای تعهداتتون، حرف از ادامه مسیر بی‌معناست
+
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/24 16:03
 ---
 

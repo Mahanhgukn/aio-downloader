@@ -7,6 +7,329 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/25 02:12
+---
+
+## VahidOOnLine — post 245576
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245576_1781476943.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهوری آمریکا، در پیامی در شبکه تروت سوشال نوشت که با امضای یادداشت تفاهم میان واشینگتن و تهران در روز جمعه و آغاز عملیات پاکسازی مین‌ها، تنگه هرمز بازگشایی خواهد شد و جریان نفت بار دیگر در منطقه و بازارهای جهانی از هر دو سو برقرار خواهد شد.
+
+ترامپ تاکید کرد این تفاهم صلح و امنیت را برای سراسر منطقه به همراه خواهد داشت.
+
+ترامپ با اشاره به تلاش‌های پیشین دولت‌های آمریکا برای توافق با جمهوری اسلامی نوشت: «بسیاری از روسای جمهوری تلاش کردند با ایران به صلح برسند، اما همگی پیش از من شکست خوردند.»
+
+او همچنین گفت رهبران منطقه برای نخستین بار با رییس‌جمهوری مواجه شده‌اند که می‌تواند به دستیابی به «صلحی واقعی» کمک کند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245575
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245575_1781476943.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جی‌دی ونس، معاون رییس‌جمهوری آمریکا، به شبکه خبری فاکس گفت: «بر اساس توافق حاصل‌شده میان واشینگتن و تهران، ایران به طور دائمی از دستیابی به سلاح هسته‌ای منع خواهد شد.»
+
+او افزود: «تنگه هرمز بلافاصله بازگشایی می‌شود و محاصره دریایی آمریکا پایان خواهد یافت.»
+
+به گفته معاون رییس‌جمهوری آمریکا، با اجرای این توافق، زمینه برای سرمایه‌گذاری‌های گسترده در منطقه فراهم خواهد شد.
+
+ونس در عین حال تاکید کرد اجرای این توافق به پایبندی جمهوری اسلامی به تعهداتش بستگی دارد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14926
+
+
+
+
+## WithYashar — post 14925
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شعار مرگ بر آمریکا دیگه کنگله
+@withyashar
+</div>
+
+## pm_afshaa — post 94024
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94024_1781476944.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴قرارگاه خاتم‌الانبیا:
+مردم ایران و نیروهای مسلح با تحمیل اراده خود به آمریکا و اسرائیل، ثابت کردن دشمن راهی جز پذیرش شکست نداره.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94023
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_94023_1781476944.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قالیباف عراقچی، پس کون پاره‌ام چی!؟
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 342375
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342375_1781476945.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهوری آمریکا، در پیامی در شبکه تروت سوشال نوشت که با امضای یادداشت تفاهم میان واشینگتن و تهران در روز جمعه و آغاز عملیات پاکسازی مین‌ها، تنگه هرمز بازگشایی خواهد شد و جریان نفت بار دیگر در منطقه و بازارهای جهانی از هر دو سو برقرار خواهد شد.
+
+ترامپ تاکید کرد این تفاهم صلح و امنیت را برای سراسر منطقه به همراه خواهد داشت.
+
+ترامپ با اشاره به تلاش‌های پیشین دولت‌های آمریکا برای توافق با جمهوری اسلامی نوشت: «بسیاری از روسای جمهوری تلاش کردند با ایران به صلح برسند، اما همگی پیش از من شکست خوردند.»
+
+او همچنین گفت رهبران منطقه برای نخستین بار با رییس‌جمهوری مواجه شده‌اند که می‌تواند به دستیابی به «صلحی واقعی» کمک کند.
+https://iranintl.com/202606145048
+</div>
+
+## IranIntlTV — post 342374
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342374_1781476945.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جی‌دی ونس، معاون رییس‌جمهوری آمریکا، به شبکه خبری فاکس گفت: «بر اساس توافق حاصل‌شده میان واشینگتن و تهران، ایران به طور دائمی از دستیابی به سلاح هسته‌ای منع خواهد شد.»
+
+او افزود: «تنگه هرمز بلافاصله بازگشایی می‌شود و محاصره دریایی آمریکا پایان خواهد یافت.»
+
+به گفته معاون رییس‌جمهوری آمریکا، با اجرای این توافق، زمینه برای سرمایه‌گذاری‌های گسترده در منطقه فراهم خواهد شد.
+
+ونس در عین حال تاکید کرد اجرای این توافق به پایبندی جمهوری اسلامی به تعهداتش بستگی دارد.
+https://iranintl.com/202606148766
+</div>
+
+## Shin_Persian — post 7086
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sun, 14 Jun 2026 22:41:12 UTC
+
+IRGC-owned Tasnim:
+
+"The Strait of Hormuz reopening will commence after Friday's deal/agreement signing."
+
+ترجمه خودکار فارسی
+
+تسنیم، متعلق به سپاه پاسداران انقلاب اسلامی:
+
+«بازگشایی تنگه هرمز پس از امضای توافق/قرارداد روز جمعه آغاز خواهد شد.»
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 7085
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sun, 14 Jun 2026 22:37:03 UTC
+
+I’m going to turn off my POTUS-posts bot, guess it’s not going to be necessary at this point
+
+ترجمه خودکار فارسی
+
+من ربات پست‌های رئیس‌جمهور ایالات متحده (POTUS) را خاموش خواهم کرد، حدس می‌زنم در این مرحله دیگر نیازی به آن نباشد.
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 220735
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️هیجان فوتبال در قلب واشنگتن؛ شور و حال هواداران فوتبال در مسابقات این هفته
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220734
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220734_1781476946.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️دونالد ترامپ ترامپ، رئيس جمهوری آمریکا در پستی در تروت‌سوشال درباره توافق با جمهوری اسلامی گفت «این توافق بزرگ»، صلح و امنیت را برای کل منطقه به ارمغان خواهد آورد.
+او گفت بسیاری از روسای جمهوری آمریکا تلاش کرده‌اند با جمهوری اسلامی ایران صلح کنند «و همه قبل از من شکست خورده‌اند. رهبران منطقه برای اولین بار رئیس جمهوری پیدا کرده‌اند که می‌تواند به آنها در دستیابی به صلح واقعی کمک کند.»
+او تصریح کرد که «با باز شدن تنگه هرمز پس از امضای توافق در روز جمعه، به منظور مین‌روبی، نفت دوباره از هر دو طرف برای منطقه و جهان جریان خواهد یافت!»
+@FarsiVOA
+</div>
+
+## IranianMinds — post 22607
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22607_1781476946.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ :
+
+این توافق بزرگ، صلح و امنیت رو به کل منطقه برمی‌گردونه. رئیس‌جمهورهای زیادی تلاش کردن با ایران صلح کنن، اما همه قبل از من شکست خوردن.
+
+رهبران منطقه برای اولین بار رئیس‌جمهوری رو پیدا کردن که می‌تونه بهشون کمک کنه به یه صلح واقعی برسن.
+
+با امضای این توافق در روز جمعه، تنگه برای پاکسازی مین‌ها باز می‌شه؛ این یعنی نفت دوباره از هر دو طرف برای منطقه و کل دنیا سرازیر خواهد شد!
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22606
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22606_1781476947.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 392066
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392066_1781476948.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ریدممممم 🤣🤣🤣🤣🤣
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 128075
+
+<div align="center">
+  <a href="telegram/content/alonews_128075_1781476948.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴توافق جمهوری اسلامی با پیمان ابراهیم رو پشت دست در نظر بگیرید.
+
+
+✅@AloNews
+</div>
+
+## alonews — post 128074
+
+<div align="center">
+  <a href="telegram/content/alonews_128074_1781476948.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈یک سوال از فروشندگان و واردکنندگان حلال خور و مسئولین با کفایت:
+
+اجناس وارداتی که به بهانه محاصره قیمتشان تا سه برابر افزایش یافته بود به قیمت قبل باز خواهد گشت؟
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128073
+
+<div align="center">
+  <a href="telegram/content/alonews_128073_1781476949.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈طبق یادداشت تفاهم بین آمریکا و ایران، پس از توافق نهایی نیروهای آمریکایی باید از محیط پیرامونی ایران خارج شوند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128072
+
+<div align="center">
+  <a href="telegram/content/alonews_128072_1781476949.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈جی‌دی ونس، معاون رئیس‌جمهور:
+
+اگر ایرانیان به این توافق پایبند باشند، این موضوع خاورمیانه را برای ۵۰ سال آینده به‌طور بنیادین دگرگون خواهد کرد.
+
+این منطقه را برای سرمایه‌گذاری جذاب‌تر خواهد کرد. این منطقه از جهان در تمام طول زندگی من و حتی پیش از آن، وضعیت بسیار نابسامانی داشته است.
+
+آنچه رئیس‌جمهور ترامپ واقعاً ما را به انجام آن واداشته است، قطعاً حذف تهدید هسته‌ای ایران است — که این کار انجام شده است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128071
+
+<div align="center">
+  <a href="telegram/content/alonews_128071_1781476951.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈جشن آتش‌بس توسط مردم لبنان
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128070
+
+<div align="center">
+  <a href="telegram/content/alonews_128070_1781476953.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴آزاد سازی قدس دیگه کنسله
+
+
+✅@AloNews
+</div>
+
+## alonews — post 128069
+
+<div align="center">
+  <a href="telegram/content/alonews_128069_1781476953.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈طبق یک بند از یادداشت تفاهم بین ایران و آمریکا، پول های بلوک شده ایران طی ۶۰ روز باید آزاد شود 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128068
+
+<div align="center">
+  <a href="telegram/content/alonews_128068_1781476953.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈مخاطب اینترنشنال:
+آقای ترامپ ما کشته ندادیم که توافق کنیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128067
+
+<div align="center">
+  <a href="telegram/content/alonews_128067_1781476954.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴شعار مرگ بر آمریکا دیگه کنسله
+
+
+✅@AloNews
+</div>
+
+---
 📅 بروزرسانی: 1405/03/25 02:02
 ---
 

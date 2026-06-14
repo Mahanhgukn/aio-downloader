@@ -7,6 +7,317 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/25 01:52
+---
+
+## VahidOOnLine — post 245572
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245572_1781475742.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جی‌دی ونس، معاون رییس‌جمهوری آمریکا، شامگاه یکشنبه گفت قصد دارد در مراسم رسمی امضای یادداشت تفاهم میان آمریکا و جمهوری اسلامی حضور داشته باشد، اما احتمال دارد دونالد ترامپ نیز شخصا در این مراسم شرکت کند.
+
+ونس در گفت‌وگویی کوتاه با شبکه فاکس نیوز گفت: «فکر می‌کنم هنوز در حال بررسی جزییات و هماهنگی‌ها درباره افرادی هستیم که در مراسم امضا حضور خواهند داشت. من قطعا قصد دارم در آنجا باشم، اما این احتمال وجود دارد که خود رییس‌جمهوری نیز در مراسم حضور پیدا کند.»
+
+سرویس مخفی آمریکا معمولا حضور همزمان رییس‌جمهوری و معاون رییس‌جمهوری را، به‌ویژه در سفرهای خارجی، به دلایل امنیتی و ملاحظات جانشینی توصیه نمی‌کند.
+
+این اظهارات ساعاتی پس از آن مطرح شد که شهباز شریف، نخست‌وزیر پاکستان، از برگزاری مراسم رسمی امضای توافق میان آمریکا و جمهوری اسلامی در روز جمعه در ژنو سوئیس خبر داد.
+
+قرار است دونالد ترامپ پیش از آن برای شرکت در نشست سالانه گروه هفت به فرانسه سفر کند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245571
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245571_1781475743.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری فارس گزارش داد که بیانیه رسمی دبیرخانه شورای‌عالی امنیت ملی درباره توافق آتش‌بس تا دقایقی دیگر منتشر خواهد شد.
+
+بر اساس این گزارش، جمهوری اسلامی پس از حمله به ضاحیه بیروت، مذاکرات را متوقف کرده و برای حمله به اسرائیل آماده شده بود. با این حال، فارس نوشت تهران در نهایت پس از دریافت امتیازهای لحظه آخری از سوی دونالد ترامپ، رییس‌جمهوری آمریکا، از انجام این حمله صرف‌نظر کرد.
+
+به نوشته فارس، حفظ تمامیت ارضی لبنان، عقب‌نشینی اسرائیل از مرز لبنان و رفع فوری محاصره از جمله مواردی بوده که در روند توافق مطرح شده است.
+
+این خبرگزاری همچنین گزارش داد که بر اساس توافق، نظام حقوقی تردد در آب‌های خلیج فارس با همکاری ایران و عمان تنظیم خواهد شد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14922
+
+
+
+
+## WithYashar — post 14921
+
+
+
+
+## mwarmonitor — post 10935
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نتانیاهو به ترامپ گفته است که ارتش اسرائیل از لبنان عقب‌نشینی نخواهد کرد و اسرائیل خود را ملزم به بند مربوط به لبنان در توافق آمریکا–ایران نمی‌داند – به نقل از Maariv.
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 94016
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94016_1781475744.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴غریب‌آبادی، معاون وزیر امور خارجه:
+قراره توی 60 روز با آمریکا مذاکره کنیم تا به توافق نهایی برسیم.
+
+چیزایی که قراره راجع بهش مذاکره کنیم :
+لغو همه تحریم‌ها درصورت نهایی شدن توافق
+موضوع هسته‌ای
+بازسازی و توسعه اقتصادی ایران
+تعیین سازوکار اجرایی واسه نظارت به اجرای تعهدات طرفین
+
+
+💧Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94015
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94015_1781475744.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ببینیم نتانیاهو تا جمعه از لبنان عقب میکشه یا برعکس حمله میکنه.. هر در صورت امضا جمعه انجام میشه و تا اون موقع میتونه از موقعیت استفاده کنه.
+</div>
+
+## pm_afshaa — post 94014
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یادی کنیم از حرف‌های عایشه قذافی دختر معمر قذافی، دیکتاتور سرنگون شده لیبی :
+
+به پدرم وعده دادن اگر لیبی از برنامه‌های موشکی و هسته‌ای خود عقب‌نشینی کنه، کشور وارد دوره‌ای از امنیت و پیشرفت خواهد شد. اما پس از کنار گذاشتن آن توان بازدارنده، حملات ناتو به لیبی آغاز شد و کشور ما به میدان جنگ تبدیل گردید.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94013
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94013_1781475745.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رویترز: پس از اعلام توافق بین ایران و آمریکا، قیمت نفت خام آمریکا به پایین‌ترین سطح خود در بشکه‌ای 80 دلار سنت رسید.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94012
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94012_1781475745.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴صداوسیما:
+ترامپ از ترس پاسخ ایران به تجاوز اسرائیل به لبنان، مجبور شد دستور پایان فوری و کامل محاصره دریایی رو صادر کنه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94011
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94011_1781475746.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علی‌خامنه‌ای 11 روز قبل از ترور:
+
+امام حسین فرمود کسی مثل من با کسی مثل یزید بیعت نمیکنه: ملت ماهم بیعت نمیکنه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## mamlekate — post 103708
+
+<div align="center">
+  <img src="telegram/content/mamlekate_103708_1781475748.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 ترامپ: توافق با جمهوری اسلامی کامل شد
+
+دونالد ترامپ، رئیس جمهوری آمریکا اعلام کرد که توافق با جمهوری اسلامی ایران اکنون کامل شده است. او گفت: به همه تبریک می‌گویم! بدینوسیله اجازه کامل بازگشایی تنگه هرمز بدون عوارض را می‌دهم و همزمان با آن، رفع فوری محاصره دریایی ایالات متحده را نیز مجاز می‌دارم. کشتی‌های جهان، موتورهای خود را روشن کنید. بگذارید نفت جریان یابد! رئیس جمهوری دونالد جی. ترامپ
+
+
+
+
+📞 امشب میدون انقلاب رو زود خاموش کردن تا طرفداراشون برن و ظاهرا هم جواب داد، خیلی هم خلوت بود. مربوط به همین خبر توافق هست که یه وقت داستان نشه
+
+@mamlekate
+</div>
+
+## IranIntlTV — post 342371
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342371_1781475749.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جی‌دی ونس، معاون رییس‌جمهوری آمریکا، شامگاه یکشنبه گفت قصد دارد در مراسم رسمی امضای یادداشت تفاهم میان آمریکا و جمهوری اسلامی حضور داشته باشد، اما احتمال دارد دونالد ترامپ نیز شخصا در این مراسم شرکت کند.
+
+ونس در گفت‌وگویی کوتاه با شبکه فاکس نیوز گفت: «فکر می‌کنم هنوز در حال بررسی جزییات و هماهنگی‌ها درباره افرادی هستیم که در مراسم امضا حضور خواهند داشت. من قطعا قصد دارم در آنجا باشم، اما این احتمال وجود دارد که خود رییس‌جمهوری نیز در مراسم حضور پیدا کند.»
+
+سرویس مخفی آمریکا معمولا حضور همزمان رییس‌جمهوری و معاون رییس‌جمهوری را، به‌ویژه در سفرهای خارجی، به دلایل امنیتی و ملاحظات جانشینی توصیه نمی‌کند.
+
+این اظهارات ساعاتی پس از آن مطرح شد که شهباز شریف، نخست‌وزیر پاکستان، از برگزاری مراسم رسمی امضای توافق میان آمریکا و جمهوری اسلامی در روز جمعه در ژنو سوئیس خبر داد.
+
+قرار است دونالد ترامپ پیش از آن برای شرکت در نشست سالانه گروه هفت به فرانسه سفر کند.
+https://iranintl.com/202606148832
+</div>
+
+## IranIntlTV — post 342370
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342370_1781475749.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شهرام خلدی، پژوهشگر تاریخ خاورمیانه و روابط بین‌الملل، درباره اعلام دونالد ترامپ مبنی بر توافق نهایی تهران و واشینگتن گفت: «پرسش اساسی این است که ایالات متحده چگونه می‌تواند اعلام کند جنگ در همه جبهه‌ها پایان یافته، در حالی که شواهد نشان می‌دهد موضع اسرائیل در این زمینه تغییر نکرده است.»
+
+او افزود: «یادداشت تفاهم صرفا یک متن سیاسی است و بدون سازوکار مشخص برای نظارت بر اجرای آن، از جمله هیئتی مورد قبول طرفین یا ناظران بین‌المللی، اجرای آن مبهم خواهد بود.»
+@iranintltv
+</div>
+
+## FarsiVOA — post 220732
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220732_1781475751.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️تازه‌ترین واکنش‌های کنگره به توافق با جمهوری اسلامی
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 17133
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://youtube.com/live/MXtIab_TfCg?feature=share
+</div>
+
+## BBCPersian — post 283826
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283826_1781475752.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌ ‌ ‌
+تیم‌های فوتبال هلند و ژاپن در نهمین بازی این دوره جام جهانی فوتبال مردان در شهر دالاس به مصاف هم رفتند که در پایان به تقسیم امتیاز رضایت دادند.
+
+نیمه اول این بازی با برتری نسبی هلند همراه بود اما در مجموع چندان جذابیتی نداشت.
+
+با بازگشت بازیکنان از استراحت دو نیمه اما بازی روند دیگری گرفت و ویرجیل ون‌دایک در دقیقه ۵۱ هلند را با یک گل پیش انداخت.
+
+ژاپن اما اجازه نداد برتری هلند بیش از شش دقیقه به طول بکشد و کیتو ناکامورا در دقیقه ۵۷ گل تساوی را به ثمر رساند.
+
+بازی با هیجان دو چندان پس از آن دنبال شد تا اینکه مجددا کریسنسیو سامرویل هلند را در دقیقه ۶۴ پیش انداخت.
+
+هر دو تیم در ادامه سعی کردند تا گل به ثمر برسانند تا اینکه یک دقیقه مانده با پایان بازی مجددا ژاپن با گل دیاچی کامادا بازی را برابر کرد.
+
+📷Reuters
+@BBCPersian
+</div>
+
+## alonews — post 128060
+
+<div align="center">
+  <a href="telegram/content/alonews_128060_1781475753.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وضعیت تتر که بعد از خبر توافق از ۱۷۵ به ۱۶۳ رسیده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128059
+
+<div align="center">
+  <a href="telegram/content/alonews_128059_1781475753.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈شب‌های ایتا
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128058
+
+<div align="center">
+  <a href="telegram/content/alonews_128058_1781475753.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴توافقی که جمهوری اسلامی با دشمن 47 ساله خودش انجام داد، امضا سقوط خودش رو زد. بماند به یادگار
+
+
+✅@AloNews
+</div>
+
+## alonews — post 128057
+
+<div align="center">
+  <a href="telegram/content/alonews_128057_1781475753.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈قیافه مجری شبکه خبر هنگام اعلام توافق
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128056
+
+<div align="center">
+  <a href="telegram/content/alonews_128056_1781475754.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈مصاحبه ونس با فاکس‌نیوز پس از اعلام رسمی توافق ایران و آمریکا: حالا امیدواریم دوران جدیدی با ایرانی‌ها آغاز شود! این برای مردم آمریکا اتفاق بزرگی است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128055
+
+<div align="center">
+  <a href="telegram/content/alonews_128055_1781475756.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈آیت الله خامنه‌ای 11 روز قبل از ترور:
+کسی مثل من با کسی مثل یزید بیعت نمیکنه: ملت ماهم بیعت نمیکنه.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/25 01:42
 ---
 

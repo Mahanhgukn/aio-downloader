@@ -7,6 +7,377 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/25 01:22
+---
+
+## VahidOOnLine — post 245569
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245569_1781473952.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهوری آمریکا، اعلام کرد توافق با جمهوری اسلامی ایران نهایی شده است.
+
+ترامپ در پیامی گفت: «به همه تبریک می‌گویم. توافق با جمهوری اسلامی ایران اکنون نهایی شده است.»
+
+او همچنین اعلام کرد دستور بازگشایی تنگه هرمز بدون دریافت عوارض و همزمان دستور لغو فوری محاصره دریایی اعمال‌شده از سوی ایالات متحده را صادر کرده است.
+
+رییس‌جمهوری آمریکا در ادامه نوشت: «ای کشتی‌های جهان، موتورهای خود را روشن کنید. بگذارید نفت جریان یابد.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14914
+
+
+
+
+## WithYashar — post 14913
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+@withyashar
+</div>
+
+## WithYashar — post 14912
+
+<div align="center">
+  <a href="telegram/content/WithYashar_14912_1781473952.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مجری صدا و سیما:
+پیروزی رو به ملت تبریک میگم
+@withyashar
+</div>
+
+## mwarmonitor — post 10931
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ایران یک حمله برنامه‌ریزی‌شده به اسرائیل را لغو کرده است – نیویورک تایمز. @mwarmonitor
+</div>
+
+## mwarmonitor — post 10930
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ایران یک حمله برنامه‌ریزی‌شده به اسرائیل را لغو کرده است – نیویورک تایمز.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10929
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴توافق با جمهوری اسلامی ایران اکنون کامل شده است. تبریک به همه! من بدین‌وسیله اجازه کامل برای بازگشایی بدون عوارض (آزاد) تنگه هرمز را صادر می‌کنم و هم‌زمان با آن، دستور رفع فوری محاصره دریایی ایالات متحده را می‌دهم. کشتی‌های جهان، موتورهای خود را روشن کنید.…
+</div>
+
+## FoxNewsTwitter — post 342967
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+🚨🚨BREAKING: President Trump says the deal with Iran is “now complete” and authorizes the reopening of the Strait of Hormuz and removal of the U.S. naval blockade, after Pakistan’s prime minister said the U.S. and Iran had reached a peace deal to end military operations on all fronts. 🚨🚨
+</div>
+
+## FoxNewsTwitter — post 342966
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342966_1781473954.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: "The Deal with the Islamic Republic of Iran is now complete."
+
+President Trump says he has authorized the opening of the Strait of Hormuz and the immediate removal of the U.S. naval blockade following what he says is a completed agreement with Iran.
+
+"Ships of the World, start your engines. Let the oil flow!"
+</div>
+
+## pm_afshaa — post 94002
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94002_1781473954.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نیویورک تایمز به نقل از سه مقام ایرانی:
+
+ایران حمله تلافی جویانه برنامه ریزی شده خود به اسرائیل رو پس از مداخله ترامپ که از طریق واسطه‌ها خواستار خویشتنداری در مورد ایران شد، لغو کرد.
+
+بحث‌های داخلی در رهبری ایران بر سر پاسخ دادن به بازدارندگی یا اجتناب از انتقام‌جویی وجود داشت، با برخی استدلال میکردن که حمله به تلاش‌های اسرائیل برای تضعیف مذاکرات صلح جاری بین تهران و واشنگتن بازی میکنه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94001
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94001_1781473955.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبرگزاری انتخاب:
+
+بعد از حمله اسرائیل به ضاحیه، قالیباف تصمیم گرفت مذاکرات اعضای تیم جمهوری اسلامی با طرف قطری متوقف بشه.
+
+همزمان نیروهای مسلح جمهوری اسلامی پرتابگرها رو آماده شلیک کردن.
+
+در پی توئیت هشدارامیز قالیباف، ترامپ مجبور به ارائه امتیازات جدید و جدی به جمهوری اسلامی در موضوع لبنان شد!
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## kianmeli1 — post 88002
+
+<div align="center">
+  <a href="telegram/content/kianmeli1_88002_1781473956.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری
+
+دود سفید در کاخ سفید.
+طبق سنت، این به معنای امضای توافق‌نامه صلح جدید است.
+</div>
+
+## kianmeli1 — post 88001
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴علی‌رغم انتشار خبر توافق، هم‌اکنون این صدا به زبان انگلیسی توسط سپاه پاسداران درحال مخابره به بیسیم کشتی‌ها در محدوده‌ی تنگه هرمز است که می‌گوید تنگه هرمز بسته است.
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 342366
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342366_1781473957.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شهباز شریف، نخست‌وزیر پاکستان، اعلام کرد پس از گفت‌وگوهای فشرده، «توافق صلح» میان آمریکا و جمهوری اسلامی حاصل شده است. او نوشت هر دو طرف پایان فوری و دائمی عملیات نظامی در همه جبهه‌ها، از جمله لبنان، را اعلام کرده‌اند و مراسم رسمی امضای این توافق روز جمعه در سوئیس برگزار خواهد شد.
+
+گزارش امیر گیتی، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## Shin_Persian — post 7081
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sun, 14 Jun 2026 21:45:37 UTC
+
+You guys might be furious, but rn I’m reading Fars News’ comments and having a lot of fun.
+
+ترجمه خودکار فارسی
+
+ممکن است شما خیلی عصبانی باشید، اما من در حال حاضر مشغول خواندن نظرات خبرگزاری فارس هستم و کلی لذت می‌برم.
+
+𝕏 · @shin_persian
+</div>
+
+## Iliaen — post 4487
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علی‌رغم انتشار خبر توافق، هم‌اکنون این صدا به زبان انگلیسی توسط سپاه پاسداران درحال مخابره به بیسیم کشتی‌ها در محدوده‌ی تنگه هرمز است که می‌گوید تنگه هرمز بسته است.
+
+@iliaen
+</div>
+
+## FarsiVOA — post 220731
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220731_1781473958.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📸اینستاگرام صدای آمریکا را هم اکنون فالو کنید تا از آخرین خبرها مطلع بمانید:
+https://www.instagram.com/voafarsi/
+
+📡همچنین جهت اطلاع از بروزترین فرکانسهای ماهواره‌ای صدای آمریکا به لینک زیر مراجعت فرمایید:
+https://ir.voanews.com/satellite
+
+این پست را با دوستانتان به اشتراک بگذارید
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220729
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Farsi VOA pinned a photo
+</div>
+
+## Persian_Trend_Official — post 17130
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک منبع آگاه به انتخاب: در پی هشدارهای جدی قالیباف و مقاومت او بر سر خطوط قرمز، ترامپ در لحظات پایانی عقب نشینی کرد و محاصره دریایی علیه ایران را که قرار بود براساس متن تفاهم در طول 30 روز بردارد، به صورت کامل و درجا لغو کرد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17129
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17129_1781473959.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+از اینحا تا بیروت 😄😄😄
+</div>
+
+## RadioFarda — post 158307
+
+<div align="center">
+  <a href="telegram/content/RadioFarda_158307_1781473959.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸دونالد ترامپ، رئیس جمهوری آمریکا در پیامی در شبکه تروث سوشال نوشت: «توافق با جمهوری اسلامی ایران اکنون نهایی شده است. به همه تبریک می‌گویم!»
+
+🔸او ادامه داد: «بدین‌وسیله بازگشایی کامل و بدون دریافت عوارض تنگه هرمز را مجاز اعلام می‌کنم و همزمان دستور رفع فوری محاصره دریایی ایالات متحده را صادر می‌کنم. کشتی‌های جهان، موتورهای خود را روشن کنید. بگذارید نفت جریان پیدا کند!»
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 22603
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آقای سعید جلیلی مگه نمیخواستی اورانیومارو بخوری ؟ چیشد برکنار شدی که اورانیومارم دادن رفت
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 283824
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻 تلویزیون ایران خبر توافق با آمریکا را تایید کرد
+
+تلویزیون دولتی ایران هم لحظاتی پس از آنکه شهباز شریف، نخست وزیر پاکستان و دونالد ترامپ، رئیس‌جمهور آمریکا، رسیدن به توافق را تایید کردند، خبر آن را زیرنویس کرده است.
+
+@BBCPersian
+</div>
+
+## BBCPersian — post 283823
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻 نخست‌وزیر پاکستان: تفاهم‌نامه میان ایران و آمریکا حاصل شد
+
+شهباز شریف، نخست‌وزیر پاکستان گفته است که پیمان صلح میان آمریکا و جمهوری اسلامی ایران حاصل شده است.
+
+آقای شریف از این موضوع ابراز خشنودی کرده است.
+
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 392058
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392058_1781473961.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 صداوسیما:
+آمریکا مجبور به امضای تفاهم پايان جنگ با ایران شد.
+
++ یه بار دیگه امریکارو وادار کنید امضا کنه خامنه‌ای رو دوباره زنده میکنه میکشتش
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 128047
+
+<div align="center">
+  <a href="https://t.me/alonews/128047" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😐
+</div>
+
+## alonews — post 128046
+
+<div align="center">
+  <a href="telegram/content/alonews_128046_1781473962.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈برخی کانالای انقلابی در ایتا نوشتند که این جام زهر نبود بلکه بشکه زهر بود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128045
+
+<div align="center">
+  <a href="telegram/content/alonews_128045_1781473962.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خیلیا میگن حالا چی میشه؟ هیچی ۶۰روز قراره سر مسئله هسته‌ای مذاکره کنن و احتمال قوی توافق بشه، چرا؟ چون اورانیوما قراره تحویل داده بشه فقط بحث نیابتی‌ها و رفع تحریما هست
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128044
+
+<div align="center">
+  <a href="telegram/content/alonews_128044_1781473963.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کریپتو و طلا صعودی شد/نفت کاهشی
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128043
+
+<div align="center">
+  <a href="telegram/content/alonews_128043_1781473963.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وضعیت گروه‌های انقلابی
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128042
+
+<div align="center">
+  <a href="telegram/content/alonews_128042_1781473963.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴به همه طرفداران جمهوری اسلامی، استعمار شدنتون رو توسط کشوری که 47 سال مرگ بهش فرستادین تبریک میگیم. 
+✅@AloNews
+</div>
+
+## alonews — post 128040
+
+<div align="center">
+  <a href="telegram/content/alonews_128040_1781473963.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈منابع حکومتی: بعد از هشدار قالیباف، ترامپ ترسید و محاصره رو یکجا برداشت، برای همین انتقام حمله به لبنان رو ول کردیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/25 01:12
 ---
 

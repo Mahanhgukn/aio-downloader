@@ -7,6 +7,139 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/25 00:32
+---
+
+## VahidOOnLine — post 245560
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245560_1781470956.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال ۱۲ اسرائیل به نقل از یک مقام آگاه گزارش داد که دونالد ترامپ، رییس‌جمهوری آمریکا، و بنیامین نتانیاهو، نخست‌وزیر اسرائیل، شامگاه یکشنبه با یکدیگر گفت‌وگو کرده‌اند.
+
+بر اساس این گزارش، ترامپ در این تماس نتانیاهو را از پیشرفت در مسیر امضای توافق با جمهوری اسلامی مطلع کرده و احتمال داده شده است که این توافق حتی در طول امشب امضا شود.
+
+جلسه کابینه امنیتی اسرائیل که برای بررسی تحولات جاری تشکیل شده بود، به دلیل تماس تلفنی نتانیاهو و ترامپ متوقف شد. همچنین وزیر دفاع اسرائیل با همتای آمریکایی خود گفت‌وگو کرد.
+
+یکی از وزیران کابینه اسرائیل گفت: «آمریکایی‌ها تلاش می‌کنند هرچه سریع‌تر این پرونده را جمع‌بندی کرده و تفاهم‌نامه‌ای را امضا کنند که مانع واکنش ایران شود. قطری‌ها نیز پشت صحنه نقش اصلی را برای فشار بر طرف‌ها ایفا می‌کنند.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245559
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245559_1781470956.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️به گزارش رویترز، کاروان تیم ملی فوتبال ایران برای برگزاری مسابقه روز دوشنبه خود در رقابت‌های جام جهانی ۲۰۲۶ مقابل نیوزیلند، وارد شهر لس‌آنجلس شد؛ این نخستین‌بار در تاریخ مسابقات جام جهانی است که تیم ملی فوتبال ایران برای انجام بازی‌های خود وارد خاک ایالات متحده می‌شود. براساس این گزارش، مهدی طارمی و امیر قلعه‌نویی از ساعاتی دیگر در نشست خبری حاضر خواهند شد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245558
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_245558_1781470956.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️به گزارش «فاکس‌نیوز»، مقامات محلی ایالت میزوری آمریکا روز یکشنبه اعلام کردند که در پی سقوط یک هواپیمای کوچک خصوصی در نزدیکی فرودگاه «مِموریال باتلر»، دست‌کم ۱۲ نفر شامل ۱۱ چترباز و یک خلبان جان خود را از دست دادند. این هواپیما که حوالی ساعت ۱۱:۳۰ صبح به وقت محلی با چتربازان آماده پرش به هوا برخاسته بود، لحظاتی پس از برخاستن «به دلایل نامعلومی» مجبور به چرخش و بازگشت شد، اما در نهایت در یک زمین زراعی مجاور بزرگراه سقوط کرد و بلافاصله طعمه حریق شد. بر اساس گزارش خبرگزاری آسوشیتدپرس، مدیر فرودگاه احتمال می‌دهد هواپیما دچار نقص فنی و افت قدرت موتور شده و خلبان تلاش کرده است تا آن را روی بزرگراه بنشاند، اما پس از افت سرعت، هواپیما با دماغه به زمین برخورد کرده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14893
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سی‌ان‌ان: مذاکره کنندگان قطری همین حالا تو تهران حضور دارن تا با هماهنگی امریکا توافق رو به سرانجام برسونند و از نهایی شدن روند مذاکرات اطمینان کسب کنند
+@withyashar
+</div>
+
+## WithYashar — post 14892
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حسین پاک، خبرنگار صداوسیما در لبنان:
+امشب به صورت همزمان ایران، یمن و حزب‌الله به حمله اسرائیل به ضاحیه پاسخ می‌دهند
+@withyashar
+</div>
+
+## mwarmonitor — post 10926
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴یدیعوت آحرونوت به نقل از یک منبع: وزیر دفاع اسرائیل در حال انجام تماس تلفنی با وزیر جنگ آمریکا است.
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 342965
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342965_1781470957.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Trump says an Iran peace deal could be signed "in a matter of hours" — but Israel's actions could be complicating the situation.
+
+The president told FOX News' Trey Yingst that he personally called Benjamin Netanyahu after Israeli strikes in Beirut, saying "what the f---are you doing?"
+
+Yingst reports that Trump warned Netanyahu that further military action in Lebanon could jeopardize ongoing diplomatic efforts to secure a broader agreement with Iran.
+</div>
+
+## pm_afshaa — post 93982
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93982_1781470958.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کانال 12 اسرائیل: دقایقی پیش نتانیاهو و ترامپ در مورد ایران گفت‌و‌گوی تلفنی کردن. ترامپ، نتانیاهو رو در جریان پیشرفت‌ها برای امضای توافق با جمهوری اسلامی قرار داد؛ توافقی که ممکنه حتی از امشب امضا بشه. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook…
+</div>
+
+## IranIntlTV — post 342360
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342360_1781470959.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال ۱۲ اسرائیل به نقل از یک مقام آگاه گزارش داد که دونالد ترامپ، رییس‌جمهوری آمریکا، و بنیامین نتانیاهو، نخست‌وزیر اسرائیل، شامگاه یکشنبه با یکدیگر گفت‌وگو کرده‌اند.
+
+بر اساس این گزارش، ترامپ در این تماس نتانیاهو را از پیشرفت در مسیر امضای توافق با جمهوری اسلامی مطلع کرده و احتمال داده شده است که این توافق حتی در طول امشب امضا شود.
+
+جلسه کابینه امنیتی اسرائیل که برای بررسی تحولات جاری تشکیل شده بود، به دلیل تماس تلفنی نتانیاهو و ترامپ متوقف شد. همچنین وزیر دفاع اسرائیل با همتای آمریکایی خود گفت‌وگو کرد.
+
+یکی از وزیران کابینه اسرائیل گفت: «آمریکایی‌ها تلاش می‌کنند هرچه سریع‌تر این پرونده را جمع‌بندی کرده و تفاهم‌نامه‌ای را امضا کنند که مانع واکنش ایران شود. قطری‌ها نیز پشت صحنه نقش اصلی را برای فشار بر طرف‌ها ایفا می‌کنند.»
+https://iranintl.com/202606145076
+</div>
+
+## FarsiVOA — post 220724
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺انتقاد دونالد ترامپ از سناتور جک رید؛ رئيس جمهوری آمریکا: توافق ما دیواری در برابر دستیابی رژیم ایران به سلاح هسته‌ای است
+
+▪️دونالد ترامپ، رئيس جمهوری آمریکا، روز یکشنبه از اظهارات سناتور جک رید، نماینده دموکرات درباره توافق در آستانه امضا با جمهوری اسلامی انتقاد کرد. آقای ترامپ گفت جک رید «با بیان اینکه توافقی که ما تازه انجام داده‌ایم به خوبی فاجعه اوباما موسوم به برجام نیست،» دروغ گفت.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/trump-calls-for-the-impeachment-of-senator-jack-reed/8160746.html
+@FarsiVOA
+</div>
+
+## alonews — post 128013
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+توافق امضا شد
+</div>
+
+---
 📅 بروزرسانی: 1405/03/25 00:22
 ---
 

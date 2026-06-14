@@ -7,6 +7,391 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/24 22:24
+---
+
+## VahidOOnLine — post 245536
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245536_1781463241.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمد مخبر، مشاور مجتبی خامنه‌ای، با اشاره به حمله اسرائیل به جنوب بیروت در شبکه اجتماعی ایکس نوشت: «نه لبخند دیپلماتیک آمریکایی قابل اعتماد است و نه توحش اسرائیل قابل تحمل! در دفاع از لبنان با هیچ‌کس تعارف نداریم و به متجاوزان درس پشیمان‌کننده خواهیم داد.»
+
+او همزمان با احتمال یادداشت تفاهم تهران و واشینگتن، نوشت تقسیم نقش «تفاهم و تجاوز» میان آمریکا و اسرائیل، تکراری و غیرقابل پذیرش است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245535
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245535_1781463242.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️همزمان با واکنش گسترده مقام‌های سیاسی و نظامی جمهوری اسلامی ایران به حمله اسرائیل به بیروت، اسماعیل قاآنی، فرمانده نیروی قدس سپاه پاسداران، در بیانیه‌ای گفت: «پیروزی حزب‌الله بر اسرائیل در راه است.»
+
+قاآنی در بیانیه روز یکشنبه ۲۴ خرداد نوشت: «مردم دنیا، استقلال لبنان را با عظمت فداکاری حزب‌الله می‌شناسند نه با وابستگی بعضی حکمرانان.»
+
+فرمانده نیروی قدس سپاه پاسداران افزود: «همه دنیا با چشمان بازتر نگاه کنند، پیروزی مقاومت عظیم حزب‌الله قهرمان بر اسرائیل در راه است.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245534
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_245534_1781463242.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی منتشرشده در شبکه‌های اجتماعی نشان می‌دهد جمعی از حامیان تندروی جمهوری اسلامی در تجمع شبانه خود خواستار اعدام عباس عراقچی، وزیر خارجه دولت پزشکیان، شدند.
+بخشی از حامیان حکومت در روزهای اخیر، وزارت خارجه و تیم مذاکره‌کننده را به دادن امتیاز به آمریکا متهم کرده‌اند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14865
+
+<div align="center">
+  <img src="telegram/content/WithYashar_14865_1781463244.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دیدبان اتاق جنگ از بالا پشت بام : آخرین پرواز در تهران نشست
+@withyashar
+</div>
+
+## WithYashar — post 14864
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تسنیم گفت ایران با هشدار NOTAM پروازهای فرودگاه‌های غرب کشور تا اطلاع ثانوی لغو شده است. این تصمیم در پی شرایط موجود اتخاذ شده است.
+@withyashar
+</div>
+
+## WithYashar — post 14863
+
+<div align="center">
+  <a href="telegram/content/WithYashar_14863_1781463244.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسرائیل اختلال در سامانه‌های موقعیت‌یابی GPS را در شدیدترین حالت قرمز قرار داد برای دفاع از خود و ایران نیز این روند را هم اکنون شروع کرده و در حال شدت بخشیدن است.
+@withyashar
+</div>
+
+## mwarmonitor — post 10911
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ارتش اسرائیل: دو سرباز در اثر شلیک یک راکت توسط حزب‌الله در جنوب لبنان زخمی شدند.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10910
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_10910_1781463246.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✈️«۲ فروند هواپیمای سوخت‌رسان نیروی هوایی آمریکا در حال حرکت به سمت خلیج فارس هستند.
+
+✈️همچنین ۲ فروند هواپیمای سوخت‌رسان A330 نیروی هوایی عربستان سعودی در حال پرواز هستند؛ یکی در نزدیکی مرز عراق و کویت و دیگری در نزدیکی مرز یمن فعال است.»
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10909
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خب امشب درگیری خواهیم داشت کمی متفاوت با دفعه قبل
+</div>
+
+## mwarmonitor — post 10908
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✈️🔴«لغو تمام پروازها و بسته شدن حریم هوایی در غرب ایران»
+
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 93956
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وای نت:نتانیاهو درخواست‌های ترامپ برای توقف آتش‌بس علیه لبنان و عقب‌نشینی نیروهای ارتش اسرائیل از این کشور را رد کرد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93955
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♨️
+♨️
+♨️
+♨️
+</div>
+
+## pm_afshaa — post 93954
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کابینه سیاسی - امنیتی اسرائیل هم اکنون تشکیل جلسه فوری داده
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93953
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مخبر:در دفاع از لبنان، با هیچ‌کس خوش‌وبش نداریم و درسی پشیمان‌کننده به متجاوزان خواهیم داد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93952
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حریم هوایی غرب کشور بسته شد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93951
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اختلال شدید در سیگنال‌های GPS در شمال اسرائیل و جنوب سوریه
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 342338
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻ترامپ: حمله اسرائیل به بیروت امضای توافق را چند ساعت به تعویق انداخت
+
+همزمان با افزایش تنش‌ها میان اسرائیل و لبنان که بر توافق احتمالی میان تهران و واشینگتن سایه انداخته است، دونالد ترامپ اعلام کرد که تفاهم‌نامه پیش از پایان روز یکشنبه ۲۴ خرداد امضا می‌شود. او گفت که حملات اسرائیل به بیروت امضای توافق را چند ساعت به تعویق انداخت.
+
+فاکس نیوز، در گزارشی که شامگاه یکشنبه ۲۴ خرداد از این رسانه پخش شد، گفت که ترامپ در یک گفت‌وگوی کوتاه تلفنی با خبرنگار این رسانه گفته است که انتظار می‌رود این توافق «همین امشب، ظرف دو تا سه ساعت آینده به‌صورت الکترونیکی» امضا شود و به همین دلیل از جمهوری اسلامی می‌خواهد از پاسخ به حملات اسرائیل به بیروت خودداری کند.
+
+ترامپ همچنین به این رسانه گفت: «اگر ایران امشب توافق را امضا کنند، بی‌درنگ دستور می‌دهم محاصره بندرهای ایران برداشته شود و سپس وارد گفت‌وگوهای مفصل‌تر درباره برنامه هسته‌ای آنها خواهیم شد.
+به گفته رییس‌جمهوری آمریکا ممکن است مراسم امضای حضوری این توافق هفته آینده، در اروپا برگزار شود.
+
+رییس‌جمهوری آمریکا در گفت‌وگویی دیگر با رسانه اکسیوس گفت که توافق، با وجود حمله اسرائیل به بیروت و تهدید جمهوری اسلامی به تلافی، همچنان طبق برنامه قرار است یکشنبه انجام شود. او همچنین به این رسانه گفت: «این اتفاق زمان‌بندی توافق را به هم ریخت و امضا را چند ساعت عقب انداخت. قرار بود همین حالا انجام شود. حالا برای چند ساعت دیگر برنامه‌ریزی شده است.»
+
+به گزارش اکسیوس، ترامپ از شنیدن خبر حملات اسرائیل به بیروت غافلگیر و از بنیامین نتانیاهو، نخست‌وزیر اسرائیل، خشمگین شد.
+
+رییس‌جمهوری آمریکا پیش از این گفت‌وگوها در شبکه اجتماعی تروث سوشال از اسرائیل بابت حمله به بیروت انتقاد کرد و نوشت: «حمله صبح امروز به بیروت، به‌ویژه در یک روز خاص که ما به توافق صلح با ایران بسیاری نزدیک هستیم، نباید اتفاق می‌افتاد.» او افزود: «همه طرف‌ها باید عقب‌نشینی کنند و هیچ حمله‌ای از سوی اسرائيل به هیچ کجای لبنان نباید انجام شود.»
+
+ترامپ در ادامه تاکید کرد که حزب‌الله نیز نباید حملات دیگری علیه حزب‌الله انجام دهد.»
+
+او در ابتدای این پست نوشته است که هرچند اسرائیل «حق دارد» در برابر تهدیدها از خود دفاع کند، اما حملاتی که به آن پاسخ داد «بسیار کوچک و بی‌معنی بود، کسی آسیب ندید و زخمی یا کشته نشد.»
+
+
+🔗 متن کامل گزارش را اینجا بخوانید
+
+@iranintltv
+</div>
+
+## IranIntlTV — post 342337
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342337_1781463247.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻تیم ملی فوتبال ترکیه در حالی در یک غافلگیری برابر استرالیا شکست خورد که هزاران نفر از شهروندان ترکیه در شهرهای مختلف این کشور در مکان‌های عمومی جمع شده بودند تا پیروزی تیمشان در جام جهانی را پس از ۲۴ سال جشن بگیرند.
+
+🔹توضیحات نرگس هورخش، خبرنگار ایران اینترنشنال
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 342336
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342336_1781463249.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمد مخبر، مشاور مجتبی خامنه‌ای، با اشاره به حمله اسرائيل به جنوب بیروت در شبکه اجتماعی ایکس نوشت: «نه لبخند دیپلماتیک آمریکایی قابل اعتماد است و نه توحش اسرائیل قابل تحمل! در دفاع از لبنان با هیچ‌کس تعارف نداریم و به متجاوزان درس پشیمان‌کننده خواهیم داد.»
+
+او همزمان با احتمال یادداشت تفاهم تهران و واشینگتن، نوشت تقسیم نقش «تفاهم و تجاوز» میان آمریکا و اسرائیل، تکراری و غیرقابل پذیرش است.
+https://iranintl.com/202606143735
+</div>
+
+## IranIntlTV — post 342335
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342335_1781463250.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی منتشرشده در شبکه‌های اجتماعی نشان می‌دهد جمعی از حامیان تندروی جمهوری اسلامی در تجمع شبانه خود خواستار اعدام عباس عراقچی، وزیر خارجه دولت پزشکیان، شدند.
+بخشی از حامیان حکومت در روزهای اخیر، وزارت خارجه و تیم مذاکره‌کننده را به دادن امتیاز به آمریکا متهم کرده‌اند.
+</div>
+
+## Shin_Persian — post 7073
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sun, 14 Jun 2026 18:50:21 UTC
+
+Buckle up
+
+ترجمه خودکار فارسی
+
+کمربندها را ببندید
+
+𝕏 · @shin_persian
+</div>
+
+## Iliaen — post 4482
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ساعت ۲۲:۲۰ یکشنبه؛ برخی از پروازها در آسمان مرکز ایران به صورت ناگهانی به سمت شمال کشور تغییر مسیر دادند.
+
+@iliaen
+</div>
+
+## FarsiVOA — post 220713
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220713_1781463252.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تیم ملی فوتبال ایران برای نخستین دیدار خود در جام جهانی ۲۰۲۶ در روز دوشنبه مقابل نیوزیلند، راهی لس‌آنجلس شد. ویزا‌ی مهدی تاج، رییس فدراسیون فوتبال، و تعدادی از اعضای هیات اعزامی تیم برای ورود به آمریکا صادر نشده است.
+</div>
+
+## Persian_Trend_Official — post 17097
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17097_1781463253.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://youtube.com/live/suzEnh0ejFw?feature=share
+</div>
+
+## Persian_Trend_Official — post 17096
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لغو پروازهای غرب کشور تا اطلاع ثانوی
+
+تسنیم: پروازهای فرودگاه‌های غرب کشور تا اطلاع ثانوی لغو شده است. این تصمیم در پی شرایط موجود اتخاذ شده است.
+
+پیگیری‌ها نشان می‌دهد تاکنون نوتام (اطلاعیه هوانوردی) رسمی در این خصوص صادر نشده است.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Dirty_Kids — post 392037
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392037_1781463254.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آموزش پخت مک اند چیز خونگی، کشدار و خوشحال‌کننده 😌🧀
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392036
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392036_1781463257.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 وقتی یه مرد وسط بحث ساکت میشه، روانشناسی میگه به این معنی نیست که بهت اهمیت نمیده.
+
+بیشتر وقتا بخاطر اینه که وقتی توی بحث تحت فشار قرار میگیره، می‌دونه اگه به حرف زدن ادامه بده، اوضاع از کنترلش خارج میشه.
+
+برای همین به جای اینکه بحث رو بدتر کنه، عقب می‌کشه و سکوت می‌کنه. نه به این دلیل که دوست نداره
+
+بلکه بخاطر اینه که سعی داره احساساتش رو کنترل و از رابطه محافظت کنه.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392035
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تیم ملیِ آخوند امشب باید بره لس‌آنجلس. بی‌صبرانه منتظر اومدن فیلم های برخورد مردم باهاشون توی فرودگاهم. :)))
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392034
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ولی دقت کردین از وقتی دخترا میتونن بی حجاب باشن چقدر آرایشا کمتر شده؟
+الان خیلیا رو میبینی که هیچ آرایشی ندارن و در عین حال خوشگل و شیکن
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392033
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392033_1781463257.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عمو جغد شاخدار:
+میریم بلوط های اسرائیل رو میدزدیم
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 127979
+
+<div align="center">
+  <a href="telegram/content/alonews_127979_1781463257.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈طبق اخبار رسانه ایی که درحال پخش است، بنظر می‌رسد ایران و اسرائیل درخواست خویشتن‌داری از جانب آمریکا را رد کرده و آماده درگیری احتمالی می‌شوند. باید منتظر ماند و دید که چه خواهد شد!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/24 22:13
 ---
 

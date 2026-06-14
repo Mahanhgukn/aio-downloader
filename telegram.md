@@ -7,6 +7,217 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/24 14:14
+---
+
+## VahidOOnLine — post 245452
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️خبرگزاری فارس، وابسته به سپاه پاسداران روز یکشنبه ۲۴ خردادماه ویدیویی جدید از لحظه حمله به پل بی‌۱ در روز ۱۳ فروردین ماه را منتشر کرد.
+
+در این ویدیو آشفتگی و سراسیمگی مردمی سوار بر خودرو همزمان با بمباران این پل دیده می‌شود.
+
+در جریان حمله هوایی آمریکا به این پل ۸ نفر کشته و نزدیک به ۱۰۰ نفر زخمی شدند.
+
+دونالد ترامپ، ریس جمهوری آمریکا پس از دو حمله به این پل اعلام کرده بود بزرگ‌ترین پل ایران فروریخته است و دیگر قابل استفاده نخواهد بود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245451
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245451_1781433854.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+غلامحسین محسنی اژه‌ای، رییس قوه قضاییه جمهوری اسلامی، در پیامی نوشت ممکن است میان مسئولان درباره شیوه‌های «ایستادگی در برابر فشارهای خارجی» دیدگاه‌های متفاوتی وجود داشته باشد.
+
+اژه‌ای نوشت: «دشمن غدار و حیله‌گر بسیار به مخدوش‌کردن وحدت و انسجام ملی ما چشم دوخته است.»
+
+او افزود همه مسئولان کشور در این موضوع اتفاق نظر دارند که نباید در برابر دشمن کوتاه آمد و در این زمینه هیچ اختلاف‌نظری وجود ندارد و در «اصل مقاومت» تردیدی نیست.
+iranintl
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## IranIntlTV — post 342241
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342241_1781433855.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرخط خبرهای یکشنبه ۲۴ خرداد
+@iranintltv
+</div>
+
+## IranIntlTV — post 342240
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342240_1781433857.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+غلامحسین محسنی اژه‌ای، رییس قوه قضاییه جمهوری اسلامی، در پیامی نوشت ممکن است میان مسئولان درباره شیوه‌های «ایستادگی در برابر فشارهای خارجی» دیدگاه‌های متفاوتی وجود داشته باشد.
+
+اژه‌ای نوشت: «دشمن غدار و حیله‌گر بسیار به مخدوش‌کردن وحدت و انسجام ملی ما چشم دوخته است.»
+
+او افزود همه مسئولان کشور در این موضوع اتفاق نظر دارند که نباید در برابر دشمن کوتاه آمد و در این زمینه هیچ اختلاف‌نظری وجود ندارد و در «اصل مقاومت» تردیدی نیست.
+iranintl.com/202606149830
+</div>
+
+## Shin_Persian — post 7030
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sun, 14 Jun 2026 10:42:51 UTC
+
+More from Dahieh, Southern Beirut
+Lebanon
+
+ترجمه خودکار فارسی
+
+جزئیات بیشتر از ضاحیه، جنوب بیروت
+لبنان
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 7029
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sun, 14 Jun 2026 10:35:11 UTC
+
+Airstrike on Muawad, Dahieh
+Southern Beirut, Lebanon
+
+ترجمه خودکار فارسی
+
+حمله هوایی به معوض، ضاحیه
+جنوب بیروت، لبنان
+
+𝕏 · @shin_persian
+</div>
+
+## DW_Farsi — post 125953
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125953_1781433858.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📸 عکس روز: شگفت‌آفرینی استرالیا در برابر ترکیه
+
+تیم فوتبال استرالیا با شکست تیم ترکیه در جام جهانی شگفتی آفرید. چشمان شگفت‌زده این طرفدار ترکیه در ورزشگاه ونکوور شاید بتواند نمایانگر این شوک باشد.
+
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 17018
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_17018_1781433859.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حملات راکتی ساعتی قبل حزب الله به سوی اسرائیل
+
+Phantom
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17017
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دقایقی پیش ارتش اسرائیل در پاسخ به حملات حزب‌الله لبنان، نقطه ای در ضاحیه بیروت را بمباران‌ کرد. 📝 Amir 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17016
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_17016_1781433860.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل شدیدا در جبهه‌های مختلف اطراف نبطیه درگیر است.
+
+Phantom
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17013
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_17013_1781433862.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دقایقی پیش ارتش اسرائیل در پاسخ به حملات حزب‌الله لبنان، نقطه ای در ضاحیه بیروت را بمباران‌ کرد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## RadioFarda — post 158286
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_158286_1781433863.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸 در حالی که خبرها از داخل ایران اشاره به ادامه بررسی متن تفاهم‌نامه و نامشخص بودن زمان امضای آن دارد، خبرگزاری رویترز روز یک‌شنبه نوشت که دولت دونالد ترامپ در تفاهم‌نامه با آزاد کردن ۲۵ میلیارد دلار از دارایی‌های مسدود ایران موافقت کرده است.
+
+🔸 رویترز خبر خود را به نقل از «مقامی ارشد» در جمهوری اسلامی نوشته، اما به نام او اشاره نکرده است.
+
+🔸 به گفته منبع رویترز، دولت آمریکا همچنین موافقت کرده است که اورانیوم بسیار غنی‌شده ایران در داخل کشور رقیق شود.
+
+🔸 این‌ها دو مورد از بحث‌انگیزترین موضوعات در مذاکرات جاری میان ایران و آمریکا بوده است: ترامپ بارها بر لزوم گرفتن یا انتقال یا از بین بردن اورانیوم ۶۰ درصد غنی‌شده ایران تأکید کرده و همزمان بارها گفته است که پولی به ایران نخواهد داد.
+
+🔸 مسئله دادن پول به حکومت ایران به‌ویژه برای دونالد ترامپ حساسیت‌برانگیز بوده است،‌ چرا که او خود سال‌هاست به باراک اوباما تاخته که چرا در جریان رسیدن به توافق موسوم به برجام با انتقال پول به تهران موافقت کرده است.
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 22544
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22544_1781433864.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴این دیگه چی بود؟
+
+@IranianMinds
+</div>
+
+## alonews — post 127838
+
+<div align="center">
+  <a href="telegram/content/alonews_127838_1781433864.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوووری/رادیو اسرائیل از آغاز حمله موشکی به بیروت خبر داد 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127837
+
+<div align="center">
+  <a href="telegram/content/alonews_127837_1781433865.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوووری/رادیو اسرائیل از آغاز حمله موشکی به بیروت خبر داد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/24 14:04
 ---
 

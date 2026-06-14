@@ -7,6 +7,172 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/24 16:03
+---
+
+## pm_afshaa — post 93882
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مقامات اسراییلی:سنتکام از حمله ما با خبر بود
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93881
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت امور خارجه اعلام کرد: امروز توافقنامه امضا نخواهیم کرد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 342258
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342258_1781440419.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عبدالاله الحجر، مشاور رییس شورای عالی سیاسی حوثی‌های یمن تحت حمایت جمهوری اسلامی، به خبرگزاری تسنیم، وابسته به سپاه پاسداران گفت در صورت تشدید تنش‌ها و در صورت لزوم، حوثی‌ها ممکن است از بستن تنگه باب‌المندب به عنوان ابزاری برای فشار بر دشمنان خود استفاده کنند.
+
+او گفت حوثی‌های یمن پیش‌تر نیز تجربه بستن این آبراه به روی کشتی‌های مرتبط با اسرائیل را داشتند و در صورت نیاز، این اقدام را «به شکلی حساب‌شده» تکرار خواهند کرد.
+
+تسنیم در گزارشی از صنعا نوشت باب‌المندب یکی از مسیرهای اصلی انتقال انرژی و تجارت جهانی است و بسته شدن آن می‌تواند بر زنجیره تامین کالا و قیمت انرژی در جهان تاثیر بگذارد.
+
+حوثی‌های یمن از زمان آغاز جنگ غزه پس از حادثه هفتم اکتبر بارها کشتی‌های مرتبط با اسرائیل و برخی شناورهای تجاری را در دریای سرخ و تنگه باب‌المندب هدف قرار دادند؛ حملاتی که با واکنش نظامی آمریکا و متحدانش همراه شده است.
+https://iranintl.com/202606149252
+</div>
+
+## FarsiVOA — post 220673
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+توماج صالحی، خواننده، معترض در پیامی در اینستاگرام خود گفت آزادی ایران هرگز به خواست یا حمایت کشورهای دیگر وابسته نبوده و نخواهد بود.
+
+او تاکید کرد که مسیر آزادی‌خواهی در ایران، چه در شرایط جنگ، چه توافق و چه بدون حمایت خارجی ادامه خواهد یافت و افزود: «آزادی‌خواه‌های ایران هنوز زنده هستند؛ ما مثل گذشته قدم‌به‌قدم پیش می‌رویم، سنگر به سنگر فتح می‌کنیم.»
+
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 17048
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ستاد قرارگاه خاتم‌الانبیا در واکنش به حمله اسرائیل به ضاحیه اعلام کرد:
+
+جنایت‌های صهیونیست‌ها در ضاحیه بی‌پاسخ نخواهد ماند.
+</div>
+
+## Persian_Trend_Official — post 17047
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_17047_1781440419.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خو اومد زد !
+
+دکتر مسعود پزشکیان
+</div>
+
+## Persian_Trend_Official — post 17046
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17046_1781440420.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پاسخ خون ؛ خون است.
+مقر، ساختمان و پایگاه نیست.!
+
+شهید حاج عماد مغنیه
+</div>
+
+## RadioFarda — post 158290
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_158290_1781440420.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸محمداسماعیل توکلی، رئیس اورژانس استان تهران، روز یک‌شنبه گفت که «از مجموع ۸۷۰۰ مصدوم ثبت‌شده در استان تهران، حدود ۹۲ درصد غیرنظامی بودند».
+
+🔸توکلی ادامه داد:‌ «در مجموع ۱۲۶۲ شهید در استان تهران شناسایی شدند که ۸۲۰ نفر از آنان در همان صحنه حادثه شناسایی شدند.»
+
+🔸به گفته این مقام، عده‌ای از قربانیان جنگ نیز «به دلیل شدت جراحات و آسیب‌های وارده به‌صورت اولیه قابل شناسایی نبودند».
+
+🔸در ایران، سازمان‌های مستقل غیرحکومتی به این گونه آمار رسمی هیچ دسترسی ندارند و از همین رو امکان راستی‌آزمایی این آمار وجود ندارد.
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 22552
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22552_1781440421.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴اکانت اسرائیل به فارسی. @IranianMinds
+</div>
+
+## IranianMinds — post 22551
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22551_1781440421.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴اکانت اسرائیل به فارسی.
+
+@IranianMinds
+</div>
+
+## alonews — post 127866
+
+<div align="center">
+  <a href="telegram/content/alonews_127866_1781440422.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈این هواپیمای روس نیروی هوایی هند روز گذشته حین تلاش برای فرود در منطقه جورهات، سقوط کرده بود.
+
+
+🔴ارتش هند با انتشار یک بیانیه، اعلام کرد که در نتیجه این سقوط، پنج نفر از پرسنل نیروی هوایی هند جانشان را از دست دادند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127865
+
+<div align="center">
+  <a href="telegram/content/alonews_127865_1781440423.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سه کشته و شش زخمی در تلفات اولیه حمله هوایی اسرائیل به ضاحیه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127864
+
+<div align="center">
+  <a href="telegram/content/alonews_127864_1781440424.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزارت امور خارجه لبنان: ما به دلیل هدف قرار دادن یک خودروی ارتش و کشته شدن سربازان، از اسرائیل به شورای امنیت شکایت کرده‌ایم.
+
+
+🔴ما به دلیل پاشیدن آفت‌کش‌های گلیفوزات بر روی روستاهای مرزی جنوبی، شکایتی را به شورای امنیت ارائه کرده‌ایم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/24 15:53
 ---
 

@@ -7,6 +7,287 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/24 17:43
+---
+
+## VahidOOnLine — post 245484
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245484_1781446392.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمد مرندی، از اصحاب رسانه همراه با هیات مذاکره جمهوری اسلامی در پاکستان، درباره ادامه مذاکرات تهران و واشینگتن، در شبکه ایکس نوشت: «فعلا هیچ مذاکره دیگری در کار نخواهد بود.»
+همزمان با احتمال امضای تفاهم‌نامه میان آمریکا و جمهوری اسلامی، اسرائیل روز یک‌شنبه حملاتی را به جنوب بیروت انجام داد.
+در پی حملات به لبنان، قالیباف در شبکه ایکس نوشت: «این حمله نشان می‌دهد آمریکا یا اراده اجرای تعهدات خود را ندارد یا توان آن را. با چراغ سبز نشان دادن به اسرائیل نمی‌توانید امتیاز بگیرید. بازی پلیس بد و پلیس خوب قدیمی شده است.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14818
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رئیس ستاد ارتش اسرائیل دستور تشدید عملیات‌های زمینی در جنوب لبنان رو صادر کرده و به نیروهای دفاعی اسرائیل دستور داده که عمیق‌تر به خاک لبنان پیشروی کنند.
+@withyashar
+</div>
+
+## mwarmonitor — post 10871
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴اسرائیل خود را برای احتمال حمله ایران آماده می‌کند. سطح هشدارها افزایش یافته است. i24 news
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10870
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴«ارتش اسرائیل: دقایقی پیش یک مقر متعلق به سازمان تروریستی حزب‌الله را در بیروت هدف قرار دادیم. این مقر برای پیشبرد طرح‌های تروریستی علیه شهروندان دولت اسرائیل و نیروهای ارتش اسرائیل که در جنوب لبنان فعالیت می‌کنند، مورد استفاده عناصر حزب‌الله قرار می‌گرفت.…
+</div>
+
+## pm_afshaa — post 93899
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93899_1781446393.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴یدیعوت آحارونوت:
+اسرائیل آمادسازی پناهگاه‌های موشکی برای پرتاب موشک از سمت ایران رو آغاز کرده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93898
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93898_1781446393.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رسانه i24News:
+اسرائیل خودش رو برای احتمال حمله ایران آماده میکنه؛ سطح هشدارها افزایش یافته.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93897
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93897_1781446394.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رئیس ستاد ارتش اسرائیل دستور تشدید عملیات‌های زمینی در جنوب لبنان رو صادر کرده و به نیروهای دفاعی اسرائیل دستور داده که عمیق‌تر به خاک لبنان پیشروی کنند.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## VahidOnline — post 76318
+
+<div align="center">
+  <a href="telegram/content/VahidOnline_76318_1781446394.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عراقچی: مقاومت باعث جنگ شد
+[اینطور برداشت شده که داره میگه نپذیرفتن شرایط طرف مقابل در مذاکرات منجر به جنگ شد]
+
+عباس عراقچی، وزیر امور خارجه جمهوری اسلامی ایران شنبه ۲۳ خرداد در شبکه خبر و در پاسخ به پرسشی درباره علت دو جنگ اخیر گفت: «مذاکرات علت جنگ نبود، مقاومت تیم دیپلماسی در مذاکرات علت جنگ بود.»
+
+این گفته‌ها که در تعارض با موضع رسمی نظام جمهوری اسلامی و شخص علی  خامنه‌ای، رهبر پیشین جمهوری اسلامی به شمار می‌رود، با واکنش تند رسانه‌ها و سیاستمداران جریان اصولگرا مواجه شد.
+
+علی خامنه‌ای، رهبر جمهوری اسلامی ماه‌ها قبل و پس از «جنگ ۱۲ روزه» گفته بود دشمن هر جا احساس کند که ما ضعیفیم، حمله می‌کند.
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 76317
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76317_1781446395.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت اطلاعات جمهوری اسلامی در اطلاعیه‌ای مدعی شد یک فرد متهم به تلاش برای نفوذ به مراکز داده، یک هسته چهار نفره در جنوب شرق کشور و ۱۲۶ نفر از آنچه «لیدرهای میدانی شبکه خرابکاری خیابانی» خواند، بازداشت شده‌اند.
+@VahidHeadline
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 76316
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76316_1781446396.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمود طراوت‌روی، نازنین سالاری و مسعود احمدیان، وکلای دادگستری، به حبس و به عنوان مجازات تکمیلی به دو سال ممنوعیت خروج از کشور همراه با ابطال گذرنامه نیز محکوم شده‌اند.
+@VahidHeadline
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 76315
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76315_1781446396.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ماموران اطلاعاتی و نظامی جمهوری اسلامی در استان گلستان با یورش به منزل خانواده جاویدنام ابوالفضل میرآییز، اقدام به تفتیش خانه، طرح اتهامات بی‌اساس و تهدید اعضای خانواده او کرده‌اند.
+
+طبق این گزارش‌ها، ماموران ضمن بازرسی کامل منزل، بخشی از وسایل شخصی خانواده را نیز با خود برده‌اند و آنان را به برخوردهای امنیتی تهدید کرده‌اند.
+
+ابوالفضل میرآییز، ورزشکار ۳۴ ساله گرگانی، در جریان اعتراضات دی‌ماه با شلیک مستقیم ماموران حکومتی در خیابان‌های گرگان جان خود را از دست داد.
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 342279
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342279_1781446397.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رییس اتاق اصناف کشاورزی با اشاره به پرداخت نشدن مطالبات گندم‌کاران گفت با وجود افزایش تولید گندم، کشاورزان گندم کمتری را به سیلوهای دولتی تحویل داده‌اند.
+
+معصومه طاهرخانی، تحلیل‌گر اقتصادی، گفت: «پیامد نهایی این مشکلات متوجه مردم است، چرا که نه به نان باکیفیت دسترسی خواهند داشت و نه آن را با قیمت مناسب تهیه خواهند کرد.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 342278
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342278_1781446398.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمد مرندی، از اصحاب رسانه همراه با هیات مذاکره جمهوری اسلامی در پاکستان، درباره ادامه مذاکرات تهران و واشینگتن، در شبکه ایکس نوشت: «فعلا هیچ مذاکره دیگری در کار نخواهد بود.»
+همزمان با احتمال امضای تفاهم‌نامه میان آمریکا و جمهوری اسلامی، اسرائیل روز یک‌شنبه حملاتی را به جنوب بیروت انجام داد.
+در پی حملات به لبنان، قالیباف در شبکه ایکس نوشت: «این حمله نشان می‌دهد آمریکا یا اراده اجرای تعهدات خود را ندارد یا توان آن را. با چراغ سبز نشان دادن به اسرائیل نمی‌توانید امتیاز بگیرید. بازی پلیس بد و پلیس خوب قدیمی شده است.»
+https://iranintl.com/202606146950
+</div>
+
+## Shin_Persian — post 7051
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sun, 14 Jun 2026 14:09:34 UTC
+
+Ok. Seems like there MIGHT be missile launch from Iran towards Israel today
+
+ترجمه خودکار فارسی
+
+خب، به نظر می‌رسد احتمال دارد امروز پرتاب موشک از سوی ایران به سمت اسرائیل انجام شود.
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 220686
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220686_1781446399.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بازنشستگان در کرمانشاه روز یکشنبه، ۲۴ خرداد ۱۴۰۵، با شعار «نان گران، دارو گران، دولت شده دشمن جان» در اعتراض به شرایط دشوار معیشتی تجمع کردند.
+
+بازنشستگان کرمانشاه همچنین با شعار «نه جنگ می‌خوایم، نه کشتار، رفاه می‌خوایم ماندگار» اعتراض خود را نسبت به اولویت‌های اقتصادی و سیاسی جمهوری اسلامی بیان کردند و خواستار تمرکز حکومت بر رفاه عمومی و تأمین هزینه‌های زندگی شدند.
+</div>
+
+## DW_Farsi — post 125962
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125962_1781446400.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 ایران: حمله آمریکا به ذخایر آب جنایت جنگی است
+
+به گزارش شبکه خبری سی‌ان‌ان، جمهوری اسلامی مدعی است که آمریکا به ذخایر آب در ایران حمله کرده؛ اقدامی که از دید تهران "نقض قوانین بین‌الملل" و به این ترتیب "جنایت جنگی" محسوب می‌شود.
+
+بنا بر گزارش سی‌ان‌ان خبرگزاری نیمه‌دولتی مهر تصاویری منتشر کرده که نشان می‌دهند، شماری از "ذخایر آب آشامیدنی در جنوب ایران "هدف مهمات آمریکایی قرار گرفته‌اند". مهر به نقل از عبدالحمید حمزه پور، مدیرعامل شرکت آب و فاضلاب هرمزگان نوشت، "دو مخزن بتونی ذخیره آب به گنجایش ۲ هزار و پانصد مترمکعب در منطقه بامانی هدف اصاب موشک قرار گرفته و کاملا از کار افتاده‌اند".
+
+طبق گزارش شبکه سی‌ان‌ان در یکی از تصاویر منتشرشده از سوی خبرگزاری مهر تکه‌هایی از یک موشک نقطه‌زن ساخت آمریکا دیده می‌شود. سی‌ان‌ان در عین حال نوشت، نمی‌توان تأیید کرد که تکه مهماتی که در تصویر دیده می‌شوند، واقعا هم در محل وقوع حادثه یافت شده باشند.
+
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 17057
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_17057_1781446401.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مرندی عضو تیم مذاکره کننده:
+فعلاً مذاکره دیگری در کار نخواهد بود
+
+😄
+</div>
+
+## IranianMinds — post 22560
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22560_1781446401.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مرندی، عضو تیم مذاکره‌کننده:
+
+در حال حاضر، مذاکره دیگری در کار نخواهد بود.
+
+@IranianMinds
+</div>
+
+## idfinfarsi — post 11846
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️در پی حمله ارتش اسرائیل در بیروت، رئیس ستاد کل ارتش اسرائیل، سپهبد ایال زامیر، در حال برگزاری ارزیابی‌های مستمر وضعیت با تمامی فرماندهان ذی‌ربط است.
+
+🔸بر اساس این ارزیابی‌ها، ارتش اسرائیل برای احتمال شلیک به سمت خاک کشور اسرائیل در ساعات آینده آماده می‌شود.
+
+🔸ارتش اسرائیل به حفظ آمادگی و هوشیاری بالا برای سناریوهای مختلف در حوزه دفاعی و تهاجمی ادامه می‌دهد.
+
+🔸ارتش اسرائیل تأکید می‌کند که در این مرحله باید هوشیار بود، با مسئولیت عمل کرد و به دستورالعمل‌های پشت جبهه توجه نمود.
+
+🔸در حال حاضر هیچ تغییری در دستورالعمل‌های پشت جبهه ایجاد نشده است و در صورت هرگونه تغییر، به‌روزرسانی لازم به اطلاع عموم خواهد رسید.
+
+🔸ارتش اسرائیل هرگونه شلیک به سمت خاک کشور اسرائیل را تحمل نخواهد کرد.
+</div>
+
+## alonews — post 127887
+
+<div align="center">
+  <a href="telegram/content/alonews_127887_1781446402.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کانال 15 اسرائیل:
+تمام سامانه های پدافندی در اسرائیل به حالت آماده باش کامل درآمدند و در انتظار پرتاب موشک قریب‌الوقوع از سمت ایران می‌باشند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127886
+
+<div align="center">
+  <a href="telegram/content/alonews_127886_1781446402.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کانال 14 اسرائیل:
+اسرائیل ارزیابی میکنه که ایران در واکنش به حمله در حومه جنوبی بیروت، حمله موشکی به خاک اسرائیل انجام خواهد داد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/24 17:33
 ---
 

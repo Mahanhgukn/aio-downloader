@@ -7,6 +7,336 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/24 23:54
+---
+
+## WithYashar — post 14884
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏سناتور لیندسی گراهام به انتقاد از ترامپ‌برای سرزنش بی‌بی:
+
+«آمریکا در شرایط مشابه چه می‌کرد؟»
+@withyashar
+</div>
+
+## mwarmonitor — post 10920
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴یک منبع اسرائیلی به CNN گفته است که نتانیاهو به‌دنبال یک دیدار فوری با ترامپ پس از نشست G7 است، در میان افزایش تنش میان این دو رهبر.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10919
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴قطری‌ها در ساعات اخیر رهبری مذاکرات را بر عهده داشته‌اند تا جزئیات باقی‌مانده را نهایی کنند - نیویورک تایمز
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 93975
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93975_1781468644.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴یک منبع اسرائیلی به سی‌ان‌ان:
+نتانیاهو به‌ دنبال یک دیدار فوری با ترامپ پس از نشست G7 است، در میان افزایش تنش میان این دو رهبر.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93974
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93974_1781468644.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سی‌ان‌ان به نقل از یک دیپلمات مطلع:
+مذاکره‌کنندگان قطری هنوز در تهران هستن تا اطمینان حاصل کنن که مذاکرات در مسیر خودش باقی می‌مونه.
+
+مذاکره‌کنندگان قطری با هماهنگی آمریکا در تهران به سر می‌برن!
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93973
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93973_1781468645.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+احتمالا ترامپ گفته به‌جای باز کردن تدریجی محاصره دریایی، فورا بازش میکنم شما هم به اسرائیل حمله نکنید. فعلا که میگن جمهوری اسلامی رد کرده. ترامپِ حقیر..
+</div>
+
+## pm_afshaa — post 93972
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93972_1781468646.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کارشناس صداوسیما:
+پاکستانی‌ها برای میانجی‌گری به ایران نمیان، بلکه مرتب پیام تهدید و‌ ترور میارن.
+ 
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## Shin_Persian — post 7076
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet: Mohsin Naqvi ✓ @MohsinnaqviC42 Sun, 14 Jun 2026 19:25:31 UTC God is the Greatest ↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید. ترجمه خودکار فارسی الله اکبر 𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 7075
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+Mohsin Naqvi ✓ @MohsinnaqviC42
+Sun, 14 Jun 2026 19:25:31 UTC
+
+God is the Greatest
+
+↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
+
+ترجمه خودکار فارسی
+
+الله اکبر
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 7074
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sun, 14 Jun 2026 20:12:53 UTC
+
+Velayati, Khamenei’s special advisor:
+
+“The order has been issued, Zero hour has arrived, and the launchers are being prepared.”
+
+ترجمه خودکار فارسی
+
+ولایتی، مشاور ویژه خامنه‌ای:
+
+«دستور صادر شده، ساعت صفر فرا رسیده و سکوهای پرتاب در حال آماده‌سازی هستند.»
+
+𝕏 · @shin_persian
+</div>
+
+## Iliaen — post 4484
+
+<div align="center">
+  <img src="telegram/content/Iliaen_4484_1781468648.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+همزمان با تغییر جهت پروازها و تایید و تکذیب علت آن در رسانه‌های مختلف، علی‌اکبر ولایتی (مشاور خامنه‌ای) دقایقی قبل نوشت:
+
+فرمان صادر شد، ساعت صفر فرا رسیده و پرتابگرها آماده میشوند.
+
+@iliaen
+</div>
+
+## Persian_Trend_Official — post 17111
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_17111_1781468649.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری CNN: بنیامین نتانیاهو، نخست‌وزیر اسرائیل، در بحبوحه اختلافات فزاینده بر سر ایران و لبنان، به دنبال دیدار فوری با رئیس‌جمهور ترامپ است.
+
+نتانیاهو قصد دارد این دیدار را پس از بازگشت ترامپ از اجلاس گروه 7 در اروپا در آخر هفته آینده یا اندکی پس از آن برگزار کند.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17110
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به گزارش نیویورک تایمز به نقل از مقامات منطقه‌ای، در حالی که ایالات متحده و ایران برای نهایی کردن توافق تلاش می‌کنند، قطری‌ها در ساعات اخیر مذاکرات را برای تعیین جزئیات باقی‌مانده رهبری کرده‌اند.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## RadioFarda — post 158303
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_158303_1781468650.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸در پی تهدید برخی مقام‌های جمهوری اسلامی درباره پاسخ به حملات اسرائیل به مواضع حزب‌الله در جنوب بیروت، خبرگزاری تسنیم شامگاه یکشنبه خبر داد پروازهای فرودگاه‌های غرب ایران «تا اطلاع ثانوی لغو شده است».
+
+🔸این خبرگزاری نزدیک به سپاه پاسداران گفت که «این تصمیم در پی شرایط موجود اتخاذ شده است».
+
+🔸تسنیم در عین حال گفت که سازمان هواپیمایی ایران هنوز نوتام رسمی درباره لغو پروازهای غرب کشور صادر نکرده است.
+
+🔸سپس سخنگوی سازمان هواپیمایی کشوری به خبرگزاری مهر گفت: «نوتام مربوط به محدودیت پروازی در غرب کشور، همان نوتام قبلی است و اطلاعیه جدیدی در این زمینه صادر نشده است.»
+
+🔸خبرگزاری ایسنا هم به نقل از این مقام نوشت: «خبرهایی که اخیرا در خصوص ممنوعیت پروازها از امشب در غرب کشور منتشر شده تکذیب می‌شود.»
+
+🔸در پی حمله روز یکشنبه اسرائیل به منطقه ضاحیه در حومه بیروت، دبیر شورای عالی امنیت ملی ایران تهدید کرد که پاسخ نیروهای نظامی ایران «در پیش است».
+
+@RadioFarda
+</div>
+
+## BBCPersian — post 283819
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻 حداقل شش فلسطینی بر اثر حملات اسرائیل در غزه کشته شدند
+
+امروز حداقل شش فلسطینی در حملات هوایی و تیراندازی نیروهای اسرائیل در نوار غزه کشته شده‌اند.
+
+حداقل چهار نفر از این افراد در حمله‌ای در نزدیکی بیمارستان الیمان السعید در اردوگاه پناهندگان جبالیا کشته شدند.
+
+دو نفر دیگر در تیراندازی‌های جداگانه در خان یونس، در جنوب، و در شهر غزه کشته شدند.
+
+این حملات در حالی رخ داد که میانجیگران، مصر، قطر و ترکیه، مذاکرات یک هفته‌ای خود را با حماس و دیگر جناح‌های فلسطینی در مورد اجرای مرحله دوم طرح دونالد ترامپ، رئیس‌جمهور آمریکا، برای غزه به پایان رساندند.
+
+این طرح شامل خلع سلاح حماس و خروج نیروهای اسرائیل از غزه می‌شود.
+
+https://bbc.in/4eIO6ag
+@BBCPersian
+</div>
+
+## BBCPersian — post 283818
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283818_1781468651.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌ ‌ ‌
+آنتونیو گوترش، دبیرکل سازمان ملل متحد، روز یکشنبه حملات اسرائیل به بیروت را قویا محکوم کرد.
+
+او در بیانیه‌ای گفت: «این حملات به‌رغم آتش‌بس و در زمانی رخ داد که انتظار می‌رود آمریکا و جمهوری اسلامی ایران به توافقی دست یابند که راه را برای حل و فصل مسالمت‌آمیز این درگیری هموار کند.»
+
+آقای گوترش در این بیانیه گفت: «این جنگ «تأثیر مخربی بر اقتصاد جهان» داشته است و از همه طرف‌ها خواست که در این لحظه حساس حداکثر خویشتنداری را نشان دهند.»
+
+پیش از این هم دونالد ترامپ، رئیس‌جمهوری آمریکا به‌شدت از حملات اسرائیل به لبنان انتقاد کرده بود و از ایران خواسته بود که به این حملات پاسخ ندهد.
+
+https://bbc.in/4owFQ0v
+📷EPA/Shutterstock
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 392043
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392043_1781468652.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نتم حلالت …. نتم حلالت 😆😆😆😆😆
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392042
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392042_1781468654.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خشم مردم انقلابی از توافق با امریکا، دیشب در خراسان رضوی
+#نمی‌پذیریم
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 128006
+
+<div align="center">
+  <a href="telegram/content/alonews_128006_1781468654.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سی‌ان‌ان: یک منبع اسرائیلی گفت: نتانیاهو به دنبال دیدار فوری با ترامپ است
+
+
+🔴این منبع افزود: نتانیاهو تلاش می‌کند پس از بازگشت ترامپ از نشست جی‌۷ در اروپا، آخر هفته آینده یا اندکی پس از آن، دیداری ترتیب دهد.
+
+
+🔴ترامپ روز یکشنبه پس از آنکه ارتش اسرائیل، بیروت را هدف قرار داد، به شدت اسرائیل را سرزنش کرد و گفت حمله به پایتخت لبنان «نباید اتفاق می‌افتاد».
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128005
+
+<div align="center">
+  <a href="telegram/content/alonews_128005_1781468655.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈یک دیپلمات مطلع به سی‌ان‌ان گفت: مذاکره‌کنندگان قطری هنوز در تهران هستند تا اطمینان حاصل کنند که مذاکرات در مسیر خود باقی می‌ماند.
+
+
+🔴به گفته این منبع، مذاکره‌کنندگان قطری با هماهنگی ایالات متحده در پایتخت ایران به سر می‌برند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128004
+
+<div align="center">
+  <a href="telegram/content/alonews_128004_1781468655.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈صدا و سیما: امشب رزمندگان اسلام، اسرائیل رو بمبارون میکنن
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128003
+
+<div align="center">
+  <a href="telegram/content/alonews_128003_1781468655.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈یک منبع امنیتی اسرائیلی گفته است که نخست‌وزیر بنیامین نتانیاهو انتظار داشت حمله به بیروت باعث تشدید تنش‌ها و به شکست کشاندن دیپلماسی شود، اما مذاکرات با وجود این حادثه ادامه یافته است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128002
+
+<div align="center">
+  <a href="telegram/content/alonews_128002_1781468655.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کارشناس شبکه افق: امام شهید ما خونش را برای اورانیوم گذاشت ولی امروز مسئولین جلسه می‌گذارند و می‌گویند اورانیوم به درد نمی‌خورد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/24 23:43
 ---
 

@@ -7,6 +7,224 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/24 21:13
+---
+
+## VahidOOnLine — post 245517
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245517_1781459017.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️علی عبداللهی، فرمانده قرارگاه مرکزی خاتم‌الانبیا، روز یکشنبه و پس از حملات اسرائیل به ضاحیه بیروت در پیامی با تاکید بر آمادگی نیروهای مسلح جمهوری اسلامی ایران گفت توان رزمی، دفاعی و قدرت موشکی، دریایی، پهپادی و پدافند هوایی کشور نسبت به گذشته ارتقا یافته و نیروهای مسلح «دست به ماشه» آماده شلیک به «قلب دشمن» هستند.
+فرمانده قرارگاه مرکزی خاتم‌الانبیا همچنین هشدار داد که ایران هرگونه اقدام احتمالی طرف مقابل را زیر نظر دارد و افزود: «ما منتظر کوچک‌ترین لغزشی از سوی دشمن متجاوز هستیم تا درسی فراموش‌نشدنی و پایان‌بخش به آن‌ها بدهیم.»
+این بیانیه در حالی منتشر شد که،‌ پیشتر محمدجعفر اسدی، معاون بازرسی قرارگاه مرکزی خاتم‌الانبیاء، در واکنش به حمله اسرائیل به ضایحه بیروت گفته بود: «قطعا پاسخ این جنایت‌ها داده خواهد شد.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14854
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قالیباف : بازی پلیس خوب و پلیس بد قدیمی شده است.
+@withyashar
+</div>
+
+## WithYashar — post 14853
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خضریان، نماینده مجلس:
+
+ارتباط واتساپی عراقچی با ویتکاف باید کاملاً قطع شود!
+@withyashar
+</div>
+
+## WithYashar — post 14852
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+زیرنویس شبکه خبر :
+پاسخ به حمله اسرائیل قطعی است.
+@withyashar
+</div>
+
+## VahidOnline — post 76340
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76340_1781459018.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏پاسخ رزمندگان اسلام در پیش است.
+محمدباقر ذوالقدر، دبیر شورای عالی امنیت ملی در جمهوری اسلامی
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 342327
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342327_1781459018.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تیم ملی فوتبال ایران برای نخستین دیدار خود در مرحله گروهی جام جهانی، از تیخوانای مکزیک راهی لس‌آنجلس آمریکا شد. ویزا‌ی تعدادی از اعضای هیات اعزامی تیم ملی ایران، از جمله مهدی تاج، رییس فدراسیون فوتبال، صادر نشده و آنها قادر به همراهی تیم در آمریکا نیستند.
+
+گزارش رضا محدث، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## Shin_Persian — post 7072
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سهیل مادرجنده اگه این کانالو می خونی جواب توییتمو بده ابن لواط
+</div>
+
+## FarsiVOA — post 220705
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220705_1781459020.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بازنشستگان تأمین اجتماعی روز یکشنبه ۲۴ خرداد ۱۴۰۵ در چند شهر از جمله تهران، اهواز، رشت، کرمانشاه و شوش تجمع اعتراضی برگزار کردند و با سر دادن شعارهایی علیه گرانی، تورم، مشکلات درمانی و عملکرد دولت و مجلس شورای اسلامی، خواستار رسیدگی به مطالبات معیشتی و صنفی خود شدند.
+</div>
+
+## Persian_Trend_Official — post 17085
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_17085_1781459022.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شورای عالی امنیت ملی: ‏پاسخ رزمندگان اسلام در پیش است!
+
+محمدباقر ذوالقدر:‏ ‏پاسخ رزمندگان اسلام در پیش است. ‏وحدت میدان‌ها یک زنجیره امنیتی در دفاع از منطقه ایجاد کرده است.
+
+لبنان جان ماست و نقض خطوط قرمز جمهوری اسلامی تحمل نخواهد شد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 22576
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22576_1781459022.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+متاسفانه در پی امضای توافق مجازی رهبر نتونستن این صفحه رو فعلا رد کنن و امضای توافق فعلا به تاخیر افتاده
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22575
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 رسانه های اسرائیلی :
+
+بر اساس ارزیابی اسرائیل، ترامپ به‌زودی امتیازی به ایران پیشنهاد خواهد کرد تا تهران در واکنش به حمله به ضاحیه بیروت دست به تلافی نزند.
+
+جزئیات این امتیاز هنوز مشخص نیست.
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 392030
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392030_1781459023.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رکورد بیشترین کتلت در کمترین زمان 😅
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392029
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392029_1781459024.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حتی توی تل‌آویو هم فهمیدن، مشتقوا قبلا چیکاره بوده 😂🔥
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392028
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+من که می‌گم قالیباف اصلا خورشتی خوردش کرده، برده گذاشته فریزر خونه‌ش.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Hranews — post 113614
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارشی از معوقات مزدی و مشکلات کارگران کارخانه فولاد سیادن ابهر
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– حدود ۲۸۰ کارگر شاغل در کارخانه فولاد سیادن ابهر، دو ماه مطالبات مزدی پرداخت‌نشده دارند. این #کارگران همچنین از نامناسب بودن شرایط ایمنی و بهداشتی محیط کار خود گلایه‌مند هستند.
+
+ادامه مطلب
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## alonews — post 127968
+
+<div align="center">
+  <a href="telegram/content/alonews_127968_1781459024.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فووری/ دبیر شورای‌ عالی امنیت ملی:
+پاسخ ایران به اسرائیل در راه است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127967
+
+<div align="center">
+  <a href="telegram/content/alonews_127967_1781459024.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سنتکام : مسیر ۱۴۲ تا کشتی تجاری که تغییر دادیم؛ ۹ تا کشتی که همکاری نکردن رو متوقف یا از کار انداختیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127966
+
+<div align="center">
+  <a href="telegram/content/alonews_127966_1781459025.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کانال ۱۲عبری: مقامات اسرائیلی ارزیابی می‌کنند که ترامپ به زودی پیشنهادی به ایران ارائه خواهد داد تا در ازای اجتناب از واکنش به حمله بیروت، امتیازی بدهد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/24 21:03
 ---
 

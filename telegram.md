@@ -7,6 +7,87 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/24 12:03
+---
+
+## mwarmonitor — post 10850
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_10850_1781426025.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 زلینسکی ؛ نیروهای ما در اجرای «تحریم‌های دوربرد» علیه تأسیسات مهم در خاک روسیه و همچنین در مناطق اشغالی موقت اوکراین، نتایج خوبی به دست آورده‌اند.
+🔸بیش از ۷۰۰ کیلومتر دورتر از مرز کشور ما، در منطقه یاروسلاول روسیه، نیروهای سرویس امنیت اوکراین (SSU) به یک تأسیسات نفتی که برای ذخایر دولت متجاوز اهمیت داشت، حمله کردند.
+🔸نیروهای ارتش ما به اهداف خود در منطقه تولا روسیه نیز دست یافتند؛ به‌طور مشخص کارخانه «آزوت» که فعالیت آن برای ظرفیت تولید مواد منفجره حیاتی است.
+🔸محدودیت‌های ترافیک هوایی در شش فرودگاه روسیه اعمال شد و به‌طور کلی از شامگاه دیروز، ۲۸ منطقه روسیه تحت هشدار حمله هوایی قرار داشتند.
+
+@mwarmonitor
+</div>
+
+## IranIntlTV — post 342219
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342219_1781426027.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل برای بیش از ۱۰ شهرک و روستا در محدوده رودخانه زهرانی لبنان هشدار تخلیه صادر کرد و از ساکنان این مناطق خواست خانه‌های خود را تخلیه کرده و به شمال رودخانه زهرانی نقل مکان کنند.
+
+درگیری‌ها در جنوب لبنان پس از ورود پرنده‌های ناشناس از جنوب لبنان به آسمان اسرائیل در روزهای شنبه و یکشنبه ۲۳ و ۲۴ خرداد تشدید شده است.
+https://iranintl.com/202606143487
+</div>
+
+## IranianMinds — post 22529
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22529_1781426027.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 حمید رسایی تو تجمعات :
+اگه میخواید این تجمعات تموم بشه باید انتقام رهبر گرفته بشه و انتقام رهبر فقط با محو کردن اسرائیل از کره ی زمین گرفته میشه.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22528
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این روزا شاهد کارما در سطح کشور هستیم
+
+
+
+
+@IranianMinds
+</div>
+
+## alonews — post 127804
+
+<div align="center">
+  <a href="telegram/content/alonews_127804_1781426029.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نخست وزیر انگلیس کیر استارمر: صبح امروز دستور حمله به یک نفتکش ناوگان سایه روسیه که قصد عبور از تنگه مانش را داشت، صادر کردم
+
+
+🔴این عملیات موفقیت‌آمیز ضربه دیگری به روسیه وارد می‌کند و به کسانی که به جنگ اوکراین دامن می‌زنند یادآوری می‌کند که ما اجازه پنهان شدن آنها را نخواهیم داد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127803
+
+<div align="center">
+  <a href="telegram/content/alonews_127803_1781426029.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈بلومبرگ: ایران احتمالاً در طول آتش‌بس سلاح‌های پیشرفته روسی را به ذخایر خود اضافه کرده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/24 11:53
 ---
 

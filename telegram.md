@@ -7,6 +7,20 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/24 05:43
+---
+
+## FarsiVOA — post 220635
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220635_1781403218.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️شرایط تیم ملی فوتبال آلمان در جام جهانی ۲۰۲۶؛ گفت‌وگو با کوروش بازیار مربی و کارشناس فوتبال
+@FarsiVOA
+</div>
+
+---
 📅 بروزرسانی: 1405/03/24 05:33
 ---
 

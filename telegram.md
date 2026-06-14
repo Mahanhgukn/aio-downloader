@@ -7,6 +7,204 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/24 15:53
+---
+
+## VahidOOnLine — post 245463
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245463_1781439834.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمدجعفر اسدی، معاون بازرسی قرارگاه مرکزی خاتم‌الانبیا، در واکنش به حمله اسرائیل به ضاحیه بیروت گفت: «بدون شک این جنایات بی‌پاسخ نخواهد ماند.»
+
+او در گفت‌وگو با دفاع‌پرس، حمله ارتش اسرائیل به منطقه ضاحیه را محکوم کرد و نسبت به پیامدهای آن هشدار داد.
+
+ارتش اسرائیل در بیانیه‌ای یکشنبه ۲۴ خرداد اعلام کرد در واکنش به شلیک پرتابه از سوی حزب‌الله به شمال اسرائیل، اهدافی از این گروه را در ضاحیه بیروت هدف قرار داده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14798
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبر ترور ‌نعیم قاسم تایید نشده است
+منتظر تایید هستیم
+@withyashar
+</div>
+
+## WithYashar — post 14797
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال ۱۲ اسرائیل به نقل یه مقام امنیتی: حتی یه موشک از سمت ایران پرتاب بشه، با حمله‌ای گسترده به اونا پاسخ میدیم و آماده هر سناریویی هستیم.
+@withyashar
+</div>
+
+## WithYashar — post 14795
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨🚨🚨🚨🚨🚨
+</div>
+
+## FoxNewsTwitter — post 342952
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342952_1781439835.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+HAPPY BIRTHDAY! President Trump turns 80 today.
+
+The nation's 45th and 47th president celebrates a milestone birthday as the country prepares to commemorate America's 250th anniversary.
+</div>
+
+## IranIntlTV — post 342257
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342257_1781439835.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمدجعفر اسدی، معاون بازرسی قرارگاه مرکزی خاتم‌الانبیا، در واکنش به حمله اسرائیل به ضاحیه بیروت گفت: «بدون شک این جنایات بی‌پاسخ نخواهد ماند.»
+
+او در گفت‌وگو با دفاع‌پرس، حمله ارتش اسرائیل به منطقه ضاحیه را محکوم کرد و نسبت به پیامدهای آن هشدار داد.
+
+ارتش اسرائیل در بیانیه‌ای یکشنبه ۲۴ خرداد اعلام کرد در واکنش به شلیک پرتابه از سوی حزب‌الله به شمال اسرائیل، اهدافی از این گروه را در ضاحیه بیروت هدف قرار داده است.
+https://iranintl.com/202606144657
+</div>
+
+## IranIntlTV — post 342256
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/342256" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی اخبار نیمروزی | یکشنبه ۲۴ خرداد
+@iranintlTV
+</div>
+
+## FarsiVOA — post 220672
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺حزب‌الله معادله «ضاحیه در برابر شهرک‌های شمالی اسرائیل» را نقض کرد
+
+◾️بنا به گزارش رسانه‌های عربی در روز یکشنبه ۲۴ خرداد، ارتش اسرائیل اعلام کرد، گروه تروریستی حزب‌الله با حمله پهپادی به شمال اسرائیل، آتش‌بس شکل گرفته میان دو طرف، براساس معادله «ضاحیه بیروت در برابر شهرک‌های شمالی اسرائیل» را نقض کرده، و ارتش اسرائیل حق دارد که به این حملات پاسخ دهد.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/lebanon-hezbollah-beirut-irgc-iran-/8160657.html
+</div>
+
+## Persian_Trend_Official — post 17045
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17045_1781439836.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کم کم اماده لایو بشیم از نوع اضطراری 😄
+</div>
+
+## Persian_Trend_Official — post 17044
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کم کم اماده لایو بشیم از نوع اضطراری 😄
+</div>
+
+## Persian_Trend_Official — post 17043
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17043_1781439837.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حمله اسرائیل به ضاحیه
+</div>
+
+## BBCPersian — post 283793
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻اسرائیل به ضاحیه حمله کرد
+
+اسرائیل اعلام کرد که پس از حملات امروز حزب‌الله، به اهدافی در ضاحیه در حومه جنوبی بیروت حمله کرده است.
+
+ارتش اسرائیل گفت که حزب‌الله سه پرتابه به مناطق شمالی اسرائیل شلیک کرد که «نقض آشکار آتش‌بس» است.
+
+بنیامین نتانیاهو، نخست‌وزیر و اسرائیل کاتس، وزیر دفاع اسرائیل در بیانیه‌ای مشترک گفتند: «ارتش اسرائیل اکنون در پاسخ به حملات حزب‌الله به خاکش، اهداف تروریستی متعلق به گروه تروریستی حزب‌الله را در محله ضاحیه در بیروت هدف قرار داده است.»
+
+حزب‌الله تاکنون واکنشی رسمی به این بیانیه اسرائیل نشان نداده اما گفته بود که موشک‌ و پهپاد به سمت نیروهای اسرائیل شلیک کرده است.
+
+ایران تاکید کرده که توقف جنگ در لبنان لازمه توافق با آمریکاست.
+
+دفعه قبل که اسرائیل به ضاحیه، پایگاه قدرت حزب‌الله در بیروت، حمله کرد ایران نقاطی را در اسرائیل هدف حمله موشکی قرار داد و اسرائیل هم در مقابل به اهدافی در ایران حمله کرد تا اینکه دونالد ترامپ از هر دو کشور خواست شلیک به یکدیگر را متوقف کنند.
+
+https://bbc.in/4fEONCy
+@BBCPersian
+</div>
+
+## Hranews — post 113604
+
+<div align="center">
+  <a href="telegram/content/Hranews_113604_1781439838.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روز جاری، جمعی از بازنشستگان تامین اجتماعی در مقابل ساختمان این سازمان در کرمانشاه دست به #تجمع اعتراضی زدند. بازنشستگان مذکور، خواستار اجرای طرح همسان‌سازی، افزایش حقوق طبق تورم و رسیدگی به مشکلات درمانی و معیشتی خود هستند.
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## Hranews — post 113603
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+زندان زاهدان؛ حکم اعدام یک زندانی اجرا شد
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– سحرگاه امروز یکشنبه ۲۴ خردادماه، یک زندانی در زندان زاهدان #اعدام شد. وی پیشتر از بابت اتهامات مرتبط با جرائم مواد مخدر به مجازات مرگ محکوم شده بود.
+
+ادامه مطلب
+
+#حسن_حسینی_نارویی
+
+↘️
+@hranews_bot تماس ✉️ -  @Hranews  کانال هرانا 🆑
+</div>
+
+## alonews — post 127863
+
+<div align="center">
+  <a href="telegram/content/alonews_127863_1781439840.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خبرنگار آکسیوس: مقامات اسرائیلی و آمریکایی می‌گویند ارتش اسرائیل اندکی پیش از حمله به بیروت، فرماندهی مرکزی آمریکا (سنتکام) را مطلع کرده بود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127862
+
+<div align="center">
+  <a href="telegram/content/alonews_127862_1781439840.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈عراقچی: سرمایه اجتماعی و انسجام ملی، امروز یکی از مهم‌ترین مؤلفه‌های قدرت جمهوری اسلامی ایران در عرصه بین‌المللی است و طبیعتاً هرچه این پشتوانه مردمی تقویت شود، قدرت چانه‌زنی و تأثیرگذاری دیپلماسی کشور نیز افزایش خواهد یافت
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/24 15:43
 ---
 

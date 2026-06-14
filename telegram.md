@@ -7,6 +7,188 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/24 20:23
+---
+
+## VahidOOnLine — post 245511
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245511_1781456013.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهوری آمریکا، در ادامه گفت‌وگوی خود با فاکس نیوز گفت در صورت امضای تفاهم‌نامه با جمهوری اسلامی بلافاصله دستور لغو محاصره بنادر ایران را صادر خواهد کرد.
+او افزود پس از امضای این تفاهم‌نامه، مذاکرات درباره جزییات برنامه هسته‌ای جمهوری اسلامی ادامه خواهد یافت.
+ترامپ همچنین گفت مراسم امضای حضوری تفاهم‌نامه میان واشینگتن و تهران ممکن است هفته آینده در اروپا برگزار شود.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245510
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245510_1781456013.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس‌جمهوری آمریکا، روز یکشنبه ۲۴ خرداد ماه در گفتگو با فاکس نیوز اعلام کرد امضاء توافق با ایران روز یکشنبه به‌صورت الکترونیکی انجام خواهد شد و مراسم امضای حضوری آن یک هفته بعد در اروپا برگزار می‌شود.
+ترامپ همچنین گفت بلافاصله پس از امضای توافق با ایران، دستور رفع محاصره را صادر خواهد کرد.
+رئیس‌جمهوری آمریکا در بخش دیگری از اظهاراتش فاش کرد پس از حمله اسرائیل به ضاحیه جنوبی بیروت، پیامی «خشمگینانه» برای بنیامین نتانیاهو، نخست‌وزیر اسرائیل، ارسال کرده است.
+این اظهارات ساعاتی پس از آن مطرح می‌شود که ترامپ در شبکه اجتماعی تروث سوشال نیز حمله اسرائیل به بیروت را غیرضروری توصیف کرده و گفته بود این اقدام نباید روند دستیابی به توافق صلح با ایران را مختل کند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245509
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245509_1781456014.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهوری آمریکا، در گفت‌وگو با فاکس نیوز گفت معتقد است تفاهم‌نامه میان واشینگتن و تهران ظرف دو تا سه ساعت آینده به‌صورت الکترونیکی امضا خواهد شد. او همچنین گفت از جمهوری اسلامی خواهد خواست به حملات اسرائیل علیه حزب‌الله واکنش نشان ندهد.
+ترامپ افزود حملات آمریکا به مواضع جمهوری اسلامی در اواسط هفته گذشته، تهران را به بازگشت به میز مذاکره وادار کرده است. او همچنین گفت مقام‌های جمهوری اسلامی در جریان این حملات با او تماس گرفتتند و خواستار توقف بمباران‌ها شدند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14844
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رئیس کمیسیون امنیت ملی مجلس: پاسخ به حمله امروز اسرائیل توسط جبهه مقاومت قطعی است
+@withyashar
+</div>
+
+## WithYashar — post 14843
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ به فاکس نیوز گفت:
+
+توافق با ایران از راه دور امضا خواهد شد، سپس امضای حضوری آن ممکن است یک هفته بعد در اروپا انجام شود
+@withyashar
+</div>
+
+## WithYashar — post 14842
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بن‌گویر خطاب به نتانیاهو: قوی باش، نترس
+@withyashar 🥥🥥
+</div>
+
+## mwarmonitor — post 10896
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اگر جمهوری اسلامی و آمریکا به اسرائیل حمله کردند تعجب نکنید
+</div>
+
+## pm_afshaa — post 93934
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93934_1781456014.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ابراهیم عزیزی، رئیس کمیسیون امنیت ملی مجلس: پاسخ به حمله امروز اسرائیل قطعی است.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93933
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وزیر امنیت داخلی اسرائیل، بن گویر : آقای نخست‌وزیر، قوی باش و نترس، وا نده
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## kianmeli1 — post 87992
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87992_1781456015.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رئیس کمیسیون امنیت ملی مجلس: پاسخ به حمله امروز اسرائیل توسط جبهه مقاومت قطعی است
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 342320
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342320_1781456015.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهوری آمریکا، در ادامه گفت‌وگوی خود با فاکس نیوز گفت در صورت امضای تفاهم‌نامه با جمهوری اسلامی بلافاصله دستور لغو محاصره بنادر ایران را صادر خواهد کرد.
+او افزود پس از امضای این تفاهم‌نامه، مذاکرات درباره جزییات برنامه هسته‌ای جمهوری اسلامی ادامه خواهد یافت.
+ترامپ همچنین گفت مراسم امضای حضوری تفاهم‌نامه میان واشینگتن و تهران ممکن است هفته آینده در اروپا برگزار شود.
+https://iranintl.com/202606143554
+</div>
+
+## Shin_Persian — post 7066
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جلیلی درسته گویا
+</div>
+
+## Shin_Persian — post 7065
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_7065_1781456016.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sun, 14 Jun 2026 16:46:04 UTC
+
+Initial:
+Saeed Jalili, Iranian hardliner who has a huge anti-deal fanbase has been sacked from the Islamic Regime's Supreme National Security Council.
+
+(Told you: https://sh1n.org/news/the-deal-the-trap-and-ghalibaf-waiting-behind-the-curtain)
+
+ترجمه خودکار فارسی
+
+سعید جلیلی، تندروی ایرانی که طرفداران پرشمارِ ضد-توافق دارد، از شورای عالی امنیت ملی رژیم اسلامی برکنار شده است.
+
+(به شما گفته بودم: https://sh1n.org/news/the-deal-the-trap-and-ghalibaf-waiting-behind-the-curtain)
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 220702
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺ارتش اسرائیل: دقدوق، از فرماندهان ارشد حزب‌الله، کشته شد
+
+◾️ارتش اسرائیل از کشته شدن علی موسى دقدوق، یکی از فرماندهان ارشد سازمان تروریستی حزب‌الله و فرمانده پیشین «پرونده جولان» در جنوب لیتانی خبر داد.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/ali-musa-daquq-killed-south-lebanon-senior-hezbollah-commander/8160703.html
+</div>
+
+## alonews — post 127955
+
+<div align="center">
+  <a href="telegram/content/alonews_127955_1781456016.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری/رئیس کمیسیون امنیت ملی مجلس: پاسخ به حمله امروز اسرائیل توسط جبهه مقاومت قطعی است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/24 20:13
 ---
 

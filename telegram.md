@@ -7,6 +7,238 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/24 20:43
+---
+
+## VahidOOnLine — post 245515
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245515_1781457219.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رییس‌جمهوری آمریکا، روز یکشنبه در گفتگو با شبکه خبری فاکس اعلام کرد در صورت امضاء تفاهم‌نامه با ایران بلافاصله دستور لغو محاصره بنادر ایران را صادر خواهد کرد.
+رئیس‌جمهوری آمریکا، در بخش دیگری از این گفتگو اعلام کرد امضاء توافق با ایران روز یکشنبه به‌صورت الکترونیکی انجام خواهد شد و مراسم امضاء حضوری یک هفته بعد در اروپا برگزار می‌شود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245514
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245514_1781457220.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یوری اوشاکوف، مشاور کرملین، گفت دونالد ترامپ در گفت‌وگوی تلفنی با ولادیمیر پوتین اعلام کرد توافق برای پایان دادن به درگیری با جمهوری اسلامی تقریبا نهایی شده است.
+به گفته اوشاکوف، رییس‌جمهوری روسیه از پایان یافتن درگیری‌ها ابراز خرسندی کرده است.
+مشاور کرملین همچنین گفت ترامپ در این گفت‌وگو بر ضرورت پایان جنگ اوکراین تاکید و آمادگی خود را برای کمک به این روند اعلام کرده است.
+اوشاکوف افزود پوتین نیز به‌صورت «غیررسمی» هشتادمین سالروز تولد ترامپ را به او تبریک گفته است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14850
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ادعای ترامپ در گفتگو با اکسیوس:
+
+این توافق به نفع اسرائیل خواهد بود، زیرا مانع از دستیابی ایران به سلاح هسته‌ای شده و این کشور را ملزم به رهاسازی مواد هسته‌ای می‌کند
+@withyashar
+</div>
+
+## WithYashar — post 14849
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یدیعوت آحارونوت: کابینه امنیتی اسرائیل امشب تو یه مکان مخفی تشکیل جلسه میدن
+@withyashar
+</div>
+
+## WithYashar — post 14847
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/withyashar/s/5
+</div>
+
+## pm_afshaa — post 93937
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93937_1781457221.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👌💕
+</div>
+
+## IranIntlTV — post 342324
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342324_1781457223.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یوری اوشاکوف، مشاور کرملین، گفت دونالد ترامپ در گفت‌وگوی تلفنی با ولادیمیر پوتین اعلام کرد توافق برای پایان دادن به درگیری با جمهوری اسلامی تقریبا نهایی شده است.
+به گفته اوشاکوف، رییس‌جمهوری روسیه از پایان یافتن درگیری‌ها ابراز خرسندی کرده است.
+مشاور کرملین همچنین گفت ترامپ در این گفت‌وگو بر ضرورت پایان جنگ اوکراین تاکید و آمادگی خود را برای کمک به این روند اعلام کرده است.
+اوشاکوف افزود پوتین نیز به‌صورت «غیررسمی» هشتادمین سالروز تولد ترامپ را به او تبریک گفته است.
+https://iranintl.com/202606141853
+</div>
+
+## IranIntlTV — post 342323
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342323_1781457224.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نوید محبی، تحلیل‌گر سیاسی، گفت: «حملات امروز اسرائیل به ضاحیه و تاخیر در امضای تفاهم‌نامه احتمالی میان آمریکا و جمهوری اسلامی نشان می‌دهد که اسرائیل از این مساله رضایت ندارد و کنترل رفتار اسرائیل نیز برای آمریکا کار آسانی نخواهد بود.»
+
+او افزود: «حتی در صورت امضای این تفاهم‌نامه، اسرائیل تلاش خواهد کرد روند توافق را مختل کند.»
+@iranintltv
+</div>
+
+## Shin_Persian — post 7068
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet: ابراهیم عزیزی ✓ @Ebrahimazizi33 Sun, 14 Jun 2026 16:14:20 UTC Today’s crime by the Zionist regime in Dahieh, Beirut once again proved the U.S. is weak without credibility, as it is not even capable of controlling this illegitimate regime.…
+</div>
+
+## Shin_Persian — post 7067
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+ابراهیم عزیزی ✓ @Ebrahimazizi33
+Sun, 14 Jun 2026 16:14:20 UTC
+
+Today’s crime by the Zionist regime in Dahieh, Beirut once again proved the U.S. is weak without credibility, as it is not even capable of controlling this illegitimate regime.
+A strong response is coming.
+
+↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
+
+ترجمه خودکار فارسی
+
+جنایت امروز رژیم صهیونیستی در ضاحیه بیروت بار دیگر ثابت کرد که ایالات متحده ضعیف و فاقد اعتبار است، چرا که حتی توانایی کنترل این رژیم نامشروع را ندارد.
+پاسخی سخت در راه است.
+
+𝕏 · @shin_persian
+</div>
+
+## RadioFarda — post 158298
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_158298_1781457227.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸دونالد ترامپ، رئیس‌جمهور آمریکا، روز یکشنبه گفت که با وجود حمله اسرائیل به بیروت، توافق صلح با ایران همچنان در مسیر امضا قرار دارد و قرار است ظرف چند ساعت آینده امضا شود؛ هرچند به گفته او، حمله اسرائیل اجرای این برنامه را به تأخیر انداخته است.
+
+🔸او در گفت‌وگویی تلفنی با وب‌سایت اکسیوس گفت: «این اتفاق اوضاع را به هم ریخت. امضای توافق را چند ساعت به تأخیر انداخت. قرار بود همین حالا انجام شود. حالا برای چند ساعت دیگر برنامه‌ریزی شده است.»
+
+🔸آقای ترامپ همزمان در گفت‌وگوی دیگری با شبکه فاکس‌نیوز خبر داد که توافق با ایران طی دو تا سه ساعت آینده به‌صورت الکترونیکی امضا خواهد شد.
+
+🔸او همچنین اعلام کرد که از ایران خواهد خواست در واکنش به حملات اسرائیل که مواضع حزب‌الله را هدف قرار داد، اقدامی تلافی‌جویانه انجام ندهد.
+
+🔸رئیس‌جمهور آمریکا ساعتی پیش در شبکه اجتماعی تروث سوشال گفت که حمله اسرائیل به حومه بیروت نباید انجام می‌شد و افزود دیگر نباید هیچ حمله‌ای از سوی اسرائیل در هیچ نقطه‌ای از لبنان صورت گیرد و حزب‌الله نیز نباید به اسرائیل حمله کند.
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 22571
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22571_1781457228.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 رسانه وابسته به سپاه صابرین نیوز :
+
+سعید جلیلی از تمامی سمت های خودش برکنار شد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22570
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ :
+
+چرا بی‌بی نتانیاهو باید آن حمله لعنتی رو انجام می‌داد؟ خیلی عصبانی شدم و این رو به خودش هم گفتم. اون هیچ قضاوت درستی نداره و این رو به خودش هم گفتم.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22569
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ :
+
+توافق با ایران رو اول از راه دور امضا میکنیم و یک هفته بعدش هم به صورت حضوری تو‌ اروپا هم امضاش میکنیم.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22568
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22568_1781457228.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 کارشناس شبکه افق:
+
+این پاکستانی‌ ها اصلا برای میانجی‌گری به ایران نمیان، بلکه فقط میان و پیام های تهدید و‌ ترور آمریکاییارو میارن!
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 283806
+
+<div align="center">
+  <a href="https://t.me/bbcpersian/283806" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پادکست جام جهان‌نما، یکشنبه ۲۴ خرداد ۱۴۰۵
+
+این برنامه رادیویی را می‌توانید هرشب ساعت ۲۰ به وقت ایران، روی موج متوسط ۷۰۲ کیلوهرتز و موج کوتاه ۹۴۶۵ کیلوهرتز بشنوید.تکرار برنامه را هم می‌توانید ساعت ۲۱:۳۰ روی موج متوسط ۷۰۲ کیلوهرتز و موج کوتاه ۵۳۹۵ کیلوهرتز گوش کنید.
+
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 392027
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392027_1781457230.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نکن عباس جاش میمونه 💕😂
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392026
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فوری، دکمه سیکتیر سعید جلیلی زده شد😂 سردار عظیم ابراهیم پور، فرمانده قرارگاه پیشرفت سپاه رسما اعلام کرد که باقری کنی جایگزین سعید جلیلی توی شعام شده. @Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392025
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392025_1781457231.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فوری، دکمه سیکتیر سعید جلیلی زده شد😂
+
+سردار عظیم ابراهیم پور، فرمانده قرارگاه پیشرفت سپاه رسما اعلام کرد که باقری کنی جایگزین سعید جلیلی توی شعام شده.
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/03/24 20:33
 ---
 

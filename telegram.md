@@ -7,6 +7,265 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/24 15:33
+---
+
+## VahidOOnLine — post 245462
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_245462_1781438631.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوهای رسیده به ایران‌اینترنشنال نشان می‌دهند ایرانیان مقیم آمریکا پس از بازی قطر و سوئیس در جام جهانی فوتبال، مقابل ورزشگاه لیوایز (منطقه خلیج سان‌فرانسیسکو) در سانتاکلارای کالیفرنیا، علیه جمهوری اسلامی تجمع کردند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245461
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245461_1781438633.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در پی حمله ارتش اسرائیل به اهدافی در ضاحیه بیروت، ابراهیم رضایی، سخنگوی کمیسیون امنیت ملی مجلس، در شبکه اجتماعی ایکس نوشت اگر قرار باشد تفاهم یا توافقی شکل بگیرد، مسیر آن «ادب کردن» اسرائیل است.
+
+او این اظهارات را در حالی مطرح کرد که رایزنی‌ها درباره تفاهم احتمالی میان تهران و واشینگتن ادامه دارد و گزارش‌های منتشرشده درباره متن تفاهم احتمالی میان تهران و واشینگتن با مخالفت و انتقاد برخی چهره‌ها و جریان‌های سیاسی در داخل جمهوری اسلامی روبه‌رو شده است.
+iranintl
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245460
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245460_1781438634.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل با انتشار بیانیه‌ای اعلام کرد در حمله‌ای به منطقه ضاحیه بیروت، یکی از مقرهای حزب‌الله را هدف قرار داده است.
+
+در بیانیه ارتش اسرائیل آمده است این مرکز برای برنامه‌ریزی و پیشبرد عملیات علیه شهروندان اسرائیل و نیروهای ارتش این کشور در جنوب لبنان استفاده می‌شد.
+
+ارتش اسرائیل اعلام کرد این حمله پس از شلیک پرتابه از سوی حزب‌الله به خاک اسرائیل انجام شده است. این نهاد همچنین تاکید کرد به عملیات خود برای مقابله با «تهدیدها علیه اسرائیل»، ادامه خواهد داد.
+iranintl
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14794
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری رسمی اسرائیل: حمله به حومه جنوبی بیروت توسط دو هواپیمای جنگی انجام شد که چهار موشک هدایت‌شونده شلیک کردند.
+@withyashar
+</div>
+
+## WithYashar — post 14793
+
+<div align="center">
+  <img src="telegram/content/WithYashar_14793_1781438634.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اصفهان دید از ملک شهر الان
+@withyashar
+</div>
+
+## pm_afshaa — post 93879
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبکه 12 اسراییل:نعیم قاسم ترور شد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93878
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♨️
+♨️
+♨️
+♨️
+</div>
+
+## kianmeli1 — post 87984
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبرنگار صداوسیما: تنگه هرمز طبق اعلام نهاد مدیریت آب‌راه خلیج فارس تا اطلاع بعدی همچنان مسدود است و هیچ کشتی خارجی حق ورود و خروج ندارد.
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 342253
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342253_1781438635.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوهای رسیده به ایران‌اینترنشنال نشان می‌دهند ایرانیان مقیم آمریکا پس از بازی قطر و سوئیس در جام جهانی فوتبال، مقابل ورزشگاه لیوایز (منطقه خلیج سان‌فرانسیسکو) در سانتاکلارای کالیفرنیا، علیه جمهوری اسلامی تجمع کردند.
+</div>
+
+## IranIntlTV — post 342252
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342252_1781438637.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در پی حمله ارتش اسرائیل به اهدافی در ضاحیه بیروت، ابراهیم رضایی، سخنگوی کمیسیون امنیت ملی مجلس، در شبکه اجتماعی ایکس نوشت اگر قرار باشد تفاهم یا توافقی شکل بگیرد، مسیر آن «ادب کردن» اسرائیل است.
+
+او این اظهارات را در حالی مطرح کرد که رایزنی‌ها درباره تفاهم احتمالی میان تهران و واشینگتن ادامه دارد و گزارش‌های منتشرشده درباره متن تفاهم احتمالی میان تهران و واشینگتن با مخالفت و انتقاد برخی چهره‌ها و جریان‌های سیاسی در داخل جمهوری اسلامی روبه‌رو شده است.
+iranintl.com/202606140273
+</div>
+
+## Shin_Persian — post 7045
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_7045_1781438637.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sun, 14 Jun 2026 11:58:32 UTC
+
+1158Z
+Jet activity over Khorram Abad, Lorestan Province, Iran
+
+ترجمه خودکار فارسی
+
+۱۱۵۸ زولو (۱۵:۲۸ به وقت تهران)
+فعالیت جنگنده‌ها برفراز خرم‌آباد، استان لرستان، ایران
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 7043
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sun, 14 Jun 2026 11:54:49 UTC
+
+1137Z
+Smoke rises from the eastern Isfahan (where the airport is located)
+
+Isfahan Province, Iran
+
+ترجمه خودکار فارسی
+
+۱۱۳۷ زولو (۱۵:۰۷ به وقت تهران)
+دود از شرق اصفهان (جایی که فرودگاه واقع شده است) برخاسته است.
+
+استان اصفهان، ایران
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 220670
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220670_1781438637.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل به مقر حزب‌الله در ضاحیه بیروت حمله کرد؛
+
+ارتش اسرائیل اعلام کرد که روز یکشنبه ۲۴ خرداد مقر سازمان تروریستی حزب‌الله در بیروت را هدف حمله قرار داد.
+
+ارتش اسرائیل با انتشار بیانیه‌ای نوشت که مقر هدف قرارگرفته «برای پیشبرد طرح‌های تروریستی علیه شهروندان کشور اسرائیل و نیروهای ارتش اسرائیل در حال فعالیت در جنوب لبنان» مورد استفاده قرار می‌گرفت.
+
+بر اساس این بیانیه، این حمله پس از آن انجام شد که پیش‌تر در روز یکشنبه، حزب‌الله پرتابه هایی را به سمت حریم کشور اسرائیل پرتاب کرد.
+
+منابع امنیتی لبنان به رویترز گفتند حمله به ضاحیه ظاهراً یک حمله هدفمند با دو موشک بوده است.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/israeli-airstrike-struck-an-apartment-in-dahiyeh/8160656.html
+</div>
+
+## Persian_Trend_Official — post 17036
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17036_1781438639.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کماندوهای نیروی دریایی بریتانیا یک کشتی متعلق به ناوگان سایه روسیه را در کانال مانش توقیف کردند.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## BBCPersian — post 283791
+
+<div align="center">
+  <a href="telegram/content/BBCPersian_283791_1781438640.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک فیل در هند برای به دست آوردن انبه‌های داخل خودرو آن را واژگون کرد.
+گردشگران می‌گویند این فیل زمان زیادی را صرف تلاش برای درآوردن انبه‌ها از خودرو کرد اما موفق نشد.
+
+@BBCPersian
+</div>
+
+## BBCPersian — post 283790
+
+<div align="center">
+  <a href="telegram/content/BBCPersian_283790_1781438642.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نیروهای بریتانیا یک نفتکش روسیِ تحت تحریم را که در تلاش برای عبور از کانال مانش بود، توقیف کردند.
+در نخستین عملیات از این نوع نیروهای تفنگدار دریایی وارد نفتکش «اسمیرتو» شدند. اقدامی که مقام‌های بریتانیایی گفتند ضربه دیگری به منابع مالی نظامی روسیه وارد خواهد کرد.
+وزیر خارجه اوکراین از این عملیات استقبال کرد که به گفته او به «کاهش توانایی روسیه برای تأمین مالی حملات موشکی و پهپادی» کمک می‌کند.
+کماندوهای دریایی سلطنتی بریتانیا در این عملیات با مأموران ویژه و آموزش‌دیده آژانس ملی مبارزه با جرایم همکاری کردند. این عملیات با هماهنگی فرانسه انجام شد که تاکنون چهار کشتی متعلق به «ناوگان سایه» روسیه را توقیف کرده است.
+
+@BBCPersian
+https://bbc.in/4vMPf6m
+</div>
+
+## Dirty_Kids — post 392003
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392003_1781438644.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امشب ایوانکا در حال باز کردن و اعلام کادو های تولد ترامپ :
+
+_ مستر قالیباف ، 400 کیلوگرم اورانیوم
++ روبیو و ونس و ویتکاف (با ریتم ) : چرا زحمت کشیدین ؟ ...
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 127859
+
+<div align="center">
+  <a href="telegram/content/alonews_127859_1781438644.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نتانیاهو: ما به اهداف حزب‌الله در حومه جنوبی بیروت حمله کردیم و حملات علیه خودمان را تحمل نخواهیم کرد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127858
+
+<div align="center">
+  <a href="telegram/content/alonews_127858_1781438644.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 توییت اکانت اسرائیل به فارسی !!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/24 15:23
 ---
 

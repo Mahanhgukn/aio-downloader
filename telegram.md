@@ -7,6 +7,275 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/24 23:13
+---
+
+## VahidOOnLine — post 245546
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245546_1781466218.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت خارجه جمهوری اسلامی در بیانیه‌ای حمله اسرائیل به جنوب بیروت را به شدت محکوم کرد و آن را «نقض فاحش» آتش‌بس میان واشینگتن و تهران خواند.
+
+این وزارتخانه نوشت دولت آمریکا را در قبال «نقض مکرر آتش‌بس» از سوی اسرائیل علیه لبنان و ایران مسئول مستقیم می‌داند.
+
+وزارت خارجه جمهوری اسلامی همچنین تاکید کرد تهران برای اعمال «حق ذاتی دفاع مشروع» مصمم است و همه تدابیر لازم را در این زمینه اتخاذ خواهد کرد.
+
+در ادامه این بیانیه آمده است: «بدیهی است مسئولیت پیامدهای خطرناک آتش‌افروزی اسرائیل برای صلح و امنیت منطقه‌ای بر عهده آمریکا و اسرائیل خواهد بود.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14877
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+راشن تودی: ورود اضطراری «جی دی ونس» به کاخ سفید همزمان با اوج‌گیری تنش‌ها در منطقه!
+@withyashar
+</div>
+
+## WithYashar — post 14876
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کابینه اسرائیل: اگر ایران حمله کند، ما نیز حمله خواهیم کرد
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342964
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342964_1781466219.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: Twelve people are dead after a skydiving plane crashed near an airport in Missouri.
+
+Authorities say the aircraft was carrying 11 skydivers and a pilot when it went down near Butler Memorial Airport.
+
+Emergency crews responded to the fiery crash scene as federal investigators begin working to determine what caused the tragedy.
+</div>
+
+## pm_afshaa — post 93963
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93963_1781466221.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وزارت خارجه جمهوری اسلامی:
+
+حمله اسرائیل به ضاحیه بیروت رو به‌شدت محکوم می‌کنیم؛ این حمله نقض حاکمیت لبنان و نقض توافق آتش‌بس میان ایران و آمریکا است. حق دفاع مشروع رو برای خود محفوظ میدونیم و مسئولیت پیامدها بر عهده آمریکا و اسرائیل خواهد بود.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93962
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93962_1781466222.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴اسرائیل هم‌اکنون دوباره داره به شهرک «الطیری» در جنوب لبنان حمله میکنه!
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93961
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93961_1781466223.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سخنگوی سازمان هواپیمایی کشوری:
+هیچ نوتام جدیدی صادر نشده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5682
+
+<div align="center">
+  <img src="telegram/content/DEJradio_5682_1781466224.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️
+⭕️ یک هیأت قطری در ادامه پیشبرد مذاکرات بین جمهوری اسلامی و آمریکا وارد تهران شد. آکسیوس گزارش داد در نشست مجازی آمریکا و ایران با حضور میانجیگران پاکستان و قطر تفاهم‌نامه به‌صورت الکترونیکی امضا شود.
+گفته می‌شود تفاهم‌نامه توسط جی دی ونس و قالیباف امضا خواهد شد.
+خبرگزاری فارس وابسته سپاه پاسداران گزارش داد جمهوری اسلامی ایران هنوز تصمیم نهایی خود درباره تفاهم‌نامه پیشنهادی را اعلام نکرده است.
+
+#مذاکرات #قالیباف #ونس
+@DEJradio
+</div>
+
+## DEJradio — post 5681
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5681_1781466225.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️
+🔺 مهدی رستم‌پور خبرنگار ورزشی در چهارمین برنامه از سری برنامه‌های دژ فوتبالی، به رخدادهای جاری در جام جهانی پرداخته است.
+
+#دژفوتبالی #جام_جهانی
+@DEJradio
+</div>
+
+## IranIntlTV — post 342352
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342352_1781466226.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت خارجه جمهوری اسلامی در بیانیه‌ای حمله اسرائیل به جنوب بیروت را به شدت محکوم کرد و آن را «نقض فاحش» آتش‌بس میان واشینگتن و تهران خواند.
+
+این وزارتخانه نوشت دولت آمریکا را در قبال «نقض مکرر آتش‌بس» از سوی اسرائیل علیه لبنان و ایران مسئول مستقیم می‌داند.
+
+وزارت خارجه جمهوری اسلامی همچنین تاکید کرد تهران برای اعمال «حق ذاتی دفاع مشروع» مصمم است و همه تدابیر لازم را در این زمینه اتخاذ خواهد کرد.
+
+در ادامه این بیانیه آمده است: «بدیهی است مسئولیت پیامدهای خطرناک آتش‌افروزی اسرائیل برای صلح و امنیت منطقه‌ای بر عهده آمریکا و اسرائیل خواهد بود.»
+https://iranintl.com/202606140017
+</div>
+
+## IranIntlTV — post 342351
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342351_1781466226.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻اعضای تیم ملی فوتبال برای برگزاری نخستین بازی خود در جام جهانی ۲۰۲۶ برابر نیوزیلند، با پرواز از تیخوانا راهی لس‌آنجلس شدند. شاگردان قلعه‌نویی باید بلافاصله پس از پایان مسابقه بامداد سه‌شنبه برابر نیوزیلند، خاک آمریکا را ترک کنند.
+
+@iranintltvsport
+</div>
+
+## FarsiVOA — post 220720
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220720_1781466227.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️اختلال در بانک‌های بزرگ جمهوری اسلامی؛ گفت‌وگو با علیرضا رایگانی کارشناس امنیت سایبری
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220719
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220719_1781466229.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️مقامات آمریکایی می‌گویند ۱۲ نفر در اثر سقوط یک هواپیما در میزوری کشته شدند. به گزارش آسوشیتدپرس این سانحه در نزدیکی فرودگاه «باتلر مموریال» رخ داد. باتلر حدود ۶۵ مایلی جنوب کانزاس سیتی قرار دارد.
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 17104
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17104_1781466230.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ورود اضطراری «جی دی ونس» به کاخ سفید همزمان با اوج‌گیری تنش‌ها در منطقه
+
+🔹شبکه راشاتودی گزارش داد در پی افزایش سطح تنش‌های منطقه‌ای و نگرانی‌های جدی واشنگتن از تحولات پیرامون ایران، «جی دی ونس» به طور فوری و اضطراری خود را به کاخ سفید رساند.
+</div>
+
+## Persian_Trend_Official — post 17103
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17103_1781466233.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تحرکات موشکی سپاه پاسداران در یزد، شیراز و اصفهان درحال مشاهده است.
+</div>
+
+## Persian_Trend_Official — post 17101
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_17101_1781466234.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بیانیه وزارت امور خارجه درباره تداوم جنایات اسرائیل در حمله به ضاحیه بیروت
+
+🔺وزارت امور خارجه جمهوری اسلامی ایران، اقدام تروریستی رژیم صهیونیستی در بعد از ظهر امروز یکشنبه ۲۴ خرداد ۱۴۰۵ در تجاوز نظامی به منطقه‌ای مسکونی در ضاحیه بیروت که منجر به شهید و زخمی شدن تعدادی از شهروندان لبنانی شد را به شدت محکوم می‌کند.
+
+🔺این جنایت تروریستی، نه تنها نقض آشکار حاکمیت ملی و تمامیت سرزمینی لبنان است، بلکه نقض فاحش تفاهم آتش‌بس مورخ ۱۹ فروردین ۱۴۰۵ بین ایران و آمریکا محسوب می‌شود.
+
+🔺جمهوری اسلامی ایران ضمن یادآوری مسئولیت مستقیم دولت آمریکا در قبال جنایات ارتکابی رژیم صهیونیستی و نقض مکرر آتش‌بس از سوی آن رژیم علیه لبنان یا ایران، بر عزم خود برای اتخاذ کلیه تدابیر لازم جهت اعمال حق ذاتی دفاع مشروع تاکید می‌کند.
+
+🔺بدیهی است مسئولیت پیامدهای خطرناک آتش‌افروزی رژیم صهیونیستی برای صلح و امنیت منطقه‌ای بر عهده آمریکا و رژیم صهیونیستی خواهد بود.
+</div>
+
+## BBCPersian — post 283815
+
+<div align="center">
+  <a href="telegram/content/BBCPersian_283815_1781466234.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آخرین خبرهای مهم روز، یکشنبه ۲۴ خرداد ۱۴۰۵
+
+@BBCPersian
+</div>
+
+## alonews — post 127989
+
+<div align="center">
+  <a href="telegram/content/alonews_127989_1781466238.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈طبق تصوير فلايت رادار، به دلیل احتمال پاسخ تلاویو ،هواپيماهاى مسافربرى از فرودگاه هاى تهران نقل مكان شدند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127988
+
+<div align="center">
+  <a href="telegram/content/alonews_127988_1781466238.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سخنگوی سازمان هواپیمایی کشور: هیچ نوتام جدیدی درباره محدودیت‌های پروازی در فضای هوایی کشور صادر نشده و امشب اصلا پروازی برنامه‌ریزی نشده بود.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127987
+
+<div align="center">
+  <a href="telegram/content/alonews_127987_1781466238.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈راشاتودی: ورود اضطراری «جی دی ونس» به کاخ سفید همزمان با اوج‌گیری تنش‌ها در منطقه!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127986
+
+<div align="center">
+  <a href="telegram/content/alonews_127986_1781466239.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کابینه اسرائیل: اگر ایران حمله کند، ما نیز حمله خواهیم کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/24 23:03
 ---
 

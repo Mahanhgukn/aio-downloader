@@ -7,6 +7,29 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/24 04:43
+---
+
+## FoxNewsTwitter — post 342943
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342943_1781399625.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+RT @foxnewspolitics: Scaffolding goes up, Trump's name comes down. Workers began removing the president's name off the Kennedy Center facade — just months after it was affixed — after the board lost every legal attempt to keep it there.
+</div>
+
+## FarsiVOA — post 220631
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️اتحادیه اروپا مذاکرات عضویت با اوکراین و مولداوی را آغاز می‌کند
+@FarsiVOA
+</div>
+
+---
 📅 بروزرسانی: 1405/03/24 04:34
 ---
 

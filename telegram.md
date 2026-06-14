@@ -7,6 +7,129 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/24 12:43
+---
+
+## VahidOOnLine — post 245440
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245440_1781428414.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روح‌الله ایزدخواه، نماینده تهران در مجلس، در صدا و سیمای جمهوری اسلامی گفت: «ما هنوز انتقام خون قاسم سلیمانی را نگرفتیم، چه برسد به جنگ ۱۲ روزه، جنگ ۴۰ روزه و خون رهبرمان، انتقام خون سلیمانی باید نابودی اسرائیل می‌بود.»
+
+او افزود: «در آن زمان، در شورای عالی امنیت ملی، ۱۳ سناریو برای انتقام خون سلیمانی مطرح شد که ضعیف‌ترین آن حمله به پایگاه عین‌الاسد بود.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245439
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️شماری از شهروندان افغان مقیم فرانسه، روز شنبه ۲۲ جوزا/خرداد، با برگزاری تجمع اعتراضی در شهر پاریس، حمایتشان از زنان و دختران افغانستان را اعلام کردند. 
+معترضان از جامعه جهانی خواستند فشار بر رژیم طالبان را افزایش دهد تا این گروه از تشدید محدودیت‌ها و اعمال فشار علیه زنان و دختران دست بردارد. 
+این تجمع درحالی برگزار شد که محتسبان امر به معروف و نهی از منکر طالبان در ده روز اخیر بازداشت زنان و دختران به‌دلیل نپوشیدن برقع یا چادرنماز همراه با ماسک را افزایش داده‌اند. بیش‌ترین اعمال فشار و سختگیری در ولایت هرات در غرب افغانستان گزارش شده است. 
+هفته گذشته طالبان اعتراض و راهپیمایی ساکنان شهرک جبرئیل هرات را که در مخالفت با بازداشت زنان و دختران برگزار شده بود، با شلیک گلوله سرکوب کردند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14770
+
+<div align="center">
+  <img src="telegram/content/WithYashar_14770_1781428415.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عرزشی‌ها: تا مجتبی خامنه‌ای نیاد جلو دوربین و نگه از خون بابام و خانوادم گذشتم، ما این توافق رو قبول نمیکنیم
+@withyashar 🤣
+</div>
+
+## WithYashar — post 14769
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صدای انفجار ناشی از مهمات عمل‌نکرده در غرب تبریز
+@withyashar
+</div>
+
+## mwarmonitor — post 10851
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 سوال انتقاد پیشنهاد دارید دایرکت جواب میدم
+</div>
+
+## IranIntlTV — post 342225
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342225_1781428415.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حسین آقایی، عضو تحریریه ایران‌اینترنشنال، با اشاره به سفر وزیر خارجه قطر به تهران می‌گوید این سفر می‌تواند با موضوع آزادسازی دارایی‌های بلوکه‌شده جمهوری اسلامی و تلاش برای پیشبرد تفاهم میان تهران و واشینگتن مرتبط باشد. به گفته او، اجرای چنین طرحی منوط به دستیابی دو طرف به توافق خواهد بود.
+@iranintltv
+</div>
+
+## IranIntlTV — post 342224
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342224_1781428417.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روح‌الله ایزدخواه، نماینده تهران در مجلس، در صدا و سیمای جمهوری اسلامی گفت: «ما هنوز انتقام خون قاسم سلیمانی را نگرفتیم، چه برسد به جنگ ۱۲ روزه، جنگ ۴۰ روزه و خون رهبرمان، انتقام خون سلیمانی باید نابودی اسرائیل می‌بود.»
+
+او افزود: «در آن زمان، در شورای عالی امنیت ملی، ۱۳ سناریو برای انتقام خون سلیمانی مطرح شد که ضعیف‌ترین آن حمله به پایگاه عین‌الاسد بود.»
+https://iranintl.com/202606148266
+</div>
+
+## alonews — post 127817
+
+<div align="center">
+  <a href="telegram/content/alonews_127817_1781428418.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈شاخص کل بورس در پایان معاملات امروز با جهش ۱۲۳ هزار واحدی به ۴ میلیون و ۸۱۹ هزار واحد رسید
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127816
+
+<div align="center">
+  <a href="telegram/content/alonews_127816_1781428418.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈یائير لاپید، رهبر اپوزیسیون اسرائیل به روزنامه بریتانیایی تایمز : اسرائیلی‌ها در وضعیتی از یأس و بدبینی غیرقابل تحمل زندگی می‌کنند.
+
+
+🔴نگرانی در اسرائیل به دلیل عدم تحقق اهداف اعلام‌شده جنگ حاکم است.
+
+
+🔴روابط ما با ایالات متحده به‌شدت آسیب دیده و دولت آینده باید این خسارت را ترمیم کند.
+
+
+🔴ما از زمان ۷ اکتبر تاکنون این میزان یأس و بدبینی را در میان اسرائیلی‌ها مشاهده نکرده‌ایم؛ سطح ناامیدی به حدی رسیده که قابل تحمل نیست
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127815
+
+<div align="center">
+  <a href="telegram/content/alonews_127815_1781428418.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈شنیده شدن صدای انفجار ناشی از مهمات عمل‌نکرده در تبریز
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/24 12:33
 ---
 

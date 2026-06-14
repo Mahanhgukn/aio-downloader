@@ -7,6 +7,180 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/24 19:33
+---
+
+## VahidOOnLine — post 245502
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_245502_1781453006.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوهای رسیده به ایران‌اینترنشنال نشان می‌دهند گروهی از ایرانیان مقیم آلمان یکشنبه ۲۴ خرداد با فراخوان شاهزاده رضا پهلوی و علیه جمهوری اسلامی در شهر کلن تجمع کردند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14833
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بنیامین نتانیاهو، نخست‌وزیر اسرائیل، در تماس اخیر با رئیس‌جمهور ترامپ گفت که اسرائیل با عقب‌نشینی کامل از جنوب لبنان، از جمله پنج نقطه‌ای که در حال حاضر توسط نیروهای دفاعی اسرائیل (IDF) در اختیار است، موافقت نخواهد کرد، طبق گزارش معاریو.
+
+نتانیاهو همچنین عقب‌نشینی از خاک سوریه را که اسرائیل از زمان سقوط بشار اسد اشغال کرده است، رد کرد
+@withyashar
+</div>
+
+## pm_afshaa — post 93922
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93922_1781453007.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴روزنامه اسرائیلی معاریو:
+نتانیاهو در تماس با ترامپ، هرگونه عقب‌نشینی اسرائیل از جنوب لبنان، از جمله 5 نقطه تحت کنترل ارتش اسرائیل رو رد کرده.
+
+همچنین با عقب‌نشینی از مناطق اشغالی سوریه پس از سقوط بشار اسد هم مخالفت کرده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## VahidOnline — post 76336
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76336_1781453008.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مجید موسوی، فرمانده نیروی هوافضای سپاه پاسداران، در پیامی از حامیان جمهوری اسلامی خواست در مسیر تحقق آرمان‌های نظام، از مجتبی خامنه‌ای تبعیت کنند.
+او نوشت: «ملت بصیر و غیور که در خونخواهی علی خامنه‌ای مبعوث شدید و در راه تحقق آرمان‌های بلند انقلاب اسلامی با مجتبی خامنه‌ای عهدی تازه بستید، هوشیار باشید که از شئون متعهد بودن، تبعیت کردن است.»
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 342312
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342312_1781453008.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوهای رسیده به ایران‌اینترنشنال نشان می‌دهند گروهی از ایرانیان مقیم آلمان یکشنبه ۲۴ خرداد با فراخوان شاهزاده رضا پهلوی و علیه جمهوری اسلامی در شهر کلن تجمع کردند.
+</div>
+
+## IranIntlTV — post 342311
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342311_1781453010.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻تیم ملی فوتبال بدون حضور رییس، نایب‌رییس و دبیرکل فدراسیون، برای بازی با نیوزیلند راهی لس‌آنجلس خواهند شد. امیر قلعه‌نویی و مهدی طارمی، سرمربی و کاپیتان تیم ملی نیز بامداد دوشنبه در نشست خبری پیش از بازی حاضر خواهند شد.
+
+🔹توضیحات مزدک میرزایی، ایران اینترنشنال، در هت‌تریک
+
+@iranintltvsport
+</div>
+
+## Shin_Persian — post 7060
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_7060_1781453011.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قراره یه دارکوبی هم مهمون خورشید خانم بشه
+</div>
+
+## DW_Farsi — post 125967
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125967_1781453011.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 حمله اسرائیل به مناطق جنوبی بیروت در واکنش به حملات حزب‌الله
+
+اسرائیل اعلام کرد، پس از حملات حزب‌الله که امروز یکشنبه (۱۴ ژوئن / ۲۴ خرداد) صورت گرفتند، به اهداف و مواضعی در ضاحیه واقع در حومه جنوبی بیروت، پایتخت لبنان حمله کرده است. ارتش اسرائیل شلیک سه پرتاب از سوی حزب‌الله به مناطق شمالی اسرائیل را "نقض آشکار آتش‌بس" خواند.
+
+بنیامین نتانیاهو، نخست‌وزیر و یسرائیل کاتس، وزیر دفاع اسرائیل با انتشار بیانیه‌ای مشترک اعلام کردند که ارتش این کشور در پاسخ به حملات حزب‌الله "اهداف و مواضع متعلق به این گروه تروریستی را در محله ضاحیه در بیروت هدف قرار داده است".
+
+حملات متقابل حزب‌الله و اسرائیل در حالی است که دونالد ترامپ، رئیس جمهور آمریکا گفته است، انتظار می‌رود توافق میان تهران و واشنگتن امروز به امضاء برسد. جمهوری اسلامی که بر توقف جنگ در لبنان به عنوان یکی از شروط توافق با آمریکا تأکید دارد، گفته است که نهایی‌شدن و امضای توافق میان طرفین در طی روزهای آتی صورت خواهد گرفت.
+
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 17078
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_17078_1781453012.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سعید جلیلی برکنار شد.
+
+سردار عظیم ابراهیم پور، فرمانده قرارگاه پیشرفت سپاه پاسداران رسماً اعلام کرد باقری کنی جایگزین سعید جلیلی در شعام شده است.
+</div>
+
+## Hranews — post 113611
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک زندانی در زندان بجنورد اعدام شد
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– حکم یک زندانی که پیشتر از بابت اتهامات قتل و تجاوز به عنف به #اعدام محکوم شده بود، سحرگاه روز چهارشنبه ۲۰ خرداد ماه در زندان بجنورد به اجرا در آمد.
+
+ادامه مطلب
+
+#بهاءالدین_وحیدی
+
+↘️
+@hranews_bot تماس ✉️ -  @Hranews  کانال هرانا 🆑
+</div>
+
+## alonews — post 127937
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈یه اسپویل کنم؟ جبهه منحوس پایداری بزودی دیلیت میشه. خبر دارم که میگم😉 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127936
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری/گزارشات تایید نشده از برکناری سعید جلیلی از شعام و جایگزینی باقری کنی با وی حکایت دارد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127935
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فارن افرز: داشتن سلاح هسته‌ای دیگر برای جلوگیری از حملات نظامی دردناک توسط دشمنان کافی نیست
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127934
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پوتین با ترامپ صحبت کرد و تولد ۸۰ سالگیش رو تبریک گفت
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/24 19:23
 ---
 

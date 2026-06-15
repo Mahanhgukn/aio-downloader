@@ -7,6 +7,157 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/25 10:42
+---
+
+## WithYashar — post 14944
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حمله اسرائیل به الخیام جنوب لبنان!
+@withyashar
+</div>
+
+## DEJradio — post 5684
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5684_1781507566.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🤡
+🔺 پروژه یدالله برای جلوگیری از حذف مجتبی خامنه‌ای
+
+یکی از پاسداران پریشان‌احوال نظام، برای حفظ جان مجتبی خامنه‌ای پیشنهاد اجرای "پروژه یدالله" را مطرح کرده است. مجتبی خامنه‌ای رهبر جمهوری اسلامی از وقتی به این مقام رسید، نیست.
+
+#موشتبا #غیبت_کبری
+@DEJradio
+</div>
+
+## DEJradio — post 5683
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5683_1781507568.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺📢 دونالد ترامپ می‌گوید توافق با جمهوری اسلامی امضاء شد. او توضیح داد: «بدین‌وسیله من بازگشایی بدون عوارض تنگه هرمز را به طور کامل مجاز می‌دانم، و همزمان با این، لغو فوری محاصره دریایی ایالات متحده را دستور می‌دهم.» او همچنین تأکید کرد «کشتی‌های جهان، موتورهای خود را روشن کنید. بگذارید نفت جریان پیدا کند.»
+
+او ساعاتی پیش از آن در گفتگو با روزنامه «وال استریت ژورنال» گفت: «هیچ پول نقدی به ایران پرداخت نخواهد شد.»
+
+#جنگ #توافق
+@DEJradio
+</div>
+
+## RadioFarda — post 158317
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_158317_1781507568.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸دونالد ترامپ، رئیس‌جمهور آمریکا، و مقامات جمهوری اسلامی ایران سرانجام بعد از هفته‌ها مذاکرات پر فراز و نشیب، روز یکشنبه ۲۴ خرداد از نهایی‌شدن توافق میان دو کشور برای پایان جنگ خبر دادند.
+
+🔸امضای رسمی یادداشت تفاهم اسلام‌آباد قرار است روز جمعه ۲۹ خرداد در سوئیس انجام خواهد شود.
+
+🔸 به نظر شما امضای این یادداشت تفاهم چه پیامدهایی بر زندگی ایرانیان خواهد داشت؟ آیا شما به آینده این تفاهمنامه بر زندگی مردم ایران خوش‌بین هستید یا بدبین؟
+
+🔸دیدگاه‌های خود را می‌توانید در قالب پیام‌های متنی و صوتی به نشانی‌های زیر ارسال کنید؟
+
+Telegram: @fardagram
+
+WhatsApp: +420 725 970 000
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 22614
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22614_1781507569.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قالیباف ۲۰ بهمن ۱۴۰۳ :
+
+مذاکره با ترامپ، قاتل قاسم سلیمانی شرافتمندانه نیست.
+
+@IranianMinds
+</div>
+
+## Hranews — post 113619
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند در ایلام به اتهام جاسوسی برای اسرائیل بازداشت شد
+
+
+❗️
+❗️
+❗️
+❗️
+❗️ – وزارت اطلاعات جمهوری اسلامی ایران از #بازداشت یک شهروند در استان ایلام به اتهام همکاری با سرویس اطلاعاتی اسرائیل خبر داد. این نهاد مدعی شده است که فرد بازداشت‌ شده قصد نفوذ به مراکز داده و سامانه‌های حساس کشور و انتقال اطلاعات به خارج از کشور را داشته است.
+
+#جاسوسی
+
+ادامه مطلب
+
+↘️
+@hranews_bot تماس ✉️ -  @Hranews  کانال هرانا 🆑
+</div>
+
+## alonews — post 128134
+
+<div align="center">
+  <a href="telegram/content/alonews_128134_1781507570.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حمله اسرائیل به الخیام جنوب لبنان!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128133
+
+<div align="center">
+  <a href="telegram/content/alonews_128133_1781507570.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈لاپید، نخست‌وزیر اسبق اسرائیل: هنوز باید امیدوار بود گزارش‌های منتشرشده درباره توافق با ایران نادرست باشند، اما اگر درست باشند، با یکی از شوکه‌کننده‌ترین شکست‌ها در سیاست خارجی و امنیتی اسرائیل روبه‌رو هستیم؛ شکستی که کاملاً به نام نتانیاهو ثبت خواهد شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128132
+
+<div align="center">
+  <a href="telegram/content/alonews_128132_1781507570.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈بنی گانتس، نخست وزیر پیشین اسرائیل
+توافق با ایران یک شکست راهبردی است و نباید با محدود کردن آزادی عمل اسرائیل در لبنان موافقت شود.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128131
+
+<div align="center">
+  <a href="telegram/content/alonews_128131_1781507570.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈شرکت ملی خدمات انفورماتیک دیشب از رفع اختلال خدمات مبتنی‌بر کارت ۴ بانک ملی، تجارت، صادرات و توسعه صادرات خبر داده بود.
+
+
+🔴بررسی‌های خبرنگار فارس و گزارش کاربران نشان می‌دهد در حال حاضر همچنان اختلال خدمات غیرحضوری و اینترنتی این بانک‌ها برقرار است.
+
+
+🔴این در حالی است که این بانک‌ها در اطلاعیه‌های جداگانه نیز از رفع اختلال تمامی خدمات کارتی از جمله سامانه‌های اینترنتی و موبایل بانک خبر داده بودند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/25 10:33
 ---
 

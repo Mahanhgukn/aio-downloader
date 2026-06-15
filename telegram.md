@@ -7,6 +7,133 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/25 12:53
+---
+
+## mwarmonitor — post 10950
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_10950_1781515390.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 «گلوله‌باران توپخانه‌ای ارتش اسرائیل بر روی جبل علی الطاهر در جنوب لبنان انجام شد.»
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 94059
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وزیر دفاع اسرائیل:ما از جنوب لبنان عقب نشینی نخواهیم کرد و به حملات خود ادامه خواهیم داد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 342466
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342466_1781515391.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سازمان دریانوردی تجاری بریتانیا از حادثه برای یک کشتی در ۱۴ مایلی سواحل یمن خبر داد.
+
+سازمان دریانوردی تجاری بریتانیا خبر داد که سرنشینان یک قایق کوچک به یک کشتی در ۱۴ مایلی سواحل یمن تیراندازی کرده و تلاش کرده‌اند سوار آن شوند.
+iranintl.com/202606152133
+</div>
+
+## IranIntlTV — post 342465
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342465_1781515392.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حسین آقایی، عضو تحریریه ایران‌اینترنشنال، درباره توافق جمهوری اسلامی و آمریکا گفت: «دونالد ترامپ می‌خواهد معادله‌ای را که بدون خواست مردم ایران در خاورمیانه حل نخواهد شد، بدون مشارکت و خواست آنها حل کند؛ اما این امر امکان‌پذیر نیست.»
+
+@iranintltv
+</div>
+
+## IranIntlTV — post 342464
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342464_1781515394.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مقام‌های اسرائیلی به نهایی‌شدن تفاهم‌نامه میان جمهوری اسلامی و ایالات متحده آمریکا واکنش نشان دادند.
+
+اشکان صفایی، خبرنگار ایران‌اینترنشنال، گزارش می‌دهد
+
+@iranintltv
+</div>
+
+## IranIntlTV — post 342463
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342463_1781515396.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+توافق میان آمریکا و جمهوری اسلامی با واکنش‌های گسترده‌ای در میان شهروندان روبه‌رو شده است. برخی از مخاطبان در پیام‌های خود به ایران‌اینترنشنال، رویکرد دونالد ترامپ را مشابه رویکرد باراک اوباما در سال ۱۳۸۸ دانسته‌اند.
+
+لیلا سعادتی، عضو تحریریه ایران‌اینترنشنال، گزارش می‌دهد
+
+@iranintltv
+</div>
+
+## Persian_Trend_Official — post 17152
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17152_1781515399.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## alonews — post 128173
+
+<div align="center">
+  <a href="telegram/content/alonews_128173_1781515401.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزارت خارجه امارات: ما بر اهمیت اولویت دادن به گفت‌وگو و دیپلماسی و پایبندی به قوانین بین‌المللی تأکید می‌کنیم، به‌گونه‌ای که امنیت و ثبات در منطقه تقویت شود.
+
+
+🔴ما بر اهمیت پایبندی کامل به مفاد توافق تأکید می‌کنیم، به‌گونه‌ای که توقف فوری و کامل اقدامات تجاوزکارانه در منطقه تضمین شود.
+
+
+🔴 ما از مشارکت کشورها و طرف‌های ذی‌ربط در فراهم‌سازی شرایط مناسب برای دستیابی به این توافق قدردانی می‌کنیم.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128172
+
+<div align="center">
+  <a href="telegram/content/alonews_128172_1781515401.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نفتالی بنت، نخست وزیر پیشین اسرائیل درباره توافق با ایران: «این یک نقطه عطف خطرناک برای امنیت اسرائیل است. نتانیاهو ما را به جنگ‌های فرسایشی کشانده است.»
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128171
+
+<div align="center">
+  <a href="telegram/content/alonews_128171_1781515402.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈در جریان معاملات امروز شاخص کل بورس با جهش ۱۶۱ هزار و ۵۹۸ واحد در سطح ۴ میلیون و ۹۸۰ هزار واحدی ایستاد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/25 12:42
 ---
 

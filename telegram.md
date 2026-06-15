@@ -7,6 +7,43 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/25 04:22
+---
+
+## VahidOOnLine — post 245605
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245605_1781484742.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایوت کوپر، وزیر خارجه بریتانیا، از اعلام توافق بین ایالات متحده و ایران به شدت استقبال کرد.
+
+او گفت:‌ «این موضوعی حیاتی است که آزادی کشتیرانی بدون عوارض از طریق تنگه هرمز به سرعت احیا شود.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## pm_afshaa — post 94046
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ بابت شبایی که نزاشتی بخابم مادرتو گاییدم مخصوصا امشب
+</div>
+
+## IranIntlTV — post 342392
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342392_1781484742.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایوت کوپر، وزیر خارجه بریتانیا، از اعلام توافق بین ایالات متحده و ایران به شدت استقبال کرد.
+
+او گفت:‌ «این موضوعی حیاتی است که آزادی کشتیرانی بدون عوارض از طریق تنگه هرمز به سرعت احیا شود.»
+https://iranintl.com/202606141615
+</div>
+
+---
 📅 بروزرسانی: 1405/03/25 04:12
 ---
 

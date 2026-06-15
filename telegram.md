@@ -7,6 +7,91 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/26 01:33
+---
+
+## DEJradio — post 5710
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5710_1781561037.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️
+🔺 برنامه دژ فوتبالی
+
+*مهدی رستم‌پور، خبرنگار ورزشی
+
+#دژفوتبالی #جام_جهانی
+@DEJradio
+</div>
+
+## DEJradio — post 5709
+
+<div align="center">
+  <img src="telegram/content/DEJradio_5709_1781561038.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🛩️
+🔥 منابع محلی از شنیده شدن صدای انفجارهایی در مناطق جنوبی جزیره قشم و تنگه هرمز خبر می‌دهند.
+
+خبرگزاری مهر وابسته به سازمان تبلیغات اسلامی، گزارش داد بامداد سه‌شنبه و شامگاه دوشنبه ۲۵ خردادماه، صدای انفجارهایی از سمت جنوب جزیره قشم و محدوده تنگه هرمز شنیده شد است.
+بر اساس این گزارش، دو انفجار نخست ساعات پایانی شامگاه دوشنبه ۲۵ خرداد و سومین انفجار ساعات اولیه بامداد سه‌شنبه ۲۶ خرداد رخ داده است.
+
+همین خبرگزاری نوشت انفجارها «احتمالاً برای مدیریت تردد در این تنگه رخ داده است.»
+هیچ نهادی از جمله سـ.ـپاه یا نهادهای محلی نسبت به جزئیات این رویداد واکنشی نشان نداده است.
+
+#تنگه_هرمز #جنگ
+@DEJradio
+</div>
+
+## IranIntlTV — post 342590
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/342590" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی برنامه با کامبیز حسینی؛ توافق را امضا کردند، آیا به نفع مردم ایران شد؟
+@iranintlTV
+</div>
+
+## Dirty_Kids — post 392173
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392173_1781561039.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این فیلم چراغی رو در من روشن کرد که تا مدت ها روشن موند و فکر منو هم درگیر خودش کرد.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392172
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392172_1781561039.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ویدیوی این بانوی ایرانی خیلی وایرال شده و با همین ۸ ثانیه، ۸۰ درصد پسرا روش کراش زدن.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392171
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392171_1781561040.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ در گفتگو با CBS در واکنش به سفر کاروان تیم فوتبال ایران به آمریکا گفت:
+"افتخار میزبانی کاروان تیم فوتبال ایران را داریم. آنها تیمی بزرگ هستند. به قلعه نوعی گفتم اگر اینجا جایی نداری شب بمانی به منزل ما بیا. شاید قبول کرد. شاید هم نکرد. باید ببینیم چه می‌شود"
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/03/26 01:24
 ---
 

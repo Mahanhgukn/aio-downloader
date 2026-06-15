@@ -7,6 +7,91 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/26 01:04
+---
+
+## WithYashar — post 15019
+
+<div align="center">
+  <a href="telegram/content/WithYashar_15019_1781559249.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ونس : هیچ دلار تخفیف تحریمی یا پول بلوکه‌شده‌ای، نه از آمریکا و نه از هیچ‌کدوم از متحدای ما تو خلیج، آزاد نشده
+
+این امتیاز فقط وقتی بهشون داده میشه که به تعهداتشون تو توافق عمل کنن
+@withyashar
+</div>
+
+## IranIntlTV — post 342587
+
+
+
+
+## IranIntlTV — post 342586
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342586_1781559251.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻علی دایی، اسطوره فوتبال ایران، با اکبر عبدی، بازیگر سینما و تلویزیون که در هفته‌های گذشته دچار حمله قلبی شده بود، دیدار کرده و جویای حال او شد.
+
+🔹اکبر عبدی با انتشار این تصویر در اینستاگرام، از علی دایی بابت پیگیری احوال خود، قدردانی کرد.
+
+@iranintltvsport
+</div>
+
+## Dirty_Kids — post 392170
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392170_1781559252.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یکی از هزاران دلیلی که از این تیم متنفرم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392169
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392169_1781559252.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 تغییر عجیب بارون، پسر ترامپ در عرض یه سال! قشنگ معلومه ترامپ پسرشم گاییده.
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 128345
+
+<div align="center">
+  <a href="telegram/content/alonews_128345_1781559253.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ونس : هیچ دلار تخفیف تحریمی یا پول بلوکه‌شده‌ای، نه از آمریکا و نه از هیچ‌کدوم از متحدای ما تو خلیج، آزاد نشده
+
+
+🔴این امتیاز فقط وقتی بهشون داده میشه که به تعهداتشون تو توافق عمل کنن
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128344
+
+<div align="center">
+  <a href="telegram/content/alonews_128344_1781559256.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈درگیری عجیب ایرانی ها با همدیگه درنزدیکی محل برگزاری بازی ج.ا و نیوزلند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/26 00:53
 ---
 

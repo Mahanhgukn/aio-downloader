@@ -7,6 +7,239 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/25 19:13
+---
+
+## VahidOOnLine — post 245724
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_245724_1781538220.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس‌جمهوری ایالات متحده آمریکا، روز یکشنبه ۲۵ خرداد ماه وارد شهر اویان، میزبان نشست رهبران گروه هفت در فرانسه شد.
+نشست رهبران گروه هفت (G7 Summit)، رویدادی سالانه و بسیار مهم در دنیای سیاست و اقتصاد بین‌الملل است. در این نشست، سران کشورها و دولت‌های عضو دور هم جمع می‌شوند تا درباره چالش‌های بزرگ و فوری جهان گفتگو و هماهنگی کنند.
+نشست رهبران هفت کشور بزرگ صنعتی جهان در سال ۲۰۲۶ در سایه امضای تفاهم‌نامه پایان جنگ میان ایران و آمریکا و بازگشایی مجدد تنگه هرمز برگزار می‌شود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245723
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245723_1781538222.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عباس عراقچی، وزیر امور خارجه جمهوری اسلامی، گفت جمعه احتمالا در سوئیس دیداری میان روسای هیات‌های دو طرف برگزار و تفاهم‌نامه میان جمهوری اسلامی و آمریکا امضا خواهد شد و سپس نخستین دور مذاکرات بعدی آغاز می‌شود.
+
+او افزود اقتصاد ایران نباید خود را متکی و موکول به این‌گونه توافقات اقتصادی از طریق مذاکره با آمریکا کند.
+
+عراقچی همچنین گفت روند مذاکرات و اجرای توافق بر اساس «بی‌اعتمادی، بدعهدی‌ها و تجربیات گذشته» برنامه‌ریزی خواهد شد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14974
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال ۱۳ اسرائیل:به وضعیت کاملاً غیرقابل قبولی رسیده ایم که ایران در مورد آزادی عمل ما در لبنان «حق وتو» دارد و این یک واقعیت پوچ و غیرقابل قبول است.
+@withyashar
+</div>
+
+## pm_afshaa — post 94100
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ساعت 20 به وقت اسراییل نتانیاهو قراره بیانیه بده
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## VahidOnline — post 76379
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+منابع حکومتی با انتشار تصاویر بالا نوشتند:
+کلاهک ۵۰۰ کیلویی موشک تاماهاوک سقوط کرده در اطراف ورامین خنثی شد
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 342538
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342538_1781538223.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مرکز اطلاعات دریایی مشترک در شبکه ایکس اعلام کرد سطح تهدید امنیت دریایی در تنگه هرمز همچنان «شدید» است.
+
+مرکز اطلاعات دریایی مشترک، سازمانی چندملیتی است که سال ۲۰۲۴ به ابتکار سازمان نیروهای دریایی مشترک شامل ۴۷ کشور عضو تشکیل شد.
+
+وظیفه این مرکز اتصال صنعت کشتیرانی تجاری با نیروهای دریایی در خاورمیانه است.
+https://iranintl.com/202606157053
+</div>
+
+## IranIntlTV — post 342537
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342537_1781538224.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+واشینگتن و تهران به توافق رسیده‌اند؛ اما جای مردم ایران در این میان کجاست؟
+آیا این توافق را به نفع مردم می‌دانید؟
+آیا فکر می‌کنید زندگی مردم ایران با این توافق بهتر خواهد شد؟
+آیا از وقوع جنگ جلوگیری شده است یا فقط بحرانی دیگر به تعویق افتاده؟
+اگر شما پای میز مذاکره بودید، چه خواسته‌ای را به نمایندگی از مردم ایران مطرح می‌کردید؟
+امشب در «برنامه با کامبیز حسینی» از شما می‌پرسیم:
+واکنش شما به توافق واشنگتن و تهران چیست؟
+اگر در ایران هستید و به اینترنت دسترسی دارید، مستقیم و بدون نوبت روی خط بیایید. این برنامه، صدای شماست.
+«برنامه» صدای شماست.
+ما شما را، بدون نوبت، مستقیم از ایران روی خط می‌آوریم.
+بیایید و روایت خود را برای همیشه ثبت کنید. تاریخ با صدای شما نوشته می‌شود.
+برای شرکت در برنامه، همین حالا در واتس‌اپ پیام بدهید:
+۰۰۴۴۷۵۲۲۱۱۰۱۱۰
+۰۰۴۴۷۵۴۴۱۱۰۱۱۰
+۰۰۴۴۷۵۱۱۱۰۲۵۵۳
+«برنامه با کامبیز حسینی»
+«یک ایران صدای شما را می‌شنود»
+@iranintltv
+</div>
+
+## IranIntlTV — post 342536
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342536_1781538225.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عباس عراقچی، وزیر امور خارجه جمهوری اسلامی، گفت جمعه احتمالا در سوئیس دیداری میان روسای هیات‌های دو طرف برگزار و تفاهم‌نامه میان جمهوری اسلامی و آمریکا امضا خواهد شد و سپس نخستین دور مذاکرات بعدی آغاز می‌شود.
+
+او افزود اقتصاد ایران نباید خود را متکی و موکول به این‌گونه توافقات اقتصادی از طریق مذاکره با آمریکا کند.
+
+عراقچی همچنین گفت روند مذاکرات و اجرای توافق بر اساس «بی‌اعتمادی، بدعهدی‌ها و تجربیات گذشته» برنامه‌ریزی خواهد شد.
+https://iranintl.com/202606152224
+</div>
+
+## Shin_Persian — post 7103
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+laurence norman @laurnorman
+Mon, 15 Jun 2026 14:48:59 UTC
+
+It really fundamentally boils down to this. @JDVance gave 2 reasons this morning why MoU deal is “great” for American people.
+1/ strait of Hormuz is reopening.
+Was open on Feb 28th
+2/ Iran commits in LT to no nuke weapon. A promise Iran long made with dubious follow through.
+
+ترجمه خودکار فارسی
+
+واقعیت امر اساساً به اینجا ختم می‌شود. جی‌دی ونس (@JDVance) امروز صبح ۲ دلیل آورد که چرا توافق یادداشت تفاهم (MoU) برای مردم آمریکا «عالی» است.
+۱/ تنگه هرمز در حال بازگشایی است.
+در تاریخ ۲۸ فوریه باز بود.
+۲/ ایران در بلندمدت متعهد می‌شود که سلاح هسته‌ای نداشته باشد. وعده‌ای که ایران مدت‌هاست داده و اجرای آن با تردید همراه بوده است.
+
+𝕏 · @shin_persian
+</div>
+
+## DW_Farsi — post 126015
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_126015_1781538226.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 بقایی: ایران و عمان امنیت تردد در تنگه هرمز را تامین می‌کنند
+ 
+اسماعیل بقایی، سخنگوی وزارت امور خارجه جمهوری اسلامی ایران، اعلام کرد امنیت تنگه هرمز برای ایران از اهمیت بالایی برخوردار است و همه تدابیر اتخاذشده در ماه‌های اخیر کاملا منطبق با حقوق بین‌الملل بوده است. او گفت بر اساس یادداشت تفاهم، ایران به‌عنوان دولت ساحلی با همکاری عمان و با مشورت ذی‌نفعان، امنیت و تردد ایمن کشتی‌ها را در این آبراه راهبردی تأمین می‌کند.
+ 
+بقایی گفت این اقدامات نظارتی و حمایتی، متناسب با تعهدات طرف مقابل اجرا می‌شود و جایگاه حاکمیتی ایران را به‌طور کامل حفظ می‌کند.
+ 
+او همچنین تاکید کرد ایران صرفا به‌دنبال دریافت عوارض نیست، بلکه هزینه‌های مربوط به خدمات ناوبری، حفاظت از محیط زیست و بیمه کشتی‌ها را که از سوی ایران و عمان ارائه می‌شود، طراحی و دریافت خواهد کرد.
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 17190
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17190_1781538227.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرنگار: آیا امیدی هست که توافق آمریکا و ایران دوام زیادی داشته باشد؟
+
+رادوسلاو سیکورسکی، وزیر امور خارجه لهستان: ان‌شاءالله
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17189
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17189_1781538230.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عراقچی: روز جمعه احتمالاً در کشور سوئیس دیداری بین روسای هیئت‌های دو طرف انجام و تفاهم نامه بین ایران و آمریکا امضا شود، سپس اولین دور مذاکرات بعدی برگزار شود.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 22652
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 بنیامین نتانیاهو امشب یک‌ بیانیه مهم درمورد مذاکرات منتشر خواهد کرد.
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 392131
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فوری: اولین سخنرانی مجتبی بعد از پایان جنگ و توافق با آمریکا.
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 128262
+
+<div align="center">
+  <a href="telegram/content/alonews_128262_1781538231.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈روزنامه عبری یدیعوت آحارونوت:
+اهدافی که بنیامین نتانیاهو برای توافق با ایران تعیین کرده بود، در یادداشت تفاهم میان آمریکا و ایران جایی ندارند و به نظر می‌رسد در توافق نهایی نیز محقق نخواهند شد.
+
+
+🔴این اهداف شامل خروج مواد غنی‌شده از ایران، برچیدن زیرساخت‌های غنی‌سازی، محدودسازی برنامه موشکی و پایان دادن به حمایت ایران از متحدانش در خاورمیانه است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128261
+
+<div align="center">
+  <a href="telegram/content/alonews_128261_1781538231.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈عراقچی: روز جمعه احتمالاً در کشور سوئیس دیداری بین روسای هیئت‌های دو طرف انجام و تفاهمنامه بین ایران و امریکا امضا شود، سپس اولین دور مذاکرات بعدی برگزار شو
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/25 19:03
 ---
 

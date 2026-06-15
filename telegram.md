@@ -7,6 +7,207 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/25 23:44
+---
+
+## WithYashar — post 15010
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عراقچی: جمعه در سوئیس تفاهم امضا می‌شود و پس از آن اولین دور مذاکرات بعدی را خواهیم داشت
+@withyashar
+</div>
+
+## mwarmonitor — post 11002
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨✈️یک فروند بمب‌افکن B-52 استراتوفورترس متعلق به نیروی هوایی آمریکا، اندکی پس از برخاستن از پایگاه نیروی هوایی ادواردز و حوالی ساعت ۱۱:۲۰ صبح سقوط کرد. هنوز جزئیاتی درباره تلفات احتمالی یا علت این سانحه منتشر نشده است. @mwarmonitor
+</div>
+
+## pm_afshaa — post 94152
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94152_1781554448.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴یک مقام ارشد آمریکایی به العربیه:
+جمهوری اسلامی آماده ارائه امتیازهایی بی‌سابقه‌ست.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94151
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94151_1781554448.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴عراقچی: قراره روز جمعه در کشور سوئیس یه دیداری بین هیئت‌های دو طرف انجام بشه، که در ابتدا روسای هیئت‌های دو طرف این یادداشت تفاهم رو امضا کنند و بعدش اولین دور مذاکرات بعدی رو داشته باشیم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 342578
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در اسرائیل موج انتقادها از تفاهم تهران واشینگتن و عملکرد نتانیاهو بالا گرفته است. اسرائیل‌هیوم نوشت نتانیاهو حالا نه در میز مذاکره جایی دارد و نه ابزاری برای تغییر مسیر توافق. موقعیت سیاسی او عملا در خطر است و کارزار نظامی نخست‌وزیر اسرائیل هم به همه اهدافش نرسیده است.
+گفت‌وگو با مئیر جاودان‌فر، تحلیل‌گر مسایل اسرائیل
+
+@iranintltv
+</div>
+
+## IranIntlTV — post 342577
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342577_1781554450.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آرش آرامش، حقوقدان و کارشناس امنیت ملی، گفت: «ترامپ در واقع سنت حمایت آمریکا از اسرائیل را که از پایان جنگ جهانی دوم در سیاست خارجی این کشور وجود داشت، شکسته و به نظر می‌رسد بیش از متحدان دموکراتیک، روابط با دولت‌های اقتدارگرا را در اولویت قرار داده است.»
+
+او افزود: «ایالات متحده می‌توانست با ادامه فشار نظامی تا مرز فروپاشی جمهوری اسلامی پیش برود، اما این مسیر انتخاب نشد و امروز جمهوری اسلامی، هرچند تضعیف شده، همچنان بر سر کار است.»
+@iranintltv
+</div>
+
+## FarsiVOA — post 220849
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺گزارش | اسرار سقوط رژیم بشار؛ چگونه مهمترین متحد رژیم ایران در ۱۱ روز فرو پاشید
+
+▪️کتابی تحت عنوان «اسرار سقوط رژیم بشار اسد و دیدگاه احمد الشرع» به قلم «منیر ربیع» روزنامه‌نگار لبنانی در قاهره منتشر شده است، که مهمترین وقایع روزهای قبل از سقوط رژیم سوریه را از زبان احمد الشرع حاکم جدید دمشق و یاران وی، روایت می‌کند.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/report-how-assad-regime-collapsed-in-11-days/8161088.html
+@FarsiVOA
+</div>
+
+## IranianMinds — post 22679
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22679_1781554452.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کمی‌ تراپی ببینید
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22678
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 سردار قاآنی :
+
+دمتون گرم از تیم مذاکره کننده مخصوصا آقای قالیباف تشکر میکنم عالی بودید.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 283931
+
+<div align="center">
+  <a href="https://t.me/bbcpersian/283931" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پادکست برنامه شصت دقیقه دوشنبه ۲۵ خرداد ۱۴۰۵
+این نسخه رادیویی برنامه شصت دقیقه تلویزیون فارسی بی‌بی‌سی است که هرشب بعد از پخش، با حجم کم از اپلیکیشن‌های پادگیر و صفحه تلگرام بی‌بی‌سی فارسی در دسترس است.
+با هشتگ BBCPersianRadio با ما در ارتباط باشید.
+</div>
+
+## Dirty_Kids — post 392163
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392163_1781554454.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیام حضرت آقا: «خیلی لاشی تشریف دارید سسسکشا»
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392161
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392161_1781554455.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دو تا تراپی
+از بانو شعرهای سوزنده
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 128329
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😐
+😐
+😐
+😐
+😐
+😐
+😐
+</div>
+
+## alonews — post 128328
+
+<div align="center">
+  <a href="telegram/content/alonews_128328_1781554456.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈شبکه ۱۲ اسرائیل قضات دادگاه نتانیاهو درخواست نخست‌وزیر برای کوتاه کردن جلسه فردا را رد کردند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128327
+
+<div align="center">
+  <a href="telegram/content/alonews_128327_1781554457.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نفتالی بنت نخست وزیر پیشین اسرائیل:
+بر خلاف دولت فعلی، در انتخابات جدید اگر رأی بیاورم به صورت خیلی فوری اقدامات اصلی برای تغییر رژیم در ایران را انجام خواهم داد!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128326
+
+<div align="center">
+  <a href="telegram/content/alonews_128326_1781554457.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سردار قاآنی: باب‌المندب یکی از برگ‌های برنده جبهه مقاومت است و اگر لازم باشد برگ‌های دیگری هم رو می‌شود. 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128325
+
+<div align="center">
+  <a href="telegram/content/alonews_128325_1781554457.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سردار قاآنی: باب‌المندب یکی از برگ‌های برنده جبهه مقاومت است و اگر لازم باشد برگ‌های دیگری هم رو می‌شود.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/25 23:35
 ---
 

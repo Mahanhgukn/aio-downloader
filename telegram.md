@@ -7,6 +7,143 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/26 03:14
+---
+
+## VahidOOnLine — post 245790
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_245790_1781567075.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️بنیامین نتانیاهو، در پاسخ به سوالی درباره میزان تعهد اسرائیل به بخش مربوط به ایران در تفاهم‌نامه جدید گفت: «این توافق توسط ایالات متحده و شخص رئیس‌جمهوری آمریکا تنظیم شده است؛ او فکر می‌کند که می‌تواند موضوع بازگشایی آبراه‌ها و لغو برنامه هسته‌ای ایران را با یکدیگر ادغام کند و من هم تاکید کرده‌ام که این تصمیم خود اوست و خودش آن را پیش می‌برد.» نخست‌وزیر اسرائیل با اشاره به اینکه دیدگاه‌های خود را در گفتگوهای مختلف با مقامات واشنگتن ابراز کرده، افزود: «من باز هم تکرار می‌کنم که این تصمیم اوست، اما از سوی دیگر، ما نیز منافع خاص خودمان را داریم که باید از آن‌ها محافظت کنیم.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 343002
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343002_1781567077.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+“He's coming after my wife.”
+
+Gavin Newsom accused President Trump and his political allies of targeting his family, saying the fight has moved beyond him and now includes his wife, Jen.
+
+The California governor says she has done nothing wrong and is being scrutinized solely because of her advocacy work.
+
+The governor also claimed the investigation is intended to undermine any potential White House bid he may pursue in the future.
+
+Sources familiar told Fox News that the investigation has been ongoing since 2025 and that the probe is based on whistleblower complaints related to Newsom and his wife's personal finances. The case is being handled by the U.S. Attorney's Office in Sacramento.
+</div>
+
+## FoxNewsTwitter — post 343001
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343001_1781567081.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"Iran has agreed to never have a Nuclear Weapon!"
+
+President Trump said Iran has agreed to permanently forgo nuclear weapons and pushed back on reports that the U.S. would pay Iran $300 million as part of the deal.
+
+The statement comes as the administration touts a breakthrough agreement aimed at ending the conflict with Iran and reopening the Strait of Hormuz.
+</div>
+
+## FarsiVOA — post 220860
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220860_1781567082.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️قلعه‌نویی و طارمی: ما سیاسی نیستیم؛ اظهاراتی که در نشست خبری جنجال‌ساز شد
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220859
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺پرزیدنت ترامپ: جمهوری اسلامی پذیرفته است که هرگز سلاح هسته‌ای نداشته باشد
+
+▪️رئیس جمهوری آمریکا با رد برخی گزارش‌ها درباره پرداخت میلیون‌ها دلار به رژیم ایران، بار دیگر تاکید کرد که جمهوری اسلامی پذیرفته است هرگز سلاح هسته‌ای نداشته باشد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/president-trump-says-iran-accepted-never-to-have-nuclear-weapons/8161167.html
+@FarsiVOA
+</div>
+
+## IranianMinds — post 22684
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22684_1781567083.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 پخش تیشرت‌هایی با طرح جاویدنامان در اطراف استادیوم
+
+امشب ۶۴ هزار ایرانی در ورزشگاه حاضر میشوند تا صدای ایرانیان را بار دیگر به جهان برسانند..
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22683
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جام جهانی ینی اوج هیجان و پول دراوردن پس بیا توی کانال ورسوس بت و پول دراوردن شروع کن👌
+</div>
+
+## IranianMinds — post 22682
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22682_1781567084.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📢توم میخوای از مسابقات جام جهانی فوتبال پول دربیاری؟
+🥇
+
+
+✅کانال ورسوس بت کارش تحلیل و پیش بینی مسابقات جام جهانی به صورت حرفه ای
+🍑
+
+
+⚠️توم میتونی از پیش بینی جام جهانی خیلی راحت پول دربیاری فقط کافیه با کانال ورسوس بت همراه شی
+📣
+
+
+🌐ادرس عضویت کانالشون e25:
+👇
+
+🔪https://t.me/+vEPd1hF2Y38yMWI0
+
+🔪https://t.me/+vEPd1hF2Y38yMWI0
+</div>
+
+## BBCPersian — post 283940
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283940_1781567084.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌ ‌ ‌
+محمدباقر قالیباف، رئیس مجلس شورای اسلامی ایران که چهره اول تیم مذاکره‌کننده ایران با آمریکاست در واکنش به امضای تفاهم‌نامه توقف مخاصمه خطاب به مردم این کشور گفته است: «با مقاومت تاریخی شما و رشادت نیروهای مسلح دربرابر آنان که قصد جان این ملت و نابودی و تسلیم این مملکت را کرده بودند، ایران گامی بلند به سوی پیروزی نهایی برداشت. می‌خواستند و نتوانستند.»
+
+آن طور که گزارش شده آقای قالیباف و عباس عراقچی، وزیر خارجه ایران، ظرف چند روز آینده برای امضای این تفاهم‌نامه به سوئیس سفر خواهند کرد و به احتمال زیاد در دیداری حضوری با جی دی ونس، معاون دونالد ترامپ، تشریفات رسمی امضاء را برگزار می‌کنند.
+
+استقبال آقای قالیباف و دیگر مقام‌های ارشد ایران از امضای این تفاهم‌نامه در حالی است که بخشی از حامیان تندرو حکومت از آنچه «سازش و توافق» با آمریکا خوانده‌اند، به تندی انتقاد کرده‌اند و وعده داده‌اند که در تجمعات خیابانی شبانه خود علیه آن اعتراض کنند.
+
+https://bbc.in/4vcH979
+📷javanonline
+@BBCPersian
+</div>
+
+---
 📅 بروزرسانی: 1405/03/26 03:04
 ---
 

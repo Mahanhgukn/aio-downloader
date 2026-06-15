@@ -7,6 +7,157 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/25 20:23
+---
+
+## VahidOOnLine — post 245736
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245736_1781542421.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️یک مقام ارشد دولت آمریکا روز دوشنبه ۲۵ خردادماه اعلام کرد تاکنون هیچ بخشی از دارایی‌های مسدودشده ایران در چارچوب تفاهم‌نامه صلح میان تهران و واشنگتن آزاد نشده است.
+به گزارش خبرگزاری فرانسه این مقام در گفتگو با خبرنگاران، گزارش‌های منتشرشده در برخی رسانه‌های ایرانی درباره آزادسازی فوری بخشی از دارایی‌های مسدود شد ایران را رد کرد.
+او در پاسخ به این پرسش که چه میزان از دارایی‌های ایران تاکنون آزاد شده است، گفت: «صفر.»
+این مقام آمریکایی افزود: «واقعیت بسیار ساده این است که صفر دلار از دارایی‌های مسدودشده ایران توسط ایالات متحده یا هر کشور دیگری آزاد شده است.»
+اظهارات این مقام در حالی مطرح می‌شود که پس از اعلام تفاهم‌نامه میان ایران و آمریکا، گمانه‌زنی‌هایی درباره آزادسازی منابع مالی مسدود شده ایران به عنوان بخشی از اجرای توافق مطرح شده بود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245735
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245735_1781542421.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امانوئل مکرون، رییس‌جمهوری فرانسه، روز دوشنبه گفت تفاهم‌نامه امضاشده میان آمریکا و جمهوری اسلامی برای پایان دادن به جنگ چهارماهه، گامی بسیار مهم است و امکان بازگشایی تنگه هرمز را فراهم خواهد کرد.
+
+مکرون در دیدار با دونالد ترامپ، رییس‌جمهوری آمریکا، در حاشیه نشست گروه هفت گفت: «این گامی بسیار مهم برای صلح است.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## pm_afshaa — post 94118
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_94118_1781542422.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این بدبختم کیر کردید😂
+دیشب توییت زد فرمان حمله صادر شد.
+پشماتون بریزه مشاور رهبره تازه!
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94117
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94117_1781542423.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: شاید من هم برای امضای توافق حضور داشته باشم، معلوم نیست. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94116
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94116_1781542423.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: شاید من هم برای امضای توافق حضور داشته باشم، معلوم نیست.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 342549
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342549_1781542424.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امانوئل مکرون، رییس‌جمهوری فرانسه، روز دوشنبه گفت تفاهم‌نامه امضاشده میان آمریکا و جمهوری اسلامی برای پایان دادن به جنگ چهارماهه، گامی بسیار مهم است و امکان بازگشایی تنگه هرمز را فراهم خواهد کرد.
+
+مکرون در دیدار با دونالد ترامپ، رییس‌جمهوری آمریکا، در حاشیه نشست گروه هفت گفت: «این گامی بسیار مهم برای صلح است.»
+https://iranintl.com/202606158009
+</div>
+
+## FarsiVOA — post 220831
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220831_1781542425.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پرسش میدان: تفاهم جمهوری اسلامی و آمریکا چه اثری بر جنبش‌های مدنی در ایران خواهد داشت؟ تشدید سرکوب‌ها یا به هم پیوستن خرده‌مقاومت‌ها؟
+</div>
+
+## IranianMinds — post 22653
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ:
+
+شاید من هم در مراسم امضاء توافق با ایران حضور داشته باشم.
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 392143
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392143_1781542426.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسیدیم به اسلامی که؛
+نه نماز واجبه
+نه روزه
+نه حج
+نه حجاب
+نه خمس
+نه ذکات
+و نه حتی حفظ امام زمان... 🤔
+فقط حفقظ جمهوری‌عسلامی مهمه، برای اینکه آخوند باشه، بمونه، بخوره، بدزده و اختلاس کنه، انگل‌زاده‌هاشون اینجا و اونور آب تو پول بغلطن و درد و رنج مردم هم به کیرشون... 😐
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392142
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392142_1781542427.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لیوانی ک طعم آب را متفاوت می‌کند:
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 128287
+
+<div align="center">
+  <a href="telegram/content/alonews_128287_1781542428.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈مکرون: ما از ایالات متحده، ایران و عمان در بازگشایی تنگه هرمز حمایت خواهیم کرد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/25 20:14
 ---
 

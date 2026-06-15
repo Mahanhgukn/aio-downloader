@@ -7,6 +7,84 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/26 01:14
+---
+
+## VahidOOnLine — post 245781
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245781_1781559852.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️جی‌دی ونس، معاون رئیس‌جمهوری ایالات متحده، روز دوشنبه در گفتگو با «سی‌ان‌ان» اعلام کرد که یادداشت تفاهم میان آمریکا و ایران سندی بسیار کلی و در حدود «یک صفحه و نیم» است. ونس با اشاره به اینکه این متن تنها یک چارچوب کلان را تعیین می‌کند، تاکید کرد که جزئیات مربوط به موضوعات مختلف باید در طول مرحله مذاکرات فنی آینده مشخص و حل‌وفصل شوند. به گفته او، این تفاهم‌نامه ساختاری را ایجاد می‌کند که بر اساس آن، ایرانی‌ها در صورت پایبندی به تعهدات خود، از مزایای این توافق بهره‌مند خواهند شد.
+معاون رئیس‌جمهوری آمریکا در بخش دیگری از این مصاحبه گفت که در همان «بند اول» این سند، انتظار واشنگتن مبنی بر تعهد ایران به «صلح و ثبات منطقه‌ای» به صراحت مطرح شده است. او تصریح کرد که بر اساس این بند، همان‌طور که ایالات متحده به صلح متعهد است، تهران نیز متعهد می‌شود که تامین مالی سازمان‌های تروریستی خشن و دامن زدن به بی‌ثباتی در منطقه را به طور کامل متوقف کند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245780
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245780_1781559852.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بر اساس این گزارش، دو انفجار نخست ساعات پایانی شامگاه دوشنبه ۲۵ خرداد و سومین انفجار ساعات اولیه بامداد سه‌شنبه ۲۶ خرداد رخ داده است.
+طبق گزارش مهر، این انفجارها در محدوده تنگه هرمز روی داده و بر اساس گزارش‌های اولیه، احتمالا به «مدیریت تردد» تنگه هرمز مرتبط است.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342997
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342997_1781559853.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+A graduation celebration quickly turned into a protest.
+
+Stanford graduates walked out during Google CEO Sundar Pichai's commencement speech. "Free Palestine" chants and boos were heard, and Palestinian flags were visible throughout the demonstration.
+
+The protest was likely aimed at Google's business ties with the Israeli government, including the company's partnership with Israel's Project Nimbus cloud-computing contract, an issue that has fueled campus activism at Stanford for years.
+
+Pichai did not appear to respond to the protest and continued delivering his remarks as demonstrators exited the ceremony.
+</div>
+
+## IranIntlTV — post 342589
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342589_1781559855.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻علی دایی، اسطوره فوتبال ایران، با اکبر عبدی، بازیگر سینما و تلویزیون که در هفته‌های گذشته دچار حمله قلبی شده بود، دیدار کرده و جویای حال او شد.
+
+🔹اکبر عبدی با انتشار این تصویر در اینستاگرام، از علی دایی بابت پیگیری احوال خود، قدردانی کرد.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 342588
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342588_1781559856.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بر اساس این گزارش، دو انفجار نخست ساعات پایانی شامگاه دوشنبه ۲۵ خرداد و سومین انفجار ساعات اولیه بامداد سه‌شنبه ۲۶ خرداد رخ داده است.
+طبق گزارش مهر، این انفجارها در محدوده تنگه هرمز روی داده و بر اساس گزارش‌های اولیه، احتمالا به «مدیریت تردد» تنگه هرمز مرتبط است.
+
+https://iranintl.com/202606153732
+</div>
+
+## alonews — post 128346
+
+
+
+
+---
 📅 بروزرسانی: 1405/03/26 01:04
 ---
 

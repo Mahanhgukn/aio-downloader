@@ -7,6 +7,153 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/25 11:42
+---
+
+## pm_afshaa — post 94057
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_94057_1781511177.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تندرو ها برا امشب فراخوان دادن تازه گفتن مجتبی مرده
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## Shin_Persian — post 7093
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Open Source Intel ✓ @Osint613
+Mon, 15 Jun 2026 06:54:57 UTC
+
+Hegseth: Large U.S. military forces will remain in the region. If Iran fails to meet its commitments, the blockade will be reimposed.
+
+ترجمه خودکار فارسی
+
+هگزت: نیروهای نظامی بزرگ ایالات متحده در منطقه باقی خواهند ماند. اگر ایران در انجام تعهدات خود کوتاهی کند، محاصره مجدداً اعمال خواهد شد.
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 220780
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220780_1781511177.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📸اینستاگرام صدای آمریکا را هم اکنون فالو کنید تا از آخرین خبرها مطلع بمانید:
+https://www.instagram.com/voafarsi/
+
+📡همچنین جهت اطلاع از بروزترین فرکانسهای ماهواره‌ای صدای آمریکا به لینک زیر مراجعت فرمایید:
+https://ir.voanews.com/satellite
+
+این پست را با دوستانتان به اشتراک بگذارید
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220779
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Farsi VOA pinned an audio file
+</div>
+
+## FarsiVOA — post 220778
+
+<div align="center">
+  <a href="https://t.me/farsivoa/220778" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴📢‌ پادکست خبری یکشنبه ۲۴خرداد ۱۴۰۵
+
+🛜در صورتی که با مشکل اینترنت مواجه هستید میتوانید اخبار صدای آمریکا را از نسخه‌های پادکست خبری ما روزانه دنبال کنید و یا اخبار را از نسخه سبک وب‌سایت ما پیگیر باشید:
+https://ir.voanews.com/lite
+
+📡بروزترین فرکانسهای ماهواره‌ای را نیز میتوانید از صفحه زیر پیگیری کنید:
+https://ir.voanews.com/satellite
+
+🔔دیگر شبکه‌های اجتماعی ما را هم دنبال کنید:
+https://linktr.ee/voafarsi
+
+
+
+ما را به اشتراک بگذارید
+@farsivoa
+</div>
+
+## alonews — post 128155
+
+<div align="center">
+  <a href="telegram/content/alonews_128155_1781511178.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈صداوسیما سرود پیروزی پخش کرد :
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128154
+
+<div align="center">
+  <a href="telegram/content/alonews_128154_1781511181.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کانال ۱۲ اسرائیل: حدود ۱۰ ساعت از اعلام توافق بین واشنگتن و تهران می‌گذرد اما نتانیاهو هنوز در سکوت به سر می برد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128153
+
+<div align="center">
+  <a href="telegram/content/alonews_128153_1781511181.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزارت خارجه کویت: از توافق میان ایالات متحده و ایران استقبال می‌کنیم و از نقش پاکستان و قطر که در دستیابی به آن نقش داشته‌اند، قدردانی می‌کنیم.
+
+
+🔴امیدواریم این تفاهم، حسن همجواری و عدم مداخله در امور داخلی کشورها را تقویت کند.
+
+
+🔴از همه طرف‌ها می‌خواهیم با روحیه‌ای مثبت و سازنده در مذاکرات آینده مشارکت کنند تا ثبات تقویت شود.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128152
+
+<div align="center">
+  <a href="telegram/content/alonews_128152_1781511181.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خوش‌چشم تحلیلگر ارشد صداوسیما:
+من تعهد می‌دم ترامپ به شهباز شریف گفته حرف من دیگه خریدار نداره، بیا توییت بزن بگو توافق نهایی شده
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128151
+
+<div align="center">
+  <a href="telegram/content/alonews_128151_1781511184.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رسایی: اینترنت رو قطع کنید
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/25 11:32
 ---
 

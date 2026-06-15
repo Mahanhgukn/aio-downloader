@@ -7,6 +7,121 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/25 03:52
+---
+
+## VahidOOnLine — post 245599
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245599_1781482945.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جی‌دی ونس، معاون رییس‌جمهور ی آمریکا، به شبکه خبری فاکس گفت: «فکر می‌کنم هنوز در حال هماهنگ کردن جزئیات مربوط به افرادی هستیم که در مراسم امضا حضور خواهند داشت.»
+
+او اشاره کرد: «به‌طور قطع، قصد دارم آنجا باشم، اما این احتمال وجود دارد که خود رییس‌جمهور [دونالد ترامپ] نیز در مراسم حضور داشته باشد.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## pm_afshaa — post 94043
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خارکصه ها با قاتل رهبرمون توافق کردین!؟
+خیلی گه خوردین از فردا کف خیابون کونتون میزاریم با قاتلین رهبر شهیدمون!؟
+</div>
+
+## pm_afshaa — post 94042
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_94042_1781482945.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امشب ایوانکا در حال باز کردن و اعلام کادو های تولد ترامپ :
+
+مستر قالیباف، 400 کیلوگرم اورانیوم
++ روبیو و ونس و ویتکاف (با ریتم) :
+چرا زحمت کشیدین؟… تشکر تشکر …
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94041
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_94041_1781482946.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ای بابا
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## VahidOnline — post 76361
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76361_1781482946.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به گفته دو مقام جمهوری اسلامی که نیویورک‌تایمز نام آنها را اعلام نکرده، تهران تا پس از عبور ساعت از نیمه‌شب به وقت محلی صبر کرد تا توافق را نهایی کند، زیرا نمی‌خواست این رویداد مهم با روز تولد دونالد ترامپ، رئیس‌جمهوری آمریکا، در روز یکشنبه هم‌زمان شود.
+بر اساس این گزارش، اختلاف زمانی هفت‌ونیم ساعته میان تهران و واشینگتن باعث شد هر دو طرف بتوانند روایت مورد نظر خود را از زمان نهایی شدن توافق ارائه دهند. ترامپ گفته بود توافق در روز یکشنبه نهایی شده، در حالی که ایران اعلام کرده بود این روند در روزی بعد از آن تکمیل شده است. دونالد ترامپ ۱۴ ژوئن ۱۹۴۶ به دنیا آمده است.
+@VahidOOnLine
+"بدو گفتم تو صورت را نکو گیر
+که من صورت دهم کار خود از زیر"
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 342389
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342389_1781482947.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جی‌دی ونس، معاون رییس‌جمهور ی آمریکا، به شبکه خبری فاکس گفت: «فکر می‌کنم هنوز در حال هماهنگ کردن جزئیات مربوط به افرادی هستیم که در مراسم امضا حضور خواهند داشت.»
+
+او اشاره کرد: «به‌طور قطع، قصد دارم آنجا باشم، اما این احتمال وجود دارد که خود رییس‌جمهور [دونالد ترامپ] نیز در مراسم حضور داشته باشد.»
+https://iranintl.com/202606141793
+</div>
+
+## FarsiVOA — post 220747
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220747_1781482947.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️دونالد ترامپ، رئیس جمهوری ایالات متحده روز یکشنبه ۱۴ ژوئن ۲۰۲۶ هشتاد ساله شد؛ مناسبتی که با «روز پرچم» آمریکا همزمان شده است. در همین روز، رئيس جمهوری آمریکا از امضای توافق با جمهوری اسلامی خبر داد. آقای ترامپ گفت «این توافق بزرگ»، صلح و امنیت را برای کل منطقه به ارمغان خواهد آورد.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220746
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220746_1781482948.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️گزارشی از محل اقامت تیم ملی فوتبال ایران در لس آنجلس
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220745
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220745_1781482948.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️صدر اعظم آلمان، فريدرش مرتس در بیانیه‌ای گفت از توافق بین ایالات متحده و حکومت ایران استقبال می‌کند و «به رئیس جمهوری ترامپ و طرف ایرانی به خاطر این پیشرفت دیپلماتیک تبریک می‌گویم.» او گفت «این می‌تواند راه را برای یک اقتصاد جهانی احیا‌شده و خاورمیانه‌ای امن‌تر هموار کند. اجرای قاطعانه آن بسیار مهم است.»
+@FarsiVOA
+</div>
+
+---
 📅 بروزرسانی: 1405/03/25 03:42
 ---
 

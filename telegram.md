@@ -7,6 +7,130 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/26 00:23
+---
+
+## VahidOOnLine — post 245774
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️خبرگزاری فرانسه روز دوشنبه، تصاویری از محل سقوط بمب‌افکن «بی-۵۲» آمریکا در پایگاه هوایی «ادواردز» در ایالت کالیفرنیا را منتشر کرد. این تصاویر برخاستن دود غلیظی را از محل سقوط این بمب‌افکن راهبردی متعلق به نیروی هوایی ایالات متحده نشان می‌دهد. براساس این گزارش، این هواپیمای نظامی غول‌پیکر در باند فرود این پایگاه دچار سانحه شده و سقوط کرده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 15016
+
+<div align="center">
+  <img src="telegram/content/WithYashar_15016_1781556828.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قشم سمت سوزا همین الان خیابون اصلی
+@withyashar 🚨🚨🚨
+</div>
+
+## FoxNewsTwitter — post 342996
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342996_1781556828.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"My mom even thinks it's the greatest thing ever... Why would I back down?"
+
+@vanillaice makes it clear: he's not going anywhere and WILL perform at the Great American State Fair on the National Mall for America's 250th anniversary celebration.
+
+The '90s pop icon pushed back on critics, saying he's proud to take part in the historic event and calling it an honor to celebrate the country's milestone birthday.
+
+"It's still the greatest country in the world."
+
+"For me, man, this is a great celebration. I'm honored and look forward to getting everybody dancing." | @TheStoryFNC @BillHemmer
+</div>
+
+## DEJradio — post 5706
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5706_1781556830.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🔸 خبر ۲۱
+دوشنبه ۲۵ خرداد ۱۴۰۵
+
+#خبر۲۱
+@DEJradio
+</div>
+
+## IranIntlTV — post 342584
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342584_1781556832.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوهای منتشرشده در حساب کاربری «وحید آنلاین»، آتش‌سوزی در شهرک امید تهران را در شامگاه دوشنبه ۲۵ خرداد نشان می‌دهد.
+تا زمان انتشار این ویدیوها، جزییاتی درباره علت این آتش‌سوزی و خسارت‌های احتمالی آن منتشر نشده است.
+</div>
+
+## FarsiVOA — post 220852
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺کارشناسان: پایان جنگ با رژیم ایران می‌تواند باعث رونق بازار سهام و کاهش تورم شود
+
+▪️سرمایه‌گذاران و تحلیل‌گران بازارهای مالی می‌گویند توافق برای پایان دادن به جنگ میان ایالات متحده و رژیم ایران می‌تواند به رونق در بازارهای سهام منجر شود، و علاوه بر شرکت‌های فناوری، بخش‌های دیگری از اقتصاد را نیز منتفع کند.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/experts-say-iran-deal-could-expand-market-gains/8161134.html
+@FarsiVOA
+</div>
+
+## IranianMinds — post 22681
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴دقایقی پیش، 3 نفتکش و 2 کشتی ایرانی از محاصره دریایی رد شدن و دیگه رسما محاصره آمریکا تموم شد.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 283936
+
+<div align="center">
+  <a href="https://t.me/bbcpersian/283936" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📻ویژه برنامه جام ۲۶ - قسمت دوم
+
+🏆اولین دیدار تیم ملی فوتبال ایران در لس آنجلس بامداد سه شنبه به وقت ایران برگزار می شود. در نشست خبری پیش از مسابقه هم با وجود آنکه از خبرنگاران خواسته شده بود سوال‌های سیاسی مطرح نکنند، بخش زیادی به صحبت درباره حاشیه‌ها و اتفاقاتی گذشت که در ماه‌های اخیر حضور ایران در جام جهانی را در هاله‌ای از ابهام قرار داده بود.  
+
+@BBCPersian
+</div>
+
+## BBCPersian — post 283935
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283935_1781556833.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌ ‌ ‌ ‌
+بنیامین نتانیاهو، نخست وزیر اسرائیل، خروج نیروهای اسرائیلی از جنوب لبنان را رد کرده است.
+
+آقای نتانیاهو در ادامه اولین واکنشش به تفاهمنامه ایران و آمریکا تاکید کرده است که ارتش اسرائیل از مناطق اشغال شده در جنوب لبنان خارج نخواهد شد.
+
+بسیاری معتقدند که عدم خروج اسرائیل از جنوب لبنان که مطابق با یکی از بندهای تفاهمنامه مبنی بر توقف کامل درگیری‌ها است، ممکن توافق ایران و آمریکا را از مسیر خود خارج کند.
+
+آقای نتانیاهو گفت: «ما مناطق امنیتی عمیقی در اطراف کشور اسرائیل ایجاد کرده‌ایم. ما این کار را در غزه، لبنان و سوریه انجام دادیم، جایی که تمام سلاح‌های ارتش اسد را از بین بردیم. می‌خواهم این را روشن کنم، ما تا زمانی که لازم باشد برای محافظت از کشورمان در مناطق امنیتی خواهیم ماند.»
+
+نخست‌وزیر اسرائیل تأکید کرد: «ما تا زمانی که لازم باشد در منطقه حائل امنیتی لبنان خواهیم ماند.»
+
+https://bbc.in/4gkH4K2
+📷Reuters
+@BBCPersian
+</div>
+
+---
 📅 بروزرسانی: 1405/03/26 00:14
 ---
 

@@ -7,6 +7,186 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/25 11:53
+---
+
+## WithYashar — post 14951
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تتر ۱۶۳.۵۰۰ تومان
+@withyashar
+</div>
+
+## WithYashar — post 14950
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال ۱۲ اسرائیل: حدود ۱۰ ساعت از اعلام توافق بین واشنگتن و تهران می‌گذرد اما نتانیاهو هنوز در سکوت به سر می برد
+@withyashar
+</div>
+
+## pm_afshaa — post 94058
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محسن رضایی: باید طرفداران خودمان را هم با تیر بزنیم تا آمریکا بفهمد ما با خودمان هم شوخی نداریم چه برسد به دشمن
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 342454
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342454_1781511784.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوهای رسیده به ایران‌اینترنشنال حاکی است رانندگان پیک‌های موتوری شرکت «اسنپ» در شیراز، روز دوشنبه ۲۵ خرداد همچنان برای اعتراض به کمیسیون بالا، مالیات سنگین، کرایه کم، حذف سهمیه سوخت و نداشتن بیمه در اعتصاب هستند.
+</div>
+
+## IranIntlTV — post 342447
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻وقتی تیم ملی فوتبال مردان ایران بامداد سه‌شنبه در ورزشگاه سوفای لس‌آنجلس برای نخستین بازی خود در جام جهانی فیفا به میدان برود، بسیاری از ایرانی‌آمریکایی‌ها از این تیم حمایت نخواهند کرد. دلیل آن روی پیراهن هر بازیکن دوخته شده است: پرچم جمهوری اسلامی.
+
+🔹در روزهای اخیر بخشی از جامعه ایرانیان آمریکایی در منطقه لس‌آنجلس در اعتراض به جمهوری اسلامی تجمع‌هایی برگزار کرده‌اند. از جمله ظهر یکشنبه نیز تجمعی در نزدیکی استادیوم سوفای، ورزشگاهی که قرار است دیدار ایران و نیوزیلند در آن برگزار شود، برگزار شد.
+
+🔹بسیاری از رسانه‌های بین‌المللی پیش‌بینی کرده‌اند که در جریان مسابقه نیز اعتراض‌هایی در بیرون ورزشگاه و همچنین در داخل آن علیه حکومت جمهوری اسلامی صورت گیرد.
+همانطور که در جریان مراسم افتتاحیه در همین استادیوم، پرچم جمهوری اسلامی از سوی گروهی از تماشاگران «هو» شد.
+
+🔹پیش‌بازی ایران - نیوزیلند را در وب‌سایت ایران اینترنشنال بخوانید.
+
+@iranintltvsport
+</div>
+
+## Shin_Persian — post 7094
+
+<div align="center">
+  <a href="telegram/content/Shin_Persian_7094_1781511786.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+EDGE ✓ @_edgegroup
+Mon, 15 Jun 2026 06:40:44 UTC
+
+Every layer of defence matters. EDGE’s VSHORAD solutions provide close-range aerial protection engineered for precision, speed, and reliability, because the final layer of defence can be the one that matters most.
+
+ترجمه خودکار فارسی
+
+هر لایه دفاعی اهمیت دارد. راهکارهای برد بسیار کوتاه (VSHORAD) شرکت اج (EDGE)، حفاظت هوایی میان‌برد را با مهندسی دقیق، سریع و قابل‌اطمینان فراهم می‌کنند؛ زیرا لایه نهایی دفاع می‌تواند همان لایه‌ای باشد که بیشترین اهمیت را دارد.
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 220781
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺جنگ، قطع اینترنت و قطعی برق بیماران نادر را در معرض خطر قرار داد
+
+▪️گزارش همشهری از وضعیت بیماران نادر در دوره جنگ ۴۰ روزه نشان می‌دهد بحران درمان در کشور با آغاز جنگ لایه‌های پنهان خود را آشکارتر و خطرناک‌تر کرد.
+
+▪️پیش از جنگ نیز هشدارها درباره کمبود دارو، فرسایش ذخایر دارویی و مشکل تأمین داروهای وارداتی جدی بود. سخنگوی کمیسیون بهداشت مجلس پیش‌تر از کمبود نزدیک به هزار قلم دارو در کشور خبر داده و خواستار ورود وزارت بهداشت، سازمان غذا و دارو و بیمه‌ها به مدیریت بحران شده بود.
+
+▪️پیش از جنگ، ترکیبی از تحریم، مشکل انتقال پول، ضعف واردات، کمبود ارز، قیمت‌گذاری غیرواقعی، ناکارآمدی زنجیره توزیع و پوشش ناقص بیمه‌ای، دسترسی بیماران نادر را دشوار کرده بود.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8161003.html
+</div>
+
+## RadioFarda — post 158320
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_158320_1781511789.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸آنتونیو کاستا، رئیس شورای اتحادیه اروپا، روز دوشنبه ۲۵ خرداد از این توافق استقبال کرد و در شبکهٔ ایکس نوشت: «منتظر پایان این جنگ پرهزینه و بازگشت کامل آزادی کشتیرانی در تنگه هرمز هستم.»
+
+🔸کایا کالاس، مسئول سیاست خارجی اتحادیه اروپا هم گفت که توافق اعلام‌شده میان ایالات متحده و ایران می‌تواند یک «پیشرفت بالقوه مهم» در پایان جنگ باشد و اتحادیه اروپا اکنون بررسی خواهد کرد که چگونه می‌تواند در مرحله بعدی این روند مشارکت داشته باشد.
+
+🔸رئیس کمیسیون اروپا هم روز دوشنبه اعلام کرد که توافق میان ایالات متحده و ایران باید امکان «بازگشایی فوری» تنگه هرمز را فراهم کند. اورسلا فون درلاین همچنین اظهار داشت که برقراری صلح در خاورمیانه «تا زمانی که لبنان در آتش می‌سوزد» امکان‌پذیر نیست.
+
+🔸در همین حال وزیر امنیت ملی اسرائیل روز دوشنبه توافق میان ایالات متحده و ایران برای پایان دادن به جنگ خاورمیانه، از جمله در لبنان، را تقبیح کرد و گفت که کشورش به این توافق متعهد نخواهد بود.
+
+
+@RadioFarda
+</div>
+
+## BBCPersian — post 283867
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فراخوان نظر:
+واتس‌اپ: ۰۰۴۴۷۳۴۲۰۳۲۱۱۳
+تلگرام: BBCShoma@
+
+ایران و آمریکا به تفاهم رسیدند و جمعه در سوئیس تفاهم‌نامه امضا می‌کنند.
+
+احساس شما از شنیدن این خبر چه بود؟
+فکر می‌کنید این تفاهم چه تاثیری بر زندگی شما می‌گذارد؟
+بیم‌ها و امیدهایتان چیست؟
+
+نظر خود را به صورت متن، ویدیو یا فایل صوتی با هشتگ #تفاهم برای ما بفرستید:
+
+واتس‌اپ: ۰۰۴۴۷۳۴۲۰۳۲۱۱۳
+تلگرام: BBCShoma@
+</div>
+
+## alonews — post 128159
+
+<div align="center">
+  <a href="telegram/content/alonews_128159_1781511790.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈الجزیره: شهباز شریف شخصاً در مراسم امضای توافق شرکت خواهد کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128158
+
+<div align="center">
+  <a href="telegram/content/alonews_128158_1781511790.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈یه سریا باید از امشب شام درست کنن دیگه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128157
+
+<div align="center">
+  <a href="https://t.me/alonews/128157" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😐
+😐
+😐
+😐🖋🖋🖋🖋🖋🔖🔖
+</div>
+
+## alonews — post 128156
+
+<div align="center">
+  <a href="telegram/content/alonews_128156_1781511791.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈قیمت دلار 163,500
+
+
+🔴طلای ۱۸ عیار 17,000,000
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/25 11:42
 ---
 

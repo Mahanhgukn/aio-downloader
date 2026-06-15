@@ -7,6 +7,203 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/25 11:32
+---
+
+## VahidOOnLine — post 245659
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245659_1781510578.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایتامار بن‌گویر، وزیر امنیت ملی اسرائیل اعلام کرد این کشور طرف تفاهم آمریکا و جمهوری اسلامی نیست و نباید به چیزی کمتر از برچیدن حزب‌الله رضایت دهد.
+
+پیش‌تر وزیر دفاع اسرائیل گفت نتانیاهو به طور شفاف به دونالد ترامپ اعلام کرده نیروهای اسرائیلی از مناطق حائل در لبنان، سوریه و غزه خارج نخواهند شد.
+iranintl
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245658
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245658_1781510578.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ایتامار بن‌گویر، وزیر امنیت ملی اسرائیل روز دوشنبه ۲۵ خردادماه با انتشار پیامی در اکس اعلام کرد اسرائیل «تعهدی به اجرای توافق پایان جنگ تهران و واشنگتن» ندارد.
+
+بن گویر در این پیام، باوجود «تشکر» از دونالد ترامپ نوشت: «ما جمهوری موزی نیستیم»؛ اصطلاحی که در علوم سیاسی برای توصیف کشوره‌های ضعیف، عمدتا تک محصولی و وابسته به کار می‌رود.
+
+وزیر «راست‌گرای» امنیت ملی اسرائیل در این پیام نوشت: «ما ملزم به رعایت توافق ترامپ نستیم. اسرائیل تابع ایالات متحده نیست و ما یک ملت مستقل و دارای حاکمیت هستیم!
+وظیفه ما در قبال شهروندان اسرائیل، سربازان ارتش اسرائیل و مردم یهود و وظیفه تاریخی ما در قبال یهودیانی که در طول هزاران سال تبعید مورد آزار و اذیت و قتل قرار گرفته‌اند، مسئولیم تا امنیت یهودیان را در سرزمین اسرائیل فراهم کنیم.»
+
+بن گویر با یادآوری «شکست توافق‌های پیشین» افزود: «هر بار که به قیمت امنیت اسرائیل تسلیم فشارهای بین‌المللی شدیم، بهای خون خود را با بهره آن پرداختیم. این موضوع در توافق اسلو، در توافق لبنان در سال ۲۰۰۶ و در هر دوره مهار غزه که در مقابل ما منفجر شد، صادق بود.»
+
+وزیر امنیت ملی اسرائیل در همین پیام نوشت: «موضع من روشن است: ما شریک این توافق نیستیم که امنیت ما را تضمین نمی‌کند و به هیچ وجه ما را ملزم به رعایت آن نمی‌کند. ما نباید در مورد چیزی کمتر از برچیدن حزب‌الله مصالحه کنیم، نباید از هیچ سرزمینی که رزمندگان ما تصرف کرده و از زیرساخت‌های تروریستی پاکسازی کرده‌اند، عقب‌نشینی کنیم، نباید به وضعیتی برگردیم که هزاران تروریست در حصارهای شهرک‌های شمالی مستقر باشند و مطمئناً نباید لحظه‌ای در برابر آتشی که به سمت کشور اسرائیل نشانه گرفته می‌شود، ساکت بمانیم. ما باید این را روشن کنیم: پرتاب هر پهپاد، هواپیمای بدون سرنشین یا موشک به سمت اسرائیل از لبنان منجر به حمله اسرائیل به ضاحیه خواهد شد. این توازن بازدارندگی همین چند ماه پیش بود و ما به هیچ وجه نباید از آن دست بکشیم.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245657
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245657_1781510579.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+میثم ظهوریان، نماینده مشهد در مجلس، در شبکه ایکس نوشت محتوای یادداشت تفاهم تهران و واشینگتن هر چه که باشد، جمهوری اسلامی بعد از جنگ به‌طور حتم هم از لحاظ «قدرت سخت» و هم «قدرت نرم» قوی‌تر و مقتدرتر از پیش از آن است.
+
+او افزود: «جمهوری اسلامی در جنگی نابرابر در مقابل دو قدرت هسته‌ای و هفت قدرت منطقه‌ای ایستاد و سربلند بیرون آمد و همه دنیا و حتی معارضان داخلی فهمیدند نظامی پایدار است؛ ادراکی که قبل جنگ خلاف آن وجود داشت.»
+iranintl
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## DEJradio — post 5686
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5686_1781510580.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🤡
+🔺 هنوز انتقام رهبرمون رو نگرفتیم!
+
+#موشعلی #انتقام_سخت
+@DEJradio
+</div>
+
+## IranIntlTV — post 342446
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342446_1781510581.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایتامار بن‌گویر، وزیر امنیت ملی اسرائیل اعلام کرد این کشور طرف تفاهم آمریکا و جمهوری اسلامی نیست و نباید به چیزی کمتر از برچیدن حزب‌الله رضایت دهد.
+
+پیش‌تر وزیر دفاع اسرائیل گفت نتانیاهو به طور شفاف به دونالد ترامپ اعلام کرده نیروهای اسرائیلی از مناطق حائل در لبنان، سوریه و غزه خارج نخواهند شد.
+iranintl.com/202606152944
+</div>
+
+## IranIntlTV — post 342445
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342445_1781510581.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+میثم ظهوریان، نماینده مشهد در مجلس، در شبکه ایکس نوشت محتوای یادداشت تفاهم تهران و واشینگتن هر چه که باشد، جمهوری اسلامی بعد از جنگ به‌طور حتم هم از لحاظ «قدرت سخت» و هم «قدرت نرم» قوی‌تر و مقتدرتر از پیش از آن است.
+
+او افزود: «جمهوری اسلامی در جنگی نابرابر در مقابل دو قدرت هسته‌ای و هفت قدرت منطقه‌ای ایستاد و سربلند بیرون آمد و همه دنیا و حتی معارضان داخلی فهمیدند نظامی پایدار است؛ ادراکی که قبل جنگ خلاف آن وجود داشت.»
+iranintl.com/202606156410
+</div>
+
+## Shin_Persian — post 7092
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Mon, 15 Jun 2026 07:51:56 UTC
+
+RECAP if you were away for the weekend:
+
+Israel attacked Dahiye, southern Beirut
+Islamic Regime's officials threatened to retaliate by attacking Israel
+Israel said expecting missile strike from Iran
+Missile strike was called off.
+USA and Iran agreed on a deal, which is set to be signed on Friday, June 19, 2026.
+
+Have a nice week
+
+ترجمه خودکار فارسی
+
+خلاصه اگر در تعطیلات آخر هفته حضور نداشتید:
+
+اسرائیل به ضاحیه در جنوب بیروت حمله کرد
+مقامات رژیم اسلامی تهدید کردند که با حمله به اسرائیل تلافی خواهند کرد
+اسرائیل اعلام کرد که انتظار یک حمله موشکی از سوی ایران را دارد
+حمله موشکی لغو شد.
+ایالات متحده و ایران در مورد توافقی به تفاهم رسیدند که مقرر شده است در روز جمعه، ۱۹ ژوئن ۲۰۲۶ امضا شود.
+
+هفته خوبی داشته باشید
+
+𝕏 · @shin_persian
+</div>
+
+## alonews — post 128150
+
+<div align="center">
+  <a href="telegram/content/alonews_128150_1781510582.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رسایی: اینترنت رو قطع کنید
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128149
+
+<div align="center">
+  <a href="telegram/content/alonews_128149_1781510582.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خوارج برای امشب فراخوان دادن که همگی بریزن تو خیابون، تازه میگن مجتبی زنده نیست! 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128148
+
+<div align="center">
+  <a href="telegram/content/alonews_128148_1781510583.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خوارج برای امشب فراخوان دادن که همگی بریزن تو خیابون، تازه میگن مجتبی زنده نیست!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128147
+
+<div align="center">
+  <a href="telegram/content/alonews_128147_1781510583.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈دیده شده در مینی تجمعات
+
+
+🔴آمریکا انتقام هلیکوپترش رو گرفت اما ما انتقام رهبرمون رو نگرفتیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128146
+
+<div align="center">
+  <a href="telegram/content/alonews_128146_1781510583.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فواد ایزدی: جمهوری اسلامی الان یک ابرقدرت فرامنطقه‌ای هست
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128145
+
+<div align="center">
+  <a href="telegram/content/alonews_128145_1781510583.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نخست وزیر پاکستان: پیروزی برای صلح، موفقیتی برای دیپلماسی و رد جنگ است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/25 11:22
 ---
 

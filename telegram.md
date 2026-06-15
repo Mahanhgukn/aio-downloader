@@ -7,6 +7,193 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/25 15:03
+---
+
+## VahidOOnLine — post 245688
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245688_1781523183.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نفتالی بنت، نخست‌وزیر پیشین اسرائیل، که از گزینه‌های جانشینی نتانیاهو است، گفت که برای فروپاشی جمهوری اسلامی و برچیدن برنامه هسته‌ای آن، یک طرح راهبردی دارد که بر ترکیبی از ابزارهای دیپلماتیک، اطلاعاتی، اقتصادی، فناوری و نظامی متکی است.
+
+او درباره توافق آمریکا و جمهوری اسلامی گفت که نتانیاهو نتوانست دستاوردهای نظامی اسرائیل را به دستاوردهای امنیتی پایدار تبدیل کند.
+
+بنت افزود که دولت کشور را وارد جنگ‌های فرسایشی و بی‌نتیجه کرده و توان دستیابی به پیروزی قاطع را ندارد.
+iranintl
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245687
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245687_1781523183.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️فولکر تورک، کمیسر عالی حقوق بشر سازمان ملل متحد روز دوشنبه ۲۵ خردادماه اعلام کرد که از دی‌ماه سال گذشته (آغاز سال ۲۰۲۶ میلادی) تاکنون، دست‌کم ۴۰ نفر، ازجمله «۱۸ معترض» در ایران به اتهام جرایم امنیتی اعدام شده‌اند.
+
+فولکر تورک، رئیس شورای حقوق بشر سازمان ملل متحد با اعلام این خبر گفت «با مردم ایران که بین جنگ و سرکوب بی‌رحمانه گیر افتاده‌اند، عمیقا احساس همدردی می‌کنم.»
+
+ تورک از جمهوری اسلامی به‌دلیل «تشدید سرکوب مردم همزمان با حملات نظامی آمریکا و اسرائیل» به‌شدت انتقاد کرد و با استقبال از تفاهم پایان جنگ تهران و واشنگتن گفت: «امیدوارم همه طرف‌ها با حسن نیت به تعهداتشان پایبند باشند.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342973
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342973_1781523184.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NEW: @TreyYingst breaks down the path to a historic peace deal after more than 100 days of war, highlighting President Trump's role in bringing both sides to the negotiating table.
+
+President Trump says the agreement will help bring peace and security to the region, with the Strait of Hormuz set to reopen Friday and oil expected to begin flowing again.
+
+The official signing ceremony is scheduled for Friday in Switzerland.
+
+VP Vance described the tense final moments before the agreement, saying the U.S. was concerned Iran might launch attacks against Israel. According to Vance, Iranian officials assured negotiators they would not strike and would honor the deal.
+
+Now, the White House is expressing optimism that the agreement could mark a major turning point for stability across the region.
+</div>
+
+## pm_afshaa — post 94073
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94073_1781523186.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴الی کوهن، وزیر نیروی اسرائیل:
+آنها در نهایت به رفتار و رویه گذشته خودشون بازخواهند گشت و اسرائیل در صورت نیاز، حتی به‌تنهایی برای مقابله با جمهوری اسلامی آماده‌ست.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94072
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94072_1781523186.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فارس به نقل از یک منبع آگاه:
+بر اساس متن تفاهم، عبور کشتی‌ها از تنگه هرمز فقط برای 60 روز رایگانه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5693
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ ایتامار بن‌گویر گفت توافق ترامپ تعهدی برای اسرائیل ایجاد نمی‌کند
+
+ایتامار بن‌گویر، وزیر امنیت ملی اسرائیل روز دوشنبه با بی‌اعتنایی به توافق میان آمریکا و جمهوری اسلامی، گفت اسرائیل خود را ملزم به اجرای آن نمی‌داند.
+بن‌گویر در کانال تلگرامی خود نوشت: توافق ترامپ ما را متعهد نمی‌کند.
+به گفتۀ وزیر امنیت ملی اسرائیل، توافق تهران و واشینگتن امنیت اسرائیل را تضمین نمی‌کند.
+بن‌گویر افزود اسرائیل نباید به چیزی کمتر از برچیدن کامل حزب‌الله لبنان رضایت بدهد.
+
+#اسرائیل #توافق #جمهوری_اسلامی
+@DEJradio
+</div>
+
+## IranIntlTV — post 342490
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342490_1781523187.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نفتالی بنت، نخست‌وزیر پیشین اسرائیل، که از گزینه‌های جانشینی نتانیاهو است، گفت که برای فروپاشی جمهوری اسلامی و برچیدن برنامه هسته‌ای آن، یک طرح راهبردی دارد که بر ترکیبی از ابزارهای دیپلماتیک، اطلاعاتی، اقتصادی، فناوری و نظامی متکی است.
+
+او درباره توافق آمریکا و جمهوری اسلامی گفت که نتانیاهو نتوانست دستاوردهای نظامی اسرائیل را به دستاوردهای امنیتی پایدار تبدیل کند.
+
+بنت افزود که دولت کشور را وارد جنگ‌های فرسایشی و بی‌نتیجه کرده و توان دستیابی به پیروزی قاطع را ندارد.
+iranintl.com/202606156711
+</div>
+
+## IranIntlTV — post 342489
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342489_1781523187.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مروری بر رسانه‌ها و خبرگزاری‌ها در ایران، دوشنبه ۲۵ خرداد، با مجتبی هاشمی
+
+@iranintltv
+</div>
+
+## IranIntlTV — post 342488
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342488_1781523189.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+با اعلام توافق میان ایالات متحده آمریکا و جمهوری اسلامی برای پایان جنگ، قیمت جهانی نفت به پایین‌ترین سطح خود در ۳ ماه اخیر رسید.
+
+جزییات بیشتر با آرش آزرمی، دبیر بخش اقتصادی ایران‌اینترنشنال
+
+@iranintltv
+</div>
+
+## DW_Farsi — post 126003
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_126003_1781523190.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 واکنش دبیرکل سازمان ملل و برخی کشورهای منطقه به توافق ایران و آمریکا
+
+آنتونیو گوترش، دبیرکل سازمان ملل متحد، از توافق میان ایران و آمریکا استقبال کرد. او با انتشار بیانیه‌ای‌ اظهار داشت از دستیابی ایالات متحده و ایران به "توافق صلحی که شامل برقراری فوری و دائمی آتش‌بس، بازگشایی تنگه هرمز و همچنین ایجاد چارچوبی برای ادامه مذاکرات" باشد، استقبال می‌کند.
+
+گوترش این توافق را "گامی بسیار مهم در مسیر حل‌ و فصل مسالمت‌آمیز" جنگ میان ایران و آمریکا دانسته و از ترکیه، عربستان سعودی، مصر، قطر، پاکستان و دیگر کشورهای منطقه به دلیل "ایفای نقش سازنده در مذکرات" قدردانی کرد.
+
+از سوی دیگر محمد بن عبدالعزیز بن صالح الخلیفی، مشاور در امور خارجه دولت قطر نیز با انتشار پیامی در ایکس نوشت این کشور از "تفاهم حاصل‌شده میان ایالات متحده و جمهوری اسلامی ایران که هموارکننده راه برای توقف پایدار عملیات نظامی است" استقبال می‌کند.
+
+این مقام ارشد قطری نیز از تلاش‌های پاکستان برای میانجی‌گیری میان تهران و واشنگتن قدردانی کرد و گفت دوحه بار دیگر بر "تعهد راسخ خود به صلح و گفت‌وگو به عنوان مؤثرترین ابزار حل اختلافات" تأکید دارد.
+
+وزارت خارجه کویت هم در بیانیه‌ای از این توافق استقبال کرده و از همه طرف‌ها خواست تا "با روحیه‌ای مثبت و سازنده" در مذاکرات پیش‌رو شرکت کنند.
+
+در این بیانیه ابراز امیدواری شده است که تفاهم‌نامه میان ایران و آمریکا "گاهی مهم در جهت یافتن رویکردهای گسترده‌تر برای حل مسائل باقی‌مانده از طریق راه‌حل‌های پایدار باشد که اصول همجواری از جمله احترام متقابل و تقویت اعتماد، عدم دخالت در امور داخلی کشورها، خودداری از استفاده از زور یا تهدید به آن و توقف حمایت از گروه‌های نیابتی را تقویت می‌کنند".
+
+@dw_farsi
+</div>
+
+## RadioFarda — post 158324
+
+<div align="center">
+  <a href="https://t.me/radiofarda/158324" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸 در این کافه فردا مفصلا به پیش‌بازی ایران و نیوزلند و حواشی آن در زمین و روی سکوها می‌پردازیم، بازی‌های ترکیه-استرالیا، برزیل-مراکش و ژاپن-هلند را بررسی و خاطرات جام‌جهانی‌های گذشته را مرور می‌کنیم.
+
+🔸 برای تماس با ما می‌توانید به شناسه کافه فردا در تلگرام صوت و متن بفرستید.
+
+📻 کافه فردا
+</div>
+
+## alonews — post 128198
+
+<div align="center">
+  <a href="telegram/content/alonews_128198_1781523191.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 سازمان هدفمندسازی یارانه ها: یارانه نقدی مرحله ۱۸۴ خرداد‌ماه به حساب سرپرستان دهک‌های اول تا سوم واریز شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/25 14:53
 ---
 

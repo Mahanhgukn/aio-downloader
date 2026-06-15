@@ -185,7 +185,7 @@ jobs:
           ls -la "$OUTPUT_DIR/"
         shell: bash
 
-      # ── Zip and bundle (identical to original) ──
+      # ── Zip and bundle files (FIXED – no premature deletion) ──
       - name: Zip and bundle files
         run: |
           BUNDLE_ALL="${{ github.event.inputs.bundle_all }}"
@@ -217,7 +217,7 @@ jobs:
             cp "$OUTPUT_DIR"/* "$BUNDLE_DIR/" 2>/dev/null || true
             if [ -n "$(ls -A "$BUNDLE_DIR" 2>/dev/null)" ]; then
               RAND_BUNDLE=$(mktemp -u XXXXX)
-              BUNDLE_ZIP="bundle_${RAND_BUNDLE}.zip"
+              BUNDLE_ZIP="twitch_${RAND_BUNDLE}.zip"   # ← changed prefix to twitch_
               echo "Creating bundle: $BUNDLE_ZIP"
               if [ "$UPLOAD_METHOD" = "release" ]; then
                 (cd "$BUNDLE_DIR" && zip -0 "../${OUTPUT_DIR}/${BUNDLE_ZIP}" *)
@@ -266,9 +266,7 @@ jobs:
             done
           fi
 
-          # Cleanup download dir
-          rm -rf "$OUTPUT_DIR" "$FAILED_FILE" 2>/dev/null || true
-
+          # DO NOT delete OUTPUT_DIR here – we need it for the next steps
           ls -1 "$OUTPUT_DIR" > "${OUTPUT_DIR}_assets.txt"
           echo "Assets to upload:"
           cat "${OUTPUT_DIR}_assets.txt"
@@ -416,7 +414,7 @@ jobs:
             --notes "Automated release from Twitch Downloader workflow." \
             --target "${{ github.ref_name }}"
 
-      # ── Cleanup ──
+      # ── Cleanup (runs always, after every upload) ──
       - name: Cleanup
         if: always()
         run: |

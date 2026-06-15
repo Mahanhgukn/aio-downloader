@@ -7,6 +7,275 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/25 19:33
+---
+
+## VahidOOnLine — post 245727
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245727_1781539434.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمدباقر قالیباف، رییس مجلس، در شبکه ایکس خطاب به مردم ایران نوشت: «با مقاومت تاریخی شما و رشادت نیروهای مسلح در برابر آنان که قصد جان این ملت و نابودی و تسلیم این مملکت را کرده بودند، ایران گامی بلند به سوی پیروزی نهایی برداشت. می‌خواستند و نتوانستند.»
+
+او افزود: «ایستاده‌ایم و در نهایت ایران ما پیروز خواهد شد.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14976
+
+<div align="center">
+  <a href="telegram/content/WithYashar_14976_1781539434.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رئیس‌جمهور آمریکا، برای شرکت در نشست سران گروه هفت (G7) وارد شهر اویان له‌بن در فرانسه شد
+@withyashar
+</div>
+
+## mwarmonitor — post 10985
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴حزب‌الله چند راکت به‌سوی چندین خودروی نظامی اسرائیلی که قصد پیشروی به سمت شهرک کفر‌تبنیت را داشتند، شلیک کرد.
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 94108
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94108_1781539437.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیو بدون سانسور از لحظه‌ای که دختر 21 ساله برزیلی جون خودشو بخاطر بی دقتی چندتا احمق از دست داد
+
+حاوی صحنه دلخراش
+🔞
+🔞
+🔞
+
+مشاهده فیلم
+
+@Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94107
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94107_1781539437.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴عراقچی: احتمالا روز جمعه در سوئیس هیات‌های ایران و آمریکا دیدار میکنن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5701
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5701_1781539438.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺🎤 دوسلدورف میزبان نشست نیروهای جمهوری‌خواه در حمایت از شاهزاده رضا پهلوی
+
+دانیال ایلخانی‌پور، سیاستمدار ایرانی‌تبار آلمانی و نماینده حزب سوسیال دموکرات (SPD) در پارلمان ایالتی هامبورگ در گفت‌وگو با ایمان صفتی می‌گوید:
+«گروه‌های مختلف از طیف‌های مختلف از شاهزاده رضا پهلوی شرکت می‌کنند و این ستون الان تشکیل شده و برنامه این است که توضیح داده شود چرا باید از ایشان حمایت شود و نشان دهیم که میان ایرانی‌ها بر روی آلترناتیو مشترک اتحاد وجود دارد.»
+
+#شاهزاده_رضا_پهلوی
+@DEJradio
+</div>
+
+## IranIntlTV — post 342540
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342540_1781539438.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمدباقر قالیباف، رییس مجلس، در شبکه ایکس خطاب به مردم ایران نوشت: «با مقاومت تاریخی شما و رشادت نیروهای مسلح در برابر آنان که قصد جان این ملت و نابودی و تسلیم این مملکت را کرده بودند، ایران گامی بلند به سوی پیروزی نهایی برداشت. می‌خواستند و نتوانستند.»
+
+او افزود: «ایستاده‌ایم و در نهایت ایران ما پیروز خواهد شد.»
+https://iranintl.com/202606155533
+</div>
+
+## FarsiVOA — post 220827
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+واکنش کنگره به اعلام تفاهم بین جمهوری‌اسلامی و آمریکا؛ جمهوری‌خواهان آن را پیروزی دیپلماتیک توصیف می‌کنند و دموکرات‌ها آن را تسلیم
+</div>
+
+## BBCPersian — post 283901
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283901_1781539439.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻یک مقام ارشد دولت آمریکا که نامش ذکر نشد گفت تفاهمنامه ایران و آمریکا الکترونیکی به امضای دونالد ترامپ و جی‌دی ونس از یک سو و محمدباقر قالیباف از سوی دیگر رسیده است.
+
+نخست‌وزیر پاکستان گفته بود که این تفاهنامه ابتدا «دیجیتال» امضا می‌شود.
+
+به گزارش خبرنگار بی‌بی‌سی در واشنگتن، قرار است این تفاهم نامه جمعه در سوئیس حضوری امضا شود با حضور، جی‌دی ونس، استیو ویتکاف و جارد کوشنر.
+
+جی‌دی ونس، معاون آقای ترامپ، گفته بود که رئیس مجلس ایران و عباس عراقچی به ژنو خواهند رفت.
+
+وزارت خارجه ایران احتمال ملاقات هیئت‌های نمایندگی دو کشور را در سوئیس منتفی ندانست اما هنوز رسما مذاکره‌کنندگان ارشد را اعلام نکرده است.
+
+📸Getty Images
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 392139
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یه دختره رفته از یه پسره ماشین خریده و وقتی کف‌پوش ها رو باز کردن و انواع ویگارا، قرص و کاندوم تاخیری و قرص ضدبارداری توش پیدا کردن!😐😂
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392138
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392138_1781539440.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جهنمِ لس آنجلس ایز لودینگ ✌️⏳✌️
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392137
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392137_1781539441.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✅ اپلیکیشن حرفه ای اندروید سایت بین المللی دربی بت
+
+✅اسپانسر لیگ انگلستان
+
+💰اولین سایت جهانی با امکان شارژ و برداشت با کارت بانکی
+
+◻️ برای ورود فیلترشکن روشن کرده روی کانادا یا سنگاپور یا آلمان و ....
+📢
+
+😀Telegram Channel
+👇
+https://t.me/+bcynkEgSW2dlYTc0
+</div>
+
+## Dirty_Kids — post 392136
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392136_1781539442.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😤میخوای جام جهانی پیش بینی کنی؟!
+
+🔹پس نیاز داری به یه سایت بین المللی و معتبر
+🔹
+
+
+⛔دربی بت همون انتخاب  100%
+
+
+💎ویژگی های سایت جهانی Derby Bet:
+
+⬅️امکان شارژ امن با کارت بانکی
+
+⬅️واریز اول دوبل شارژ می شوید(بونوس۱۰۰٪)
+
+⬅️پر اپشن ترین سایت فعال در ایران
+
+⬅️تسویه حساب کمتر از 5 دقیقه
+
+⬅️برگشت بخشی از باخت به صورت هفتگی
+
+⭐دارای لایسنس و مجوز anjuan
+
+
+🚨کد هدیه ثبت نام:GG007
+
+
+⚠️برای دانلود اپلکیشن کلیک کنید
+👉
+
+
+🔔کانال دربی بت :
+👇
+
+✅https://t.me/+bcynkEgSW2dlYTc0
+</div>
+
+## Dirty_Kids — post 392135
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392135_1781539443.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شهبازی تو تَه بازی نه؟؟؟؟
+شنیدم تو کار راه اندازی نه ؟؟؟؟ 😂😂😂😂
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392132
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392132_1781539445.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴دیشب ترامپ تولد 80 سالگی خودشو همزمان با جشن 250 سالگی آمریکا، به این صورت برگزار کرد :
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 128266
+
+<div align="center">
+  <a href="telegram/content/alonews_128266_1781539446.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فکر می‌کنید تفاهم‌نامه ایران و آمریکا طولانی‌مدت و دائمی شود؟
+
+
+🔴 وزیرخارجه لهستان: ان‌شاءالله!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128265
+
+<div align="center">
+  <a href="telegram/content/alonews_128265_1781539447.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈یک مقام ارشد آمریکایی: جزئیات توافق با ایران ظرف یک یا دو روز منتشر خواهد شد و مذاکرات پیش رو بسیار مهم خواهد بود.
+
+
+🔴مذاکرات فنی اواخر این هفته آغاز خواهد شد.
+
+
+🔴ما نمی‌توانیم به ایران اجازه دسترسی به دارایی‌هایش را بدهیم یا اگر از آنها برای حمایت از تروریسم استفاده کند، آنها را آزاد کنیم
+
+
+🔴نیروهای ما استقرار فعلی خود در خاورمیانه را حفظ خواهند کرد و هرگونه کاهش نیرو پس از امضای توافق نهایی انجام خواهد شد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/25 19:23
 ---
 

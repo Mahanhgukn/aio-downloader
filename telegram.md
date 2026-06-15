@@ -7,6 +7,223 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/25 23:04
+---
+
+## WithYashar — post 15007
+
+<div align="center">
+  <img src="telegram/content/WithYashar_15007_1781552079.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک بمب‌افکن B-52 استراتوفورتراس نیروی هوایی ایالات متحده بلافاصله پس از برخاستن در پایگاه نیروی هوایی ادواردز سقوط کرد.
+
+جزئیات تلفات هنوز گزارش نشده است.
+@withyashar
+</div>
+
+## mwarmonitor — post 10997
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_10997_1781552080.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨✈️یک فروند بمب‌افکن B-52 استراتوفورترس متعلق به نیروی هوایی آمریکا، اندکی پس از برخاستن از پایگاه نیروی هوایی ادواردز و حوالی ساعت ۱۱:۲۰ صبح سقوط کرد. هنوز جزئیاتی درباره تلفات احتمالی یا علت این سانحه منتشر نشده است.
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 94142
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94142_1781552082.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴یه بمب‌افکن B-52 استراتوفورتراس نیروی هوایی ایالات متحده آمریکا بلافاصله پس از برخاستن در پایگاه نیروی هوایی ادواردز سقوط کرد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94141
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سقوط یک بمب افکن b-52 در کالیفرنیا
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## VahidOnline — post 76396
+
+<div align="center">
+  <a href="telegram/content/VahidOnline_76396_1781552082.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک بمب‌افکن B-52 نیروی هوایی ایالات متحده اندکی پس از برخاستن در پایگاه نیروی هوایی ادواردز سقوط کرد.
+FoxNews
+
+📡 @VahidOnline
+</div>
+
+## kianmeli1 — post 88026
+
+<div align="center">
+  <a href="telegram/content/kianmeli1_88026_1781552083.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴تصاویری از محل سقوط بمب‌افکن استراتژیک B-۵۲ آمریکا در کالیفرنیا
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 88025
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_88025_1781552084.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴یک بمب‌افکن B-52 نیروی هوایی ایالات متحده اندکی پس از برخاستن در پایگاه نیروی هوایی ادواردز سقوط کرد.
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 342568
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342568_1781552085.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آیا ترامپ جمهوری اسلامی را نجات داده است؟
+
+چشم‌انداز با مهدی مهدو‌ی‌آزاد
+
+نسخه کامل این برنامه در یوتیوب:
+https://youtu.be/9BCrScK6pqc
+@iranintltv
+</div>
+
+## FarsiVOA — post 220845
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220845_1781552087.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️واکنش بازارهای جهانی به توافق جمهوری اسلامی و آمریکا در گفتگو با معصومه طاهرخانی
+@FarsiVOA
+</div>
+
+## DW_Farsi — post 126023
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_126023_1781552088.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 نتانیاهو: عملیات مشترک آمریکا و اسرائیل، اسرائیل را از "نابودی هسته‌ای" نجات داد
+ 
+بنیامین نتانیاهو، نخست‌وزیر اسرائیل، روز دوشنبه در نخستین اظهارات خود پس از توافق واشنگتن و تهران برای پایان دادن به جنگ خاورمیانه، گفت عملیات نظامی مشترک آمریکا و اسرائیل علیه ایران، اسرائیل را از "تهدید نابودی هسته‌ای" جمهوری اسلامی نجات داده است.
+ 
+او در یک کنفرانس خبری تلویزیونی گفت مهم‌ترین نتیجه این عملیات، دور کردن خطر "مرگ جمعی" از شهروندان اسرائیلی برای سال‌های آینده بوده است.
+ 
+نتانیاهو گفت اگر این تهدید از میان برداشته نمی‌شد، میلیون‌ها شهروند اسرائیلی با خطری جدی روبه‌رو بودند.
+ 
+او تاکید کرد عملیات مشترک علیه ایران، از نگاه او، فقط یک موفقیت نظامی نبود، بلکه اقدامی بود که خطر نابودی جمعیت اسرائیل را برای سال‌ها عقب رانده است.
+ 
+هم‌زمان، یک مقام ارشد آمریکایی گفت تفاهم‌نامه‌ای که روز گذشته با ایران امضا شد، به خروج اسرائیل از لبنان مشروط نشده است.
+@dw_farsi
+</div>
+
+## BBCPersian — post 283930
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283930_1781552088.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻‌رجب طیب اردوغان،‌ رئیس‌جمهور ترکیه از امضای تفاهمنامه میان ایران و آمریکا ابراز خرسندی کرد و به همه کسانی که در دستیابی به آن نقش داشتند،‌ تبریک گفت. او گفت که این توافق باعث شد منطقه و سراسر جهان پس از ماه‌ها تنش نفس راحتی بکشد.
+
+آقای اردوغان همچنین از «برادران پاکستانی خود که به درستی نقش میانجی را ایفا کردند و برادران قطری و سعودی خود که از مذاکرات حمایت کردند»،‌ تبریک گفت.
+
+آقای اردوغان همچنین به مخالفان این تفاهمنامه اشاره کرد و گفت: «ما به‌خوبی می‌دانیم کسانی که تمام امید خود را به خاموش نشدن صدای سلاح‌ها در منطقه ما بسته‌اند، از تقویت فضای صلح ناراحت خواهند شد. همان‌گونه که بارها در گذشته انجام داده‌اند، این بار نیز هر کاری از دستشان برآید برای ایجاد مانع در این روند انجام خواهند داد.»
+
+او بدون نام بردن از اسرائیل گفت: «ما اظهاراتی را که دیروز و امروز از سوی شبکه کشتار که دستانش به خون فلسطینی‌ها و لبنانی‌های بی‌گناه آلوده است،‌ مطرح شده نشانه این موضوع میدانیم.»
+
+📸Dogukan Keskinkilic/Anadolu via Getty Images
+https://bbc.in/3Qgf8wt
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 392159
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392159_1781552089.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دهن سانسورچی صداوسیما رسماً سرویسه 😂
+تجمع ایرانیان اطراف ورزشگاه سوفای محل بازی تیم آخوندی و نیوزلند
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392156
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گوه‌خوری تازه صدف بیوتی
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392155
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392155_1781552089.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+می‌خواستن تخریبش کنن، اما دشمن احمق با این کارش یه اسطوره به تاریخ ایران اضافه کرد.
+تولدت مبارک شاه خراسان.
+#مجیدرضا_رهنورد
+
+
+@Dirty_Kids 👻
+</div>
+
+## Hranews — post 113638
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مردی در آمل هدف اسیدپاشی قرار گرفت؛ متهم بازداشت شد
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– یک مرد در آمل هدف #اسیدپاشی قرار گرفت و در پی آن فرد مهاجم توسط نیروهای انتظامی بازداشت شد.
+
+ادامه مطلب
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## alonews — post 128320
+
+<div align="center">
+  <a href="telegram/content/alonews_128320_1781552090.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سخنگوی ارتش: ایران در دوره اجرای تفاهم یا توافق نیز به تقویت قدرت دفاعی و بازدارندگی خود ادامه خواهد داد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/25 22:54
 ---
 

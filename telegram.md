@@ -7,6 +7,77 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/25 05:42
+---
+
+## VahidOOnLine — post 245616
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245616_1781489546.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+برایان لیب، فعال سیاسی جمهوری‌خواه و از حامیان دونالد ترامپ، با انتقاد از توافق میان واشینگتن و جمهوری اسلامی گفت: «تنها برندگان این توافق، حکومت ایران و سپاه پاسداران هستند.» او در شبکه اجتماعی ایکس نوشت آنچه «توافق صلح» نامیده می‌شود، در عمل به سود جمهوری اسلامی تمام شده است. iranintl
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245615
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245615_1781489546.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امانوئل مکرون، رییس‌جمهوری فرانسه، از توافق میان آمریکا و جمهوری اسلامی استقبال کرد و آن را نتیجه یک تلاش دیپلماتیک چندجانبه دانست. او خواستار اجرای سریع و کامل توافق از سوی همه طرف‌ها شد و تاکید کرد بازگشایی فوری و بدون قید و شرط تنگه هرمز و ازسرگیری کشتیرانی بدون محدودیت یا عوارض، برای ثبات منطقه‌ای و اقتصاد جهانی ضروری است. مکرون گفت این توافق می‌تواند زمینه‌ساز مذاکراتی گسترده‌تر برای صلح و امنیت در خاورمیانه باشد؛ مذاکراتی که باید برنامه هسته‌ای و موشکی جمهوری اسلامی و آنچه او سیاست‌های بی‌ثبات‌کننده منطقه‌ای تهران خواند را نیز در بر بگیرد. او افزود فرانسه آماده است همراه با شرکای خود در این روند نقش‌آفرینی کند. رییس‌جمهوری فرانسه همچنین بر حمایت پاریس از تلاش‌های دولت لبنان برای بازگرداندن حاکمیت این کشور تاکید کرد و گفت تنها حاکمیت کامل لبنان می‌تواند ثبات، تمامیت ارضی و تامین نیازهای مردم این کشور را تضمین کند. مکرون در پایان بر ضرورت برقراری یک آتش‌بس پایدار و موثر در لبنان تاکید کرد. iranintl
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342971
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342971_1781489546.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Smoke rises from the wreckage after a skydiving plane crashed shortly after takeoff in Missouri.
+
+Officials say all 12 people aboard — 11 skydivers and one pilot — were killed.
+
+The plane turned around for an unknown reason before crashing near a highway. Dennis Jacobs, director of the Bates County Emergency Management Agency, said he suspects the plane experienced power issues before the crash.
+
+Investigators are now piecing together the aircraft's final moments as families await answers.
+</div>
+
+## IranIntlTV — post 342400
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342400_1781489548.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+برایان لیب، فعال سیاسی جمهوری‌خواه و از حامیان دونالد ترامپ، با انتقاد از توافق میان واشینگتن و جمهوری اسلامی گفت: «تنها برندگان این توافق، حکومت ایران و سپاه پاسداران هستند.» او در شبکه اجتماعی ایکس نوشت آنچه «توافق صلح» نامیده می‌شود، در عمل به سود جمهوری اسلامی تمام شده است. iranintl.com/202606142295
+</div>
+
+## IranIntlTV — post 342399
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342399_1781489548.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امانوئل مکرون، رییس‌جمهوری فرانسه، از توافق میان آمریکا و جمهوری اسلامی استقبال کرد و آن را نتیجه یک تلاش دیپلماتیک چندجانبه دانست. او خواستار اجرای سریع و کامل توافق از سوی همه طرف‌ها شد و تاکید کرد بازگشایی فوری و بدون قید و شرط تنگه هرمز و ازسرگیری کشتیرانی بدون محدودیت یا عوارض، برای ثبات منطقه‌ای و اقتصاد جهانی ضروری است. مکرون گفت این توافق می‌تواند زمینه‌ساز مذاکراتی گسترده‌تر برای صلح و امنیت در خاورمیانه باشد؛ مذاکراتی که باید برنامه هسته‌ای و موشکی جمهوری اسلامی و آنچه او سیاست‌های بی‌ثبات‌کننده منطقه‌ای تهران خواند را نیز در بر بگیرد. او افزود فرانسه آماده است همراه با شرکای خود در این روند نقش‌آفرینی کند. رییس‌جمهوری فرانسه همچنین بر حمایت پاریس از تلاش‌های دولت لبنان برای بازگرداندن حاکمیت این کشور تاکید کرد و گفت تنها حاکمیت کامل لبنان می‌تواند ثبات، تمامیت ارضی و تامین نیازهای مردم این کشور را تضمین کند. مکرون در پایان بر ضرورت برقراری یک آتش‌بس پایدار و موثر در لبنان تاکید کرد. iranintl.com/202606146378
+</div>
+
+## FarsiVOA — post 220757
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️از سرکوب اعتراضات هرات تا ممنوعیت تلفن‌های هوشمند؛ زنان افغان در اروپا صدای همبستگی را بلند کردند
+@FarsiVOA
+</div>
+
+---
 📅 بروزرسانی: 1405/03/25 05:32
 ---
 

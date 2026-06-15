@@ -7,6 +7,187 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/26 00:03
+---
+
+## VahidOOnLine — post 245772
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245772_1781555635.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسماعیل قاآنی، فرمانده نیروی قدس سپاه پاسداران، با تاکید بر اینکه «حماس به‌زودی بازسازی می‌شود»، گفت: «اجزای جبهه مقاومت در جنگ پیش‌قدم مبارزه بودند و در سخت‌ترین شرایط مقابل دشمن آمریکایی - اسرائیلی ایستادگی می‌کنند.»
+
+او افزود: کسی نمی‌تواند مقابل حزب‌الله لبنان ایستادگی کند و هر آنچه از حزب‌الله لبنان دیده‌اید، تنها نوک کوه یخ است.
+
+قاآنی اضافه کرد باب‌المندب یکی از برگ‌های برنده «جبهه مقاومت» است و اگر لازم باشد برگ‌های دیگری هم رو می‌شود.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 15014
+
+<div align="center">
+  <img src="telegram/content/WithYashar_15014_1781555635.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🚨
+🚨 توافق یا عملیات فریب برای حمله وحشتناک امریکا و اسرائیل!
+
+
+⭕️مشاهده تحلیل
+🇮🇱
+🇺🇸
+🇮🇷
+👇
+
+https://t.me/+hLt81qXCGTQzOWQ0
+https://t.me/+hLt81qXCGTQzOWQ0
+</div>
+
+## WithYashar — post 15013
+
+
+
+
+## WithYashar — post 15012
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال ۱۴ اسرائیل: تعجب جامعه اسرائیل از این بود که مقامات ایران قبل از دفن علی خامنه‌ای با قاتلینش توافق کردند
+@withyashar
+</div>
+
+## Shin_Persian — post 7106
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_7106_1781555636.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Mon, 15 Jun 2026 20:25:26 UTC
+
+USAF Tankers dragging the peace deal enforcers in the region.
+
+ترجمه خودکار فارسی
+
+تانکرهای نیروی هوایی ایالات متحده (USAF) در حال همراهی و سوخت‌رسانی به مجریان توافق صلح در منطقه هستند.
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 220850
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺سقوط بمب‌افکن بی-۵۲ در پایگاه نیروی هوایی ادواردز کالیفرنیا
+
+▪️یک فروند بمب‌افکن بی-۵۲ نیروی هوایی ایالات متحده، که از قدیمی‌ترین هواپیماهای عملیاتی نیروی هوایی آمریکا به شمار می‌رود، روز دوشنبه ۲۵ خرداد، اندکی پس از برخاستن از باند پایگاه نیروی هوایی ادواردز در جنوب کالیفرنیا سقوط کرد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/b-52-bomber-crashes-in-california/8161133.html
+@FarsiVOA
+</div>
+
+## IranianMinds — post 22680
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22680_1781555637.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 پزشکیان از قالیباف و عراقچی تشکر و قدردانی کرد
+
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 283933
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283933_1781555637.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌ ‌ ‌ ‌
+اولین شگفتی بزرگ جام‌جهانی امسال رقم خورد و اسپانیا، قهرمان اروپا و تیم پرستاره‌ای که یکی از شانس‌های قهرمانی این جام شناخته می‌شد، در مقابل کیپ‌ورد، تیمی که برای اولین بار به این مسابقات آمده متوقف شد.
+
+در تمام طول بازی اسپانیا کنترل بازی را در دست داشت و ده‌ها حمله خطرناک را روی دروازه کیپ‌ورد انجام داد اما موفق به عبور توپ از خط دروازه نشد.
+
+در طول این بازی اسپانیا ۲۳ بار تلاش به گلزنی کرد در حالیکه موقعیت‌های کیپ‌ورد تنها شش مورد بود و اسپانیا ۶۲ درصد بازی را در دست داشت.
+
+تمامی آمارهای مسابقه به نفع اسپانیا ثبت شد و به همین علت هم دروازه بان کیپ‌ورد که با شجاعت و اعتمادبنفس بالا مقابل فوق ستاره‌های اسپانیا مقاومت کرد، بهترین بازیکن زمین شد.
+
+این بازی از گروه اچ در شهر آتلانتا برگزار شد و دیگر هم‌گروهی‌های آنها اوروگوئه و عربستان سعودی هستند که آنها هم تا ساعاتی دیگر به مصاف هم می‌روند.
+
+📷Reuters
+@BBCPersian
+</div>
+
+## BBCPersian — post 283932
+
+<div align="center">
+  <a href="telegram/content/BBCPersian_283932_1781555638.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻آخرین خبرهای مهم روز دوشنبه ۲۵ خرداد ۱۴۰۵ از تلویزیون بی‌بی‌سی فارسی
+
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 392164
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392164_1781555639.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دغدغه یه کرمانی
+عواقب گران شدن زغال وافوری 😐😂
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 128334
+
+<div align="center">
+  <a href="telegram/content/alonews_128334_1781555641.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وال استریت ژورنال: ترامپ گفت تنگه هرمز تا روز جمعه باز خواهد شد، در حالی که یک مقام ارشد آمریکایی به خبرنگاران گفت که بازگشت به فعالیت عادی حداقل دو هفته طول می‌کشد.
+
+
+🔴ترامپ همچنین گفت که متن یادداشت تفاهم (MOU) بعد از روز جمعه منتشر خواهد شد اما آن مقام گفت ظرف ۲۴ تا ۴۸ ساعت
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128333
+
+<div align="center">
+  <a href="telegram/content/alonews_128333_1781555641.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈الجزیره: اسرائیل بزودی برای نابودی توافق آمریکا و ایران اقدام خواهد کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128332
+
+<div align="center">
+  <a href="telegram/content/alonews_128332_1781555642.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تصویری ناراحت کننده از وضعیت این روزهای عمو قناد، مجری معروف برنامه کودک
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/25 23:53
 ---
 

@@ -7,6 +7,93 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/26 02:44
+---
+
+## IranIntlTV — post 342600
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342600_1781565245.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آریکو از رشت: هنوز برای صحبت از یک توافق جامع زود است و فعلاً فقط یک تفاهم صورت گرفته است
+
+«یک ایران صدای شما را می‌شنود»
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/bhKVZz_BATs
+@iranintltv
+</div>
+
+## FarsiVOA — post 220858
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️تلاش دولت عراق برای تثبیت ثبات؛ از گفت‌وگو با فرستاده ترامپ تا حمایت از آتش‌بس منطقه‌ای
+@FarsiVOA
+</div>
+
+## Dirty_Kids — post 392179
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392179_1781565247.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیام ویدیویی ایرانیای حاضر تو محل استادیوم بازی جمهوری اسلامی با نیوزیلند
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392178
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392178_1781565248.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دادگاه گوه خورد
+خواهیم دید چه خواهد شد
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392177
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392177_1781565249.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏۳ بار نذاشتی رئیس‌ جمهور بشم،
+منم ۳ ماه نذاشتم دفن بشی!
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 128353
+
+<div align="center">
+  <a href="telegram/content/alonews_128353_1781565249.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تجمع ایرانی‌ها با پرچم شیر و خورشید اطراف ورزشگاه
+@AloSport
+</div>
+
+## alonews — post 128352
+
+<div align="center">
+  <a href="telegram/content/alonews_128352_1781565250.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شعارهای مخالفان جمهوری اسلامی در اطراف استادیوم محل برگزاری
+@AloSport
+</div>
+
+---
 📅 بروزرسانی: 1405/03/26 02:34
 ---
 

@@ -7,6 +7,34 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/26 00:43
+---
+
+## DEJradio — post 5708
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️
+🎤 نخستین نشست مطبوعاتی بنیامین نتانیاهو، نخست وزیر اسرائیل پس از تفاهم جمهوری اسلامی با دولت دونالد ترامپ
+
+#بنیامین_نتانیاهو #مذاکرات #توافق #ترامپ #جمهوری_اسلامی
+#زیرنویس
+@DEJradio
+</div>
+
+## alonews — post 128341
+
+<div align="center">
+  <a href="telegram/content/alonews_128341_1781558039.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈در خبری عجیب و به گزارش خبرگزاری MSN، به مارکو روبیو و پیت هگسث گفته شده اگر با توافق با ایران همچنان مخالفت کنند از مقام خود برکنار می‌شوند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/26 00:35
 ---
 

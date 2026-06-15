@@ -7,6 +7,99 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/26 00:14
+---
+
+## VahidOOnLine — post 245773
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_245773_1781556269.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️اسماعیل قاآنی، فرمانده نیروی قدس سپاه پاسداران، در مصاحبه صداوسیما گفت: «به آمریکا و اسرائیل توصیه می‌کنم خودتان را با مقاومت درگیر نکنید، چرا که شما از پس مقاومت برنمی‌آیید.» او با تاکید بر اینکه تجربه سال‌های گذشته نشان داده دشمن در هر جبهه‌ای با مقاومت روبرو شده شکست خورده است، گفت: «حماس، جهاد اسلامی و بچه‌های مقاومت فلسطین خسارت‌های زیادی دیده‌اند، اما برنده میدان شده‌اند.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 15015
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صدای توافق از قشم 🚨
+@withyashar
+</div>
+
+## kianmeli1 — post 88027
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پرس‌تی‌وی: رفع محاصره دریایی عملیاتی شد/ دقایقی پیش، 3 نفتکش و 2 کشتی حامل کالای اساسی ایران از محاصره دریایی عبور کردند
+https://t.me/kianmeli1
+</div>
+
+## FarsiVOA — post 220851
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ادامه اختلافات در داخل حکومت پس از توافق در گفتگو با سعید آگنجی
+@Farsi
+</div>
+
+## RadioFarda — post 158354
+
+<div align="center">
+  <a href="https://t.me/radiofarda/158354" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📻بشنوید: سرخط خبرهای نیمه‌شب با رادیوفردا، ۲۶ خرداد ۱۴۰۵‌
+
+@RadioFarda
+</div>
+
+## BBCPersian — post 283934
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283934_1781556272.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌ ‌ ‌ ‌
+یک دادگاه در فلوریدا درخواست فوری برای لغو ممنوعیت پرچم شیر و خورشید را رد کرده و گفته برگزارکنندگان جام جهانی می‌توانند تنها پرچم‌های رسمی کشورهای شرکت‌کننده را داخل ورزشگاه‌ها مجاز بدانند.
+
+به این ترتیب فعلا موضع فیفا پابرجاست و پرچم شیر و خورشید همچنان در فهرست نمادهای ممنوعه قرار دارد.
+
+معلوم نیست این تصمیم تا چه اندازه روی مخالفان جمهوری اسلامی که خواستار بالا بردن این پرچم در خلال مسابقات تیم ملی ایران هستند تاثیر می‌گذارد و تا چه اندازه از درگیری و تنش جلوگیری خواهد کرد.
+
+https://bbc.in/3S0zTwN
+📷IMAGN IMAGES/Reuters
+@BBCPersian
+</div>
+
+## alonews — post 128336
+
+<div align="center">
+  <a href="telegram/content/alonews_128336_1781556273.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / خبرگزاری تسنیم : رفع محاصره دریایی عملیاتی شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128335
+
+<div align="center">
+  <a href="telegram/content/alonews_128335_1781556273.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈برای اولین بار بعد از مدتها، هیچ پرنده آمریکایی در آسمان خلیج فارس نیست
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/26 00:03
 ---
 

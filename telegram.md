@@ -7,6 +7,189 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/25 19:23
+---
+
+## VahidOOnLine — post 245726
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_245726_1781538808.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️مسعود پزشکیان، رئیس‌جمهوری ایران، روز دوشنبه ۲۵ خردادماه گفت دستیابی به تفاهم‌نامه پایان جنگ بدون حمایت‌ها و هدایت‌های مجتبی خامنه‌ای، رهبر جمهوری اسلامی، امکان‌پذیر نبود.
+پزشکیان در رویدادی دولتی با قدردانی از اختیارات و حمایت‌هایی که به گفته او از سوی رهبر سوم جمهوری اسلامی به شورای عالی امنیت ملی، تیم مذاکره‌کننده و دولت داده شده است، گفت: «اگر مقام ایشان نبودند و همراهی و هدایت‌های ایشان نبود، ما امکان نداشت به این دستاورد دست پیدا کنیم.»
+مسعود پزشکیان، بعد از ظهر یکشنبه و ساعاتی پیش از امضاء تفاهمنامه صلح گفته بود: «تصمیم‌گیری درباره جنگ و مذاکره بر عهده شورای عالی امنیت ملی است؛ شورایی که نمایندگان تمامی ارکان حاکمیت از جمله رهبری عالیقدر در آن حضور دارند و سیاست‌های کلان باید از آن مسیر ابلاغ شود.»
+اظهارات رئیس جمهوری ایران در حالی مطرح می‌شود که مقام‌های جمهوری اسلامی از نهایی شدن چارچوب تفاهم با آمریکا خبر داده‌اند و قرار است مراحل نهایی امضا و اجرای آن روز جمعه در سوئیس انجام شود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245725
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245725_1781538810.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مرکز اطلاعات دریایی مشترک در شبکه ایکس اعلام کرد سطح تهدید امنیت دریایی در تنگه هرمز همچنان «شدید» است.
+
+مرکز اطلاعات دریایی مشترک، سازمانی چندملیتی است که سال ۲۰۲۴ به ابتکار سازمان نیروهای دریایی مشترک شامل ۴۷ کشور عضو تشکیل شد.
+
+وظیفه این مرکز اتصال صنعت کشتیرانی تجاری با نیروهای دریایی در خاورمیانه است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14975
+
+<div align="center">
+  <img src="telegram/content/WithYashar_14975_1781538811.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بندر ماهشهر همین الان
+@withyashar
+</div>
+
+## mwarmonitor — post 10984
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ و معاونش، جی‌دی ونس، هر دو به‌صورت مجازی یادداشت تفاهم با ایران را امضا کردند؛ این را یک مقام ارشد دولت آمریکا اعلام کرد.
+
+🔴به گفته این مقام، محمدباقر قالیباف، رئیس مجلس ایران، این سند را از طرف ایران امضا کرده است.
+
+🔴با این حال، مراسم رسمی امضا قرار است روز جمعه برگزار شود. CNN
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 94103
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94103_1781538811.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گویا بازار تجریش دچار آتش‌سوزی شده
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94102
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94102_1781538813.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴باراک راوید، خبرنگار آکسیوس:
+یک مقام ارشد آمریکایی تأکید کرد که در دو تا سه هفته آینده خواهیم دانست که آیا تفاهم‌های ما با ایران میتونه به توافق تبدیل بشه یا نه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94101
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94101_1781538814.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سفیر ایران در عراق: نزدیک به 1 میلیون نفر از عراق وارد کشور میشن تا در مراسم تشییع علی خامنه‌ای شرکت کنن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5700
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5700_1781538815.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨📢 با وجود توافق اولیه جمهوری اسلامی و آمریکا برای باز شدن تنگه هرمز، منابع امنیت دریایی و صنعت کشتیرانی می‌گویند عملیات مین‌روبی تنگه هرمز تا بازگشایی این آبراه، ممکن است ۴۰ تا ۵۰ روز طول بکشد.
+
+-یاکوب لارسن مدیر ایمنی و امنیت انجمن کشتیرانی «BIMCO» می‌گوید، «هنوز هم عبور کشتی‌ها از این منطقه بسیار پرخطر است.»
+به گفته تحلیلگران امنیتی وجود مین‌ها همچنان یک نگرانی جدی است و باید مسیرهای عاری از مین شناسایی و تأیید شوند.»
+پیدا نیست جمهوری اسلامی چه تعداد مین در تنگه هرمز کار گذاشته است.
+
+رنه کوفود اولسن، مدیرعامل شرکت مدیریت کشتی «V.Group» که ۱۳ کشتی آن در خلیج فارس گرفتار شده‌اند، گفت: «وجود حتی یک مین دریایی هم می‌تواند به تلفات انسانی منجر شود. این مسئله برای صنعت کشتیرانی جهانی بسیار جدی است.»
+
+#تنگه_هرمز #توافق
+@DEJradio
+</div>
+
+## VahidOnline — post 76382
+
+<div align="center">
+  <a href="telegram/content/VahidOnline_76382_1781538815.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اکانت فارسی وزارت خارجه آمریکا با انتشار ویدیوی بالا نوشت:
+
+جی. دی. ونس، معاون رئیس‌جمهور ایالات متحده: توافق با ایران، «مبتنی بر عملکرد» است.
+«باید به خاطر داشته باشیم که اقتصاد آنها اساساً نابود شده است. برنامه هسته‌ای آنها اساساً نابود شده است. اگر آنها [در چارچوب این توافق] اقدامات درست را انجام ندهند، از همان ابتدا هرگز پولی در اختیار نخواهند داشت که بتوانند برنامه هسته‌ای خود را بازسازی کنند.
+USABehFarsi
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 342539
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻تیم ملی ایران بامداد سه‌شنبه ۲۶ خرداد در نخستین مسابقه خود در جام جهانی ۲۰۲۶ به مصاف نیوزیلند می‌رود.
+
+🔹گزارش رضا محدث و علیرضا مدیری، خبرنگارهای ایران اینترنشنال از حال و هوای شهر لس آنجلس پیش از اولین دیدار تیم ملی در جام جهانی
+
+@iranintltvsport
+</div>
+
+## FarsiVOA — post 220826
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+با نزدیک شدن فصل تابستان، دور تازه‌ای از فشارها برای اعمال حجاب اجباری شروع شده و حکومت تعدادی از کافه‌ها، رستوران‌ها و واحدهای صنفی را ‌پلمب کرده است
+</div>
+
+## alonews — post 128264
+
+<div align="center">
+  <a href="telegram/content/alonews_128264_1781538816.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رویترز به نقل از یک مقام ارشد آمریکایی:
+ترامپ و ونس از طرف امریکا و همچنین قالیباف از طرف ایران این یادداشت تفاهم را امضا کردند.
+
+
+🔴این توافق، بازگشایی فوری تنگه هرمز و لغو تحریم‌های آمریکا علیه ایران را تصریح می‌کند.
+
+
+🔴ترافیک در تنگه هرمز از همین حالا شاهد افزایش قابل توجهی خواهد بود.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128263
+
+<div align="center">
+  <a href="telegram/content/alonews_128263_1781538816.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 قالیباف : ایران گامی بلند به سوی پیروزی نهایی برداشت
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/25 19:13
 ---
 

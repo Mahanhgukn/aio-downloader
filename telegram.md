@@ -7,6 +7,405 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/25 23:14
+---
+
+## VahidOOnLine — post 245764
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245764_1781552680.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پایگاه هوایی ادواردز در کالیفرنیا اعلام کرد یک بمب‌افکن بی-۵۲ استراتوفورترس نیروی هوایی آمریکا روز دوشنبه اندکی پس از برخاستن از این پایگاه سقوط کرده است.
+
+این پایگاه در پیامی در ایکس نوشت: «تیم‌های امدادی بلافاصله به محل حادثه اعزام شدند و وضعیت همچنان در حال پیگیری است.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245763
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245763_1781552681.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ولودیمیر زلنسکی، رئیس‌جمهور اوکراین، روز دوشنبه ۲۵ خردادماه اعلام کرد در گفتگو با دونالد ترامپ، رئیس‌جمهوری آمریکا، پیشنهاد داده است دیداری با ولادیمیر پوتین، رئیس‌جمهوری روسیه، در خاک آمریکا برگزار شود.
+زلنسکی در پیامی ویدیویی که در شبکه اجتماعی ایکس منتشر کرد، گفت: «دیروز (یکشنبه) با رئیس‌جمهوری ترامپ درباره این موضوع صحبت کردیم که چنین دیداری می‌تواند در آمریکا برگزار شود؛ در قالبی که رد کردن آن برای پوتین بسیار دشوارتر باشد.»
+رئیس‌جمهوری اوکراین بدون ارائه جزئیات بیشتر افزود: «خواهیم دید چه نتیجه‌ای از آن حاصل می‌شود.»
+زلنسکی روز چهاردهم خرداد ماه نیز در اقدامی کم‌سایقه، با انتشار نامه‌ای سرگشاده خطاب به ولادیمیر پوتین، پیشنهاد برگزاری دیداری رو در رو و تعیین تاریخی مشخص برای مذاکرات صلح را مطرح کرده و گفته بود کی‌یف آماده است در طول مذاکرات، آتش‌بسی کامل برقرار کند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245762
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245762_1781552681.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نتانیاهو گفت: ما خطر نابودی اسرائیل را برای سال‌های آینده از بالای سر خود برداشتیم و دولت اسرائیل را از نابودی نجات دادیم.
+
+او اضافه کرد که «مبارزه هنوز تمام و کامل نشده است. ما باید همچنان هوشیار بمانیم، همچنان قوی و مصمم باشیم و تا حد لازم از خود دفاع کنیم.»
+او گفت: «این فقط درباره ایران نیست» و تاکید کرد که نبرد اسرائیل علیه «بازوهای ترور ایران» نیز ادامه خواهد داشت، همان‌طور که به گفته او در برابر گروه‌ها در غزه، لبنان، سوریه، یمن و کرانه باختری ادامه داشته است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## mwarmonitor — post 10999
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شهروندان عزیز اسرائیل،
+ده‌ها سال است که من در حال مبارزه با تلاش‌های ایران برای مسلح شدن به سلاح هسته‌ای هستم.
+من می‌توانم این را به عنوان «مأموریت زندگی‌ام» تعریف کنم.
+تا به امروز پای آن ایستاده‌ام و در آینده نیز پای آن خواهم ایستاد.
+با توافق یا بدون توافق، ایران سلاح هسته‌ای نخواهد داشت؛
+نه امروز و نه فردا.
+تا زمانی که من نخست‌وزیر دولت اسرائیل هستم، این اتفاق رخ نخواهد داد.
+حالا می‌شنوم که مردم می‌پرسند: «ما چه چیزی به دست آوردیم؟»
+و من به آن‌ها پاسخ می‌دهم، چه چیزی به دست آوردیم؟
+ما خطر نابودی فوری را از خود دور کردیم.
+ما همراه با دوستان آمریکایی‌مان، وارد بزرگ‌ترین عملیات هوایی تهاجمی در تاریخ اسرائیل شدیم.
+دانشمندان هسته‌ای آن‌ها را ناکام گذاشتیم.
+رهبران رژیم ترور را از سر راه برداشتیم.
+کارخانه‌های هسته‌ای آن‌ها را در هم کوبیدیم.
+موشک‌ها و بخش اعظمی از کارخانه‌های تولیدکننده موشک آن‌ها را نابود کردیم.
+به بی‌شمار زیرساخت‌ها و تاسیسات نظامی آسیب زدیم.
+نیروی دریایی آن‌ها و نیروی هوایی‌شان را منهدم کردیم.
+فرماندهان پایگاه‌هایی که دست به کشتار مردم ایران زده بودند را از میان برداشتیم.
+ما خسارت بزرگی وارد کردیم. ما این خسارت را صدها میلیارد دلار و برخی حتی نزدیک به یک تریلیون دلار برآورد می‌کنند؛ خسارتی عظیم به اقتصاد ایران که ساختن آن ده‌ها سال برایشان زمان برده بود.
+اما مهم‌ترین چیز اینجاست؛ مهم‌ترین چیز این است که ما دولت اسرائیل را از تهدید نابودی هسته‌ای نجات دادیم.
+چون باید درک کرد، ایران با سرعت به سمت سلاح هسته‌ای در حرکت بود—درست پیش از عملیات «عم کلاوی» (صداقت شیر)—آن‌ها به سمت سلاح هسته‌ای می‌تاختند و تلاش می‌کردند تا صنعت هسته‌ای و موشکی خود را در عمق زمین پنهان کنند.
+اگر در زمانی که عمل کردیم و با قدرتی که به کار بردیم اقدام نمی‌کردیم—هم در عملیات «عم کلاوی» و هم پس از آن در عملیات «شاگات هاری» (غرش شیر)—که در یک همکاری تاریخی با پرزیدنت ترامپ و ارتش آمریکا انجام شد؛ اگر به این شیوه عمل نکرده بودیم، ایران همین حالا بمب اتم در اختیار داشت.
+و این به چه معناست؟
+معنایش این است که میلیون‌ها شهروند اسرائیلی—شما که اکنون صدای مرا می‌شنوید—همگی در خطر هولناک مرگ دسته‌جمعی بودید. همه ما در این خطر بودیم.
+و ما این خطر را—که خطر نابودی جمعیت اسرائیل بود—برای سال‌ها از خود دور کردیم.
+این همان چیزی است که به دست آوردیم: ما دولت اسرائیل را از نابودی نجات دادیم.
+اما شهروندان اسرائیل، به شما می‌گویم که این مبارزه هنوز تمام و کامل نشده است.
+ما باید همچنان در حالت آماده‌باش باقی بمانیم، به قوی و مصمم بودن خود ادامه دهیم و همان‌طور که لازم است از خود دفاع کنیم.
+این موضوع نه تنها در مواجهه با ایران، بلکه در برابر بازوهای تروریستی ایران نیز صادق است؛ بازوهایی که به شکلی بی‌سابقه به آن‌ها ضربه وارد کردیم.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10998
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_10998_1781552682.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## FoxNewsTwitter — post 342994
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342994_1781552685.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Two Florida cops are being hailed as heroes for rescuing a drowning woman.
+
+A 68-year-old woman collapsed face-first in the ocean, and seconds later, the two deputies raced into the surf to save her.
+
+Volusia County Deputy Gourley spotted the woman unconscious and floating about 30 feet offshore after beachgoers flagged him down. He pulled her to shore, where Deputy Manhart immediately started CPR.
+
+Dramatic body camera video captured the heart-stopping rescue as witnesses cheered the deputies on.
+
+Officials say the 68-year-old is expected to recover thanks to the deputies’ quick actions and the coordinated emergency response.
+</div>
+
+## pm_afshaa — post 94147
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎙️خبرنگار: چرا ترامپ مثل بایدن عمل کرد و چنین توافقی رو امضا کرد؟
+
+نتانیاهو: من این مقایسه رو نمیکنم، چون هنوز نمیدونیم این توافق چه خواهد بود.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94146
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94146_1781552686.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نتانیاهو: در آمریکا میگن ترامپ هر چی من بخوام انجام میده، و در اسرائیل برعکس میگن که من هر چی از ترامپ بخوام اون انجام میده. پس نه این درست و نه اون.
+
+این رابطه‌ای است میان شرکایی که مدت طولانی هست که همدیگه رو می‌شناسن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94145
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94145_1781552687.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پزشکیان: اگر تفاهم‌نامه عملیاتی بشه سندی افتخارآمیز برای کشور خواهد بود.
+
+هدایت‌های مجتبی خامنه‌ای بیشترین نقش رو در گنجاندن بندهای صیانت از منافع ملی ایران داشته که قدردان ایشون هستیم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 342572
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342572_1781552688.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پایگاه هوایی ادواردز در کالیفرنیا اعلام کرد یک بمب‌افکن بی-۵۲ استراتوفورترس نیروی هوایی آمریکا روز دوشنبه اندکی پس از برخاستن از این پایگاه سقوط کرده است.
+
+این پایگاه در پیامی در ایکس نوشت: «تیم‌های امدادی بلافاصله به محل حادثه اعزام شدند و وضعیت همچنان در حال پیگیری است.»
+https://iranintl.com/202606153101
+</div>
+
+## IranIntlTV — post 342571
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/342571" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی ‌‌‏﻿﻿۲۴ با فرداد فرحزاد: امضای تفاهم‌نامه بین ایران و آمریکا
+@iranintlTV
+</div>
+
+## IranIntlTV — post 342570
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342570_1781552689.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻نیویورک تایمز گزارش داد که ممنوعیت ورود پرچم‌های شیروخورشید ایران به جام جهانی که از سوی فیفا اعمال شده بود، پس از برگزاری یک جلسه اضطراری در لس‌آنجلس در روز دوشنبه تایید شد.
+
+🔹این پرچم موضوع شکایتی بود که روز پنج‌شنبه از سوی «موسسه صدای آزادی» و سام کرمانیان، یکی از هواداران ایران که قصد حضور در مسابقه را داشت، در دادگاه عالی لس‌آنجلس مطرح شد.
+
+🔹بر اساس این گزارش، رسیدگی به این پرونده به صورت فوری در دستور کار قرار گرفت و صبح دوشنبه، تنها چند ساعت پیش از آغاز دیدار ایران و نیوزیلند در ورزشگاه سوفای شهر اینگلوود کالیفرنیا، برگزار شد. قاضی کرتیس ای. کین حکم داد که این ممنوعیت به قوت خود باقی بماند.
+
+🔹او گفت: «آزادی بیان فوق‌العاده مهم است، مقدس است و یکی از پایه‌های جامعه ما به شمار می‌رود، اما بدون محدودیت نیست؛ از جمله در مواردی که یک نهاد خصوصی در یک ملک خصوصی فعالیت می‌کند و همان‌طور که در پرونده‌های قبلی نیز نشان داده شده، می‌تواند به شکلی معقول مقرراتی را اعمال کند. درخواست را رد می‌کنم.»
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 342569
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342569_1781552690.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نتانیاهو گفت: ما خطر نابودی اسرائیل را برای سال‌های آینده از بالای سر خود برداشتیم و دولت اسرائیل را از نابودی نجات دادیم.
+
+او اضافه کرد که «مبارزه هنوز تمام و کامل نشده است. ما باید همچنان هوشیار بمانیم، همچنان قوی و مصمم باشیم و تا حد لازم از خود دفاع کنیم.»
+او گفت: «این فقط درباره ایران نیست» و تاکید کرد که نبرد اسرائیل علیه «بازوهای ترور ایران» نیز ادامه خواهد داشت، همان‌طور که به گفته او در برابر گروه‌ها در غزه، لبنان، سوریه، یمن و کرانه باختری ادامه داشته است.
+https://iranintl.com/202606158925
+</div>
+
+## FarsiVOA — post 220846
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺دیدار تیم‌های ایران و نیوزیلند در جام جهانی؛ مسابقه‌ای زیر سایه حاشیه‌های سیاسی و چالش‌های فنی
+
+▪️تیم فوتبال ایران نخستین دیدار خود در جام جهانی ۲۰۲۶ را شامگاه دوشنبه ۲۵ خرداد، به وقت لس‌آنجلس، برابر نیوزیلند برگزار می‌کند؛ مسابقه‌ای که در گروه جی و در ورزشگاه لس‌آنجلس در اینگلوود انجام می‌شود. زمان آغاز این بازی ساعت ۶ عصر دوشنبه به وقت لس‌آنجلس، و ۴:۳۰ بامداد سه‌شنبه ۲۶ خرداد به وقت تهران است.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/iran-opens-amid-political-tensions/8161109.html
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 17219
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17219_1781552691.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+زاکانی: پوتین گفته بود که نیروهای نظامی روسیه به من گفته بودند که ایران نهایتاً یک هفته می‌تواند تنگهٔ هرمز را بسته نگه‌دارد!
+
+شهردار تهران: روس‌ها به ایران گفته‌اند باور نمی‌کردیم شما اینقدر قابلیت داشته باشید.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17218
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17218_1781552693.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بمب‌افکن B-52 امریکایی عملا به طور کامل نابود شده.
+
+امروز یک بمب‌افکن Tu-22 روسی نیز سقوط کرد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17217
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تا دقایقی دیگه لایو آغاز میشه
+</div>
+
+## Persian_Trend_Official — post 17216
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17216_1781552696.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دقایقی پیش یک فروند بمب افکن B-52 نیروی هوایی ایالات متحده پس از برخواستن از پایگاه ادواردز لس آنجلس سقوط کرد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## RadioFarda — post 158353
+
+<div align="center">
+  <a href="https://t.me/radiofarda/158353" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📻بشنوید: ایستگاه ۱۹ با رادیوفردا،۲۵ خرداد ۱۴۰۵
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 22674
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 چه بازی بشه امشب
+تجمع هموطنای ایرانی اطراف ورزشگاه سوفای محل بازی تیم جمهوری اسلامی و نیوزیلند
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22673
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️
+⭕️ کانفیگای این ربات تو نت ملی وصله به محض استارت ۱ گیگابایت کانفیگ میده بدون هیچ هزینه ای و رفرالی کانفیگ رو تحویلتون میده با بهترین سرعت و بدون قطعی 
+⭕️ ربات دریافت کانفیگ رایگان | @daeijoonbot 
+⭕️ ربات دریافت کانفیگ رایگان | @daeijoonbot
+</div>
+
+## IranianMinds — post 22672
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️
+⭕️ کانفیگای این ربات تو نت ملی وصله به محض استارت ۱ گیگابایت کانفیگ میده
+بدون هیچ هزینه ای و رفرالی کانفیگ رو تحویلتون میده با بهترین سرعت و بدون قطعی
+
+
+⭕️ ربات دریافت کانفیگ رایگان | @daeijoonbot
+
+⭕️ ربات دریافت کانفیگ رایگان | @daeijoonbot
+</div>
+
+## IranianMinds — post 22671
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 مشاور قالیباف : چیزی به اسم شروط رهبری نداریم. @IranianMinds
+</div>
+
+## IranianMinds — post 22670
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 مشاور قالیباف :
+
+چیزی به اسم شروط رهبری نداریم.
+
+@IranianMinds
+</div>
+
+## Hranews — post 113639
+
+<div align="center">
+  <img src="telegram/content/Hranews_113639_1781552698.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جرائم مواد مخدر؛ یک زندانی در زندان قزلحصار کرج اعدام شد
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– حکم یک زندانی که پیشتر از بابت اتهامات مرتبط با جرائم مواد مخدر به #اعدام محکوم شده بود، امروز دوشنبه ۲۵ خردادماه در زندان قزلحصار کرج اجرا شد.
+
+به گزارش خبرگزاری هرانا، ارگان خبری مجموعه فعالان حقوق بشر در ایران، یک زندانی در زندان قزلحصار کرج اعدام شد.
+
+هویت این زندانی، علی احمدی، ملقب به علی بالانس توسط هرانا احراز شده است.
+
+#علی_احمدی
+
+ادامه مطلب
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## alonews — post 128323
+
+<div align="center">
+  <a href="telegram/content/alonews_128323_1781552699.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سخنگوی کمیسیون امور داخلی مجلس و شوراها: انتخابات شوراها به دو ماه بعد از اعلام رسمی پایان جنگ موکول شده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128322
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈آکسیوس: توافق ایالات متحده و ایران روز یکشنبه به صورت الکترونیکی توسط رئیس جمهور ترامپ، معاون رئیس جمهور ونس و رئیس مجلس ایران، محمد باقر قالیباف، امضا شد. اما بسیاری از سوالات حل نشده باقی مانده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128321
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈زاکانی: پوتین گفته بود که نیروهای نظامی روسیه به من گفته بودند که ایران نهایتاً یک هفته می‌تواند تنگهٔ هرمز را بسته نگه‌دارد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/25 23:04
 ---
 

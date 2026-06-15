@@ -7,6 +7,190 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/25 11:12
+---
+
+## VahidOOnLine — post 245655
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245655_1781509373.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری فارس، وابسته به سپاه پاسداران، گزارش داد با وجود اعلام رفع اختلال در خدمات بانک‌های ملی، صادرات، تجارت و توسعه صادرات، اختلال خدمات اینترنتی و غیرحضوری این بانک‌ها همچنان ادامه دارد.
+
+خبرگزاری فارس گزارش داد دو روز پیش شورای هماهنگی بانک‌ها اختلال سامانه‌های چهار بانک ملی، صادرات، تجارت و توسعه صادرات را ناشی از «حمله سایبری محدود» اعلام کرده و گفته بود نشت اطلاعاتی رخ نداده است، اما اکنون تنها خدمات کارت در پایانه‌های فروشگاهی و خودپردازها فعال است.
+iranintl
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14948
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایران فعلا در تنگه هرمز پولی دریافت نخواهد کرد
+ایسنا: براساس جزئیات تفاهم‌نامه، ایران تنگه هرمز را مدیریت خواهد کرد و عوارض را «در تاریخ بعدی» دریافت خواهد کرد.
+@withyashar
+</div>
+
+## WithYashar — post 14947
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+️ترامپ به نیویورک تایمز:
+
+«کنار آمدن با نتانیاهو فوق‌العاده دشوار است و او باید از ما بسیار سپاسگزار باشد، زیرا اگر ایران سلاح هسته‌ای داشت، اسرائیل وجود نداشت.»
+@withyashar
+</div>
+
+## IranIntlTV — post 342444
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342444_1781509374.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری فارس، وابسته به سپاه پاسداران، گزارش داد با وجود اعلام رفع اختلال در خدمات بانک‌های ملی، صادرات، تجارت و توسعه صادرات، اختلال خدمات اینترنتی و غیرحضوری این بانک‌ها همچنان ادامه دارد.
+
+خبرگزاری فارس گزارش داد دو روز پیش شورای هماهنگی بانک‌ها اختلال سامانه‌های چهار بانک ملی، صادرات، تجارت و توسعه صادرات را ناشی از «حمله سایبری محدود» اعلام کرده و گفته بود نشت اطلاعاتی رخ نداده است، اما اکنون تنها خدمات کارت در پایانه‌های فروشگاهی و خودپردازها فعال است.
+iranintl.com/202606158141
+</div>
+
+## FarsiVOA — post 220776
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220776_1781509375.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رئیس شورای اروپا از توافق اعلام‌‌شده میان آمریکا و حکومت ایران استقبال کرد و آن را گامی مهم در جهت پایان دادن به تنش‌ها و بازگشت ثبات در منطقه دانست.
+
+آنتونیو کوستا در پیامی در شبکه اجتماعی ایکس نوشت که امیدوار است این جنگ به پایان برسد و آزادی کشتیرانی در تنگه هرمز به ‌طور کامل احیا شود.
+
+او همچنین از تلاش‌های دیپلماتیک «مستمر» تمامی طرف‌هایی که زمینه دستیابی به این توافق را فراهم کردند، قدردانی کرد.
+
+رئیس شورای اروپا تأکید کرد: «اکنون باید سلاح‌ها خاموش شوند و اختلافات باقی‌مانده مطابق با حقوق بین‌الملل و از طریق روش‌های مسالمت‌آمیز حل‌وفصل شوند.»
+
+او همچنین اعلام کرد که شورای اروپا آماده است برای پیشبرد یک راهبرد جامع با هدف دستیابی به صلحی پایدار در سراسر خاورمیانه نقش‌ آفرینی کند.
+@FarsiVOA
+</div>
+
+## DW_Farsi — post 125993
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125993_1781509375.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 انتقاد سیاستمداران اسرائیلی از توافق میان ایران و آمریکا
+
+یائیر گولان، رئیس حزب "دموکرات‌ها" در اسرائیل تفاهم‌نامه آمریکا با ایران را برای این کشور "فاجعه‌بار" توصیف کرد. به گزارش سایت "تایمز اسرائیل"، گولان اظهار داشت: «دستاوردهای عظیم نظامی که با شجاعت خلبانان‌مان و خون سربازان‌مان به دست آمده بود، از بین رفت، در حالی‌که نتانیاهو کنار ایستاده بود؛ ضعیف، بیمار، منزوی و فاقد نفوذ.»
+
+این سیاستمدار اسرائیلی این وضعیت را "اوج سال‌ها شکست" بنیامین نتانیاهو خواند و گفت: «مردی که وعده پیروزی داده بود، دوران مسئولیت خود را در حالی به پایان می‌رساند که دشمنان اسرائیل قوی‌تر و اسرائیل ضعیف‌تر شده است و بازدارندگی‌ای که با خون سربازان‌ ما ساخته شده بود، در مقابل چشمان‌مان در حال فرسایش است.»
+
+هم‌زمان ایتامار بن‌گویر، وزیر امنیت ملی اسرائیل، نیز با انتشار بیانیه‌ای اعلام کرد توافقی که ترامپ با ایران به دست آورده، به معنای "متعهد کردن اسرائیل" نیست. او گفت: «اسرائیل تابع ایالات متحده نیست. ما کشوری مستقل و دارای حاکمیت هستیم.»
+
+بن گویر تأکید کرد اسرائیل شریکی برای این توافق که امنیت این کشور را تضمین نمی‌کند، نیست و نباید از هیچ‌ منطقه‌ای که ارتش در لبنان تصرف کرده است، عقب‌نشینی کند.
+
+@dw_farsi
+</div>
+
+## Dirty_Kids — post 392087
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392087_1781509376.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آماده سازی یکی از بزرگترین پرچم شیرو خورشید
+برای ورود به ورزشگاه جام جهانی ❤️💪
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392086
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏وضعیت جمهوری اسلامی شده اون دیالوگ ال‌پاچینو تو فیلم گادفادر
+یا امضا می‌کنی، یا مغزت روی اون برگه است
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392085
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392085_1781509377.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کربلایی ترامپ
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 128142
+
+<div align="center">
+  <a href="telegram/content/alonews_128142_1781509378.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پیت هگست: نیروهای آمریکایی توی منطقه باقی میمونن و اگر ایران به تعهدات خودش عمل نکنه، محاصره دوباره اعمال میشه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128141
+
+<div align="center">
+  <a href="telegram/content/alonews_128141_1781509378.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نفت وارد کانال ۷۰ دلار شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128140
+
+<div align="center">
+  <a href="telegram/content/alonews_128140_1781509378.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈جشن و خوشحالی مردم جنوب لبنان در پی اعلام توافق پایان جنگ
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128139
+
+<div align="center">
+  <a href="telegram/content/alonews_128139_1781509380.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈الاخبار: ترامپ مجبور شد امتیازات زیادی در پرونده لبنان به ایران بدهد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128138
+
+<div align="center">
+  <a href="telegram/content/alonews_128138_1781509380.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈گفتگوی تلفنی عراقچی با وزرای امور خارجه ترکیه، عراق و مصر
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/25 11:03
 ---
 

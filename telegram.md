@@ -7,6 +7,169 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/25 19:03
+---
+
+## VahidOOnLine — post 245722
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245722_1781537631.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سازمان عملیات تجارت دریایی بریتانیا روز دوشنبه اعلام کرد یک نفتکش گزارش داده است که در ۱۱۱ مایل دریایی جنوب‌شرقی عدن یمن، یک قایق کوچک به آن نزدیک شده و به سوی این شناور تیراندازی کرده است.
+
+این سازمان افزود مقام‌ها در حال بررسی این حادثه هستند، اما جزییات بیشتری ارائه نکرد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14973
+
+
+
+
+## WithYashar — post 14972
+
+<div align="center">
+  <img src="telegram/content/WithYashar_14972_1781537632.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرجنگی عمل نکرده موشک کروز تاماهاوک در ورامین
+
+این حمله چند شب پیش انجام شد و ده ها سایت راداری در سراسر ایران اعم از کرج و تهران و چند سایت قزوین و جنوب کشور توسط ۴۹ موشک تاماهاوک منهدم شد ( به جز یک موشک تاماهاوک )
+موشک های تاماهاوک بار دیگر نشان دادند از دقت فوق العاده ای در زدن اهدافشان برخوردار هستند.
+@withyashat
+</div>
+
+## WithYashar — post 14971
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نتانیاهو تا چند ساعت دیگر سخنرانی خواهد کرد و این اولین واکنش رسمی او به اعلام توافق پس از ساعت‌ها سکوت است 🚨
+@withyashar
+</div>
+
+## VahidOnline — post 76378
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76378_1781537633.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پلیس اطلاعات تهران، روز دوشنبه ۲۵ خرداد ۱۴۰۵ از بازداشت سه شهروند به اتهام انتشار مطالبی در شبکه‌های اجتماعی خبر داد.
+خبرگزاری مهر به نقل از پلیس اطلاعات تهران بزرگ گزارش داد که این افراد در پی رصد فعالیت‌های فضای مجازی شناسایی و بازداشت شده‌اند. به گفته پلیس، بازداشت‌شدگان متهم هستند با انتشار مطالبی در شبکه‌های اجتماعی به مقدسات و آنچه «مدافعان وطن» خوانده شده، توهین کرده‌اند.
+@VahidHeadline
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 342535
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342535_1781537633.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سازمان عملیات تجارت دریایی بریتانیا روز دوشنبه اعلام کرد یک نفتکش گزارش داده است که در ۱۱۱ مایل دریایی جنوب‌شرقی عدن یمن، یک قایق کوچک به آن نزدیک شده و به سوی این شناور تیراندازی کرده است.
+
+این سازمان افزود مقام‌ها در حال بررسی این حادثه هستند، اما جزییات بیشتری ارائه نکرد.
+https://iranintl.com/202606150341
+</div>
+
+## FarsiVOA — post 220825
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺استقبال محتاطانه کشورهای عربی از توافق آمریکا با جمهوری اسلامی؛ ابهام درباره ایران آینده
+
+▪️کشورهای عربی با صدور بیانیه‌هایی در روز دوشنبه ۲۵ خرداد، از یک سو از امضای مجازی یادداشت تفاهم میان آمریکا و جمهوری اسلامی استقبال کردند، و از سوی دیگر، با نگرشی محتاطانه، به دنبال این هستند که ببینند بعد از این توافق با چه نوع ایرانی مواجه خواهند شد.
+
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/united-state-iran-negotiation-arab-world/8161037.html/?nocach=1
+</div>
+
+## FarsiVOA — post 220824
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رهبران اروپایی توافق ایران و آمریکا را گامی مهم برای کاهش تنش‌ها در خاورمیانه دانستند و بر اجرای کامل توافق، تثبیت آتش‌بس و حفظ امنیت کشتیرانی در تنگه هرمز تأکید کردند
+</div>
+
+## IranianMinds — post 22651
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22651_1781537634.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴آتش‌سوزی در میدان تجریش/ تهران.
+۲۵ خرداد
+
+@IranianMinds
+</div>
+
+## Hranews — post 113631
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پس از انتشار ویدیو رقص و موسیقی؛ یک کافه در شمال تهران پلمب شد
+
+
+❗️
+❗️
+❗️
+❗️
+❗️ – انتشار ویدیویی از پخش موسیقی و رقص در یک کافه در شمال تهران، به تشکیل پرونده قضایی و #پلمب این محل با دستور دادستانی تهران منجر شد. در این پرونده همچنین برای مدیران کافه نیز پرونده قضایی تشکیل شده است.
+
+ادامه مطلب
+
+↘️
+@hranews_bot تماس ✉️ -  @Hranews  کانال هرانا 🆑
+</div>
+
+## alonews — post 128260
+
+<div align="center">
+  <a href="telegram/content/alonews_128260_1781537636.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رئیس‌ پلیس راهور : صدور گواهینامه موتورسیکلت برای بانوان داره اجرایی میشه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128259
+
+<div align="center">
+  <a href="telegram/content/alonews_128259_1781537637.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 شرکت مخابرات سوریه به سانا اعلام کرد که یک کابل زیردریایی بین‌المللی که طرطوس را به اسکندریه مصر متصل می‌کند، در نزدیکی ساحل طرطوس خرابکاری شده است.
+
+
+🔴 این آسیب باعث اختلال در بخش قابل توجهی از ظرفیت اینترنت بین‌المللی سوریه شده و خدمات اینترنتی ضعیف‌تری را در چندین استان به دنبال داشته است.
+
+
+🔴 شرکت اعلام کرد که تیم‌های تخصصی برای تعمیر کابل اعزام شده‌اند و هشدار داد که بازسازی کامل خدمات ممکن است به دلیل پیچیدگی فنی تعمیرات کابل زیر دریا زمان‌بر باشد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128258
+
+<div align="center">
+  <a href="telegram/content/alonews_128258_1781537637.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈دونالد ترامپ، رئیس‌جمهور آمریکا، برای شرکت در نشست سران گروه هفت (G7) وارد شهر اویان-له‌بن در فرانسه شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/25 18:53
 ---
 

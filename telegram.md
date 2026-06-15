@@ -7,6 +7,190 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/25 18:53
+---
+
+## VahidOOnLine — post 245721
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245721_1781537027.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️جی‌دی ونس، معاون رئیس‌جمهوری آمریکا، روز یکشنبه ۲۵ خرداد ماه اعلام کرد تفاهم‌نامه میان ایران و آمریکا قرار است روز جمعه در سوئیس و با حضور عباس عراقچی، وزیر امور خارجه جمهوری اسلامی، و محمدباقر قالیباف،‌ سرپرست مذاکره‌کنندگان ایرای امضا شود.
+ونس با اشاره به روند مذاکرات گفت که «جزئیات زیادی از توافق هنوز حل‌وفصل نشده است»، اما آمریکا انتظار دارد تنگه هرمز «در درازمدت بدون عوارض باز باشد».
+
+ونس در گفتگو با شبکه ای‌بی‌سی گفت توافق روز یکشنبه «به‌صورت دیجیتال» امضاء شده و قرار است مراسم رسمی امضای آن روز جمعه در ژنو برگزار شود.
+
+در همین حال، مسعود پزشکیان، رئیس جمهوری ایران نیز، روز یکشنبه در مراسمی دولتی با اعلام همین خبر گفته بود، توافق روز جمعه و حضوری امضاء می‌شود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245720
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245720_1781537028.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش آمریکا در یک یادداشت هشدار اعلام کرد که محاصره بنادر ایران تا زمان تکمیل یک توافق آتش‌بس با این کشور که برای ۱۹ ژوئن (۲۹ خرداد) برنامه‌ریزی شده است، همچنان برقرار است.
+
+در این هشدار که دوشنبه منتشر شد، آمده است: «محاصره نظامی بنادر ایران همچنان برقرار است و تمامی ترددهای ورودی و خروجی از این بنادر را محدود می‌کند.»
+
+ارتش آمریکا افزود: «تا زمانی که دستور صریح صادر نشده است، از تلاش برای عبور خودداری کنید.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## mwarmonitor — post 10983
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴یکی از مقام‌های حزب‌الله لبنان، محمود قمّاطی، اعلام کرد حق دفاع مشروع این گروه تا زمانی که اشغال و تجاوز ادامه داشته باشد، پابرجاست.
+
+🔴این مقام حزب‌الله همچنین هرگونه پیوند زدن خروج اسرائیل از لبنان به مسائل داخلی لبنان، به‌ویژه موضوع سلاح‌های حزب‌الله، را رد کرد. رویترز
+
+@mwarmonitor
+</div>
+
+## DEJradio — post 5699
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5699_1781537028.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺📢 تلسکوپ، قسمت ششم
+
+#تلسکوپ
+@DEJradio
+</div>
+
+## VahidOnline — post 76374
+
+<div align="center">
+  <a href="telegram/content/VahidOnline_76374_1781537029.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تصاویر دریافتی از دود یک آتش‌سوزی 'در میدان تجریش #تهران
+دوشنبه ۲۵ خرداد، الان'
+Vahid
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 76373
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76373_1781537030.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری رویترز به نقل از منابع امنیتی لبنان و رسانه‌های دولتی این کشور گزارش داد یک حمله پهپادی اسرائیل خودرویی را در جنوب لبنان هدف قرار داد و راننده آن کشته شد.
+
+این نخستین حمله مرگبار گزارش‌شده اسرائیل در لبنان از زمان اعلام توافق میان آمریکا و جمهوری اسلامی است.
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## kianmeli1 — post 88019
+
+<div align="center">
+  <a href="telegram/content/kianmeli1_88019_1781537031.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴استادیوم خارق‌العاده مرسدس بنز شهر آتلانتا میزبان دیدار اسپانیا و کیپ ورد
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 342534
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342534_1781537033.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش آمریکا در یک یادداشت هشدار اعلام کرد که محاصره بنادر ایران تا زمان تکمیل یک توافق آتش‌بس با این کشور که برای ۱۹ ژوئن (۲۹ خرداد) برنامه‌ریزی شده است، همچنان برقرار است.
+
+در این هشدار که دوشنبه منتشر شد، آمده است: «محاصره نظامی بنادر ایران همچنان برقرار است و تمامی ترددهای ورودی و خروجی از این بنادر را محدود می‌کند.»
+
+ارتش آمریکا افزود: «تا زمانی که دستور صریح صادر نشده است، از تلاش برای عبور خودداری کنید.»
+https://iranintl.com/202606151074
+</div>
+
+## Dirty_Kids — post 392130
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392130_1781537034.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تراپی:
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392126
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392126_1781537035.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 طبق گفته کاربران؛
+بازار تجریش آتیش گرفته و هنوز جزئیاتی دقیقی از علت آتیش سوزی مشخص نیست.
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 128257
+
+<div align="center">
+  <a href="telegram/content/alonews_128257_1781537038.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نتانیاهو تا چند ساعت دیگر سخنرانی خواهد کرد و این اولین واکنش رسمی او به اعلام توافق پس از ساعت‌ها سکوت است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128254
+
+<div align="center">
+  <a href="telegram/content/alonews_128254_1781537039.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تصاویری از آتیش سوزی آتش‌سوزی تو میدون تجریش، تهران
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128253
+
+<div align="center">
+  <a href="telegram/content/alonews_128253_1781537041.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈براساس گزارش‌های اولیه، یک نفتکش در آب‌های ساحلی یمن هدف قرار گرفته اما تاکنون جزئیات بیشتری منتشر نشده است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128252
+
+<div align="center">
+  <a href="telegram/content/alonews_128252_1781537041.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پزشکیان: نگرانی و عصبانیت اسرائیل از توافق، نشانه‌ای روشن از موفقیت و پیروزی ملت ایران است و به فضل الهی این مسیر با اقتدار ادامه خواهد یافت
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/25 18:43
 ---
 

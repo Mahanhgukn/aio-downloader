@@ -7,6 +7,229 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/25 20:04
+---
+
+## VahidOOnLine — post 245731
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️جورجیا ملونی، نخست‌وزیر ایتالیا، در ویلای پامفیلی رم با سانائه تاکائیچی، نخست‌وزیر ژاپن، دیدار و گفتگو کرد.
+در این دیدار، دو طرف درباره گسترش همکاری‌های دوجانبه در حوزه‌های اقتصادی، امنیتی و فناوری رایزنی کردند. این نشست در آستانه برگزاری اجلاس رهبران گروه هفت (G7) انجام شده و بخشی از تلاش‌ها برای تقویت روابط راهبردی میان رم و توکیو به‌شمار می‌رود.
+همکاری‌های دفاعی، پروژه‌های مشترک صنعتی و مسائل منطقه‌ای از جمله محورهای اصلی این گفت‌وگو عنوان شده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14981
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: احتمال دارد جمعه حضور داشته باشم و با ایرانی ها دیدار کنم
+
+از اینکه مجبور شدیم دو شب دیگر به حمله ادامه دهیم، احساس بدی داشتم. و فکر می‌کردم برای بار سوم هم همینطور، اما ما قبل از آن توافق را انجام دادیم.
+فکر می‌کنم اتفاقات خیلی خوبی قرار است در خاورمیانه رخ دهد.
+قیمت نفت در حال سقوط است و بازار سهام مثل موشک در حال افزایش است
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342984
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342984_1781541262.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: President Trump says Vice President JD Vance is expected to travel to Geneva for the signing of the Iran peace deal.
+
+Trump says Vance will attend specifically for the signing ceremony, while the president himself may also travel to Geneva depending on scheduling at the G7 summit.
+</div>
+
+## FoxNewsTwitter — post 342983
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342983_1781541264.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+JUST IN: President Trump touts the sweeping impacts of his new Iran deal, predicting a major drop in global energy costs and revealing that French President Emmanuel Macron personally reached out to him to address oil prices.
+
+"The the Iran deal that we made is going to bring a lot of, a lot of success to the world because the oil was really clogged up there for a while."
+</div>
+
+## pm_afshaa — post 94111
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94111_1781541266.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: ما خواهان روابط خوب با ایران هستیم و اگر این امر محقق نشه، به جنگ باز خواهیم گشت و امیدوارم این اتفاق نیفتد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94110
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94110_1781541267.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سی‌ان‌ان: ترامپ و جی‌دی ونس یادداشت تفاهم با ایران رو به‌صورت مجازی امضا کردن.
+
+قالیباف هم این سند رو از طرف جمهوری اسلامی امضا کرده، اما مراسم رسمی امضا روز جمعه برگزار خواهد شد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## kianmeli1 — post 88021
+
+<div align="center">
+  <a href="telegram/content/kianmeli1_88021_1781541268.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبرنگار: آیا قصد دارید در مراسم امضای روز جمعه شرکت کنید؟
+
+پرزیدنت ترامپ: خب، بستگی دارد. جی‌دی برای آن می‌آید — در اصل قرار بود او این کار را انجام دهد. احتمالاً تا آن زمان من رفته‌ام.
+
+ما تا دیر وقت می‌مانیم، بنابراین ممکن است درگیر شوم و ممکن است نشوم.
+https://t.me/kianmeli1
+</div>
+
+## RadioFarda — post 158338
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸 پس از هفته‌ها مذاکره، ایران و آمریکا از دستیابی به تفاهمی خبر داده‌اند که قرار است در روزهای آینده به‌طور رسمی امضا شود. اما این توافق چه تأثیری بر زندگی شهروندان ایرانی خواهد داشت؟
+
+🔸 آیا مردم به بهبود شرایط امیدوارند، یا آن را تنها فرصتی کوتاه برای فاصله گرفتن از تنش‌های نظامی می‌دانند؟ رادیوفردا در گفت‌وگو با شهروندان در ایران، دیدگاه‌های آنان را درباره این تفاهم جویا شده است.
+
+🔸شما نیز می‌توانید دیدگاه‌های خود را می‌توانید این جا بنویسید یا در قالب پیام‌های متنی و صوتی به نشانی‌های زیر ارسال کنید:
+
+‏🔸Telegram: @Fardagram
+‏🔸WhatsApp: +420 725 970 000
+
+@RadioFarda
+</div>
+
+## BBCPersian — post 283902
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283902_1781541270.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻‌درحالی‌که تفاهم ایران و آمریکا با استقبال گسترده بین‌المللی مواجه شده است، سیاستمداران اسرائیلی عمدتا آن را محکوم کرده‌اند.
+
+هرچند بنیامین نتانیاهو، نخست‌وزیر اسرائیل، هنوز رسما واکنشی نشان نداده است، شماری از وزرای کابینه او به تندی به این تفاهم‌نامه تاخته‌اند.
+
+ایتامار بن‌ گویر، وزیر امنیت ملی اسرائیل، تاکید کرد که کشورش هیچ تعهدی به اجرای مفاد تفاهم‌نامه ایران و آمریکا ندارد:
+«توافق ترامپ برای ما تعهدی ایجاد نمی‌کند. اسرائیل یک کشور مستقل است و تحت سلطه آمریکا نیست.»
+
+این سیاستمدار راست افراطی افزود: «ما شریک توافقی نیستیم که امنیت ما را تامین نمی‌کند و هیچ نوع تعهدی هم به آن نداریم. ما به هیچ چیز کمتر از نابودی حزب‌الله تن نمی‌دهیم و نباید از سرزمین‌هایی عقب‌نشینی کنیم که جنگجویان ما تصرف کردند و زیرساخت‌های تروریستی‌اش را زدودند.»
+
+📸Amir Levy/Getty Images
+@BBCPersian
+https://bbc.in/4eocNYl
+</div>
+
+## Dirty_Kids — post 392141
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وضعیت خیابون‌های امریکا چندین ساعت قبل شروع بازی تیم آخوندا
+
+چیزی نیست فقط یه میله پرچم کردن تو ،یه عرزشی 🤣
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392140
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392140_1781541272.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بفرست واسه اون دوستت که همیشه قول میده نمیاد...😂😂
+
+هزینه نتن برای باز کردن ویدیو بیشتر شد از به‌ریز و به‌پاچ داداشمون
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 128285
+
+<div align="center">
+  <a href="telegram/content/alonews_128285_1781541273.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ به مکرون: شب گذشته بسیار دیر با شما تماس گرفتم تا تبریک بگویم. در دسته‌بندی سنگین‌وزن، یک بوکسور فرانسوی پیروز شد.
+
+
+🔴نمی‌دانم — شاید این حتی مهم‌تر از جام جهانی باشد. برای برخی افراد ممکن است این‌طور باشد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128284
+
+<div align="center">
+  <a href="telegram/content/alonews_128284_1781541277.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پارلمان مجارستان اصلاحیه‌ای را تصویب کرده است که محدودیت هشت ساله برای دوره ریاست جمهوری نخست‌وزیران اعمال می‌کند و عملاً بازگشت ویکتور اوربان، نخست‌وزیر سابق، به این سمت را غیرممکن می‌سازد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128283
+
+<div align="center">
+  <a href="telegram/content/alonews_128283_1781541277.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 ترامپ درباره لبنان: ما می‌خواهیم ببینیم آیا می‌توانیم مسئله لبنان را مرتب کنیم، زیرا به نظر می‌رسد هرگز به پایان نمی‌رسد.
+
+
+🔴و این نسخه کوچکی از کاری بود که انجام می‌دادیم. اما نباید سخت باشد.
+
+
+🔴حزب‌الله. ما باید کمی با آن‌ها صحبت کنیم.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128282
+
+<div align="center">
+  <a href="telegram/content/alonews_128282_1781541281.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 خبرنگار: آیا قصد دارید در مراسم امضای روز جمعه شرکت کنید؟
+
+
+🔴 ترامپ: خب، بستگی دارد. جی‌دی برای آن می‌آید — در اصل قرار بود او این کار را انجام دهد. احتمالاً تا آن زمان من رفته‌ام.
+
+
+🔴ما تا دیر وقت می‌مانیم، بنابراین ممکن است درگیر شوم و ممکن است نشوم.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/25 19:53
 ---
 

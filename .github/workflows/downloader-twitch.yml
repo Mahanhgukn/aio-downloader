@@ -420,5 +420,5 @@ jobs:
       - name: Cleanup
         if: always()
         run: |
-          rm -rf twitch_vods urls.txt failed_urls.txt twitch_vods_assets.txt 2>/dev/null || true
+          rm -rf twitch urls.txt failed_urls.txt twitch_assets.txt 2>/dev/null || true
           sudo wg-quick down wg0 2>/dev/null || true

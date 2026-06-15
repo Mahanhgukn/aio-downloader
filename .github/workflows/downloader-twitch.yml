@@ -133,7 +133,7 @@ jobs:
           set -e
           VPN_AVAILABLE="${{ steps.vpn.outputs.vpn_available }}"
           CONCURRENT="${{ inputs.concurrent_downloads }}"
-          OUTPUT_DIR="twitch_vods"
+          OUTPUT_DIR="twitch"
           FAILED_FILE="failed_urls.txt"
 
           mkdir -p "$OUTPUT_DIR"
@@ -178,7 +178,7 @@ jobs:
             UPLOAD_METHOD="release"
           fi
 
-          OUTPUT_DIR="twitch_vods"
+          OUTPUT_DIR="twitch"
           FAILED_FILE="failed_urls.txt"
 
           # Move failed log if any
@@ -301,7 +301,7 @@ jobs:
           fi
           echo "✅ Folder ID: $FOLDER_ID"
 
-          OUTPUT_DIR="twitch_vods"
+          OUTPUT_DIR="twitch"
           for file in "$OUTPUT_DIR"/*; do
             [ -f "$file" ] || continue
             fname=$(basename "$file")
@@ -343,7 +343,7 @@ jobs:
           git config user.email "actions@github.com"
           git config http.postBuffer 524288000
 
-          OUTPUT_DIR="twitch_vods"
+          OUTPUT_DIR="twitch"
           if [ -z "$(ls -A "$OUTPUT_DIR/")" ]; then
             echo "No files to upload."
             exit 0
@@ -371,7 +371,7 @@ jobs:
         env:
           GH_TOKEN: ${{ secrets.GITHUB_TOKEN }}
         run: |
-          OUTPUT_DIR="twitch_vods"
+          OUTPUT_DIR="twitch"
           if [ ! -s "${OUTPUT_DIR}_assets.txt" ]; then
             echo "No assets to release."
             exit 0

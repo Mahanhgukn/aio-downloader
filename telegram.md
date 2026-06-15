@@ -7,6 +7,199 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/25 23:35
+---
+
+## VahidOOnLine — post 245769
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245769_1781553901.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علیرضا زاکانی، شهردار تهران، گفت: هر زمان آمریکا خلاف تعهداتش عمل کند، تنگه هرمز را خواهیم بست و باید بداند هر اقدامی که می‌کند چه هزینه سنگینی برای او خواهد داشت.
+
+او افزود: «روس‌ها گفتند باور نمی‌کردیم شما اینقدر قابلیت داشته باشید.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245768
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245768_1781553902.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علیرضا زاکانی، شهردار تهران، گفت: هر زمان آمریکا خلاف تعهداتش عمل کند، تنگه هرمز را خواهیم بست و باید بداند هر اقدامی که می‌کند چه هزینه سنگینی برای او خواهد داشت.
+
+او افزود: «روس‌ها گفتند باور نمی‌کردیم شما اینقدر قابلیت داشته باشید.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245767
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_245767_1781553902.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️مسعود پزشکیان، رئیس‌جمهور ایران، روز دوشنبه ۲۵ خردادماه اعلام کرد پس از اعمال اصلاحات مورد نظر در متن تفاهم‌نامه پایان جنگ، این سند به تصویب رسیده و قرار است مراحل نهایی امضاء و اجرای آن روز جمعه انجام شود.
+پزشکیان در گفتگو با پایگاه اطلاع‌رسانی دولت گفت: «قرار بود اصلاحاتی در متن انجام شود که این اصلاحات روز گذشته انجام شد و پس از هماهنگی‌های لازم، به تصویب رسید. بر این اساس، مقرر شده است روز جمعه مراحل نهایی امضاء و اجرای آن انجام شود.»
+دونالد ترامپ، رئیس جمهوری آمریکا، جی دی ونس معاون ترامپ و همچنین عباس عراقچی، در روز دوشنبه برگزاری مراسم امضاء در کشور سوئیس را تایید کردند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245766
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245766_1781553904.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به گزارش رویترز، حزب‌الله اعلام کرد که به سوی نیروهای اسرائیلی که در حال تلاش برای پیشروی در جنوب لبنان بودند، راکت‌ها و پهپادهایی شلیک کرده است.
+پیش‌تر رویترز گزارش داد اسرائیل در یک حمله پهپادی خودرویی را در جنوب لبنان هدف قرار داد و راننده آن کشته شد.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 15009
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نیویورک تایمز گزارش داد که ممنوعیت ورود پرچم‌های شیروخورشید ایران به جام جهانی که از سوی فیفا اعمال شده بود، پس از برگزاری یک جلسه اضطراری دادگاه در لس‌آنجلس در روز دوشنبه تایید شد و قاضی کرتیس ای. کین حکم داد که این ممنوعیت به قوت خود باقی بماند.
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342995
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342995_1781553904.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: A U.S. Air Force B-52 bomber crashed shortly after takeoff at Edwards Air Force Base, triggering an emergency response.
+
+Emergency crews rushed to the scene as thick black smoke billowed from the wreckage scattered across the desert airfield.
+
+More details, including the condition of those on board, have not yet been released.
+</div>
+
+## pm_afshaa — post 94150
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایران الان ۲ دسته شده: اونایی که ۲ شب رفتن بیرون تیر خوردن اونایی که ۱۰۰ شب رفتن بیرون ... خوردن
+</div>
+
+## pm_afshaa — post 94149
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایران الان ۲ دسته شده:
+
+اونایی که ۲ شب رفتن بیرون تیر خوردن
+اونایی که ۱۰۰ شب رفتن بیرون ... خوردن
+</div>
+
+## pm_afshaa — post 94148
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مشاور قالیباف: چیزی به اسم شروط رهبری وجود نداره
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 342576
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342576_1781553905.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علیرضا زاکانی، شهردار تهران، گفت: هر زمان آمریکا خلاف تعهداتش عمل کند، تنگه هرمز را خواهیم بست و باید بداند هر اقدامی که می‌کند چه هزینه سنگینی برای او خواهد داشت.
+
+او افزود: «روس‌ها گفتند باور نمی‌کردیم شما اینقدر قابلیت داشته باشید.»
+https://iranintl.com/202606154980
+</div>
+
+## IranIntlTV — post 342575
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342575_1781553906.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علیرضا زاکانی، شهردار تهران، گفت: هر زمان آمریکا خلاف تعهداتش عمل کند، تنگه هرمز را خواهیم بست و باید بداند هر اقدامی که می‌کند چه هزینه سنگینی برای او خواهد داشت.
+
+او افزود: «روس‌ها گفتند باور نمی‌کردیم شما اینقدر قابلیت داشته باشید.»
+https://iranintl.com/202606154980
+</div>
+
+## IranIntlTV — post 342574
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342574_1781553906.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+برخی مخاطبان ایران‌اینترنشنال در واکنش به تفاهم آمریکا و جمهوری اسلامی می‌گویند در این روند به مطالبات مردم ایران توجه نشده است. شماری دیگر نیز معتقدند امید بستن به دونالد ترامپ برای ایجاد تغییر در ایران از ابتدا اشتباه بود.
+
+گفت‌وگو با آرش عزیزی، پژوهشگر تاریخ، و فروغ کنعانی، پژوهشگر جامعه‌شناسی
+@iranintltv
+</div>
+
+## FarsiVOA — post 220848
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️علی جوانمردی: چشم انداز تغییر در ایران پس از توافق آمریکا و جمهوری اسلامی
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 17220
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://youtube.com/live/nrN5oSZHtiU?feature=share
+</div>
+
+## IranianMinds — post 22677
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امروز تو یه مانور یه بمب افکن B-52 ارتش آمریکا تو کالیفرنیا سقوط کرد. @IranianMinds
+</div>
+
+## IranianMinds — post 22676
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22676_1781553909.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امروز تو یه مانور یه بمب افکن B-52 ارتش آمریکا تو کالیفرنیا سقوط کرد.
+
+@IranianMinds
+</div>
+
+## alonews — post 128324
+
+<div align="center">
+  <a href="telegram/content/alonews_128324_1781553910.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پزشکیان از قالیباف و عراقچی قدردانی کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/25 23:24
 ---
 

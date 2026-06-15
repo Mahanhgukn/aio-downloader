@@ -7,6 +7,221 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/25 16:43
+---
+
+## mwarmonitor — post 10962
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کشتی‌ها در حال حرکت هستند، بسیاری از آن‌ها بارگیری شده با نفت، از تنگه هرمز خارج می‌شوند. آن‌ها در امتداد «بزرگراه» جنوبی حرکت می‌کنند که کاملاً بی‌خطر، امن و دست‌نخورده است. مناطق دیگری نیز برای تردد وجود دارد!!!
+
+رئیس‌جمهور دونالد جی ترامپ (DJT)
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10961
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴در مصاحبه‌ای با شبکه CNBC، ونس تأیید کرد که وزیر امور خارجه ایران و رئیس مجلس این کشور قرار است روز جمعه ۱۹ ژوئن در سوئیس نماینده تهران در مراسم امضای رسمی باشند. او افزود که هرچند این توافق یک نقطه عطف مهم است، اما هنوز جزئیات فنی زیادی در حال نهایی شدن…
+</div>
+
+## pm_afshaa — post 94083
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حملات سنگین اسراییل به جنوب لبنان
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5698
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5698_1781529217.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🔸 نمایش آینده صنعت دفاعی جهان در برلین؛ ایران جا مانده از رقابت جهانی
+
+گزارش: ملیکا رضاپور
+
+#صنعت_دفاعی #برلین #ایران
+@DEJradio
+</div>
+
+## IranIntlTV — post 342510
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342510_1781529217.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻تیم‌های فوتبال ایران و نیوزیلند بامداد سه‌شنبه در مرحله گروهی جام جهانی ۲۰۲۶ به مصاف یکدیگر می‌روند، به نظر شما این بازی با چه نتیجه‌ای به پایان می‌رسد؟
+
+🔹برای شرکت در این نظرسنجی، به صفحه اینستاگرام ایران اینترنشنال ورزشی مراجعه کنید؛👇🏽
+https://www.instagram.com/p/DZmHTLcCBO6/
+
+@iranintltvsport
+</div>
+
+## FarsiVOA — post 220805
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺پرزیدنت ترامپ مقاله‌ای درباره توافق صلح با رژیم ایران را در تروت سوشال بازنشر کرد
+
+▪️دونالد ترامپ، رئیس‌جمهوری آمریکا، روز دوشنبه ۲۵ خرداد مقاله‌ای از وب‌سایت «جاست د نیوز» را در شبکه اجتماعی تروت سوشال بازنشر کرد. این مقاله که توسط بن وِدون، خبرنگار و دبیر این رسانه، نوشته شده است، می‌گوید پرزیدنت ترامپ به توافقی برای پایان دادن به ۴۷ سال خصومت میان ایالات متحده و رژیم ایران دست یافته است.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/president-trump-shares-just-the-news-article-on-iran-moi/8161025.html/?nocach=1
+</div>
+
+## RadioFarda — post 158333
+
+<div align="center">
+  <a href="https://t.me/radiofarda/158333" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+از گشت ارشاد تا طالبان؛ درد مشترک زنان ایران و افغانستان
+
+🔸بازداشت ده‌ها زن در هرات به‌دلیل نوع پوشش و برخورد خشونت‌آمیز طالبان با معترضان، موج تازه‌ای از نگرانی و اعتراض را برانگیخته است. همزمان، شماری از زنان ایرانی با یادآوری تجربه گشت ارشاد و جنبش «زن، زندگی، آزادی»، از زنان افغانستان حمایت کرده‌اند؛ همبستگی‌ای که از درد و تجربه‌ای نزدیک در دو سوی مرز می‌آید.
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 22647
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22647_1781529219.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ:
+
+کشتی‌ها در حال حرکت هستند؛ بسیاری از آن‌ها با محموله‌های نفتی از تنگه هرمز خارج شده‌اند.
+
+این کشتی‌ها از مسیر جنوبی، که کاملاً امن، ایمن و بدون مشکل است، عبور می‌کنند.
+
+البته مسیرهای دیگری برای تردد نیز وجود دارد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22646
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 جی‌دی ونس درباره ایران:
+
+تمام کشورهای ائتلاف خلیج فارس از توافق اوباما با ایران متنفر بودند، چون معتقد بودند آن توافق به ایران قدرت بیشتری می‌دهد تا به‌عنوان یک بازیگر مخرب عمل کند.
+
+اما امروز ائتلاف کشورهای خلیج فارس درباره توافق صلح رئیس‌جمهور ترامپ چه می‌گوید؟
+
+آن‌ها از این توافق استقبال می‌کنند، چون آن را فرصتی برای ساختن و شکل دادن به خاورمیانه‌ای جدید می‌دانند.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 283895
+
+<div align="center">
+  <a href="https://t.me/bbcpersian/283895" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تازه‌ترین خبرهای جهان دوشنبه ۲۵ خرداد ۱۴۰۵ از رادیو بی‌بی‌سی در لندن
+
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 392114
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392114_1781529220.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 جدیدا تبلیغات تو اینستاگرام فارسی جوری شده که آدم چهاربار ببینه آبش میاد :
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392113
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392113_1781529223.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نه والا اونا غیرت دارن
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392111
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بازیکنای برزیل: دوست دختراشون:
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392110
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کم بود جن و پری، این عن هم از رو دیوار پرید.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392108
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خدایا خودت امسال برزیلی🇧🇷 باش؛
+
+دایانه تومازونی اعلام کرده به ازای هر گلی که برزیل توی جام جهانی بزنه، یه عکس کاملا برهنه از خودش میده بیرون و اگه برزیل قهرمان بشه، با همه بازیکنا یه دور می‌خوابه.
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 128219
+
+<div align="center">
+  <a href="telegram/content/alonews_128219_1781529223.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ونس: مستقیم با رهبران ایران در ارتباطیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128218
+
+<div align="center">
+  <a href="telegram/content/alonews_128218_1781529224.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ونس: برنامه هسته‌ای برچیده خواهد شد و تنها در آن زمان درباره اموال بلوکه شده مذاکره خواهیم کرد.
+
+
+🔴با آژانس و ایران درباره چگونگی نابودی اورانیوم غنی‌شده صحبت خواهیم کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/25 16:33
 ---
 

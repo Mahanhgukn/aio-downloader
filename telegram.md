@@ -7,6 +7,332 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/25 19:53
+---
+
+## VahidOOnLine — post 245730
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245730_1781540611.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️شبکه خبری سی‌ان‌ان به نقل از یک مقام ارشد دولت آمریکا اعلام کرد دونالد ترامپ، رئیس‌جمهوری آمریکا و جی‌دی ونس، معاون او، روز یکشنبه (به وقت آمریکا) تفاهم‌نامه میان آمریکا و ایران را به‌صورت مجازی امضاء کرده‌اند.
+به گفته این مقام، محمدباقر قالیباف، رئیس مجلس شورای اسلامی و مذاکره کننده ارشد ایران نیز این سند را از طرف ایران امضاء کرده است.
+این مقام آمریکایی به سی‌ان‌ان گفت، با وجود امضای مجازی تفاهم‌نامه، یک مراسم رسمی همچنان قرار است روز جمعه برگزار شود.
+پیشتر جی‌دی ونس و مسعود پزشکیان از امضای توافق‌نامه در روز جمعه در سوئیس خبر داده بودند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245729
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245729_1781540612.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهوری آمریکا، گفت توافق با جمهوری اسلامی به‌طور کامل امضا شده و تنگه هرمز باز شده است.
+او افزود ایران سلاح هسته‌ای نخواهد داشت، نظارت و کنترل بسیار قوی اعمال خواهد شد و ابراز امیدواری کرد روابط خوبی میان دو طرف شکل بگیرد.
+
+او افزود: «مهم است که قیمت نفت به‌شدت در حال کاهش و بازارهای سهام در حال افزایش هستند.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14980
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: می‌خواهم یادداشت تفاهم با ایران را منتشر کنم زیرا سندی مهم و قدرتمند است و ما به زودی آن را منتشر خواهیم کرد
+
+تنگه هرمز پس از جمع‌آوری مین‌ها به‌طور کامل‌ بدون عوارض باز خواهد شد
+
+کاهش تحریم‌های ایران به رفتار این کشور بستگی دارد
+
+اکنون ما می‌خواهیم ببینیم چگونه می‌توانیم مناقشه در لبنان را حل کنیم و باید در این مورد با اسرائیل صحبت کنیم.
+@withyashar
+</div>
+
+## WithYashar — post 14979
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: توافقی که اوباما با ایران انجام داد، این کشور را قادر به ساخت سلاح هسته‌ای می‌کرد
+
+ما خواهان روابط خوب با ایران هستیم و اگر این امر محقق نشود، به جنگ باز خواهیم گشت و امیدوارم این اتفاق نیفتد
+@withyashar
+</div>
+
+## WithYashar — post 14978
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: ما با ایران تفاهم‌نامه‌ای امضا کردیم و تنگه هرمز تا حدی بازگشایی شده است
+
+تنگه هرمز روز جمعه به طور کامل باز خواهد شد
+
+: توافق با ایران به نفع منطقه خاورمیانه خواهد بود
+
+ایران سلاح هسته‌ای نخواهد داشت و من با این موضوع موافقت کردم. این اصل موضوع مناقشه بود
+@withyashar
+</div>
+
+## mwarmonitor — post 10991
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ، پیش از دیدار دوجانبه با رئیس‌جمهور فرانسه، مکرون، گفت: 📌«تنگه هرمز از قبل تا حدی باز شده است. همان‌طور که می‌دانید، آن‌ها در حال جست‌وجوی چند مین هستند که قبلاً چند مورد از آن‌ها را پیدا کرده‌اند. اما عملاً کشتی‌ها در حال خروج هستند. تا روز جمعه،…
+</div>
+
+## mwarmonitor — post 10990
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ، پیش از دیدار دوجانبه با رئیس‌جمهور فرانسه، مکرون، گفت:
+
+📌«تنگه هرمز از قبل تا حدی باز شده است. همان‌طور که می‌دانید، آن‌ها در حال جست‌وجوی چند مین هستند که قبلاً چند مورد از آن‌ها را پیدا کرده‌اند. اما عملاً کشتی‌ها در حال خروج هستند. تا روز جمعه، این تنگه کاملاً باز خواهد شد.» CNN
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 342982
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342982_1781540613.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NEW: President Trump touts his Iran peace deal as the Strait of Hormuz reopens and oil prices begin to drop:
+
+"I think a lot of great things are going to happen with the Middle East right now. Very importantly, the oil is plummeting down, and the stock market is shooting up like a rocket."
+
+"And the main thing is that Iran will not have a nuclear weapon."
+</div>
+
+## FoxNewsTwitter — post 342981
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342981_1781540614.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NEW: French President Emmanuel Macron praises President Trump's peace deal between the United States and Iran:
+
+"We are ready to take our fair share of the burden and be part of the commitment of the international community."
+
+"It's a very important step towards peace but as well for the global economy."
+</div>
+
+## pm_afshaa — post 94109
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+معاریو: اسرائیل از توافق میان آمریکا و ایران شوکه شده است و به‌تدریج در حال از دست دادن اعتماد خود به ترامپ است
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## VahidOnline — post 76384
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76384_1781540616.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک مقام ارشد آمریکایی روز دوشنبه اعلام کرد تفاهم‌نامه میان آمریکا و جمهوری اسلامی به امضای دونالد ترامپ، رییس‌جمهوری آمریکا، جی‌دی ونس، معاون رییس‌جمهوری آمریکا، و محمدباقر قالیباف، رییس مجلس جمهوری اسلامی، رسیده است.
+
+او گفت در مرحله بعدی مذاکرات، آرایش فعلی نیروهای نظامی آمریکا حفظ خواهد شد، اما در صورت دستیابی به توافق نهایی، کاهش نیروهای نظامی در نظر گرفته شده است.
+
+این مقام همچنین گفت مذاکرات فنی از اواخر این هفته آغاز می‌شود و جزییات توافق طی ۲۴ تا ۴۸ ساعت آینده منتشر خواهد شد.
+
+او افزود آزادسازی دارایی‌های مسدودشده و کاهش تحریم‌ها به اجرای تعهدات وابسته است.
+
+این مقام ارشد آمریکایی همچنین گفت: «از عملکرد عمانی‌ها در مذاکرات پیش از جنگ رضایت نداشتیم.»
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 76383
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76383_1781540616.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهوری آمریکا، گفت توافق با جمهوری اسلامی به‌طور کامل امضا شده و تنگه هرمز باز شده است.
+او افزود ایران سلاح هسته‌ای نخواهد داشت، نظارت و کنترل بسیار قوی اعمال خواهد شد و ابراز امیدواری کرد روابط خوبی میان دو طرف شکل بگیرد.
+
+او افزود: «مهم است که قیمت نفت به‌شدت در حال کاهش و بازارهای سهام در حال افزایش هستند.»
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## kianmeli1 — post 88020
+
+<div align="center">
+  <a href="telegram/content/kianmeli1_88020_1781540616.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴متن تفاهم‌نامه کی منتشر خواهد شد؟
+
+ترامپ: فکر می‌کنم خیلی زود، این را می‌توانم بگویم.
+
+می‌توانم بگویم که متن تفاهم نامه زمان کمی بعد از جمعه منتشر خواهد شد.
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 342543
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342543_1781540618.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهوری آمریکا، گفت توافق با جمهوری اسلامی به‌طور کامل امضا شده و تنگه هرمز باز شده است.
+او افزود ایران سلاح هسته‌ای نخواهد داشت، نظارت و کنترل بسیار قوی اعمال خواهد شد و ابراز امیدواری کرد روابط خوبی میان دو طرف شکل بگیرد.
+
+او افزود: «مهم است که قیمت نفت به‌شدت در حال کاهش و بازارهای سهام در حال افزایش هستند.»
+https://iranintl.com/202606157979
+</div>
+
+## IranIntlTV — post 342542
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342542_1781540618.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻فیفا پس از درخواست جمهوری اسلامی، نمایش پرچم‌ شیروخورشید را در ورزشگاه‌های جام جهانی ممنوع کرد. نشان شیر و خورشید سابقه‌ای بسیار طولانی در تاریخ ایران دارد و قدمت آن به زمان صفویان و پیش از آن می‌رسد.
+
+🔹توضیحات رها پوربخش، ایران‌اینترنشنال در برنامه هت‌تریک
+
+@iranintltvsport
+</div>
+
+## FarsiVOA — post 220829
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+از بغداد تا اربیل؛ مأموریت تام باراک برای حل پرونده سلاح، نفت و نفوذ جمهوری اسلامی
+</div>
+
+## RadioFarda — post 158337
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+استقبال کشورهای عربی، به‌ویژه در خلیج فارس، از امضای تفاهم‌نامه میان ایران و آمریکا
+
+🔸عربستان سعودی از امضای این تفاهم‌نامه که به آغاز مذاکرات ۶۰ روزه، با هدف دستیابی به یک توافق دائمی ‌می‌انجامد، استقبال کرد.
+
+🔸وزارت خارجه عربستان سعودی در بیانیه‌ای که روز دوشنبه ۲۵ خرداد منتشر شد، اعلام کرد که این کشور از تلاش‌های میانجیگرانه پاکستان و قطر و همچنین از همراهی ایالات متحده و ایران با این تلاش‌ها قدردانی می‌کند.
+
+🔸وزارت خارجه عربستان سعودی بر اهمیت بازگرداندن امنیت و آزادی دریانوردی به تنگه هرمز به وضعیت قبل از روز ۹ اسفند ۱۴۰۴، روز آغاز جنگ، تأکید کرد و آن را عنصری اساسی در تقویت ثبات منطقه‌ای و تضمین جریان روان بازرگانی و انرژی جهانی دانست.
+
+🔸ریاض همچنین ابراز امیدواری کرد که مذاکرات آینده منجر به صلحی پایدار شود که به افزایش امنیت منطقه و جهان کمک کند، مذاکراتی که، بنا بر بیانیه وزارت خارجه عربستان سعودی، به دستیابی به تفاهماتی بیانجامد که منافع امنیتی کشورهای منطقه را در نظر بگیرد و اصل احترام به حاکمیت کشورها و عدم دخالت در امور داخلی آنها را تقویت می‌کند.
+
+🔸 گزارش کامل را در وب‌سایت رادیوفردا بخوانید.
+
+@RadioFarda
+</div>
+
+## alonews — post 128281
+
+<div align="center">
+  <a href="telegram/content/alonews_128281_1781540620.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: احتمال دارد جمعه حضور داشته باشم و با ایرانی ها دیدار کنم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128280
+
+<div align="center">
+  <a href="telegram/content/alonews_128280_1781540620.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ در ادامه: از اینکه مجبور شدیم دو شب دیگر به حمله ادامه دهیم، احساس بدی داشتم. و فکر می‌کردم برای بار سوم هم همینطور، اما ما قبل از آن توافق را انجام دادیم.
+
+
+🔴فکر می‌کنم اتفاقات خیلی خوبی قرار است در خاورمیانه رخ دهد.
+
+
+🔴قیمت نفت در حال سقوط است و بازار سهام مثل موشک در حال افزایش است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128279
+
+<div align="center">
+  <a href="telegram/content/alonews_128279_1781540620.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: ما می‌خواهیم ببینیم چگونه می‌توانیم مناقشه در لبنان را حل کنیم و باید در این مورد با اسرائیل صحبت کنیم.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128278
+
+<div align="center">
+  <a href="telegram/content/alonews_128278_1781540620.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: تنگه هرمز بدون عوارض بازگشایی می‌شود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128277
+
+<div align="center">
+  <a href="telegram/content/alonews_128277_1781540620.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: کاهش تحریم‌های ایران به رفتار این کشور بستگی دارد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128276
+
+<div align="center">
+  <a href="telegram/content/alonews_128276_1781540620.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: می‌خواهم یادداشت تفاهم با ایران را منتشر کنم زیرا سندی مهم و قدرتمند است و ما به زودی آن را منتشر خواهیم کرد
+
+
+🔴تنگه هرمز پس از جمع‌آوری مین‌ها به‌طور کامل باز خواهد شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128275
+
+<div align="center">
+  <a href="telegram/content/alonews_128275_1781540621.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: جی دی ونس در مراسم امضای تفاهم‌نامه با ایران شرکت خواهد کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/25 19:43
 ---
 

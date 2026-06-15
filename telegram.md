@@ -7,6 +7,243 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/25 21:43
+---
+
+## VahidOOnLine — post 245750
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245750_1781547233.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نفتالی بنت، نخست وزیر پیشین اسرائیل، خواستار بازگشت به راهبرد جنگ‌های سریع و قاطع، احیای ستاد اطلاع‌رسانی ملی و اجرای خدمت سربازی اجباری برای همه شهروندان اسرائیل شد.
+
+او گفت: «شمارش معکوس برای تغییر حکومت در ایران از زمان تغییر حکومت در اسرائیل آغاز خواهد شد.»
+
+بنت ادامه داد: «اگر من جای نتانیاهو بودم دکترین "اختاپوس" علیه ایران را از سر می‌گرفتیم؛ هم مانع دستیابی ایران به سلاح هسته‌ای می‌شدیم و هم با ابزارهای مختلف روند تضعیف حکومت را تسریع می‌کردیم.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14991
+
+
+
+
+## mwarmonitor — post 10995
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ذخایر اضطراری نفت آمریکا به پایین‌ترین سطح خود از زمان دولت ریگان رسیده است. CNN
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 94127
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94127_1781547233.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نتانیاهو: ما در لبنان خواهیم ماند و کارمون با ایران ممکنه هنوز تمام نشده باشه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94126
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94126_1781547234.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نتانیاهو: ما رهبران جمهوری اسلامی رو کشتیم، به سرویس‌های امنیتی آنها آسیب شدیدی زدیم و اسرائیل رو از تهدید هسته‌ای ایران نجات دادیم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94125
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94125_1781547234.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نتانیاهو: ماموریت زندگی من مبارزه با برنامه هسته‌ای ایرانه. حالا با توافق یا بدون توافق، ایران سلاح هسته‌ای نخواهد داشت.
+
+اگر برای حمله به ایران عجله نکرده بودیم، به بمب هسته‌ای میرسیدن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94124
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+راستی از شهبازی که 3 نفره کردنش چه خبر!؟
+</div>
+
+## pm_afshaa — post 94123
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94123_1781547235.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴تسنیم: در صورت جنگ یا ترور در ایران و جبهه مقاومت توافق نهایی انجام نمیشه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 342559
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342559_1781547236.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نفتالی بنت، نخست وزیر پیشین اسرائیل، خواستار بازگشت به راهبرد جنگ‌های سریع و قاطع، احیای ستاد اطلاع‌رسانی ملی و اجرای خدمت سربازی اجباری برای همه شهروندان اسرائیل شد.
+
+او گفت: «شمارش معکوس برای تغییر حکومت در ایران از زمان تغییر حکومت در اسرائیل آغاز خواهد شد.»
+
+بنت ادامه داد: «اگر من جای نتانیاهو بودم دکترین "اختاپوس" علیه ایران را از سر می‌گرفتیم؛ هم مانع دستیابی ایران به سلاح هسته‌ای می‌شدیم و هم با ابزارهای مختلف روند تضعیف حکومت را تسریع می‌کردیم.»
+https://iranintl.com/202606153453
+</div>
+
+## FarsiVOA — post 220841
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دست‌کم ۴۰ تن به اتهام‌های مرتبط با «امنیت ملی» از ابتدای ۲۰۲۶ اعدام شده اند
+</div>
+
+## FarsiVOA — post 220840
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺ارتش اسرائیل: فرمانده یکی از واحدهای سازمان تروریستی حماس کشته شد
+
+▪️ارتش اسرائیل از کشته شدن دو تروریست که تهدیدی برای نیروهای اسرائیل در نوار غزه بودند خبر داد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/gaza-strip-israeli-army-hamas-terrorists/8161094.html/?nocach=1
+</div>
+
+## DW_Farsi — post 126019
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 نمایندگان پارلمان اروپا از فیفا خواستند درباره وضعیت فوتبالیست‌های زندانی در ایران سکوت نکند
+ 
+هم‌زمان با جلب نگاه جهان به نخستین بازی تیم ملی ایران در جام جهانی ۲۰۲۶، شماری از نمایندگان پارلمان اروپا با اشاره به زندانی بودن چند فوتبالیست ایرانی و گزارش‌ها درباره خطر اعدام یک بازیکن جوان، از فیفا خواستند به تعهدات حقوق بشری خود پایبند بماند.
+ 
+آن‌ها تأکید کرده‌اند فوتبال را نمی‌توان از حقوق و کرامت انسانی بازیکنان و هوادارانش جدا کرد و پرسش اصلی این است که آیا فیفا در برابر زندانی شدن، ناپدید شدن یا اعدام فوتبالیست‌ها سکوت خواهد کرد یا نه.
+ 
+در این متن آمده است سازمان‌های حقوق بشری پرونده‌هایی از فوتبالیست‌های فعلی و سابق ایران را مستند کرده‌اند که با بازداشت‌های خودسرانه، محرومیت از دادرسی عادلانه، شکنجه، ناپدیدسازی قهری و احکام طولانی زندان روبه‌رو شده‌اند.
+ 
+در این میان از احسان حسینی‌پور حصارلو، فوتبالیست ۱۹ ساله، نام برده شده که به نوشته این گزارش، پس از روندی قضایی که با انتقاد شدید وکلا و مدافعان حقوق بشر همراه بوده، با خطر اعدام قریب‌الوقوع روبه‌رو است.
+ 
+نویسندگان این متن تاکید کرده‌اند حتی اگر فیفا درباره پرونده‌های قضایی فردی موضع‌گیری مستقیم نکند، همین گزارش‌ها پرسش‌های بزرگ‌تری را پیش می‌کشد که مستقیما به مسئولیت‌ها و تعهدات علنی این نهاد مربوط است.
+ 
+در این متن آمده است فیفا بارها از ارزش‌هایی مانند کرامت و احترام سخن گفته و در اساسنامه و سیاست‌های خود به رعایت حقوق بشر متعهد شده است. با این حال، نویسندگان تأکید کرده‌اند اعتبار این تعهدات نه در اسناد، بلکه در نحوه برخورد فیفا با زندانی شدن خود فوتبالیست‌ها سنجیده می‌شود.
+ 
+همچنین یادآوری شده که فیفا پیش‌تر در موضوع‌هایی مانند ممنوعیت ورود زنان به ورزشگاه‌ها در ایران نشان داده بود که می‌خواهد به مسائل حقوق بشری مرتبط با فوتبال ورود کند. بر همین اساس، در متن آمده است سکوت در شرایط کنونی این پیام نگران‌کننده را منتقل می‌کند که تعهدات حقوق بشری فقط تا زمانی معتبرند که هزینه سیاسی نداشته باشند.
+@dw_farsi
+</div>
+
+## IranianMinds — post 22662
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22662_1781547236.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 نتانیاهو درباره ایران:
+
+مبارزه هنوز تموم نشده. باید همیشه آماده باشیم، نگهبان بمانیم و هر وقت لازم باشه از خودمون دفاع کنیم.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 283926
+
+<div align="center">
+  <a href="telegram/content/BBCPersian_283926_1781547238.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻مسعود پزشکیان در همایشی در تهران از تفاهم ایران و آمریکا استقبال کرد و گفت: «اجرای کامل این تفاهمنامه می‌تواند بسیاری از مشکلات و مسائل کشور را برطرف کند و ما دنیای دیگری را در کشور خودمان و در منطقه خاورمیانه خلق خواهیم کرد.»
+
+رئیس‌جمهور ایران بدون اشاره به مفاد این تفاهمنامه گفت که اگر همه آنچه نوشته شده است عملیاتی شود،‌ «سندی افتخارآمیز» نه فقط برای ایران بلکه برای کل منطقه و نیروهای مقاومت خواهد بود.
+
+او از تیم مذاکره‌کننده ایران قدردانی کرد و گفت که تفاهم‌ «حاصل ماه‌ها گفت‌وگو، پیگیری‌های مستمر و ارتباطات مختلف در این زمینه بوده است.»
+
+مسعود پزشکیان گفت که جزئیات این تفاهمنامه در زمان مناسب ارائه خواهد شد.
+
+رئیس‌جمهور ایران از «مساعدت و اختیاراتی» که رهبر جمهوری اسلامی در اختیار «شورای عالی امنیت ملی و تیم مذاکره‌کننده و همچنین دولت گذاشته است»، قدردانی کرد.
+
+@BBCPersian
+</div>
+
+## alonews — post 128304
+
+<div align="center">
+  <a href="telegram/content/alonews_128304_1781547240.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نتانیاهو:ما در لبنان خواهیم ماند. کار با ایران ممکن است همچنان تمام نشده باشد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128303
+
+<div align="center">
+  <a href="telegram/content/alonews_128303_1781547240.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نتانیاهو: ما خطر نابودی اسرائیل و ساکنان آن را دفع کردیم و آن را از ویرانی نجات دادیم. مبارزه ما هنوز تمام نشده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128302
+
+<div align="center">
+  <a href="telegram/content/alonews_128302_1781547240.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نتانیاهو: ما خسارات عظیمی به ایرانی‌ها وارد کردیم و اسرائیل را از خطر نابودی هسته‌ای نجات دادیم.
+
+
+🔴اگر ما به سرعت برای حمله به ایران اقدام نمی‌کردیم، این کشور به بمب هسته‌ای دست پیدا می‌کرد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128301
+
+<div align="center">
+  <a href="telegram/content/alonews_128301_1781547240.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈دلار 155000شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/25 21:34
 ---
 

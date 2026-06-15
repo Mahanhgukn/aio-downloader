@@ -7,6 +7,237 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/25 18:33
+---
+
+## WithYashar — post 14968
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جزئیات دیگری از یک اتفاق قابل توجه درباره ساختار تفاهم اسلام‌آباد
+
+یک منبع نزدیک به تیم مذاکرات در گفتگو با خبرنگار تسنیم، جزئیاتی از یک اتفاق قابل توجه در روز آخر مذاکرات مطرح کرد : بند 13 تفاهم‌نامه مربوط به این موضوع است که تا زمانی که برخی بندهای دیگر تفاهم‌نامه عملیاتی نشده، مذاکرات درباره توافق نهایی یعنی موضوع هسته‌ای صورت نمی‌گیرد.
+
+وی خاطرنشان کرد: تا پیش از روز آخر مذاکرات، بند 13 شامل بندهای 4 و 5 و 10 و 11 بود؛ بند 4 مربوط به رفع محاصره دریایی، بند 5 مربوط به آغاز بازگشایی تنگه هرمز، بند 10 مربوط به اسقاطیه تحریم‌های مربوط به فروش نفت، پتروشیمی و مشتقات ایران و همچنین بند 11 مربوط به آغاز آزادسازی اموال بلوکه شده ایران است.
+بنابراین بند 13 به این اشاره داشت که اگر این 4 بند گفته شده (4 و 5 و 10 و 11) انجام نشود، مذاکرات توافق نهایی آغاز نمی‌شود.
+این منبع مطلع تاکید کرد: اتفاق مهمی که روز آخر مذاکرات به وقوع پیوست این بود که با پیگیری ایران، بند 1 نیز به بند 13 اضافه شد.
+به گفته این منبع آگاه، معنای مهم این اتفاق آن است که اگر جنگ و هرگونه عملیات نظامی، از قبیل ترور و ... در ایران یا جبهه مقاومت از جمله لبنان اتفاق بیفتد، طبق تفاهم هیچگونه مذاکراتی برای توافق نهایی صورت نمی‌گیرد و طبیعتا اجرای تفاهم‌نامه (از جمله بازگشایی تنگه هرمز) از لحاظ ماده ۱۳ متوقف خواهد شد.
+@withyashar
+</div>
+
+## WithYashar — post 14967
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عراقچی: جمعه تفاهمنامه ایران و آمریکا امضا می‌شود
+
+اقتصاد ما نباید خود را متکی و موکول به این قبیل توافقات اقتصادی از طریق مذاکره با آمریکا بکند
+در راستای منافع کشور، نیمی دیگر از راه مانده که باید طی کنیم که نیمه سختی خواهد بود
+@withyashar
+</div>
+
+## mwarmonitor — post 10981
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_10981_1781535834.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حمله با RPG به یک نفتکش در سواحل یمن
+</div>
+
+## mwarmonitor — post 10980
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حمله با RPG به یک نفتکش در سواحل یمن
+</div>
+
+## FoxNewsTwitter — post 342979
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342979_1781535834.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+“Loving our country is starting to sound like an abused spouse saying they love their abuser.”
+
+That was Robert De Niro’s message as he took aim at President Trump during a First Amendment fundraising event in New York City on Sunday, arguing that America is “not so lovable right now.”
+
+The Oscar-winning actor went on to say he cannot love a country led by Trump, escalating his long-running criticism of the president.
+</div>
+
+## VahidOnline — post 76367
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76367_1781535836.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بر اساس اطلاعات رسیده به ایران‌وایر، «نوید عالم‌چهره» ۴۴ ساله، ساکن ملک‌شهر اصفهان و پدر دو دختر، روز جمعه ۱۹ دی‌ماه ۱۴۰۴ هدف شلیک گلوله جنگی قرار گرفت و جان خود را از دست داد.
+به گفته منابع آگاه، گلوله جنگی از پشت به پهلوی او اصابت کرده بود. خانواده می‌گویند نوید عالم‌چهره هنگام مجروح شدن هنوز هوشیار بود و توسط اعضای خانواده به بیمارستان غرضی اصفهان منتقل شد. به گفته آنان، کادر درمان پس از تحویل گرفتن او اعلام کردند که برای عمل جراحی به اتاق عمل منتقل خواهد شد.
+نزدیکان نوید می‌گویند تا صبح مقابل بیمارستان منتظر ماندند، اما با باز شدن درهای بیمارستان و مراجعه برای پیگیری وضعیت او، دیگر اثری از نوید پیدا نکردند. به گفته نزدیکان، پس از دو روز جست‌وجو و مراجعه به مراکز مختلف، سرانجام پیکر او را در سردخانه باغ رضوان اصفهان پیدا کردند.
+
+بیشتر بخوانید: iranwire.com
+@VahidHeadline
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 76366
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76366_1781535837.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کمیسر عالی حقوق بشر سازمان ملل اعلام کرد که از آغاز سال جاری میلادی تاکنون، دست‌کم ۴۰ نفر در ایران به اتهام‌های مرتبط با «امنیت ملی» اعدام شده‌اند که در میان آن‌ها ۱۸ معترض نیز دیده می‌شود.
+
+ولکر تورک روز دوشنبه ۲۵ خرداد افزود: «مقامات دست به سرکوب شدید زده‌اند، هزاران نفر را بازداشت کرده و محدودیت‌های بیشتری بر فضای مدنی اعمال کرده‌اند».
+
+او در بخش دیگری از اظهاراتش از اعلام توافق صلح میان ایالات متحده و ایران استقبال کرد و از همه طرف‌ها در منطقه خواست حداکثر خویشتنداری را رعایت کنند.
+
+تورک گفت: «از اعلام این‌که ایالات متحده و ایران بر سر یک توافق صلح به تفاهم رسیده‌اند که شامل آتش‌بسی فوری و دائمی، بازگشایی تنگه هرمز و چارچوبی برای ادامه مذاکرات است، استقبال می‌کنم».
+
+او افزود: «در این مقطع حساس، روشن است که همه طرف‌ها باید حداکثر خویشتنداری را به خرج دهند و برای اجرای سریع و با حسن نیت توافق حاصل‌شده تلاش کنند».
+@VahidHeadline
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 76362
+
+<div align="center">
+  <a href="telegram/content/VahidOnline_76362_1781535837.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بهروز رضوی، گوینده محبوب علی خامنه‌ای، درگذشت.
+FattahiFarzad
+بهروز رضوی، گوینده، صداپیشه، ترانه‌سرا و بازیگر، پس از دوره‌ای بیماری در ۷۸ سالگی درگذشت.
+او فعالیت حرفه‌ای را از سال ۱۳۴۷ با گویندگی در رادیو آغاز کرد و طی بیش از پنج دهه فعالیت، به یکی از شناخته‌شده‌ترین صداهای رسانه‌ای ایران بدل شد. روایت مجموعه مستند «ایران» از جمله ماندگارترین آثار او به شمار می‌رود.
+بهروز رضوی علاوه بر فعالیت در رادیو و تلویزیون، در سینما و دوبله نیز حضور داشت و در آثاری چون «گناه فرشته»، «سفر به چزابه» و «نجات‌یافتگان» ایفای نقش کرده بود.
+او همچنین شاعر ترانه‌های «کویر دل» و «گمشده» با صدای مرجان بود.
+این هنرمند متولد یزد از سال ۱۳۷۴ در کرج زندگی می‌کرد و برادر عاطفه رضوی، بازیگر و چهره‌پرداز، است.
+@VahidHeadline
+
+📡 @VahidOnline
+</div>
+
+## Shin_Persian — post 7102
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_7102_1781535838.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+UKMTO Operations Centre @UK_MTO
+Mon, 15 Jun 2026 14:56:35 UTC
+
+UKMTO WARNING 070-26 - ATTACK
+
+Click here to view the full warning.⤵️
+https://www.ukmto.org/-/media/ukmto/products/20260615-ukmto_warning_attack-070-26.pdf?rev=8e912089f0af45e5a6300517e92beee9
+
+#MaritimeSecurity #MarSec
+
+ترجمه خودکار فارسی
+
+هشدار یو‌کی‌ام‌تی‌او (UKMTO - عملیات‌های تجاری دریانوردی بریتانیا) ۰۷۰-۲۶ - حمله
+
+برای مشاهده متن کامل هشدار اینجا کلیک کنید.⤵️
+https://www.ukmto.org/-/media/ukmto/products/20260615-ukmto_warning_attack-070-26.pdf?rev=8e912089f0af45e5a6300517e92beee9
+
+#MaritimeSecurity #MarSec
+
+𝕏 · @shin_persian
+</div>
+
+## Iliaen — post 4490
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک تجربه‌ی مشترک در میان دریانوردان وجود دارد که اگر در مسیر به طوفان برخورد کردید، باید تا پایان طوفان از یکدیگر محافظت کنید زیرا طوفان از کنترل شما خارج است.
+
+گاهی شرایط سیاسی برای مدت کوتاهی از کنترل ما خارج می‌شود، در این زمان نباید بگوییم چرا طوفان شد یا مثلاً از طوفان نمی‌شود عبور کرد، بلکه می‌بایست پشت یکدیگر باشیم تا در زمان مناسب، کنترل را دوباره به دست بگیریم.
+
+امروز، ما دلگرمی و امید زندانیان سیاسی هستیم، کسانی که وقتی برای آینده‌ای بهتر از تمام جان خود مایه گذاشتند، ایمان داشتند که یک ایران پشت آنان است.
+
+چطور می‌شود هنگامی که دیگران اینطور به ما ایمان دارند و به امید ما شب را به صبح می‌رسانند، حرف از ناامیدی بزنیم؟
+
+مگر امید چیست؟ آیا نمی‌بینید که ما زنده ماندیم که شاهد روزهایی باشیم که قول آن را به یکدیگر داده بودیم؟ به تیترها اهمیت ندهید، به تحلیل زرد و صحبت نابلدانِ هیجان زده هم اعتماد نکنید، این کشتی، به ساحل امن خواهد رسید.
+
+@iliaen
+</div>
+
+## FarsiVOA — post 220822
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220822_1781535839.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آلن اکباتانی، تحلیلگر سیاسی در میدان: شورش گرسنگان نه به آزادی می‌رسد و نه به رفاه اقتصادی اما با تفاهم، اگر مفت‌خورها بگذارند جامعه به سوی رفاه نسبی می‌رود.
+</div>
+
+## FarsiVOA — post 220821
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220821_1781535840.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📸اینستاگرام صدای آمریکا را هم اکنون فالو کنید تا از آخرین خبرها مطلع بمانید:
+https://www.instagram.com/voafarsi/
+
+📡همچنین جهت اطلاع از بروزترین فرکانسهای ماهواره‌ای صدای آمریکا به لینک زیر مراجعت فرمایید:
+https://ir.voanews.com/satellite
+
+این پست را با دوستانتان به اشتراک بگذارید
+@FarsiVOA
+</div>
+
+## DW_Farsi — post 126013
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎥 چگونه یک شهر مشکل خرس‌های مهاجم را حل کرد؟
+
+سال‌ها خرس‌های قهوه‌ای خیابان‌های یک شهر کوچک در رومانی را به تسخیر خود درآورده بودند؛ آن‌قدر که گردشگران دیگر به شهر نمی‌آمدند اما برخلاف انتظار، راه‌حل این بحران، نه شکار بود و نه کشتار.
+@dw_farsi
+</div>
+
+## alonews — post 128249
+
+<div align="center">
+  <a href="telegram/content/alonews_128249_1781535840.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نیویورک‌پست: جمهوری اسلامی باید قدم‌های عملی و مشخصی برای کنار گذاشتن برنامه هسته‌ایش برداره؛ در عوض، آمریکا هم به‌صورت مرحله‌ای تحریم‌ها رو کاهش می‌ده.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128248
+
+<div align="center">
+  <a href="telegram/content/alonews_128248_1781535840.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کمیسیون اروپا: توافق تفاهم نشان می‌دهد دیپلماسی نتیجه می‌دهد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128247
+
+<div align="center">
+  <a href="telegram/content/alonews_128247_1781535840.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈بحرین از یادداشت تفاهم میان واشنگتن و تهران استقبال کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/25 18:23
 ---
 

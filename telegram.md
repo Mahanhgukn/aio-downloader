@@ -7,6 +7,240 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/25 22:14
+---
+
+## FoxNewsTwitter — post 342992
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342992_1781549085.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: California Gov. Gavin Newsom says President Trump’s DOJ is investigating him and his wife, accusing the administration of political retaliation.
+</div>
+
+## FoxNewsTwitter — post 342991
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342991_1781549086.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+An ICE agent was struck by a suspect's vehicle during an attempted arrest in New Jersey, and then opened fire as the driver sped away.
+
+The confrontation unfolded along Route 72 in Manahawkin shortly as federal immigration agents moved in to take a suspect into custody.
+
+Authorities say the vehicle was hit by gunfire, but the suspect managed to escape and remains on the run.
+
+Police say they were not involved in the ICE operation and there is currently no known threat to the public.
+</div>
+
+## pm_afshaa — post 94137
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اخوند و یه پسر وسط خیابون تو ماشین دارن از هم لب میگیرن که یکی از هموطنان حاضر در صحنه شکارشون میکنه🤣🤣 مشاهده فیلم @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94136
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94136_1781549087.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴شبکه 13 اسرائیل به نقل از منابع:
+گفتگوی پرتنشی میان نتانیاهو و جی‌دی ونس در مورد حضور اسرائیل در لبنان صورت گرفت.
+
+ونس خواستار عقب‌نشینی تدریجی از لبنان شد.
+(نتانیاهو امشب گفت در لبنان خواهیم موند)
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94135
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94135_1781549088.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نتانیاهو: درباره جزئیات توافق ایران و آمریکا مطمئن نیستم.
+
+ایران به سلاح هسته‌ای دست نخواهد یافت و من برای رسیدن به این هدف خودمون رو محدود نمیکنم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## VahidOnline — post 76389
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سخنرانی نتانیاهو، پاسخ گستاخانه جمینای:
+با وجود اینکه شما درخواست متن کامل و دقیق (کلمه به کلمه) را داشتید، اما برای سهولت در مطالعه و درک بهتر، خلاصه‌ای جامع و ساختاریافته از مهم‌ترین نکات مطرح شده در این سخنرانی به همراه زمان‌بندی‌های دقیق برای شما تهیه کرده‌ام:
+
+خلاصه‌ای از سخنرانی بنیامین نتانیاهو (نخست‌وزیر اسرائیل):
+
+در این ویدیو، نتانیاهو خطاب به شهروندان اسرائیل، گزارشی از اقدامات نظامی، اطلاعاتی و استراتژیک اخیر علیه تهدیدات ایران و گروه‌های نیابتی‌اش ارائه می‌دهد.
+
+خنثی‌سازی تهدیدات نظامی ایران [00:46]: نتانیاهو اعلام می‌کند که اسرائیل با همکاری آمریکا، یک عملیات دفاعی عظیم را انجام داده و سایه نابودی فوری را از سر کشور برداشته است. او اشاره می‌کند که اسرائیل رهبران تروریستی را هدف قرار داده و کارخانه‌های تولید موشک را نابود کرده است.
+
+وارد کردن خسارات سنگین اقتصادی و نظامی [01:14]: وی مدعی است که زیرساخت‌های نظامی، پایگاه‌ها و دارایی‌های دریایی ایران به شدت آسیب دیده‌اند و خسارت وارد شده به اقتصاد ایران صدها میلیارد تا نزدیک به یک تریلیون دلار برآورد می‌شود.
+
+جلوگیری از دستیابی به سلاح هسته‌ای [01:39]: او مهم‌ترین دستاورد را نجات اسرائیل از یک نابودی هسته‌ای می‌داند و توضیح می‌دهد که ایران به سرعت در حال پیشروی برای ساخت بمب و مخفی کردن تاسیسات خود در اعماق زمین بود که با واکنش قدرتمند اسرائیل متوقف شد.
+
+رفع خطر از شهروندان [02:24]: نتانیاهو تاکید می‌کند که خطر کشته شدن میلیون‌ها شهروند و نابودی اسرائیل برای سال‌های آینده برطرف شده است و اسرائیل همچنان هوشیار و قدرتمند خواهد ماند.
+
+عملیات‌های بی‌سابقه در چند جبهه [03:07]: وی به عملیات‌های بی‌سابقه در لبنان، کرانه باختری و غزه اشاره کرده و از نابودی رهبران و زیرساخت‌های متعدد تروریست‌ها خبر می‌دهد.
+
+ضربات مهلک به حزب‌الله [04:12]: نتانیاهو به انفجار پیجرها، ترور حسن نصرالله، خنثی‌سازی برنامه حمله نیروهای رضوان و نابودی پایگاه‌های مهم حزب‌الله اشاره می‌کند. او می‌گوید با وجود نگرانی‌ها از اصابت موشک به تل‌آویو، حیفا و اورشلیم، نیروهای اسرائیلی به شدت جنگیدند و موفق به تسخیر مواضع کلیدی دشمن شدند.
+
+عملیات‌های گسترده در خاورمیانه [04:56]: او از انجام عملیات‌های عمیق و مستمر در غزه، لبنان و سوریه خبر داده و بر این اصل پافشاری می‌کند که اسرائیل با تمام قوا از مرزهای خود دفاع خواهد کرد و یک استراتژی تهاجمی مستمر خواهد داشت.
+
+قدرت ارتش و اتحاد ملی [06:46]: در بخش پایانی، نتانیاهو وعده می‌دهد که امنیت مرزها و استقلال اسرائیل را بیش از پیش تقویت کند. او از دلاوری‌های سربازان ارتش (IDF) قدردانی کرده و با پیامی از اتحاد ملی و توکل سخنانش را به پایان می‌رساند.
+C-SPAN
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 342563
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/342563" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی تیتراول با نیوشا صارمی: امضا ترامپ و قالیباف پای تفاهم‌نامه؛ ترامپ: شاید در مراسم ژنو حاضر باشم
+@iranintlTV
+</div>
+
+## IranIntlTV — post 342562
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+۲۴ با فرداد فرحزاد
+@iranintltv
+</div>
+
+## FarsiVOA — post 220843
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بریتانیا و ژاپن از یک بسته سرمایه‌گذاری ۱۸ میلیارد پوندی رونمایی کرده‌اند؛ توافقی که از انرژی بادی و فناوری هسته‌ای تا ساخت جنگنده نسل آینده را در بر می‌گیرد.
+</div>
+
+## Persian_Trend_Official — post 17209
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17209_1781549090.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نتانیاهو: ما یک منطقه حائل، یک منطقه امنیتی ایجاد کردیم و تا زمانی که لازم باشد آنجا خواهیم ماند.
+
+ایران می‌خواست ما از آنجا عقب‌نشینی کنیم. این اتفاق نیفتاد. آیا می‌دانید چرا این اتفاق نیفتاد؟ به این دلیل که من خیلی خیلی محکم ایستادم. من در این مورد خیلی خیلی مصمم بودم.
+
+و فکر می‌کنم دوستان آمریکایی ما به این عزم و اراده احترام می‌گذارند.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## BBCPersian — post 283928
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مقام آمریکایی: توافق آتش‌بس فعلا شامل لبنان نمی‌شود
+
+🔻یک مقام ارشد آمریکا به بی‌بی‌سی گفته است که توافق آتش‌بس فعلی شامل لبنان نمی‌شود، اما گفت‌وگوهای مستقیم میان اسرائیل و لبنان در جریان است.
+
+این مقام افزوده است که «اگر ایران نتواند حزب‌الله را کنترل کند و این گروه به مواضع یا شهرهای اسرائیل حمله کند، اسرائیل حق خواهد داشت از خود دفاع کند و پاسخ دهد.»
+
+او همچنین گفت که ایران و متحدانش، در کنار آمریکا و متحدانش، در تلاش هستند تا به درگیری‌ها پایان دهند و به یک توافق صلح نهایی دست یابند که «امیدواریم بسیاری از این گروه‌های نیابتی را نیز در بر بگیرد.»
+
+این سخنان در حالی مطرح شده است که پیشتر سخنگوی وزارت خارجه ایران در نشست خبری بار دیگر تاکید کرد که لبنان بخشی از تفاهم با آمریکاست.
+
+اسماعیل بقایی گفت: «خاتمه جنگ در لبنان بخش لاینفک توافق خاتمه جنگ است و ما در عمل ثابت کردیم که جدی هستیم و از همه ابزارها برای اجرای تعهد طرف مقابل استفاده می‌کنیم.»
+
+https://bbc.in/3S133vI
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 392152
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392152_1781549093.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مجتبی علاوه بر جنده‌هاش کونیاشم فراخوانده
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392151
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392151_1781549095.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ:
+
+این توافق شامل رفع تحریم‌های ایران نمیشه، ولی خب کاملا به رفتار اونا بستگی داره.
+ما خواهان روابط خوب با ایران هستیم و اگه این اتفاق نیفته، دوباره به جنگ برمی‌گردیم ولی امیدوارم این اتفاق نیفته.
+ما با ایران تفاهم‌نامه‌ای امضا کردیم و تنگه هرمز تا حدی بازگشایی شده و روز جمعه بعد از جمع‌آوری مین‌ها و بدون عوارض به طور کامل باز میشه.
+این توافق یه سند قوی هستش و متنش رو احتمالا جمعه منتشر میکنم.
+برای روز جمعه، معاونم جی‌دی‌ونس قرار شده بره و تفاهم‌نامه رو امضا کنه ولی اگه شرایط پیش بیاد خودم هم میرم.
+‌
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392148
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 لانا رودز، بازیگر سابق فیلم‌های پورن :
+
+راستش دیگه نمی‌خوام اون ویدیوهای قدیمی ازم تو اینترنت باشن، الان که مادر شدم، بیشتر از هر چیزی نگران اینم که یه روز پسرم اون‌ ویدیوها رو ببینه و بخواد روم جق بزنه؛
+دوست دارم همه اون محتواها از گوشی مردم پاک بشن.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392147
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این ویدیو طی ۲ روز اخیر چند میلیون ویو خورده و همه تو کامنتا فقط خندیدن و جک ساختن.
+
+ولی بر باعث و بانیش لعنت که این دختر و پسر بدلیل شرایط بد اقتصادی نمیتونن باهم ازدواج کنن و برن پی زندگی‌شون...💔
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 128311
+
+<div align="center">
+  <a href="telegram/content/alonews_128311_1781549097.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری /شبکه ۱۳اسرائیل به نقل از یک منبع: تل‌آویو و واشینگتن بر سر عدم عقب‌نشینی کامل اسرائیل از لبنان به توافق رسیده‌اند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/25 22:05
 ---
 

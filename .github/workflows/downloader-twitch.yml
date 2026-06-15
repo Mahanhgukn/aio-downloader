@@ -55,7 +55,7 @@ jobs:
       contents: write
 
     steps:
-      # ── Checkout (needed for pushing to repo later) ──
+      # ── Checkout ──
       - uses: actions/checkout@v4
         with:
           persist-credentials: true
@@ -66,17 +66,28 @@ jobs:
           sudo apt-get update -qq
           sudo apt-get install -y -qq ffmpeg jq curl
 
-      # ── Download TwitchDownloader CLI ──
+      # ── Download TwitchDownloader CLI (authenticated) ──
       - name: Get TwitchDownloader CLI
+        env:
+          GH_TOKEN: ${{ secrets.GITHUB_TOKEN }}
         run: |
           echo "→ Fetching latest release info..."
-          RELEASE_JSON=$(curl -sS https://api.github.com/repos/lay295/TwitchDownloader/releases/latest)
-          # Find the asset name that matches Linux-x64.zip (framework‑dependent)
+          RELEASE_JSON=$(curl -sS -H "Authorization: Bearer $GH_TOKEN" \
+            https://api.github.com/repos/lay295/TwitchDownloader/releases/latest)
+
+          # Check that the response is valid JSON
+          if ! echo "$RELEASE_JSON" | jq -e '.assets' > /dev/null 2>&1; then
+            echo "❌ Failed to fetch release info (rate limited or API error)"
+            exit 1
+          fi
+
+          # Find the asset name that matches Linux-x64.zip
           ASSET_NAME=$(echo "$RELEASE_JSON" | jq -r '.assets[].name' | grep -E '^TwitchDownloaderCLI-[0-9.]+-Linux-x64\.zip$' | head -1)
           if [ -z "$ASSET_NAME" ]; then
             echo "❌ Could not find Linux-x64 asset"
             exit 1
           fi
+
           DOWNLOAD_URL=$(echo "$RELEASE_JSON" | jq -r --arg name "$ASSET_NAME" '.assets[] | select(.name==$name) | .browser_download_url')
           echo "→ Downloading $ASSET_NAME ..."
           curl -sSL -o twitchdownloader.zip "$DOWNLOAD_URL"
@@ -86,7 +97,7 @@ jobs:
           rm -rf twitch_cli twitchdownloader.zip
           echo "✅ TwitchDownloaderCLI ready"
 
-      # ── Parse URLs (identical logic) ──
+      # ── Parse URLs ──
       - name: Parse URLs
         id: parse
         run: |
@@ -102,7 +113,7 @@ jobs:
           NUM=$(wc -l < urls.txt)
           echo "NUM_URLS=$NUM" >> $GITHUB_OUTPUT
 
-      # ── VPN SETUP (unchanged) ──
+      # ── VPN SETUP ──
       - name: 'Set up WireGuard VPN (if enabled)'
         id: vpn
         shell: bash
@@ -153,19 +164,18 @@ jobs:
           mkdir -p "$OUTPUT_DIR"
           > "$FAILED_FILE"
 
-          # Helper: download ONE Twitch URL
           download_one() {
             local url="$1"
-            local sanitized=$(echo "$url" | md5sum | cut -c1-12)   # short unique ID
+            local sanitized=$(echo "$url" | md5sum | cut -c1-12)
             local outfile="${OUTPUT_DIR}/twitch_${sanitized}.mp4"
 
             echo "→ Downloading: $url"
             QUALITY_ARG=""
-          if [ -n "${{ inputs.quality }}" ]; then
-            QUALITY_ARG="-q ${{ inputs.quality }}"
-          fi
-          
-          if TwitchDownloaderCLI -m VideoDownload -u "$url" -o "$outfile" --ffmpeg-path /usr/bin/ffmpeg $QUALITY_ARG; then
+            if [ -n "${{ inputs.quality }}" ]; then
+              QUALITY_ARG="-q ${{ inputs.quality }}"
+            fi
+
+            if TwitchDownloaderCLI -m VideoDownload -u "$url" -o "$outfile" --ffmpeg-path /usr/bin/ffmpeg $QUALITY_ARG; then
               echo "✅ Success: $url -> $outfile"
             else
               echo "❌ Download failed: $url"
@@ -181,20 +191,25 @@ jobs:
           cat urls.txt | xargs -P "$CONCURRENT" -I '{}' bash -c 'download_one "{}"'
 
           echo "📊 Downloads finished."
-          echo "Files downloaded:"
           ls -la "$OUTPUT_DIR/"
         shell: bash
 
-      # ── Zip and bundle files (FIXED – no premature deletion) ──
+      # ── Zip and bundle files (no splitting for Google Drive) ──
       - name: Zip and bundle files
         run: |
           BUNDLE_ALL="${{ github.event.inputs.bundle_all }}"
           UPLOAD_METHOD_INPUT="${{ inputs.upload_method }}"
 
+          # Determine how to handle splitting:
+          # - repo: split into 99 MiB chunks (GitHub push limit)
+          # - release: split into 1950 MiB chunks (GitHub release limit)
+          # - drive: no splitting (Google Drive handles large files)
           if [ "$UPLOAD_METHOD_INPUT" = "repo" ]; then
-            UPLOAD_METHOD="split_push"
+            SPLIT_SIZE="99m"
+          elif [ "$UPLOAD_METHOD_INPUT" = "release" ]; then
+            SPLIT_SIZE="1950m"
           else
-            UPLOAD_METHOD="release"
+            SPLIT_SIZE="none"   # drive – no splitting
           fi
 
           OUTPUT_DIR="twitch"
@@ -217,19 +232,21 @@ jobs:
             cp "$OUTPUT_DIR"/* "$BUNDLE_DIR/" 2>/dev/null || true
             if [ -n "$(ls -A "$BUNDLE_DIR" 2>/dev/null)" ]; then
               RAND_BUNDLE=$(mktemp -u XXXXX)
-              BUNDLE_ZIP="twitch_${RAND_BUNDLE}.zip"   # ← changed prefix to twitch_
+              BUNDLE_ZIP="twitch_${RAND_BUNDLE}.zip"
               echo "Creating bundle: $BUNDLE_ZIP"
-              if [ "$UPLOAD_METHOD" = "release" ]; then
+              if [ "$SPLIT_SIZE" = "none" ]; then
+                # No splitting – create a single ZIP
+                (cd "$BUNDLE_DIR" && zip -0 "../${OUTPUT_DIR}/${BUNDLE_ZIP}" *)
+              else
+                # With splitting
                 (cd "$BUNDLE_DIR" && zip -0 "../${OUTPUT_DIR}/${BUNDLE_ZIP}" *)
                 FULLBUNDLE="${OUTPUT_DIR}/${BUNDLE_ZIP}"
                 SIZE=$(stat -c%s "$FULLBUNDLE" 2>/dev/null || echo 0)
-                if [ "$SIZE" -gt 2044723200 ]; then
-                  echo "Bundle ZIP larger than 1950 MiB, splitting"
+                if [ "$SIZE" -gt $(( $(echo "$SPLIT_SIZE" | sed 's/m//') * 1048576 )) ]; then
+                  echo "Bundle ZIP larger than limit, splitting"
                   rm "$FULLBUNDLE"
-                  (cd "$BUNDLE_DIR" && zip -0 -s 1950m "../${OUTPUT_DIR}/${BUNDLE_ZIP}" *)
+                  (cd "$BUNDLE_DIR" && zip -0 -s "$SPLIT_SIZE" "../${OUTPUT_DIR}/${BUNDLE_ZIP}" *)
                 fi
-              else
-                (cd "$BUNDLE_DIR" && zip -0 -s 99m "../${OUTPUT_DIR}/${BUNDLE_ZIP}" *)
               fi
               rm -rf "$BUNDLE_DIR"
             else
@@ -250,23 +267,22 @@ jobs:
               mkdir -p "$TMPZIP"
               cp "$f" "$TMPZIP/"
 
-              if [ "$UPLOAD_METHOD" = "release" ]; then
+              if [ "$SPLIT_SIZE" = "none" ]; then
+                (cd "$TMPZIP" && zip -0 "../${OUTPUT_DIR}/${ZIP_NAME}" "$fname")
+              else
                 (cd "$TMPZIP" && zip -0 "../${OUTPUT_DIR}/${ZIP_NAME}" "$fname")
                 FULLZIP="${OUTPUT_DIR}/${ZIP_NAME}"
                 SIZE=$(stat -c%s "$FULLZIP" 2>/dev/null || echo 0)
-                if [ "$SIZE" -gt 2044723200 ]; then
-                  echo "ZIP larger than 1950 MiB, splitting"
+                if [ "$SIZE" -gt $(( $(echo "$SPLIT_SIZE" | sed 's/m//') * 1048576 )) ]; then
+                  echo "ZIP larger than limit, splitting"
                   rm "$FULLZIP"
-                  (cd "$TMPZIP" && zip -0 -s 1950m "../${OUTPUT_DIR}/${ZIP_NAME}" "$fname")
+                  (cd "$TMPZIP" && zip -0 -s "$SPLIT_SIZE" "../${OUTPUT_DIR}/${ZIP_NAME}" "$fname")
                 fi
-              else
-                (cd "$TMPZIP" && zip -0 -s 99m "../${OUTPUT_DIR}/${ZIP_NAME}" "$fname")
               fi
               rm -rf "$TMPZIP"
             done
           fi
 
-          # DO NOT delete OUTPUT_DIR here – we need it for the next steps
           ls -1 "$OUTPUT_DIR" > "${OUTPUT_DIR}_assets.txt"
           echo "Assets to upload:"
           cat "${OUTPUT_DIR}_assets.txt"
@@ -337,11 +353,12 @@ jobs:
               continue
             fi
 
-            HTTP_CODE=$(curl -s -o /dev/null -w "%{http_code}" -X PUT \
+            # Use --upload-file to stream the file (no memory load)
+            HTTP_CODE=$(curl -s -o /dev/null -w "%{http_code}" \
               -H "Authorization: Bearer $ACCESS_TOKEN" \
               -H "Content-Length: $size" \
               -H "Content-Range: bytes 0-$((size-1))/$size" \
-              --data-binary "@$file" \
+              --upload-file "$file" \
               "$SESSION_URI")
             if [ "$HTTP_CODE" -eq 200 ] || [ "$HTTP_CODE" -eq 201 ]; then
               echo "✅ Uploaded $fname"
@@ -414,7 +431,7 @@ jobs:
             --notes "Automated release from Twitch Downloader workflow." \
             --target "${{ github.ref_name }}"
 
-      # ── Cleanup (runs always, after every upload) ──
+      # ── Cleanup ──
       - name: Cleanup
         if: always()
         run: |

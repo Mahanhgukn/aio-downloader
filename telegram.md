@@ -7,6 +7,91 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/26 02:14
+---
+
+## VahidOOnLine — post 245785
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️جورجیا ملونی، نخست‌وزیر ایتالیا، روز دوشنبه برای شرکت در نشست سران گروه ۷ وارد فرودگاه ژنو در سوئیس شد. تصاویر منتشر شده نشان می‌دهند که ملونی در این سفر، دختر ۹ ساله‌اش، جینورا را نیز به همراه دارد و هر دو پس از خروج از هواپیما مورد استقبال میزبان قرار گرفتند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245784
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245784_1781563471.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جی‌دی ونس به سی‌ان‌ان گفت یادداشت تفاهم آمریکا با جمهوری اسلامی «سندی بسیار کلی» و حدود یک‌ونیم صفحه است. او گفت جزییات توافق در جریان مذاکرات بیشتر مشخص خواهد شد.
+ونس گفت: «این یادداشت تفاهم حدود یک صفحه و نیم است، بنابراین سندی بسیار کلی محسوب می‌شود. شماری از مسائل را باید در مرحله مذاکرات فنی مشخص کنیم.»
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342999
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342999_1781563472.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+FOX NEWS REPORT: President Trump arrives in France for the annual G7 Summit after announcing a breakthrough peace agreement to end the war with Iran and reopen the Strait of Hormuz, FOX News' @BillMelugin_ reports.
+</div>
+
+## IranIntlTV — post 342594
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342594_1781563475.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جی‌دی ونس به سی‌ان‌ان گفت یادداشت تفاهم آمریکا با جمهوری اسلامی «سندی بسیار کلی» و حدود یک‌ونیم صفحه است. او گفت جزییات توافق در جریان مذاکرات بیشتر مشخص خواهد شد.
+ونس گفت: «این یادداشت تفاهم حدود یک صفحه و نیم است، بنابراین سندی بسیار کلی محسوب می‌شود. شماری از مسائل را باید در مرحله مذاکرات فنی مشخص کنیم.»
+
+https://iranintl.com/202606157946
+</div>
+
+## FarsiVOA — post 220857
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️داوود میمندی کارشناس ورزشی از استاندارد دوگانه کادر تیم ملی ایران می‌گوید
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220856
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺گزارش‌ها از شنیده شدن صدای ۳ انفجار در محدوده تنگه هرمز
+
+▪️خبرگزاری‌های حکومتی در ایران از شنیده‌شدن صدای انفجار در حوالی تنگه هرمز خبر داده‌اند.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/reports-three-explosions-strait-hormuz-qeshm/8161157.html
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 17221
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17221_1781563476.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبتون بخیر 🌃
+Su-37 Terminator
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+---
 📅 بروزرسانی: 1405/03/26 02:04
 ---
 

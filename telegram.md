@@ -7,6 +7,267 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/25 22:05
+---
+
+## VahidOOnLine — post 245754
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245754_1781548542.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️یک روز پس از اعلام توافق میان واشینگتن و تهران از سوی دونالد ترامپ، بنیامین نتانیاهو، نخست‌وزیر اسرائیل، روز دوشنبه ۲۵ خردادماه در یک کنفرانس خبری در اورشلیم گفت اسرائیل اجازه نخواهد داد جمهوری اسلامی به سلاح هسته‌ای دست یابد و این هدف چه با توافق و چه بدون توافق دنبال خواهد شد.
+
+نتانیاهو در حالی که به توافق در حال شکل‌گیری میان ایالات متحده و جمهوری اسلامی اشاره می‌کرد، گفت اسرائیل همچنان خود را متعهد به جلوگیری از هسته‌ای شدن ایران می‌داند و در این زمینه از موضع خود عقب‌نشینی نخواهد کرد.
+
+نخست‌وزیر اسرائیل همچنین از عملیات نظامی کشورش علیه جمهوری اسلامی دفاع کرد و مدعی شد این حملات برنامه هسته‌ای ایران را برای سال‌ها به عقب رانده است.
+
+او در ادامه تاکید کرد اسرائیل تا هر زمان که لازم باشد حضور و مناطق امنیتی خود را در غزه، لبنان و سوریه حفظ خواهد کرد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 15000
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نتانیاهو: تا خلع سلاح حزب‌الله، اسرائیل از منطقه امنیتی جنوب لبنان خارج نخواهد شد.
+
+همون کاری با غزه کردیم، با جنوب لبنان هم خواهیم کرد؛ همونطور که غزه دیگر تهدید جدی‌ای برای اسرائیل نیست، حزب‌الله هم در آینده نخواهد بود.
+@withyashar
+</div>
+
+## WithYashar — post 14999
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نتانیاهو: توافق با ایران توسط ترامپ منعقد شد، این تصمیم اوست و ما منافع خود را داریم‌‌
+
+ترامپ رئیس‌جمهور آمریکاست و من نخست‌وزیر اسرائیل؛ من از منافع کشور خودم دفاع می‌کنم.
+@withyashar
+</div>
+
+## WithYashar — post 14998
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نتانیاهو: من نگفتم هدف ما سرنگونی رژیم ایرانه، گفتم میخواهیم به مردم ایران برای انجام این کار کمک کنیم
+@withyashar
+یاشار : توجه کن این جمله بار حقوقی داره با این حال بنیامین نتانیاهو بارها این حرف رو زده
+</div>
+
+## FoxNewsTwitter — post 342990
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342990_1781548543.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+A UK student's reaction is going viral after Prime Minister Keir Starmer said Britain will ban children younger than 16 from using social media.
+
+During a BBC interview, the student revealed her screen time was nine hours over the weekend. When asked how she'd fill all that extra time without social media, she didn't hesitate: "Stare at a wall."
+
+The deadpan response is quickly becoming one of the most shared reactions to the UK's sweeping new restrictions on children's social media use.
+</div>
+
+## pm_afshaa — post 94134
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94134_1781548545.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴بنیامین نتانیاهو:
+من نگفتم هدف ما سرنگونی رژیم ایرانه، گفتم میخوایم به مردم ایران برای انجام این کار کمک کنیم؛ شاید در آینده این اتفاق رخ بده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94133
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94133_1781548546.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نتانیاهو: میخوام در انتخابات پاییز امسال شرکت کنم و دوباره نخست وزیر بشم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94132
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94132_1781548547.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نتانیاهو: تا خلع سلاح حزب‌الله، اسرائیل از منطقه امنیتی جنوب لبنان خارج نخواهد شد. وضعیت ما امروز بسیار بهتر از هفتم اکتبر است و ما محور ترور رو در هم شکستیم. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 342561
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342561_1781548548.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مهدی مهدوی‌آزاد در برنامه «چشم‌انداز» گفت: «در اسرائیل در واکنش به این تفاهم‌نامه غوغایی برپاست و منتقدان می‌گویند این توافق اهداف جنگ را به شکست کشانده و حکومت ایران را در موضع قوی‌تری قرار داده است.»
+
+او افزود: «اما روایت دیگر این است که جمهوری اسلامی پس از دو جنگ، نابودی زیرساخت‌های نظامی و کشته شدن علی خامنه‌ای و بسیاری از فرماندهان سپاه، به توافقی رسیده که می‌توانست پیش از جنگ نیز به آن دست یابد.»
+@iranintltv
+</div>
+
+## DW_Farsi — post 126020
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 ترامپ: ممکن است خودم به مراسم امضای تفاهم‌نامه با ایران بروم
+ 
+دونالد ترامپ، رئیس‌جمهوری آمریکا، گفت معاونش، جی‌دی ونس، برای امضای تفاهم‌نامه با ایران به ژنو خواهد رفت و افزود ممکن است خودش تا آن زمان آنجا نباشد، هرچند احتمال حضورش را نیز کاملاً رد نکرد.
+ 
+او گفت متن تفاهم‌نامه میان ایالات متحده و ایران به‌صورت عمومی منتشر خواهد شد و این کار احتمالا پس از مراسم رسمی امضا در روز جمعه انجام می‌شود. او در دیدار دوجانبه با امانوئل ماکرون، رئیس‌جمهوری فرانسه، گفت می‌خواهد این متن منتشر شود، چون به گفته او "یک سند بسیار مهم و قدرتمند" است.
+ 
+ترامپ در پاسخ به این پرسش که چه زمانی متن توافق منتشر خواهد شد، گفت "خیلی زود" و افزود احتمالاً مدتی پس از روز جمعه این کار انجام می‌شود.
+ 
+او بار دیگر تأکید کرد که این تفاهم‌نامه یک سند مهم و قدرتمند است و به همین دلیل می‌خواهد در اختیار عموم قرار گیرد.
+ 
+بر اساس این گزارش، مراسم رسمی امضای تفاهم قرار است روز جمعه در شهر ژنو سوئیس برگزار شود. با این حال، ترامپ گفت هنوز قطعی نیست که خودش در این مراسم حضور پیدا کند.
+ 
+ترامپ همچنین در پاسخ به سوالی درباره این‌که آیا توافق شامل هرگونه رفع زودهنگام تحریم‌ها برای ایران می‌شود یا نه، گفت چنین چیزی در کار نیست.
+ 
+او افزود این تفاهم‌نامه در اصل "یک مسئله رفتاری" است و هم‌زمان هشدار داد که هنوز این احتمال وجود دارد که دوباره جنگ از سر گرفته شود، هرچند ابراز امیدواری کرد که چنین اتفاقی رخ ندهد.
+ 
+به گفته رئیس جمهور آمریکا، "تنگه هرمز در حال حاضر تا حدی باز است... تا جمعه، پس از پاکسازی مین‌ها کاملاً باز خواهد شد". او تأکید کرد که این بازگشایی بدون اخذ هرگونه عوارض از سوی ایران خواهد بود.
+ 
+ترامپ همچنین از کاهش شدید قیمت نفت بعد از حصول توافق میان آمریکاو ایران سخن گفت و افزود که "بازار سهام مثل موشک در حال صعود است".
+ 
+ترامپ با بیان این که "می‌خواهیم ببینیم چگونه می‌توانیم درگیری در لبنان را حل کنیم" گفت که "باید با اسرائیل در این مورد صحبت کنیم".
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 17208
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نتانیاهو: در ایالات متحده، می‌گویند که رئیس جمهور ترامپ هر کاری را که من می‌خواهم انجام می‌دهد، و در اسرائیل، برعکس می‌گویند که من هر کاری را که او بخواهد انجام می‌دهم. بنابراین این درست نیست.
+
+این رابطه‌ای بین شرکایی است که مدت‌هاست یکدیگر را می‌شناسند. بسیاری از اوقات ما موافقیم؛ گاهی اوقات نیز مخالفیم. این اتفاق در بهترین خانواده‌ها می‌افتد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17207
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نتانیاهو: ما هنوز نمی‌دانیم توافق چه خواهد بود؟ یا اصلا توافق نهایی خواهد بود.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17205
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17205_1781548551.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نتانیاهو: من نگفتم که یکی از اهداف این عملیات، سرنگونی رژیم ایران است بلکه گفتم ما در این امر به مردم ایران کمک می‌کنیم.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 22669
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 نتانیاهو درباره ایران: من نگفتم که یکی از اهداف عملیات، سرنگونی رژیم ایران بوده. @IranianMinds
+</div>
+
+## IranianMinds — post 22668
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 نتانیاهو برای استقلال نظامی ارتش اسرائیل بودجه دیوانه کننده ۱۲۱ میلیارد دلاری اختصاص داد!
+
+۱۵ برابر بیشتر از رژیم جمهوری اسلامی
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22667
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 نتانياهو: همانکاری با غزه کردیم با جنوب لبنان نیز خواهیم کرد،همانطور که غزه دیگر تهدید جدی‌ای برای اسرائیل نیست حزب‌الله نیز در آینده نخواهد بود
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22666
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22666_1781548554.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 نتانیاهو درباره ایران:
+
+من نگفتم که یکی از اهداف عملیات، سرنگونی رژیم ایران بوده.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 283927
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283927_1781548557.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻‌دونالد ترامپ در آغاز گفتگوهای دوجانبه‌اش با امانوئل مکرون،‌ رئیس‌جمهور فرانسه، پیش از نشست سران گروه هفت در فرانسه به خبرنگاران گفت که تنگه هرمز از روز جمعه «کاملا باز» خواهد شد.
+
+رئیس جمهور آمریکا گفت که تنگه هرمز اکنون تا حدی باز شده و افزود که عملیاتی برای اطمینان از پاکسازی کامل مین‌های دریایی در جریان است.
+
+آقای ترامپ از توافق انجام شده با جمهوری اسلامی ایران تمجید کرد و بار دیگر گفت: «مهم‌ترین مسئله این است که ایران به سلاح هسته‌ای دست نخواهد یافت.»
+
+او بار دیگر از تغییرات در حکومت ایران حرف زد و گفت: «گروه اول رهبران رفتند، گروه دوم هم رفتند و ما گروه سوم را بسیار هوشمند یافتیم و ... در نهایت به یک توافق رسیدیم.» آقای ترامپ مشخص نکرد که منظورش از این رهبران چه کسانی بودند.
+
+رئیس جمهور آمریکا در پایان گفت:‌ «فکر می‌کنم اکنون اتفاقات بسیار خوبی در خاورمیانه رخ خواهد داد.»
+
+او همچنین به خبرنگاران گفت که جی‌دی ونس، معاون رئیس‌جمهور آمریکا، روز جمعه در مراسم امضای این توافق حضور خواهد داشت اما محل برگزاری این جلسه را مشخص نکرد.
+
+📸Isabel Infantes-Pool/Getty Images
+https://bbc.in/4gmLYWY
+@BBCPersian
+</div>
+
+## alonews — post 128310
+
+<div align="center">
+  <a href="telegram/content/alonews_128310_1781548558.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نتانیاهو: توافق با ایران توسط ترامپ انجام شد، این تصمیم او بود و ما منافع خودمان را داریم.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/25 21:54
 ---
 

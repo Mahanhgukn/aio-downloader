@@ -7,6 +7,192 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/25 20:44
+---
+
+## VahidOOnLine — post 245739
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245739_1781543643.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک مقام ارشد آمریکایی به العربیه گفت جی‌دی ونس رهبری مذاکرات فنی با جمهوری اسلامی را بر عهده خواهد داشت و طی ۳۰ روز آینده مسیر تحولات در قبال ایران روشن‌تر خواهد شد.
+
+او افزود: «سازوکاری در اختیار داریم که اطمینان می‌دهد ایران به سلاح هسته‌ای دست نخواهد یافت و تهران اکنون آماده ارائه امتیازهایی بی‌سابقه است.»
+
+این مقام ارشد آمریکایی اضافه کرد محاصره، ایران را به گفت‌وگو وادار کرده و تردد در تنگه هرمز طی دو هفته آینده افزایش خواهد یافت.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342985
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Meta President Dina Powell McCormick announcing that every blind veteran in America can be eligible to receive a free pair of Meta AI glasses, calling the effort a way to help veterans “regain their independence.”
+
+Joining Army veteran Don Overton, who lost his eyesight after serving in Desert Storm, McCormick highlights Overton's role in shaping the technology. Overton spent more than a year working with Meta’s design team to make the glasses more useful for blind veterans.
++
+The program aims to give those who sacrificed for the country more freedom, confidence, and independence in everyday life. | @foxandfriends
+</div>
+
+## VahidOnline — post 76385
+
+<div align="center">
+  <a href="telegram/content/VahidOnline_76385_1781543644.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی دریافتی از #آتش‌سوزی چیزی به اسم "موکب"
+
+منابع حکومتی به نقل از سخنگوی آتش‌نشانی تهران: آتش گرفتن گاز پیک‌نیک در یک موکب مستقر در میدان تجریش #تهران باعث سرایت آتش آن به چادر شده و دود بلندی در منطقه ایجاد کرده است. بازار تجریش از این آتش آسیبی ندیده و آتش به سرعت خاموش
+Vahid
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 342552
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342552_1781543645.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک مقام ارشد آمریکایی به العربیه گفت جی‌دی ونس رهبری مذاکرات فنی با جمهوری اسلامی را بر عهده خواهد داشت و طی ۳۰ روز آینده مسیر تحولات در قبال ایران روشن‌تر خواهد شد.
+
+او افزود: «سازوکاری در اختیار داریم که اطمینان می‌دهد ایران به سلاح هسته‌ای دست نخواهد یافت و تهران اکنون آماده ارائه امتیازهایی بی‌سابقه است.»
+
+این مقام ارشد آمریکایی اضافه کرد محاصره، ایران را به گفت‌وگو وادار کرده و تردد در تنگه هرمز طی دو هفته آینده افزایش خواهد یافت.
+https://iranintl.com/202606156652
+</div>
+
+## Shin_Persian — post 7105
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Mon, 15 Jun 2026 17:08:07 UTC
+
+In case you wanna get a better sight on the "DEAL", give @laurnorman a follow, he follows it way better than anyone.
+
+ترجمه خودکار فارسی
+
+اگر می‌خواهید دید بهتری نسبت به این «توافق» (DEAL) پیدا کنید، @laurnorman را دنبال کنید؛ او بسیار بهتر از هر کس دیگری آن را دنبال می‌کند.
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 220835
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺تداوم سرکوب مخالفان توسط رژیم ایران؛ بازداشت‌شدگان در صف دریافت حکم قضائی
+
+▪️همزمان با اعلام خبر توافق جمهوری اسلامی با آمریکا بر سر امضای یک یادداشت تفاهم، رسانه‌های حقوق بشری همچنان از ادامه سرکوب مخالفان ایران و بلاتکلیفی بازداشت‌شدگان در صف دریافت حکم قضائی خبر می‌دهند.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/regime-opponents-islamic-republic-judicial-rulings-agreement-with-america/8161071.html/?nocach=1
+</div>
+
+## Persian_Trend_Official — post 17197
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حزب‌الله لبنان ویدیویی از حمله به یک سرباز اسرائیلی با استفاده از پرتابه FPV در تاریخ 29 می منتشر کرد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17196
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_17196_1781543645.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بنیامین نتانیاهو، نخست وزیر اسرائیل، ساعت 21:00 به وقت محلی (یک ساعت دیگر) یک کنفرانس مطبوعاتی برگزار خواهد کرد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 22654
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22654_1781543646.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مسعود پزشکیان، رییس دولت جمهوری اسلامی، درباره متن تفاهم میان جمهوری اسلامی و آمریکا گفت اگر این تفاهم‌نامه اجرا شود، می‌تواند بسیاری از مشکلات کشور را برطرف کند و دنیای دیگری را در ایران و منطقه خاورمیانه رقم بزند.
+او همچنین افزود اگر مقام رهبری و هدایت‌های ایشان نبود، دستیابی به این توافق ممکن نبود.
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 392146
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392146_1781543648.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این ویدیو با عنوان: وقتی نونواها قهر میکنن، بیش از ۱۰ میلیون بازدید داشته😂
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392145
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392145_1781543649.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حتی قتل غیرعمدی هم انقد زود نمی‌بخشن کصکشا.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392144
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392144_1781543649.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تو میتونی به جدم قسم🤣
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 128292
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈یک مقام ارشد اسرائیلی به i24NEWS گفت: اگر می‌دانستیم که جنگ از نظر «عادت سیاسی» به این شکل تمام می‌شود، مطمئن نیستیم که ارزشش را داشت که وارد آن شویم.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128291
+
+<div align="center">
+  <a href="telegram/content/alonews_128291_1781543652.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈بورس آمریکا در کمتر از ۲۰ دقیقه ۱ تریلیون دلار به ارزش بازار خود اضافه کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/25 20:34
 ---
 

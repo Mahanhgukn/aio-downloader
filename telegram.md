@@ -7,6 +7,188 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/25 21:25
+---
+
+## VahidOOnLine — post 245744
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_245744_1781546153.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس‌جمهور آمریکا، روز دوشنبه ۲۵ خردادماه اعلام کرد تنگه هرمز از روز جمعه به‌طور کامل برای کشتیرانی باز خواهد شد.
+ترامپ در آغاز دیدار دوجانبه با امانوئل ماکرون، رئیس‌جمهور فرانسه، در حاشیه نشست گروه هفت در فرانسه گفت تنگه هرمز «هم‌اکنون نیز تا حدی باز شده است»، اما عملیات جست‌وجو و پاکسازی مین‌ها همچنان ادامه دارد.
+رئیس‌جمهور آمریکا همچنین با اشاره به پیشنهاد لندن و پاریس برای تشکیل یک مأموریت دریایی مشترک جهت حفظ امنیت این آبراه گفت: «فکر نمی‌کنم به کمک زیادی نیاز داشته باشیم.»
+ترامپ با تمجید از توافق حاصل‌شده با ایران افزود: «مهم‌ترین مسئله این است که ایران سلاح هسته‌ای نخواهد داشت.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342987
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342987_1781546154.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+JUST NOW: President Trump greets French President Emmanuel Macron and his wife Brigitte as G7 leaders convene for their high-stakes summit in France.
+</div>
+
+## Persian_Trend_Official — post 17201
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17201_1781546156.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هشدار پوتین به ایران/ مذاکره، پوششی برای حمله زمینی!
+
+
+🔹 روح‌الله مدبر: شورای امنیت روسیه بر مبنای اطلاعات سری، به طرف ایرانی اعلام کرده بود که آمریکایی‌ها میز مذاکره را به عنوان عامل فریب برای عملیات گسترده زمینی می‌خواهند.
+
+
+🔹حتی آقای پوتین در جلسه با عراقچی هم هشدارهای ویژه در این باره را داده. بعداً نگویید که ما غافلگیر شدیم و رهبری جدید را جایگزین می‌کنیم.
+
+
+👺Phantom
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 22660
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ارتش اسرائیل اعلام کرد دو تا از فرمانده‌های عملیاتی حماس رو هدف قرار داده و کشته؛ یکی «صالح رمضان محمد خلیفه» که تو مرکز غزه و گردان النصیرات فعالیت می‌کرده، و یکی دیگه هم «محمد موسی دیاب الهبیل» که در غرب جبالیا فعالیت داشته.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22659
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 یک مقام ارشد آمریکایی به العربیه:
+
+جمهوری اسلامی آماده ارائه امتیازهایی بی‌سابقه‌ست.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22658
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 پزشکیان : نظر یک گروه خاص مهم نیست و نظر اکثر مردم برام مهمه.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22657
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🟢 خفن‌ ترین و جذابترین بونوس های ویژه #جام_جهانی و بدون قیدو شرط فقط در سایت جهانی رومابت
+۲۰٪ شارژ اضافی و بونوس ۱۰۰٪ #رومابت رو‌ از دست ندید👌🏼
+
+
+🇪🇺 https://trentivo6402.bar
+</div>
+
+## IranianMinds — post 22656
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22656_1781546158.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بازی ایران رو با کمتربن ریسک در رومابت پیش بینی کن.
+
+
+⭕️ ⚽ ایران 🟢 نیوزلند
+
+
+💳 حسابتو برای این بازی در #رومابت با ارز دیجیتال شارژ کن 
+🅰️
+🅰️
+🅰️ شارژ اضافی بگیر ✅
+
+
+💰 10% کش بک روی تیم محبوبت
+
+💰   100% بونوس خوشامدگویی
+
+🎁 20% کش بک بازی های کازینویی و انفجار
+
+🔥   همراه با درگاه‌ #ریالی
+#RomaBet
+
+📣‌ #بدون_احراز_هویت
+
+1️⃣
+2️⃣
+3️⃣
+4️⃣   
+1️⃣
+2️⃣
+3️⃣
+4️⃣
+
+⛔در صورت فیلتر بودن از طریق VPN غیر از سرور انگلیس ( سرور 
+🇺🇸 
+🇩🇪 
+🇨🇦
+🇫🇮
+🇹🇷
+👇
+👇 )
+
+
+🇪🇺 https://trentivo6402.bar
+
+
+✅کانال تلگرامی #رومابت 25
+👇
+
+🔵 @Romabet_official
+</div>
+
+## BBCPersian — post 283925
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283925_1781546158.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+مسعود پزشکیان در همایشی در تهران از تفاهم ایران و آمریکا استقبال کرد و گفت: «اجرای کامل این تفاهمنامه می‌تواند بسیاری از مشکلات و مسائل کشور را برطرف کند و ما دنیای دیگری را در کشور خودمان و در منطقه خاورمیانه خلق خواهیم کرد.»
+
+رئیس‌جمهور ایران بدون اشاره به مفاد این تفاهمنامه گفت که اگر همه آنچه نوشته شده است عملیاتی شود،‌ «سندی افتخارآمیز» نه فقط برای ایران بلکه برای کل منطقه و نیروهای مقاومت خواهد بود.
+
+او از تیم مذاکره‌کننده ایران قدردانی کرد و گفت که تفاهم‌ «حاصل ماه‌ها گفت‌وگو، پیگیری‌های مستمر و ارتباطات مختلف در این زمینه بوده است.»
+
+مسعود پزشکیان گفت که جزئیات این تفاهمنامه در زمان مناسب ارائه خواهد شد.
+
+رئیس‌جمهور ایران از «مساعدت و اختیاراتی» که رهبر جمهوری اسلامی در اختیار «شورای عالی امنیت ملی و تیم مذاکره‌کننده و همچنین دولت گذاشته است»، قدردانی کرد.
+
+
+📷TASNIM
+@BBCPersian
+</div>
+
+## alonews — post 128299
+
+<div align="center">
+  <a href="telegram/content/alonews_128299_1781546159.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزیر اقتصاد: مبلغ کالابرگ دهک‌های پایین به‌زودی افزایش می‌یابد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/25 21:13
 ---
 

@@ -7,6 +7,185 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/25 11:22
+---
+
+## VahidOOnLine — post 245656
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_245656_1781509967.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️اولین نفتکش حامل گاز طبیعی مایع پس از «توافق تهران و واشنگتن» از تنگه هرمز گذشت
+
+♦️نخستین نفتکش حامل گاز طبیعی مایع پس از اعلام پایان جنگ جمهوری اسلامی ایران و آمریکا، صبح دوشنبه ۲۵ اسرائیل از تنگه هرمز عبور کرد.
+
+خبرگزاری رویترز گزارش کرد نفتکش دیشا با پرچم مالت از خلیج فارس به دریای عمان رفته است.
+
+رسانه‌های ایران می‌گویند این نفتکش از «طرح تفکیک ترافیک دریایی ایران استفاده کرده است.»
+
+دونالد ترامپ، رئیس جمهوری آمریکا نیمه‌شب یکشنبه به‌وقت تهران و در زمان اعلام توافق برای پایان جنگ با ایران، در پیامی خطاب به کشتی‌های گرفتار در خلیج فارس نوشته بود: «موتورهایتان را روشن کنید، بگذارید نفت جریان یابد.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14949
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نشست سران گروه هفت (G7) امروز در شهر اویان-له-بن فرانسه برگزار می‌شود؛ جایی که رهبران کشورهای صنعتی جهان درباره‌ی مجموعه‌ای از بحران‌های جهانی گفت‌وگو خواهند کرد.
+
+گروه G7 یک گروه متشکل از هفت اقتصاد بزرگ جهان شامل آمریکا، بریتانیا، کانادا، فرانسه، آلمان، ایتالیا و ژاپن است که از دهه‌ی ۱۹۷۰ و پس از بحران نفتی اوپک شکل گرفت.
+@withyashar
+</div>
+
+## pm_afshaa — post 94056
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هر بشکه نفت به 79 دلار رسید
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## Shin_Persian — post 7091
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Mon, 15 Jun 2026 07:50:26 UTC
+
+RECAP if you were away for the weekend:
+
+Israel attacked Dahiye, southern Beirut
+Islamic Regime's officials threatened to retaliate by attacking Israel
+Israel said expecting missile strike from Iran
+Missile strike was called off.
+USA and Iran agreed on a deal, which is set to be signed on Friday, July 19, 2026.
+
+Have a nice week
+
+ترجمه خودکار فارسی
+
+خلاصه وقایع اگر در تعطیلات آخر هفته حضور نداشتید:
+
+اسرائیل به ضاحیه در جنوب بیروت حمله کرد
+مقامات رژیم اسلامی تهدید کردند که با حمله به اسرائیل تلافی خواهند کرد
+اسرائیل اعلام کرد که در انتظار حمله موشکی از سوی ایران است
+حمله موشکی لغو شد.
+ایالات متحده و ایران در مورد توافقی به تفاهم رسیدند که قرار است در روز جمعه، ۱۹ ژوئیه ۲۰۲۶ امضا شود.
+
+هفته خوبی داشته باشید
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 7090
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_7090_1781509969.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet: Shin ✓ @hey_itsmyturn Sat, 13 Jun 2026 08:51:45 UTC Widespread interruption in Iranian banking systems including e-banking and ATM machines. ↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید. ترجمه خودکار فارسی اختلال گسترده در سیستم‌های…
+</div>
+
+## Shin_Persian — post 7089
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+Shin ✓ @hey_itsmyturn
+Sat, 13 Jun 2026 08:51:45 UTC
+
+Widespread interruption in Iranian banking systems including e-banking and ATM machines.
+
+↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
+
+ترجمه خودکار فارسی
+
+اختلال گسترده در سیستم‌های بانکی ایران از جمله بانکداری الکترونیک و دستگاه‌های خودپرداز (ATM).
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 220777
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220777_1781509969.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایتامار بن‌گویر، وزیر امنیت ملی اسرائیل، در واکنش به توافق اعلام‌شده از سوی دونالد ترامپ با جمهوری اسلامی گفت این توافق اسرائیل را ملزم نمی‌کند.
+
+به گزارش تایمز اسرائیل، بن‌گویر در بیانیه‌ای گفت: «توافق ترامپ ما را ملزم نمی‌کند. اسرائیل تابع آمریکا نیست. ما کشوری مستقل و دارای حاکمیت هستیم.»
+
+او افزود اسرائیل طرف این توافق نیست و آن را توافقی ندانست که به گفته او امنیت اسرائیل را تضمین کند.
+
+بن‌گویر همچنین گفت اسرائیل نباید از هیچ‌یک از مناطقی که نیروهایش در جریان درگیری‌ها در لبنان تصرف کرده‌اند، عقب‌نشینی کند.
+@FarsiVOA
+</div>
+
+## RadioFarda — post 158319
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸پس از اعلام خبر توافق اولیه آمریکا و ایران در شامگاه یک‌شنبه ۲۴ خرداد آوارگان لبنانی در پناهگاهی واقع در منطقه برج رحال واقع در جنوب لبنان به رقص و پایکوبی پرداختند.
+
+🔸در جریان تنش‌های نظامی و سیاسی در منطقه خاورمیانه در ماه‌های گذشته اسرائیل بارها به مناطق مختلفی در جنوب لبنان حمله و برای ساکنان ده‌ها روستا و شهر هشدار تخلیه صادر کرد.
+
+🔸جمهوری اسلامی در مذاکرات با آمریکا توقف حملات اسرائیل به مقر اصلی حزب‌الله در جنوب بیروت را یکی از شرط‌های خود تعیین کرده است.
+
+🔸هفته گذشته، حمله اسرائیل به ضاحیه موجب حملات موشکی ایران به اسرائیل شد و در مقابل ارتش اسرائیل نیز مناطقی از ایران را هدف قرار داد. این رخداد رسیدن به توافق پایان جنگ بین ایران و آمریکا را تحت تأثیر قرار داد. اما تبادل آتش طرفین با دخالت دونالد ترامپ، رئیس‌جمهور آمریکا، متوقف شد.
+
+@RadioFarda
+</div>
+
+## BBCPersian — post 283866
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻وقوع آتش‌سوزی در یک نفتکش هندی در سواحل عمان
+
+وزارت کشتیرانی هند از آتش‌سوزی در نفتکش «ماریوکس» در سواحل عمان با ۲۴ ملوان هندی خبر داد و گفت که همه آنها در سلامت هستند.
+
+اوپش کومار شارما، مدیر وزارت بنادر و کشتیرانی فدرال در هند، در یک کنفرانس مطبوعاتی گفت که این کشتی با پرچم ماداگاسکار در حرکت بود و محموله‌ای حمل نمی‌کرد.
+
+او گفت: «در حال حاضر همه دریانوردان هندی در سلامت هستند. ما در حال هماهنگی با وزارت خارجه، نمایندگی‌های هند در خارج از کشور، نیروی دریایی هند و وزارت دفاع هستیم تا ایمنی آنها را تضمین کنیم.»
+
+به گفته او علت آتش‌سوزی که ساعت یک و نیم بعد از ظهر به وقت محلی رخ داد، «هنوز مشخص نیست.»
+
+https://bbc.in/4viCUHy
+@BBCPersian
+</div>
+
+## alonews — post 128144
+
+<div align="center">
+  <a href="telegram/content/alonews_128144_1781509970.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نخست وزیر پاکستان: به رئیس جمهور آمریکا، رهبر ایران و رئیس جمهور ایران به خاطر دستیابی به توافق در یک دوره دشوار تبریک می‌گویم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128143
+
+<div align="center">
+  <a href="telegram/content/alonews_128143_1781509970.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈عراقچی: واشنگتن مسئول اجرای توافق است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/25 11:12
 ---
 

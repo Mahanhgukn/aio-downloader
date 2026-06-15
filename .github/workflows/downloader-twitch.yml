@@ -8,6 +8,20 @@ on:
           Enter one or more Twitch VOD/Clip URLs.
           Separate by commas, spaces, or newlines.
         required: true
+      quality:
+        description: 'Video quality (leave empty for best available)'
+        type: choice
+        required: false
+        options:
+          - ''                 # best available (default)
+          - 1080p60
+          - 1080p
+          - 720p60
+          - 720p
+          - 480p
+          - 360p
+          - 160p
+          - audio_only
       bundle_all:
         description: 'Bundle all downloaded files into a single split ZIP archive'
         type: boolean
@@ -146,7 +160,12 @@ jobs:
             local outfile="${OUTPUT_DIR}/twitch_${sanitized}.mp4"
 
             echo "→ Downloading: $url"
-            if TwitchDownloaderCLI -m VideoDownload -u "$url" -o "$outfile" --ffmpeg-path /usr/bin/ffmpeg; then
+            QUALITY_ARG=""
+          if [ -n "${{ inputs.quality }}" ]; then
+            QUALITY_ARG="-q ${{ inputs.quality }}"
+          fi
+          
+          if TwitchDownloaderCLI -m VideoDownload -u "$url" -o "$outfile" --ffmpeg-path /usr/bin/ffmpeg $QUALITY_ARG; then
               echo "✅ Success: $url -> $outfile"
             else
               echo "❌ Download failed: $url"

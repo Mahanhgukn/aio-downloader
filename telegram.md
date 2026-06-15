@@ -7,6 +7,143 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/25 23:53
+---
+
+## VahidOOnLine — post 245771
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_245771_1781555010.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️علیرضا زاکانی، شهردار تهران، دوشنبه‌شب در گفتگو با صداوسیما، درباره توافق تهران و واشنگتن ضمن اشاره به ضرورت «شفاف‌سازی» در روند مذاکرات گفت: «ما در میانه جنگیم و به‌هیچ‌وجه کسی نباید فکر کند که جنگ تمام شده است. جنگ یک توقفی دارد و آمریکا و اسرائیل دنبال تکمیل بانک اطلاعاتی‌ خود و به‌ مهیاکردن دیگر آورده‌هایشان هستند.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245770
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_245770_1781555011.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوهای منتشرشده در شبکه‌های اجتماعی از وقوع آتش‌سوزی در یک «موکب» در محدوده میدان تجریش تهران در روز دوشنبه ۲۵ خرداد حکایت دارد.
+سخنگوی آتش‌نشانی تهران علت این آتش‌سوزی را ناشی از آتش‌ گرفتن گاز پیک‌نیک در این موکب عنوان کرد.
+سخنگوی اورژانس استان تهران نیز اعلام کرد در این حادثه پنج نفر مصدوم شدند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 15011
+
+
+
+
+## pm_afshaa — post 94155
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴امشب اولییین بازی ایران که داخل ورزشگاه بردن پرچم شیر و خورشید هم آزاد اعلام شده ، اگر میخوای بدون سانسور بازی ایران دنبال کنی حتما این کانالو داشته باش که تمام بازیای جام جهانی کاملا بدون سانسور پوشش میده : • @TrollSporte • @TrollSporte
+</div>
+
+## pm_afshaa — post 94153
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_94153_1781555012.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴امشب اولییین بازی ایران که داخل ورزشگاه بردن پرچم شیر و خورشید هم آزاد اعلام شده ، اگر میخوای بدون سانسور بازی ایران دنبال کنی حتما این کانالو داشته باش که تمام بازیای جام جهانی کاملا بدون سانسور پوشش میده :
+
+• @TrollSporte
+• @TrollSporte
+</div>
+
+## IranIntlTV — post 342583
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342583_1781555013.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسماعیل قاآنی، فرمانده نیروی قدس سپاه پاسداران، با تاکید بر اینکه «حماس به‌زودی بازسازی می‌شود»، گفت: «اجزای جبهه مقاومت در جنگ پیش‌قدم مبارزه بودند و در سخت‌ترین شرایط مقابل دشمن آمریکایی - اسرائیلی ایستادگی می‌کنند.»
+
+او افزود: کسی نمی‌تواند مقابل حزب‌الله لبنان ایستادگی کند و هر آنچه از حزب‌الله لبنان دیده‌اید، تنها نوک کوه یخ است.
+
+قاآنی اضافه کرد باب‌المندب یکی از برگ‌های برنده «جبهه مقاومت» است و اگر لازم باشد برگ‌های دیگری هم رو می‌شود.
+https://iranintl.com/202606156609
+</div>
+
+## IranIntlTV — post 342582
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قیمت دلار در بازار آزاد ایران بعد از انشار خبر تفاهم بین تهران و واشینگتن پایین آمد. مطرح شدن بحث لغو محاصره دریایی، باز شدن راه فروش نفت و همین‌طور لغو برخی تحریم‌ها در صورت رسیدن به توافق، مساله اقتصاد ایران و معیشت مردم را در کانون توجه قرار داده است.
+
+گفت‌وگو با محمد ماشین‌چیان، ایران‌اینترنشنال
+
+@iranintltv
+</div>
+
+## IranIntlTV — post 342581
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبکه اسکای‌نیوز در یک گزارش تحقیقی سراغ کشته شده‌های مدرسه شجره طیبه میناب رفته است. اسکای نیوز اسم، مشخصات و عکس همه ۱۵۲ کشته بمباران این مدرسه را تایید و منتشر کرد. این لیست شامل ۱۲۰ دانش‌آموز ۶ تا ۱۳ ساله و ۲۶ معلم است.
+گفت‌وگو با مریم رحمتی، ایران‌اینترنشنال
+
+@iranintltv
+</div>
+
+## IranIntlTV — post 342580
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342580_1781555013.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوهای منتشرشده در شبکه‌های اجتماعی از وقوع آتش‌سوزی در یک «موکب» در محدوده میدان تجریش تهران در روز دوشنبه ۲۵ خرداد حکایت دارد.
+سخنگوی آتش‌نشانی تهران علت این آتش‌سوزی را ناشی از آتش‌ گرفتن گاز پیک‌نیک در این موکب عنوان کرد.
+سخنگوی اورژانس استان تهران نیز اعلام کرد در این حادثه پنج نفر مصدوم شدند.
+</div>
+
+## IranIntlTV — post 342579
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342579_1781555014.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در پی اعلام تفاهم میان آمریکا و جمهوری اسلامی، شماری از ایرانیان با انتقاد از این توافق گفته‌اند مطالبات مردم ایران در آن نادیده گرفته شده است. برخی نیز دولت آمریکا را به چشم‌پوشی از سرکوب معترضان متهم کرده و معتقدند دونالد ترامپ، مانند دیگر رهبران جهان، منافع کشور خود را بر حمایت از مردم ایران ترجیح داده است.
+@iranintltv
+</div>
+
+## alonews — post 128331
+
+<div align="center">
+  <a href="telegram/content/alonews_128331_1781555016.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کانال ۱۴ اسرائیل: تعجب جامعه اسرائیل از این بود که مقامات ایران قبل از دفن علی خامنه‌ای با قاتلینش توافق کردند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128330
+
+<div align="center">
+  <a href="telegram/content/alonews_128330_1781555016.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حمایت ویژه سردار قاآنی از قالیباف، عراقچی و دیگر اعضای تیم مذاکرات
+
+
+🔴فرقی بین تیم مذاکره کننده ما و بچه هایی که پای لانچر بودن نیست و جنسشان از جنس مقاومت است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/25 23:44
 ---
 

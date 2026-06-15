@@ -7,6 +7,427 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/25 21:54
+---
+
+## VahidOOnLine — post 245753
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ حساب رسمی کاخ سفید تصاویری از حضور دونالد ترامپ، رئیس‌جمهوری آمریکا، در نشست گروه هفت (G7) در شهر اویان فرانسه منتشر کرد.
+
+در این تصاویر، ترامپ در کنار امانوئل مکرون، رئیس‌جمهوری فرانسه، و بریژیت مکرون، بانوی اول فرانسه، برای ثبت عکس یادگاری می‌گیرد.
+
+نشست گروه هفت با حضور رهبران کشورهای صنعتی جهان برگزار می‌شود و مسائل مرتبط با اقتصاد جهانی، امنیت بین‌المللی و تحولات سیاسی از مهم‌ترین محورهای آن به شمار می‌رود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245752
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245752_1781547869.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️عباس عراقچی، وزیر امور خارجه جمهوری اسلامی ایران، روز دوشنبه ۲۵ خردادماه در تماس‌های تلفنی جداگانه با ژوزف عون، رئیس‌جمهوری لبنان، و نبیه بری، رئیس مجلس این کشور درباره مفاد «تفاهم‌نامه اسلام‌آباد» و «به‌ویژه بندهای مرتبط با لبنان» گفتگو کرد.
+بر اساس اعلام کانال اطلاع‌رسانی وزارت امورخارجه ایران، عراقچی در این تماس‌ها مقامات لبنانی را در جریان جزئیات بندهای تفاهم‌نامه قرار داد و بر «اهتمام جمهوری اسلامی به پایان جنگ و تجاوز در لبنان» تأکید کرد.
+عراقچی همچنین مسئولیت ایالات متحده را در قبال اجرای مفاد تفاهم‌نامه یادآور شد و خواستار توقف کامل حملات اسرائیل علیه لبنان شد.
+کانال تلگرامی عراقچی در گزارش این تماس مدعی شد، ژوزف عون و نبیه بری با استقبال از مفاد یادداشت تفاهم اخیر بر اهمیت ثبات و امنیت لبنان به عنوان بخشی جدایی‌ناپذیر از هر تلاش جدی برای برقراری ثبات در منطقه تاکید کرده‌اند.
+این خبر درحالی منتشر می‌شود که ژوزف عون، رئیس جمهوری لبنان روز دوشنبه ۱۸ خردادماه در گفتگو با سی‌ان‌ان، بار دیگر جمهوری اسلامی ایران را به دخالت در امور داخلی این کشور متهم کرد و از تهران خواست تا برای منافع خودش، لبنان جنگ‌زده را قربانی نکند.
+این سخنان رئیس جمهوری لبنان به واکنش مقام‌های ایرانی و جدال لفظی دو طرف در شبکه‌های اجتماعی منجر شد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245751
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245751_1781547869.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بنیامین نتانیاهو، نخست‌وزیر اسرائیل، گفت ایران با توافق یا بدون توافق به سلاح هسته‌ای دست نخواهد یافت.
+
+او افزود ما اسرائیل را از نابودی نجات داده‌ایم، اما مبارزه هنوز پایان نیافته است.
+
+نتانیاهو همچنین گفت اسرائیل تا هر زمان که لازم باشد در «مناطق امنیتی» باقی خواهد ماند و به خنثی کردن تهدیدها در منطقه ادامه خواهد داد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14997
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نتانیاهو: مبارزه تمام نشده است. ما باید همچنان هوشیار، قوی و مصمم باشیم تا از خود تا حد امکان دفاع کنیم. این نه تنها در مورد ایران، بلکه در مورد بازوهای تروریستی ایران نیز صادق است. ما به شیوه‌ای بی‌سابقه به آنها ضربه زدیم. ما این کار را در غزه، لبنان، سوریه، یمن، اردوگاه‌های پناهندگان در یهودا و سامره و همه جا انجام دادیم.
+@withyashar
+</div>
+
+## WithYashar — post 14996
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نتانیاهو: من با ترامپ موافق نیستم،
+بنابراین، اسرائیل هر کاری که لازم باشد در برابر ایران انجام خواهد داد.
+@withyashar
+</div>
+
+## WithYashar — post 14995
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبکه ۱۳ اسرائیل به نقل از یک منبع:
+
+تل‌آویو و واشینگتن بر سر عدم عقب‌نشینی کامل اسرائیل از لبنان به توافق رسیده‌اند.
+@withyashar
+</div>
+
+## WithYashar — post 14994
+
+<div align="center">
+  <a href="telegram/content/WithYashar_14994_1781547870.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نتانیاهو: ما در لبنان خواهیم ماند. کار با ایران ممکن است همچنان تمام نشده باشد
+
+ماموریت زندگی من مبارزه با برنامه هسته ای ایران است.
+با توافق یا بدون توافق، ایران سلاح هسته ای نخواهد داشت.
+اگر برای حمله به ایران عجله نکرده بودیم، به بمب هسته ای دست می یافت.
+ما رهبران ایران را کشتیم، به سرویس‌های امنیتی آن آسیب شدیدی زدیم و اسرائیل را از تهدید هسته‌ای ایران نجات دادیم.
+@withyashar
+</div>
+
+## WithYashar — post 14993
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نتانیاهو: ما خسارات عظیمی به ایرانی‌ها وارد کردیم و اسرائیل را از خطر نابودی هسته‌ای نجات دادیم.
+
+اگر ما به سرعت برای حمله به ایران اقدام نمی‌کردیم، این کشور به بمب هسته‌ای دست پیدا می‌کرد.
+@withyashar
+</div>
+
+## WithYashar — post 14992
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نتانیاهو: «اسرائیل تا هر زمان که لازم باشد در “مناطق امنیتی” باقی خواهد ماند.»
+
+«ما شراکت‌های جدیدی را در سراسر منطقه و فراتر از آن شکل خواهیم داد، در حالی که توانایی اسرائیل برای تولید و تأمین مستقل تسلیحات خود را تضمین می‌کنیم.»
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342989
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+RT @TreyYingst: The memorandum of understanding with Iran is expected to be released in the next 24-48 hours, according to senior U.S. officials. It was electronically signed by President Trump, Vice President Vance, and Iranian Parliament Speaker Ghalibaf.
+</div>
+
+## FoxNewsTwitter — post 342988
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342988_1781547872.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Florida Rep. Brian Mast puts G7 nations on blast ahead of President Trump’s arrival, accusing global allies of dodging the fight against Iranian aggression while still demanding international relevance.
+
+Mast claims Trump will deliver a blunt message to European leaders, urging them to respond forcefully to global threats instead of relying entirely on the United States to take action.
+
+"I think the president's probably going to tell them be a little bit more American and less European. If somebody is fighting you and attacking you, you have the stones to go out there and hit back instead of run away like what you were doing." | @AmericaRpts
+</div>
+
+## pm_afshaa — post 94131
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94131_1781547873.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نتانیاهو: مواردی وجود داره که من و ترامپ باهم هم‌نظر نیستیم. ما باید با خرد بر منافع امنیتی اسرائیل با استواری بایستیم. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94130
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94130_1781547874.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نتانیاهو: تا خلع سلاح حزب‌الله، اسرائیل از منطقه امنیتی جنوب لبنان خارج نخواهد شد.
+
+وضعیت ما امروز بسیار بهتر از هفتم اکتبر است و ما محور ترور رو در هم شکستیم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94129
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نتانیاهو: مواردی وجود داره که من و ترامپ باهم هم‌نظر نیستیم. ما باید با خرد بر منافع امنیتی اسرائیل با استواری بایستیم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94128
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94128_1781547875.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نتانیاهو، نخست وزیر اسرائیل:
+ما بزرگترین عملیات حمله در تاریخ اسرائیل رو آغاز کردیم، ما تأسیسات هسته‌ای رو نابود کردیم، موشک‌های آنها رو از بین بردیم و بخش عمده‌ای از آرایش نظامی آنها رو ویران کردیم.
+
+‏ما خسارت عظیمی به اقتصاد ایران وارد کردیم، برخی یک تریلیون دلار تخمین میزنن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## kianmeli1 — post 88023
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نتانیاهو: من نگفتم هدف ما سرنگونی رژیم ایران است
+بلکه گفتم که می‌خواهیم به ایرانی‌ها در انجام این کار کمک کنیم.
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 88022
+
+<div align="center">
+  <a href="telegram/content/kianmeli1_88022_1781547875.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴تهدید تازه نتانیاهو؛ «هر زمان لازم باشد اقدام می‌کنیم
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 342560
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342560_1781547876.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بنیامین نتانیاهو، نخست‌وزیر اسرائیل، گفت ایران با توافق یا بدون توافق به سلاح هسته‌ای دست نخواهد یافت.
+
+او افزود ما اسرائیل را از نابودی نجات داده‌ایم، اما مبارزه هنوز پایان نیافته است.
+
+نتانیاهو همچنین گفت اسرائیل تا هر زمان که لازم باشد در «مناطق امنیتی» باقی خواهد ماند و به خنثی کردن تهدیدها در منطقه ادامه خواهد داد.
+https://iranintl.com/202606151267
+</div>
+
+## FarsiVOA — post 220842
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیش‌بینی ستاره سابق فوتبال مصر از غافلگیر شدن بلژیک؛ گزارش آرش آرا
+</div>
+
+## Persian_Trend_Official — post 17204
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17204_1781547877.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نتانیاهو: مواردی وجود دارد که من و رئیس جمهور ترامپ با هم توافق نداریم.
+
+باید با خرد و تدبیر از منافع امنیتی اسرائیل دفاع کرد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17203
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17203_1781547879.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نتانیاهو: مبارزه تمام نشده است. ما باید هر زمان که لازم باشد، به دفاع و مراقبت از خود ادامه دهیم.
+
+ما تا زمانی که لازم باشد برای محافظت از کشور، در مناطق امنیتی مختلفی که تصرف کرده‌ایم، باقی خواهیم ماند.
+
+ما اتحادهای جدیدی با کشورهای منطقه و فراتر از آن ایجاد خواهیم کرد و خودکفایی دفاعی خود را تضمین خواهیم کرد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17202
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17202_1781547881.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نتانیاهو: ماموریت زندگی من مبارزه با برنامه هسته‌ای ایران است.
+
+با توافق یا بدون توافق، ایران سلاح هسته‌ای نخواهد داشت. ما خسارت عظیمی به اقتصاد ایران وارد کرده‌ایم؛ برخی آن را یک تریلیون دلار تخمین می‌زنند.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## RadioFarda — post 158349
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸پروین فهیمی، مادر سهراب اعرابی، در سالگرد اعتراضات پس از انتخابات ریاست‌جمهوری ۱۳۸۸ با یادآوری آرزوها و دغدغه‌های فرزندش نوشت که این روزها بیش از گذشته به خواسته‌های سهراب برای «سلامتی، صلح، آزادی، دموکراسی، عدالت و آرامش» فکر می‌کند.
+
+🔸 او تأکید کرد که این مفاهیم را صرفاً شعار نمی‌داند، بلکه معتقد است باید به بخشی از اندیشه و مطالبات ایرانیانی تبدیل شوند که خواهان زندگی در صلح و آزادی هستند.
+
+🔸فهیمی همچنین از ادامه حصر میرحسین موسوی و زهرا رهنورد و وضعیت زندانیان سیاسی انتقاد کرد و با اشاره به بیماری میرحسین موسوی، ابراز امیدواری کرد که حصر رهبران جنبش سبز پایان یابد.
+
+🔸سهراب اعرابی، نوجوان ۱۹ ساله‌ای بود که در جریان اعتراضات پس از انتخابات سال ۱۳۸۸ ناپدید شد و پس از هفته‌ها جست‌وجوی خانواده‌اش، مشخص شد که او کشته شده است. نام او در سال‌های بعد به یکی از شناخته‌شده‌ترین نمادهای اعتراضات آن سال تبدیل شد.
+@RadioFarda
+</div>
+
+## IranianMinds — post 22665
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22665_1781547883.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 نتانیاهو درباره ترامپ:
+
+مواردی هست که من و رئیس‌جمهور ترامپ نظرمان یکی نیست و کاملاً توافق نداریم.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22664
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22664_1781547885.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 نتانیاهو درباره لبنان :
+
+ما در لبنان عقب نشینی نمیکنیم و تا هر زمان که لازم باشه در مناطق امنیتی مختلفی که تصرف کردیم، باقی می‌مونیم تا از کشور دفاع کنیم.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22663
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 نتانیاهو:
+
+ما آسیب عظیمی به اقتصاد ایران وارد کردیم؛ برخی این خسارت رو یک تریلیون دلار تخمین میزنن.
+
+@IranianMinds
+</div>
+
+## alonews — post 128309
+
+<div align="center">
+  <a href="telegram/content/alonews_128309_1781547888.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نتانیاهو: همانکاری با غزه کردیم با جنوب لبنان نیز خواهیم کرد،همانطور که غزه دیگر تهدید جدی‌ای برای اسرائیل نیست حزب‌الله نیز در آینده نخواهد بود
+
+
+🔴ما در منطقه حائل امنیتی در لبنان باقی خواهیم ماند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128308
+
+<div align="center">
+  <a href="telegram/content/alonews_128308_1781547888.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نتانیاهو: من در انتخابات شرکت خواهم کرد و قصد دارم در آن پیروز شوم.
+
+
+🔴گاهی اوقات بین من و ترامپ اختلاف نظر وجود دارد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128307
+
+<div align="center">
+  <a href="telegram/content/alonews_128307_1781547888.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نتانیاهو: ایران به سمت دستیابی به سلاح هسته ای حرکت می کرد و ما توانستیم برنامه های موشکی و هسته ای آن را نابود کنیم.
+
+
+🔴ترامپ رئیس جمهور آمریکاست و من نخست وزیر اسرائیل،من مسئول امنیت کشور خودم هستم.من از منافع اسرائیل نه با غرور و خود‌خواهی بلکه با خرد و عقب دفاع می‌کنم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128306
+
+<div align="center">
+  <a href="telegram/content/alonews_128306_1781547888.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نتانیاهو: کسانی هستند که می‌خواهند دستاوردهای ما را کم‌اهمیت جلوه دهند، و ما به دستاوردهای بزرگتری هم دست خواهیم یافت.
+
+
+🔴ما استقلال خود را در زمینه تسلیحات تضمین خواهیم کرد و نوآوری‌هایی را توسعه خواهیم داد که به خیال‌پردازی نزدیک‌تر هستند.
+
+
+🔴من بر منافع امنیتی‌مان در روابطمان با ترامپ و ایالات متحده تأکید کردم
+
+
+🔴وضعیت ما امروز بسیار بهتر از هفتم اکتبر است و ما محور ترور را در هم شکسته‌ایم.
+
+
+🔴به وضوح می‌گویم تا خلع سلاح حزب‌الله،اسرائیل از منطقه امنیتی جنوب لبنان خارج نخواهد شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128305
+
+<div align="center">
+  <a href="telegram/content/alonews_128305_1781547889.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نتانیاهو: ما نصرالله را کشتیم و از حمله به جلیله جلوگیری کردیم
+
+
+🔴ما کنترل مناطق کلیدی در لبنان را که حزب‌الله از آنجا اسرائیل را تهدید می‌کرد، به دست گرفته‌ایم
+
+
+🔴ما دکترین جنگ را تغییر دادیم و سد ترس را شکستیم؛ ما ابتکار عمل و غافلگیری را در دست می‌گیریم.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/25 21:43
 ---
 

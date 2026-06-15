@@ -7,6 +7,302 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/25 17:15
+---
+
+## VahidOOnLine — post 245706
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245706_1781531106.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس‌جمهور آمریکا، روز دوشنبه ۲۵ خردادماه در پیامی در شبکه اجتماعی تروث سوشال اعلام کرد کشتی‌ها، از جمله نفتکش‌های حامل نفت، حرکت از تنگه هرمز را آغاز کرده‌اند.
+ترامپ نوشت: «کشتی‌ها در حال حرکت هستند؛ بسیاری از آن‌ها با نفت بارگیری شده‌اند و از تنگه هرمز خارج می‌شوند. آن‌ها از مسیر جنوبی حرکت می‌کنند؛ مسیری که کاملا امن، مطمئن و پاک است.»
+رئیس‌جمهور آمریکا همچنین افزود: «مسیرهای دیگری نیز برای تردد وجود دارد.»
+پیام ترامپ در حالی منتشر می‌شود که صدا و سیمای جمهوری اسلامی ایران، روز دوشنبه در گزارشی تصویری اعلام کرده بود: «بیش از ۹۶ ساعت است که نیروی دریایی سپاه هیچ مجوز عبوری صادر نکرده است.»
+پیشتر رویترز گزارش داده بود، نخستین نفتکش حامل گاز طبیعی مایع پس از اعلام پایان جنگ جمهوری اسلامی ایران و آمریکا، صبح دوشنبه از تنگه هرمز عبور کرده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245705
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245705_1781531106.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+غلامحسین محسنی اژه‌ای، رییس قوه قضاییه جمهوری اسلامی، در شبکه ایکس نوشت «ملت ایران» توانست در جنگ سوم نیز همچون دو جنگ قبلی «متجاوزین را به شکست و هزیمت بکشاند.»
+
+او افزود: «خون‌خواهی و جان‌فدایی را رها نمی‌کنیم.اگر در میدان نبرد، بر دشمن چیره و غالب شدیم، مدیون مکتب حسینیم. اگر در دیپلماسی، عزتمندانه و انقلابی ظاهر شدیم، چون درس‌آموز مکتب عزت حسینیم.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245704
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245704_1781531107.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+غلامحسین محسنی اژه‌ای، رییس قوه قضاییه جمهوری اسلامی، در شبکه ایکس نوشت «ملت ایران» توانست در جنگ سوم نیز همچون دو جنگ قبلی «متجاوزین را به شکست و هزیمت بکشاند.»
+
+او افزود: «خون‌خواهی و جان‌فدایی را رها نمی‌کنیم.اگر در میدان نبرد، بر دشمن چیره و غالب شدیم، مدیون مکتب حسینیم. اگر در دیپلماسی، عزتمندانه و انقلابی ظاهر شدیم، چون درس‌آموز مکتب عزت حسینیم.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## pm_afshaa — post 94090
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94090_1781531108.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴شاهکار جدید خوش‌چشم کارشناس صداوسیما، لحظاتی قبل از توافق :
+
+دروغ میگن توافقه، الان میخوایم به اسرائیل موشک بزنیم؛ من از پشت پرده خبر دارم...
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94089
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94089_1781531110.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴جی‌دی ونس، معاون ترامپ: ما شاهدیم که هم تندروها و هم رهبران سیاسی ایران میگن: رابطه ما با آمریکا در 47 سال گذشته یک اشتباه بوده، بیایید ورق جدیدی رو برگردونیم. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94088
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94088_1781531111.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴جی‌دی ونس، معاون ترامپ:
+ما شاهدیم که هم تندروها و هم رهبران سیاسی ایران میگن: رابطه ما با آمریکا در 47 سال گذشته یک اشتباه بوده، بیایید ورق جدیدی رو برگردونیم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## kianmeli1 — post 88004
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏🔴اداره هوانوردی غیرنظامی کویت اعلام کرد فعالیت محدود شرکت‌های هواپیمایی خلیج فارس، عربی و خارجی از طریق ترمینال ۴ فرودگاه بین‌المللی کویت از سر گرفته شد
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 342517
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342517_1781531111.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+غلامحسین محسنی اژه‌ای، رییس قوه قضاییه جمهوری اسلامی، در شبکه ایکس نوشت «ملت ایران» توانست در جنگ سوم نیز همچون دو جنگ قبلی «متجاوزین را به شکست و هزیمت بکشاند.»
+
+او افزود: «خون‌خواهی و جان‌فدایی را رها نمی‌کنیم.اگر در میدان نبرد، بر دشمن چیره و غالب شدیم، مدیون مکتب حسینیم. اگر در دیپلماسی، عزتمندانه و انقلابی ظاهر شدیم، چون درس‌آموز مکتب عزت حسینیم.»
+https://iranintl.com/202606152334
+</div>
+
+## Shin_Persian — post 7099
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_7099_1781531112.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+UKMTO Operations Centre @UK_MTO
+Mon, 15 Jun 2026 13:40:30 UTC
+
+JMIC Advisory Note 007-26 (blockade still in effect)
+
+Click here to view the full advisory note⤵️
+https://www.ukmto.org/-/media/ukmto/products/jmic-advisory-note-00726-blockade-still-in-effect.pdf?rev=08d34da620df4d259e4c1f269387de97
+
+#MaritimeSecurity #MarSec
+
+ترجمه خودکار فارسی
+
+یادداشت مشورتی JMIC (مرکز مشترک هماهنگی اطلاعات دریانوردی) ۰۰۷-۲۶ (محاصره همچنان پابرجا است)
+
+برای مشاهده متن کامل یادداشت مشورتی اینجا کلیک کنید⤵️
+https://www.ukmto.org/-/media/ukmto/products/jmic-advisory-note-00726-blockade-still-in-effect.pdf?rev=08d34da620df4d259e4c1f269387de97
+
+#MaritimeSecurity #MarSec_
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 7098
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet: Lindsey Graham ✓ @LindseyGrahamSC Tue, 03 May 2016 21:03:30 UTC If we nominate Trump, we will get destroyed.......and we will deserve it. ↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید. ترجمه خودکار فارسی اگر ترامپ را نامزد کنیم،…
+</div>
+
+## Shin_Persian — post 7097
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+Lindsey Graham ✓ @LindseyGrahamSC
+Tue, 03 May 2016 21:03:30 UTC
+
+If we nominate Trump, we will get destroyed.......and we will deserve it.
+
+↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
+
+ترجمه خودکار فارسی
+
+اگر ترامپ را نامزد کنیم، نابود خواهیم شد....... و حقمان هم همین خواهد بود.
+
+𝕏 · @shin_persian
+</div>
+
+## Persian_Trend_Official — post 17171
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_17171_1781531113.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💔 آنتروپیک برای حل اختلافات پیرامون Fable 5 و Mythos 5 با کاخ سفید مذاکره می‌کند.
+
+🔹در پی دستور دولت ترامپ مبنی بر ممنوعیت دسترسی اتباع خارجی به مدل‌های پیشرفته هوش مصنوعی Fable 5 و Mythos 5، شرکت آنتروپیک دسترسی به این مدل‌ها را در سراسر جهان به طور کامل قطع کرد. اکنون تیم فنی این شرکت قصد دارد تا در دیداری با مقامات کاخ سفید، این بحران را حل‌وفصل کند.
+
+🔹این رویارویی درحالی رخ می‌دهد که آنتروپیک خود را برای عرضه اولیه سهامش در بورس آمریکا آماده می‌کند. این شرکت پیش از این درباره خطرات سایبری و توانایی‌های مدل Mythos هشدار داده بود و نسخه عمومی Fable را همراه با تدابیر امنیتی ویژه روانه بازار کرد اما اکنون با سد محکم دولت مواجه شده است.
+
+پ.ن: این مدل قوی ترین هوش مصنوعی عمومی شده تا به این لحظه حساب میشه که از قابلیت های هوشمند خودمختار و منطق بالا پشتیبانی میکنه.
+برای درک بهتر در تست‌های اولیه، هم از مهاجرت بزرگ در یک کدبیس ۵۰ میلیون خطی و هم از امتیاز بالای آن در بنچمارک‌های کدنویسی خبر داده اند 🔥.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## BBCPersian — post 283896
+
+<div align="center">
+  <a href="telegram/content/BBCPersian_283896_1781531113.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ سرخط خبرهای دوشنبه ۲۵ خرداد ۱۴۰۵
+</div>
+
+## alonews — post 128230
+
+<div align="center">
+  <a href="telegram/content/alonews_128230_1781531115.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ونس: رهبران جدید ایران از ۴۷سال مسیر اشتباه برگشته‌اند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128229
+
+<div align="center">
+  <a href="telegram/content/alonews_128229_1781531115.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈مجری: ایرانی‌ها می‌گویند قرار است به یک صندوق ۳۰۰ میلیارد دلاری برای بازسازی دسترسی داشته باشند. درست است یا نادرست؟
+
+
+🔴جی‌دی ونس: چنین چیزی می‌تواند در دسترس آن‌ها قرار بگیرد، مشروط بر اینکه به تعهدات خود در این توافق پایبند باشند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128228
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کصاخیل درحال جهاد ری اکشنی😂
+
+میان ری اکت فیک میزنن و اونو جهاد میدونن و میگن ثواب آخرت داره
+
+با همین تفکر هم همیشه.... خوردن
+</div>
+
+## alonews — post 128227
+
+<div align="center">
+  <a href="telegram/content/alonews_128227_1781531117.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈جی‌دی ونس درباره ایران:
+ما دست دوستی به سوی ایران دراز کرده‌ایم. اگر آن‌ها بخواهند رابطه‌شان با ما را تغییر دهند، ما نیز رابطه‌مان با ایران را تغییر خواهیم داد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128226
+
+<div align="center">
+  <a href="telegram/content/alonews_128226_1781531119.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ونس: تعهد دادن که ذخایر مواد بسیار غنی‌شده‌شون رو نابود و جمع‌آوری کنن
+
+
+🔴همون اورانیوم بسیار غنی‌شده‌ای که در دوران دولت اوباما و دولت بایدن جمع کرده بودن
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128225
+
+<div align="center">
+  <a href="telegram/content/alonews_128225_1781531121.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈جی‌دی ونس، معاون ترامپ:
+ما شاهدیم که هم تندروها و هم رهبران سیاسی ایران میگن: رابطه ما با آمریکا در 47 سال گذشته یک اشتباه بوده، بیایید ورق جدیدی رو برگردونیم.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128224
+
+<div align="center">
+  <a href="telegram/content/alonews_128224_1781531121.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تیزر وایرال شده از دکتر قالیباف
+
+#مرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+
+---
+### ⚠️ کانال‌های با خطا در این بروزرسانی
+
+* Hranews
+
+دلایل احتمالی: مسدود بودن کانال، حذف کانال، یا خطای شبکه.
+---
+
+---
 📅 بروزرسانی: 1405/03/25 17:03
 ---
 

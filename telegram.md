@@ -7,6 +7,166 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/25 13:13
+---
+
+## pm_afshaa — post 94062
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بسیجیا بد افتادن به جون هم
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 342468
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻تیم ملی فوتبال ایران در اولین دیدار خود در جام جهانی ۲۰۲۶، بامداد سه‌شنبه در استادیوم سوفای لس‌آنجلس به مصاف نیوزیلند می‌رود.
+
+🔹بازیکنان تیم ملی ایران پس از رسیدن به لس‌آنجلس در استادیوم سوفای حاضر شدند و آخرین تمرین خود پیش از دیدار برابر نیوزیلند را در این استادیوم برگزار کردند.
+
+🔹دیدار ایران و نیوزیلند ساعت ۴:۳۰ بامداد سه شنبه برگزار خواهد شد.
+
+@iranintltvsport
+</div>
+
+## FarsiVOA — post 220788
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺والتز: توافق باید غنی‌سازی و حمایت از حزب‌الله و گروه‌های نیابتی را متوقف کند
+
+▪️سفیر آمریکا در سازمان ملل گفت توافق با جمهوری اسلامی باید این حکومت را به خروج اورانیوم با غنای بالا، کنار گذاشتن ظرفیت غنی‌سازی و توقف حمایت از گروه‌های نیابتی از جمله حوثی‌ها، حزب‌الله، حماس و شبه‌نظامیان عراق متعهد کند.
+
+▪️مایک والتز در گفت‌وگو با ای‌بی‌سی‌نیوز تأکید کرد برخلاف برجام، بر پایه «پرداخت در برابر عملکرد» و راستی‌آزمایی سخت‌گیرانه تنظیم خواهد شد.
+
+▪️او اضافه کرد که در هرگونه آزادسازی دارایی‌های مسدودشده یا کاهش تحریم‌ها، پول یا امتیاز اقتصادی پیشاپیش به جمهوری اسلامی داده نخواهد شد، و گفت هرگونه منفعت اقتصادی برای جمهوری اسلامی به اجرای تعهدات از سوی این حکومت وابسته خواهد بود.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/ambassador-waltz-on-iran-negotiations/8161005.html
+</div>
+
+## Persian_Trend_Official — post 17154
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17154_1781516600.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨سقوط هواپیمای آموزشی ارتش پاکستان
+
+ارتش پاکستان اعلام کرد هر دو خلبان این هواپیما جان خود را از دست داده‌اند.
+
+
+👺Phantom
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17153
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_17153_1781516603.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+]
+
+🔴 حادثه امنیتی برای یک کشتی تجاری در نزدیکی سواحل یمن
+
+🔹 سازمان عملیات تجارت دریایی بریتانیا (UKMTO) از وقوع یک حادثه امنیتی برای یک کشتی فله‌بر در آب‌های جنوب یمن خبر داد.
+
+🔹 بر اساس گزارش اولیه، این کشتی در فاصله حدود ۲۶ کیلومتری جنوب بندر عدن اعلام کرد که یک قایق تندرو حامل چندین سرنشین به آن نزدیک شده است.
+
+🔹 گزارش‌ها حاکی است سرنشینان قایق به سمت کشتی تیراندازی کرده و تلاش کرده‌اند وارد آن شوند.
+
+🔹 جزئیات بیشتری درباره هویت مهاجمان، خسارات احتمالی یا سرنوشت خدمه کشتی منتشر نشده و تحقیقات در این خصوص ادامه دارد..
+
+
+👺 Phantom
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Dirty_Kids — post 392093
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392093_1781516604.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این چه سمی بود😂😂😂😂
+مامورا تو ماشین دوتا پسرو گرفتن حالا خودتون ببینید به خاطر چی گرفته شدن! مامور خودش پشماش ریخت
+۵۰/۵۰😐
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392092
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حواستون به توله سگ های فامیل باشه
+از هر فرصتی استفاده میکنن تا یه صفایی به خودشون بدن😂😂😂
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 128179
+
+<div align="center">
+  <a href="telegram/content/alonews_128179_1781516606.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈یورونیوز : توافق کنونی راه را برای مذاکرات ۶۰ روزه درباره مسائل هسته‌ای هموار می‌کند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128178
+
+<div align="center">
+  <a href="telegram/content/alonews_128178_1781516606.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رویترز این توافق را بزرگ‌ترین پیشرفت دیپلماتیک از زمان آغاز جنگ توصیف کرد و نوشت: توافق ایران و آمریکا به کاهش قیمت نفت و امیدواری بازارهای جهانی منجر شده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128177
+
+<div align="center">
+  <a href="telegram/content/alonews_128177_1781516606.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رئیس‌جمهور لبنان، عون : از اینکه امنیت و ثبات لبنان تو توافق آمریکا و ایران برای پایان دادن به جنگ لحاظ شده، قدردانی می‌کنم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128176
+
+<div align="center">
+  <a href="telegram/content/alonews_128176_1781516607.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حملات اسرائیل تو مناطقی از جنوب لبنان ادامه داره!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/25 13:03
 ---
 

@@ -7,6 +7,150 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/25 10:33
+---
+
+## VahidOOnLine — post 245649
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245649_1781507005.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمود مهرداد شکریه، رییس دانشگاه علم و صنعت، گفت غربی‌ها با «توافق‌ها، کاغذها و امضاها» از تحریم جمهوری اسلامی دست برنمی‌دارند.
+
+رییس دانشگاه علم و صنعت، گفت وابستگی شدید اقتصاد ایران به نفت یکی از چالش‌های کشور است و افزود «دیپلماسی اقتصادی ما باید تهاجمی باشد.»
+
+او گفت همان‌طور که جمهوری اسلامی در جنگ «فقط دفاع نکرد» و حمله را هم نشان داد، در اقتصاد هم باید به چنین جایگاهی برسد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## mwarmonitor — post 10946
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وزیر دفاع اسرائیل، یسرائیل کاتس گفت:
+
+🔸«من و نخست‌وزیر نتانیاهو سیاستی روشن را پیش می‌بریم که بر اساس آن، ارتش اسرائیل در مناطق امنیتی در لبنان، سوریه و غزه — بدون محدودیت زمانی — باقی خواهد ماند تا از آنجا از مرز و شهرک‌های اسرائیلی در برابر گروه‌های جهادی محافظت کند.
+
+🔸این مناطق از ساکنان محلی و تمام زیرساخت‌های تروریستی، چه در زیرزمین و چه روی زمین، پاکسازی خواهند شد؛ از جمله خانه‌ها در روستاهای مرزی که به‌عنوان پایگاه‌های تروریستی استفاده می‌شدند و تخریب خواهند شد. این مهم‌ترین درس از رویدادهای ۷ اکتبر است.
+
+🔸تصرف زمین و ایجاد مناطق امنیتی یکی از بزرگ‌ترین دستاوردهای ارتش اسرائیل در جنگ «بازسازی» است که تحت تصمیمات و هدایت رده سیاسی انجام شده است.
+
+🔸بنابراین ما با عقب‌نشینی ارتش اسرائیل از لبنان مخالف هستیم — با وجود تمام فشارهای موجود و فشارهای آینده.
+
+🔸نخست‌وزیر نتانیاهو این موضوع را به رئیس‌جمهور آمریکا ترامپ و دیگر مقام‌های آمریکایی توضیح داده است، و من نیز دیروز همین موضوع را به وزیر جنگ آمریکا پیت هگست منتقل کردم.
+
+🔸ارتش اسرائیل این موضع را از نظر حرفه‌ای و امنیتی تأیید می‌کند.
+
+🔸اگر در اپوزیسیون افرادی هستند که این دکترین امنیتی را به چالش می‌کشند و از عقب‌نشینی ارتش حمایت می‌کنند، باید علناً آن را بیان کنند تا مردم بتوانند بین دیدگاه‌ها قضاوت کنند.
+
+🔸ما بر سر منافع امنیتی حیاتی اسرائیل و حفاظت از شهروندانمان مصالحه نخواهیم کرد و از مناطق امنیتی عقب‌نشینی نمی‌کنیم.
+
+🔸اگر ایران به‌دلیل رویدادهای لبنان به اسرائیل حمله کند، ما با تمام قدرت به آن حمله خواهیم کرد و شکاف قدرت را به‌خوبی نشان خواهیم داد.
+
+🔸ما فقط به شهروندانمان و امنیت دولت اسرائیل متعهد هستیم.»
+
+@mwarmonitor
+</div>
+
+## IranIntlTV — post 342436
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342436_1781507006.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+توافق میان تهران و واشینگتن برای پایان دادن به جنگ پس از ماه‌ها مذاکره، واکنش کشورهای منطقه را به‌همراه داشت.
+
+گفت‌وگو با علی معموری، استاد دانشگاه دیکن و مشاور نخست‌وزیر پیشین عراق
+
+@iranintltv
+</div>
+
+## IranIntlTV — post 342435
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/342435" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی اخبار بامدادی | دوشنبه ۲۵ خرداد
+@iranintlTV
+</div>
+
+## Shin_Persian — post 7088
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Emanuel (Mannie) Fabian ✓ @manniefabian
+Mon, 15 Jun 2026 06:55:30 UTC
+
+Defense Minister Israel Katz says Israel will not withdraw from southern Lebanon, following the announcement of a ceasefire between the US and Iran, which supposedly also includes ending the fighting against Hezbollah.
+
+"Prime Minister Benjamin Netanyahu and I are leading a clear policy that determines that the IDF will remain in the security zones in Lebanon, Syria, and Gaza, without any time limit, to protect the border and Israeli communities from there against jihadist elements," Katz says in a statement.
+
+He says the security zones will be "cleared of local residents, and all terror infrastructure, above and below ground, including the houses in the contact-line villages that served as terror outposts, will be destroyed."
+
+Katz says that holding onto the security zones is "among the IDF's greatest achievements" in the war, and therefore, "we oppose an IDF withdrawal from Lebanon, despite all the existing pressures and those that will still come."
+
+"Prime Minister Netanyahu made these points clear to US President Trump and to other senior American officials, and I also made this clear yesterday to US Secretary of War Pete Hegseth," he says, adding that the IDF also supports holding onto the security zone in Lebanon.
+
+"We will not compromise on Israel's security interests and the protection of our citizens, and we will not withdraw from the security zones," Katz says.
+
+Katz also warns that "if Iran attacks Israel because of the events in Lebanon, we will strike it with full force."
+
+"We are committed only to our citizens and to the security of the State of Israel," he adds.
+
+ترجمه خودکار فارسی
+
+ایسرائیل کاتس، وزیر دفاع، در پی اعلام آتش‌بس میان ایالات متحده و ایران که ظاهراً شامل پایان درگیری‌ها علیه حزب‌الله نیز می‌شود، می‌گوید اسرائیل از جنوب لبنان عقب‌نشینی نخواهد کرد.
+
+کاتس در بیانیه‌ای می‌گوید: «نخست‌وزیر بنیامین نتانیاهو و من در حال هدایت سیاست روشنی هستیم که تعیین می‌کند ارتش دفاعی اسرائیل (IDF) بدون هیچ محدودیت زمانی در مناطق امنیتی در لبنان، سوریه و غزه باقی خواهد ماند تا از مرزها و جوامع اسرائیلی در برابر عناصر جهادی محافظت کند.»
+
+او می‌گوید که مناطق امنیتی از «ساکنان محلی تخلیه خواهد شد و تمام زیرساخت‌های تروریستی، در بالا و زیر زمین، از جمله خانه‌های روستاهای خط تماس که به عنوان پایگاه‌های تروریستی خدمت می‌کردند، نابود خواهند شد.»
+
+کاتس می‌گوید که حفظ مناطق امنیتی «از جمله بزرگترین دستاوردهای ارتش دفاعی اسرائیل» در جنگ است و بنابراین، «ما با وجود تمام فشارهای موجود و فشارهایی که در آینده وارد خواهد شد، با عقب‌نشینی ارتش از لبنان مخالف هستیم.»
+
+او می‌گوید: «نخست‌وزیر نتانیاهو این نکات را برای پرزیدنت ترامپ، رئیس‌جمهور آمریکا و دیگر مقامات ارشد آمریکایی روشن کرده است و من نیز روز گذشته این موضوع را برای پیت هگست، وزیر جنگ ایالات متحده روشن کردم.» وی افزود که ارتش دفاعی اسرائیل نیز از حفظ منطقه امنیتی در لبنان حمایت می‌کند.
+
+کاتس می‌گوید: «ما بر سر منافع امنیتی اسرائیل و حفاظت از شهروندانمان سازش نخواهیم کرد و از مناطق امنیتی عقب‌نشینی نخواهیم کرد.»
+
+کاتس همچنین هشدار داد که «اگر ایران به دلیل حوادث لبنان به اسرائیل حمله کند، ما با تمام قوا به آن ضربه خواهیم زد.»
+
+او افزود: «ما فقط در برابر شهروندان خود و امنیت دولت اسرائیل متعهد هستیم.»
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 7087
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Mon, 15 Jun 2026 06:53:47 UTC
+
+Now Ghalibaf will slowly unplug Mojtaba’s life support 🫪
+
+ترجمه خودکار فارسی
+
+حالا قالیباف به آرامی دستگاه‌های علائم حیاتی مجتبی را از برق خواهد کشید 🫪
+
+𝕏 · @shin_persian
+</div>
+
+## Persian_Trend_Official — post 17149
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یه گزارش آکسیوس ونس، ویتکاف و کوشنر موافق تفاهم نامه اخیر امریکا با ایران و روبیو و هگست مخالف آن هستند.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+---
 📅 بروزرسانی: 1405/03/25 10:23
 ---
 

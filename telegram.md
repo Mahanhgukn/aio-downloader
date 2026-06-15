@@ -7,6 +7,124 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/25 14:53
+---
+
+## VahidOOnLine — post 245686
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245686_1781522596.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️وزارت امور خارجه امارات متحده عربی روز دوشنبه ۲۵ خردادماه با انتشار بیانیه‌ای از دستیابی جمهوری اسلامی ایران و آمریکا به سند تفاهم آتش‌بس استقبال کرد و خواستار پایبندی کامل همه طرف‌ها به مفاد این توافق شد.
+
+روابط میان امارات متحده عربی و جمهوری اسلامی ایران در جریان جنگ و پس از حملات دوجانبه به‌شدت تیره شده است. امارات، کشورهای عربی عضو شورای همکاری خلیج فارس را به «انفعال» در قبال حکومت ایران متهم می‌کند.
+
+در بیانیه وزارت امور خارجه امارات متحده عربی آمده است:‌ «پایبندی به این توافق باید به‌گونه‌ای باشد که  توقف فوری و کامل اقدامات خصمانه در منطقه، احترام به حاکمیت کشورها و اصول حسن همجواری، و پایبندی دقیق به قوانین بین‌المللی را تضمین کند.»
+
+ وزارت خارجه امارات مانند دیگر دولت‌های منطقه و جهان خواستار بازگشت آزادی کشتیرانی در تنگه هرمز شد و از تلاش‌های دونالد ترامپ و میانجیگران تقدیر کرد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14957
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صدا و سیما: تنگه هرمز تا اطلاع ثانوی بسته است و بیش از ۹۶ ساعت است نیروی دریایی سپاه اجازه عبور هیچ شناوری را نداده است
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342972
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342972_1781522597.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Fairfax County parents say they're being asked to trade Christmas for more classroom time.
+
+A district survey is asking families whether religious and cultural holidays should be removed from the school calendar in exchange for additional "learning days" for students.
+
+One Fairfax mother tells @ainsleyearhardt the district has shown little interest in hearing parents' objections, accusing school leaders of displaying an anti-Christian bias and dismissing concerns raised by families. | @foxandfriends
+</div>
+
+## IranIntlTV — post 342487
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342487_1781522599.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شهباز شریف، نخست‌وزیر پاکستان، اعلام کرد مراسم امضای توافقنامه صلح میان ایالات متحده و جمهوری اسلامی، جمعه در ژنو سوئیس برگزار خواهد شد و پاکستان میزبان این مراسم خواهد بود.
+
+جزییات بیشتر با تاج‌الدین سروش، عضو تحریریه ایران‌اینترنشنال
+
+@iranintltv
+</div>
+
+## FarsiVOA — post 220799
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺رشد نقدینگی به ۴۷ درصد رسید؛ هشدار تازه برای تورم
+
+▪️آمار تازه بانک مرکزی نشان می‌دهد حجم نقدینگی در بهمن ۱۴۰۴ به ۱۴ هزار و ۶۴۰ هزار میلیارد تومان رسیده و رشد ۱۲ ماهه آن ۴۷ ممیز سه درصد بوده است.
+
+▪️نقدینگی یعنی مجموع پولی که در اقتصاد در گردش است؛ از پول نقد گرفته تا سپرده‌های بانکی. وقتی این حجم پول با سرعت بالا زیاد می‌شود، اما تولید کالا و خدمات به همان اندازه رشد نمی‌کند، نتیجه معمولاً فشار بیشتر بر قیمت‌ها و تورم است.
+
+▪️بانک مرکزی همچنین اعلام کرده پایه پولی در بهمن ۱۴۰۴ به هزار و ۹۶۹ هزار میلیارد تومان رسیده و رشد ۱۲ ماهه آن ۵۴ ممیز هفت درصد بوده است.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/liquidity-growth-in-iran-reached-47-percent/8161011.html
+</div>
+
+## DW_Farsi — post 126002
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_126002_1781522601.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 ابراز تردید سناتور گراهام در مورد توافق ایران و آمریکا؛ "زمان نتیجه را مشخص خواهد کرد"
+
+لیندزی گراهام، سناتور جمهوری‌خواه، از بازگشایی تنگه هرمز ابراز "خشنودی" کرد، اما خاطرنشان ساخت که همچنان درباره اختلاف میان برداشت ایران و روایت تیم مذاکره‌کننده آمریکایی از مفاد توافق نگران است.
+
+او پس از اعلام توافق ایران و آمریکا بر سر یادداشت تفاهم، در پیامی در شبکه اجتماعی ایکس نوشت: «تا حدی نگران هستم که برداشت و تفسیر ایران از این توافق با آنچه تیم مذاکره‌کننده آمریکایی مطرح می‌کند، متفاوت به نظر می‌رسد.»
+
+این سناتور پرنفوذ ایالت کارولینای جنوبی و از مدافعان حمله نظامی به ایران گفت که مذکرات پیش‌رو را از نزدیک دنبال خواهد کرد و تأکید کرد که هرگونه توافق هسته،‌ای با ایران باید برای بررسی و رأی‌گیری به کنگره ارائه شود.
+
+گراهام افزود: «من مشتاقانه منتظر بررسی نسخه نهایی این توافق هستم و معتقدم که ضروری است معمار این توافق جی‌دی ونس، معاون رئیس‌جمهور و همکاران مذاکره‌کننده، بخشی از روند ارائه نسخه نهایی توافق به کنگره باشند.»
+
+او در پایان تأکید کرد که "زمان مشخص خواهد کرد که نتیجه نهایی چه خواهد بود".
+
+@dw_farsi
+</div>
+
+## IranianMinds — post 22631
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22631_1781522601.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نکنه رهبر بهمون خیانت کرد ؟ 💔
+
+@IranianMinds
+</div>
+
+## alonews — post 128197
+
+<div align="center">
+  <a href="telegram/content/alonews_128197_1781522602.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 توییت صفحه اسرائیل به فارسی
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/25 14:43
 ---
 

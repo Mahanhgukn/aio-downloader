@@ -7,6 +7,33 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/26 02:04
+---
+
+## FoxNewsTwitter — post 342998
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: The U.S. Air Force said Monday that it believes eight crew members were killed when a B-52 bomber crashed shortly after takeoff at Edwards Air Force Base in California.
+</div>
+
+## IranIntlTV — post 342593
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342593_1781562852.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گروهی از ایرانیان در لس‌آنجلس مقابل ورزشگاه محل برگزاری مسابقه تیم‌های ایران و نیوزیلند تجمعی اعتراضی برگزار کردند.
+
+تجمع‌کنندگان می‌گویند هدف از این اقدام، بازتاب صدای اعتراض و دادخواهی مردم ایران در برابر حضور تیم جمهوری اسلامی در رقابت‌های بین‌المللی است.
+
+گزارش نیلوفر منصوری و رضا محدث، خبرنگاران ایران‌اینترنشنال
+@iranintltv
+</div>
+
+---
 📅 بروزرسانی: 1405/03/26 01:54
 ---
 

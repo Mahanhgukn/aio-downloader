@@ -7,6 +7,92 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/26 06:03
+---
+
+## VahidOOnLine — post 245804
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245804_1781577219.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️در ابتدای نیمه دوم، دقیقه ۵۴، تیم فوتبال نیوزلند توانست گل دوم را وارد دروازه تیم فوتبال ایران کرده و نتیجه بازی را ۲ بر ۱ کند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## IranianMinds — post 22723
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کصکش ی جوریم ادا میاد انگار تو‌ فینال گل زده دلقک رنک ۸۶ فیفاست نیوزیلند
+</div>
+
+## IranianMinds — post 22722
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گل زدن جقیا متاسفانه
+</div>
+
+## IranianMinds — post 22721
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22721_1781577219.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+داداش حداقل همچین گنده گوزیایی نمیکردی آبروی رهبر شهیدم بردی
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22720
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تا سه نشه بازی نشه بزنید سومیو عشقا
+</div>
+
+## IranianMinds — post 22719
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نیوزیلند ۲ جقیا ۱
+</div>
+
+## BBCPersian — post 283963
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️گل دوم برای نیوزیلند
+
+الایجا جاست گل دوم خودش و تیمش را وارد دروازه ایران کرد.
+@bbcpersian
+</div>
+
+## Dirty_Kids — post 392237
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392237_1781577220.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پا قدم خایمالپور اینجوری بود که تا اومد تنگه منقاروند بازتر شد
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392236
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گل دوم نیوزلند به جمهوری‌اسلامی با دبل جاست
+
+تماشا
+</div>
+
+---
 📅 بروزرسانی: 1405/03/26 05:53
 ---
 

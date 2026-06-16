@@ -7,6 +7,264 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/26 21:29
+---
+
+## VahidOOnLine — post 245915
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+همزمان با سفر شاهزاده رضا پهلوی به لندن، جمعی از ایرانیان برای استقبال از او مقابل پارلمان بریتانیا تجمع کردند.
+
+شاهزاده رضا پهلوی در جریان این سفر با رهبران سیاسی بریتانیا، نمایندگان پارلمان و برخی رسانه‌ها دیدار و گفت‌وگو می‌کند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245914
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245914_1781632768.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ستاد تشییع و تدفین علی خامنه‌ای در اطلاعیه‌ای، با اشاره به آماده‌سازی مقدمات دفن او، اعلام کرد: «این عزا، تنها مختص مردم ایران نیست. از کشورهای جبهه مقاومت تا اقصی‌نقاط دنیا، آزادگان و آزادی‌خواهان جهان داغدار این شهادت عظیم شده‌اند.»
+
+این ستاد همچنین شرکت در مراسم تشییع جنازه او، «تجدید بیعتی با مکتب اوست.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 15087
+
+
+
+
+## WithYashar — post 15086
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبکه ۱۳ اسرائیل: امروز یه نشست اضطراری تو دفتر بنیامین نتانیاهو برگزار میشه تا بررسی کنن چطور میشه بین جبهه ایران و لبنان تفکیک ایجاد کرد و با این شاهکار ترامپ کنار اومد.
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 343038
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343038_1781632769.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH LIVE: President Trump joins G7 leaders for summit cultural showcase https://twitter.com/i/broadcasts/1aJbddPmeNZKX
+</div>
+
+## pm_afshaa — post 94203
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تتر 150
+</div>
+
+## pm_afshaa — post 94202
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_94202_1781632770.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏امروز با امیلی تورن‌بری رئیس کمیته روابط خارجی مجلس عوام بریتانیا و شماری دیگر از اعضای این کمیته دیدار داشتم تا درباره وضعیت داخلی ایران، سرکوب مردم ایران توسط جمهوری اسلامی، و ضرورت فوری قرار دادن ملت ایران در مرکز سیاست بریتانیا گفت‌وگو کنیم.
+
+‏به‌روشنی تأکید کردم که معامله با رژیمی که در دی ماه بیش از ۴۰ هزار ایرانی را به قتل رسانده، نه‌تنها از نظر اخلاقی غیرقابل‌قبول است، بلکه از نظر راهبردی نیز خطایی بزرگ خواهد بود.
+
+‏هر توافقی که به حفظ این رژیم یا بقایای آن بینجامد، محکوم به شکست است. مردم ایران چنین توافقی را نخواهند پذیرفت.
+
+‏با حمایت جامعه جهانی یا بدون آن، مردم ایران این رژیم را سرنگون خواهند کرد و آزادی به ایران بازخواهد گشت.
+
+This morning, I met with Emily Thornberry, Chair of the House of Commons Foreign Affairs Committee, and other members of the Committee to discuss the situation inside Iran, the Islamic Republic’s repression of the Iranian people, and the urgent need to place the people of Iran at the centre of UK policy.
+
+I made clear that dealing with a regime that murdered more than 40,000 Iranians in January is not only morally wrong, but strategically misguided.
+
+Any agreement that preserves this regime or its remnants will fail. The Iranian people will not accept it.
+
+With or without international support, the people of Iran will overthrow this regime. Freedom will come to Iran.
+
+@OfficialRezaPahlavi
+</div>
+
+## IranIntlTV — post 342742
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+همزمان با سفر شاهزاده رضا پهلوی به لندن، جمعی از ایرانیان برای استقبال از او مقابل پارلمان بریتانیا تجمع کردند.
+
+شاهزاده رضا پهلوی در جریان این سفر با رهبران سیاسی بریتانیا، نمایندگان پارلمان و برخی رسانه‌ها دیدار و گفت‌وگو می‌کند.
+</div>
+
+## IranIntlTV — post 342741
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342741_1781632770.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نفتالی بنت، نخست وزیر پیشین اسرائیل، در گفت‌وگو با ایران‌اینترنشنال گفت: «به ملت شریف ایران می‌گویم که امیدتان را از دست ندهید، جمهوری اسلامی رژیم فاسدی است که سقوط خواهد کرد. نوبت بعد که مردم ایران قیام کنند ما ابزارهای لازم را در اختیارشان قرار می‌دهیم.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 342740
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342740_1781632772.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روزنامه وال‌استریت ژورنال روز سه‌شنبه به نقل از افرادی آگاه از مفاد توافق تهران و واشینگتن گزارش داد که ایالات متحده، به ایران اجازه خواهد داد فورا فروش نفت و سوخت را آغاز کند
+
+گفت‌وگو با بابک اسحاقی و مرضیه حسینی، خبرنگاران ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 342739
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342739_1781632774.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ستاد تشییع و تدفین علی خامنه‌ای در اطلاعیه‌ای، با اشاره به آماده‌سازی مقدمات دفن او، اعلام کرد: «این عزا، تنها مختص مردم ایران نیست. از کشورهای جبهه مقاومت تا اقصی‌نقاط دنیا، آزادگان و آزادی‌خواهان جهان داغدار این شهادت عظیم شده‌اند.»
+
+این ستاد همچنین شرکت در مراسم تشییع جنازه او، «تجدید بیعتی با مکتب اوست.»
+https://iranintl.com/202606167748
+</div>
+
+## FarsiVOA — post 220925
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+معاون رئیس جمهوری آمریکا: مفاد تفاهمنامه با جمهوری اسلامی حداکثر تا جمعه در اختیار همه قرار می‌گیرد
+</div>
+
+## DW_Farsi — post 126073
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 ترامپ: من از نحوه رفتار اسرائیل با لبنان و حزب‌الله راضی نیستم
+ 
+بر اساس گزارش خبرگزاری رسمی لبنان (NNA)، حملات پهپادی اسرائیل به سه خودرو در جنوب لبنان "دست‌کم چهار کشته" و چندین زخمی بر جای گذاشت.
+ 
+گفته‌ می‌شود دو نفر در جریان حمله‌ای دو مرحله‌ای در روستای میفدون کشته شدند. بر اساس این گزارش، یک پهپاد ابتدا خودرویی را هدف قرار داد و پس از تجمع مردم در محل، حمله دوم انجام شد.
+ 
+به گزارش این خبرگزاری، در حمله پهپادی دیگری به شهر شوکین نیز دو نفر دیگر کشته شدند. ارتش اسرائیل هنوز واکنشی به اخبار این حملات نشان نداده است.
+ 
+این حملات در حالی صورت گرفته که دونالد ترامپ، رئیس‌جمهور آمریکا، اعلام کرده، اسرائیل باید در جنگ با شبه‌نظامیان حزب‌الله در لبنان، مسئولانه‌تر عمل کند. ترامپ گفت: «من از نحوه رفتار اسرائیل با لبنان و حزب‌الله راضی نیستم.»
+ 
+ترامپ  در حاشیه اجلاس رهبران گروه ۷ در فرانسه با اشاره به این جنگ که تاکنون حدود ۳۸۰۰ کشته و نزدیک به ۱۱ هزار و ۷۰۰ زخمی در لبنان برجای گذاشته است، تاکید کرد که اسرائیل خیلی وقت است که با حزب‌الله می‌جنگد و افراد بسیار زیادی کشته می‌شوند.
+ 
+رئیس‌جمهور آمریکا با انتقاد از حملات اسرائیل گفت: «لازم نیست هر بار که به دنبال کسی می‌گردید، یک ساختمان مسکونی را ویران کنید؛ چرا که آدم‌های زیادی در آن ساختمان‌ها هستند و همه آن‌ها هم عضو حزب‌الله نیستند.»
+ 
+جنگ در لبنان یکی از بزرگ‌ترین موانع بر سر راه توافق‌نامه چارچوب در جنگ ایران به شمار می‌رود.
+ 
+ایران به عنوان اصلی‌ترین حامی حزب‌الله اعلام کرده است که حملات جدید اسرائیل به لبنان و تداوم اشغال مناطق، به عنوان نقض این توافق تلقی خواهد شد. با این حال، اسرائیل اعلام کرده است که فعلا قصد ندارد نیروهای زمینی خود را از مناطق اشغال‌شده در کشور همسایه عقب بکشد.
+@dw_farsi
+</div>
+
+## BBCPersian — post 284067
+
+<div align="center">
+  <a href="https://t.me/bbcpersian/284067" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پادکست برنامه جام جهان‌نما سه‌شنبه ۲۶ خرداد ۱۴۰۵
+این برنامه رادیویی را می‌توانید هرشب ساعت ۲۰ به وقت ایران، روی موج متوسط ۷۰۲ کیلوهرتز و موج کوتاه ۹۴۶۵ کیلوهرتز بشنوید.تکرار برنامه را هم می‌توانید ساعت ۲۱:۳۰ روی موج متوسط ۷۰۲ کیلوهرتز و موج کوتاه ۵۳۹۵ کیلوهرتز گوش کنید.
+
+
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 392329
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392329_1781632775.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ۴ ماه دیگه انتخابات اسرائیله و صحبتای مهم نفتالی بنت، اصلی ترین گزینه نخست وزیری:
+
+از همینجا اعلام میکنم تبدیل به بزرگ ترین کابوس جمهوری اسلامی خواهم شد، تا مردم ایران رو آزاد نکنم دست از سر رژیم برنمیدارم.
+علاوه بر اون، ۳۰ـ۵۰ هزار استارلینک در ایران مستقر میکنیم که سری بعد که اعتراضات شد، جمهوری اسلامی نتونه اینترنت رو قطع کنه.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392328
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392328_1781632775.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وضعیت توافق بین آمریکا و جمهوری‌اسلامی: 😂😂😂
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392327
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392327_1781632777.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این همون آتنا نیست که داره ضجه میزنه؟؟
+
+
+@Dirty_Kids 👻
+</div>
+
+## Hranews — post 113656
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مرگ و مصدومیت ۲ کارگر در سایه فقدان ایمنی کار
+
+
+❗️
+❗️
+❗️
+❗️
+❗️ – در سایه فقدان ایمنی محیط و شرایط نامناسب کار، دو #کارگر در شهرهای بانه و یزد حین انجام کار دچار حادثه شدند. طی این حوادث، یک تن جان باخت و یک کارگر سیمبان مصدوم شد.
+
+ادامه مطلب
+
+↘️
+@hranews_bot تماس ✉️ -  @Hranews  کانال هرانا 🆑
+</div>
+
+## alonews — post 128540
+
+<div align="center">
+  <a href="telegram/content/alonews_128540_1781632779.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فرهیختگان: بیش از ۱۰ هزار پزشک زیر میزی می‌گیرند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128539
+
+<div align="center">
+  <a href="telegram/content/alonews_128539_1781632779.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈یک مقام آمریکایی و یک دیپلمات منطقه به تایمز اسرائیل گفتند که آمریکا خود را برای ارائه تسهیلات به ایران در قالب معافیتی که به ایران اجازه صادرات نفت می‌دهد، آماده می‌کند.
+
+
+🔴 اعطای معافیت تحریمی پیش‌دستانه آمریکا در مورد فروش نفت ایران نشان می‌دهد که در واقع برای برداشتن برخی محدودیت‌های اقتصادی، نیازی به امتیازات بیشتر از سوی ایران نیست.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/26 21:14
 ---
 

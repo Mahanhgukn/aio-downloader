@@ -7,6 +7,51 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/26 03:54
+---
+
+## pm_afshaa — post 94156
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_94156_1781569465.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴امشب اولییین بازی ایران که داخل ورزشگاه بردن پرچم شیر و خورشید هم آزاد اعلام شده ، اگر میخوای بدون سانسور بازی ایران دنبال کنی حتما این کانالو داشته باش که تمام بازیای جام جهانی کاملا بدون سانسور پوشش میده :
+
+• @TrollSporte
+• @TrollSporte
+</div>
+
+## Dirty_Kids — post 392197
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نیوزلند یکی از ضعیف ترین تیم های حاضر در جام جهانیه اکثر پیش بینی های سایتهای بت برای بازی الان یا یک یک مساوی یا باخت یک صفر نیوزلنده.
+</div>
+
+## Dirty_Kids — post 392196
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392196_1781569466.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مادرجنده ها هم رسیدن استادیوم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392194
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 امشب جا‌ جام جهانی، قراره جنگ جهانی باشه بین هوادارا.
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/03/26 03:44
 ---
 

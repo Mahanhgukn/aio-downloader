@@ -7,6 +7,300 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/26 17:15
+---
+
+## VahidOOnLine — post 245872
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245872_1781617508.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک منبع آگاه سه‌شنبه به رویترز گفت شرکت قطر انرژی آماده است به‌سرعت تولید گاز طبیعی مایع را در راس‌لفان از سر بگیرد و به جز دو خط تولید که آسیب دیده‌اند، می‌تواند ظرف یک ماه به سطح تولید کامل برسد.
+
+این منبع افزود که مانع اصلی، حمل‌ونقل و لجستیک خواهد بود، به‌ویژه اینکه قطر انرژی با چه سرعتی بتواند کشتی‌ها را وارد کرده و محموله‌ها را پس از باز شدن تنگه هرمز بارگیری کند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245864
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_245864_1781617508.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ که پیش‌تر در پیام‌هایی خطاب به ایرانیان از «کمک در راه است» سخن گفته بود، اکنون در گفت‌وگو با مقام‌های قطر، کشته‌شدن معترضان را عمدتا به «گروه‌های قبلی» در جمهوری اسلامی نسبت می‌دهد و میان بخش‌های مختلف رژیم مرزبندی تازه‌ای می‌سازد.
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 15062
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: ممکنه یه کنفرانس خبری برگزار کنم و متن یادداشت تفاهم آمریکا و ایران رو با صدای بلند و کلمه به کلمه بخونم تا رسانه‌ها اونو به درستی پوشش بدن.
+@withyashar
+</div>
+
+## pm_afshaa — post 94186
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94186_1781617509.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: ممکنه یه کنفرانس خبری برگزار کنم و متن یادداشت تفاهم آمریکا و ایران رو با صدای بلند و کلمه به کلمه بخونم تا رسانه‌ها اونو به درستی پوشش بدن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## VahidOnline — post 76416
+
+<div align="center">
+  <a href="telegram/content/VahidOnline_76416_1781617510.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ که پیش‌تر در پیام‌هایی خطاب به ایرانیان از «کمک در راه است» سخن گفته بود، اکنون در گفت‌وگو با مقام‌های قطر، کشته‌شدن معترضان را عمدتا به «گروه‌های قبلی» در جمهوری اسلامی نسبت می‌دهد و میان بخش‌های مختلف رژیم مرزبندی تازه‌ای می‌سازد.
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 342711
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342711_1781617511.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک منبع آگاه سه‌شنبه به رویترز گفت شرکت قطر انرژی آماده است به‌سرعت تولید گاز طبیعی مایع را در راس‌لفان از سر بگیرد و به جز دو خط تولید که آسیب دیده‌اند، می‌تواند ظرف یک ماه به سطح تولید کامل برسد.
+
+این منبع افزود که مانع اصلی، حمل‌ونقل و لجستیک خواهد بود، به‌ویژه اینکه قطر انرژی با چه سرعتی بتواند کشتی‌ها را وارد کرده و محموله‌ها را پس از باز شدن تنگه هرمز بارگیری کند.
+https://iranintl.com/202606169786
+</div>
+
+## IranIntlTV — post 342710
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایران اینترنشنال در فصل «مرگ خامنه‌ای؛ پایان دیکتاتور» به بررسی کارنامه سی‌و‌شش ساله رهبری علی خامنه‌ای و چالش‌های پیش روی مجتبی خامنه‌ای در ادامه مسیر جمهوری اسلامی می‌پردازد.
+
+گزارش‌ها، مقالات، مستندها و مصاحبه‌ها را در تلویزیون، بخش‌های خبر، وبسایت و اکانت‌های ایران اینترنشنال در شبکه‌های اجتماعی دنبال کنید.
+
+#پایان_دیکتاتور
+@iranintltv
+</div>
+
+## FarsiVOA — post 220912
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220912_1781617511.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جیانی اینفانتینو، رئیس فیفا، پس از بازی ایران و نیوزیلند به رختکن تیم ایران رفت و از بازیکنان و عملکرد تیم تمجید کرد. امیر قلعه‌نویی در این دیدار از نحوه میزبانی از تیم، صادر نشدن ویزا و غیبت مجموعه فنی، از جمله تاج، رییس فدراسیون، اردوی آماده‌سازی در مکزیک و اجبار به ترک خاک آمریکا بلافاصله پس از بازی، گلایه کرد و مدعی شد: «ما مظلوم‌ترین تیم ادوار جام جهانی بودیم.»
+</div>
+
+## DW_Farsi — post 126063
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 کاریکاتوریست منتقد پوتین به ضرب گلوله کشته شد
+ 
+یک کارتونیست منتقد ولادیمیر پوتین  در خیابانی در شهر بیاوا پودلاسکا، واقع در شرق لهستان، هدف شلیک گلوله قرار گرفت و کشته شد. سخنگوی پلیس این شهر بدون اشاره به هویت قربانی به خبرگزاری PAP لهستان گفت به این مرد ۴۴ ساله چندین گلوله شلیک شده است.
+ 
+بیاوا پودلاسکا حدود ۳۵ کیلومتری مرز بلاروس واقع شده است.
+ 
+پلیس این حادثه را یک "قتل هدفمند" خوانده و گفته است انگیزه این قتل هنوز مشخص نیست.
+ 
+نام مقتول نیز از سوی مقامات لهستان اعلام نشده است اما رسانه‌های منتقد دولت در روسیه و بلاروس هویت او را سمیون اسکرپتسکی، کاریکاتوریست و هنرمند اجرای نمایشی (پرفورمنس آرتیست)، اعلام کرده‌اند.
+ 
+شبکه تلویزیونی wPolsce24  لهستان گزارش داده که مقتول از فاصله نزدیک چندبار هدف شلیک گلوله قرار گرفته است. پلیس اطراف محل حادثه و ورودی‌های به این منطقه را مسدود کرده است. همچنین مدارس و مهدکودک‌ها در این منطقه تعطیل شده‌اند.
+ 
+بازرسان پرونده احتمال می‌دهند که عاملان این قتل دو نفر بوده‌اند. یک مظنون در نزدیکی کنسولگری بلاروس در شهر بیاوا پودلاسکا دستگیر شده اما این خبر از سوی مقامات رسمی تایید نشده است.
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 17276
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بک منبع ارشد حزب‌الله به تلویزیون العربی گفت که ایران به این گروه اطمینان داده است که این تفاهم‌نامه را امضا نخواهد کرد مگر اینکه شامل خروج اسرائیل از لبنان باشد.
+
+این منبع گفت که تهران خروج را شرط لازم برای نهایی کردن توافق می‌داند.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17275
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کامالا هریس: هر مذاکره‌ای که در جریان باشد، ترامپ اعلام پیروزی خواهد کرد.
+
+در نهایت به جایی خواهد رسید که پس از برجام بودیم و آن را پیروزی خواهد نامید. برجامی که او از آن خارج شد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17274
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هاکان فیدان، وزیر امور خارجه ترکیه: موضع اسرائیل در منطقه فقط مشکل چند کشور نیست، بلکه مشکلی برای کل جهان است و تمام جهان از آن آگاه است.
+
+برای اولین بار، درک مشترکی در سراسر جهان در مورد از بین بردن توهمی که اسرائیل ایجاد کرده است، در حال شکل‌گیری است.
+
+وقتی اسرائیل می‌بیند که تمام جهان درگیر یک تلاش دیپلماتیک علیه آن هستند، قادر به انجام اقدامی نخواهد بود.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17273
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17273_1781617513.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هاکان فیدان، وزیر امور خارجه ترکیه، در مورد توافق ایران و آمریکا: رئیس جمهور ترامپ به اعتراضات اسرائیل در این مورد گوش نداد.
+
+ایران به این خواسته پاسخ مثبت داد و آنها به نتیجه رسیدند.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17272
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17272_1781617515.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ در مورد اورانیم های ایران: ما عجله‌ای نداریم، اما آن را به دست خواهیم آورد و نابودش خواهیم کرد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17271
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ می‌گوید توافق صلح و مذاکرات هسته‌ای با ایران را برای بررسی به کنگره خواهد فرستاد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17270
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ می‌گوید که به زودی می‌تواند تحریم های نفتی روسیه را بازگرداند.
+
+دونالد ترامپ، رئیس جمهور امریکا در پی افزایش قیمت نفت بخاطر جنگ با ایران و اختلال در تنگه هرمز، تحریم های نفتی روسیه را برای کاهش قیمت نفت به طور موقت ورداشته بود.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## BBCPersian — post 284027
+
+<div align="center">
+  <a href="telegram/content/BBCPersian_284027_1781617517.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرخط خبرهای سه‌شنبه، ۲۶ خرداد ۱۴۰۵
+
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 392299
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شاید باور نکنید ولی قالیباف تنهایی در مجلس رو تخته کرده و نمیزاره جلسات تشکیل شه تا نماینده های مخالف توی مبحث توافق دخالت نکنن.
+بیش از ۳ ماه جلسات مجلس تشکیل نشده و هیچ اتفاقی هم در کشور نیفتاده. واقعا پرخاصیتن.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392298
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392298_1781617518.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+زین العابدین اصن خنجر نداشت اون همیشه استامینوفن همراش بود فقط.
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 128486
+
+<div align="center">
+  <a href="telegram/content/alonews_128486_1781617519.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خوشحالی ایرانیان کانادا(با پرچم شیر و خورشید) بعد گل اول ایران
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128485
+
+<div align="center">
+  <a href="telegram/content/alonews_128485_1781617521.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴‏در اوایل سال ۲۰۲۴ بازیکنان تیم ملی‌ کنگو در یک اکت اعتراضی و زیبا موقع سرود ملی کشورشون برای حمایت از مردم و جلب توجه افکار جامعه جهانی به کشتار هموطنانشون این حرکت رو انجام دادن.
+
+
+🤔با تیم ملی جمهوری اسلامی که خودشون رو ایرانی و وطن پرست میدونن مقایسه کنین. یه مشت شیاد خون شور
+
+
+✅@AloNews
+</div>
+
+## alonews — post 128484
+
+<div align="center">
+  <a href="telegram/content/alonews_128484_1781617522.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: کلمه به کلمه متن توافق را برایتان می‌خوانم
+
+
+🔴من نه تنها آن را منتشر خواهم کرد. احتمالاً یک کنفرانس مطبوعاتی خواهم داشت و کلمه به کلمه آن را برای شما خواهم خواند تا مطبوعات آن را به طور دقیق پوشش دهند زیرا این یک سند بسیار مهم است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/26 17:04
 ---
 

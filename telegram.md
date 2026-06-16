@@ -7,6 +7,69 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/26 07:14
+---
+
+## IranIntlTV — post 342640
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342640_1781581447.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻امیر قلعه‌نویی، سرمربی تیم ملی فوتبال پس از تساوی دو - دو با نیوزیلند به تلویزیون فیفا گفت: «فکر می‌کنم بهترین بازی دور اول بود، متاسفانه من از بازی راضی‌ام، اما از نتیجه راضی نیستم. دو تا توپ روی دروازه آمد و هر دو گل شد. موقعیت‌های زیادی داشتیم. فکر می‌کنم شانس برد داشتیم.»
+
+🔹او گفت: «اما مشکلاتی که فکر می‌کردیم گریبان‌گیرمان شد. ما باید زودتر می‌آمدیم که متاسفانه اجازه ندادند، سازگاری ما هنوز صد در صد نشده است. دقایقی که افت کردیم را با تعویض‌ها جبران کردیم.»
+
+@iranintltvsport
+</div>
+
+## IranianMinds — post 22731
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22731_1781581448.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جالبه بدونید نیوزیلند ضعیف ترین تیم جام جهانی بود.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22730
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22730_1781581449.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 392254
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392254_1781581450.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🤣🤣🤣🤣🤌
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392251
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392251_1781581451.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بعد از بازی موقع خروج از استادیومرو هم ببینید چخبر بوده
+
+دم ایرانیای وطن‌پرست گرم🤌✌️🩵 قشنگ ریدن تو پروپاگاندای جمهوری‌اسهالی با این همه خرجی که کرده بودن
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/03/26 07:03
 ---
 

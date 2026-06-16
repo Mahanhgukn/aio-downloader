@@ -7,6 +7,42 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/26 07:33
+---
+
+## mwarmonitor — post 11006
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔹شان هنیتی: به برنامه «هنیتی» خوش آمدید. امشب را با این هشدار خبری فاکس نیوز آغاز می‌کنیم. تا لحظاتی دیگر، معاون رئیس‌جمهور کشورمان، «جی‌دی ونس» در استودیو به ما خواهد پیوست؛ از حضور شما بسیار خرسندیم. هیچ موضوعی محدودیت ندارد، از جمله توافق صلح تاریخی با…
+</div>
+
+## IranIntlTV — post 342641
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342641_1781582634.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻روز سه‌شنبه ۲۶ خرداد، تعدادی از ایرانیان مقیم شهر اوکلند در نیوزیلند، هم‌زمان با پخش سرود جمهوری اسلامی پیش از آغاز دیدار ایران و نیوزیلند در جام جهانی ۲۰۲۶، در حالی که پرچم شیر و خورشید در دست داشتند، سرود «ای ایران» را خواندند.
+
+🔹علیرضا محبی، خبرنگار ایران اینترنشنال گزارش می‌دهد.
+
+@iranintltvsport
+</div>
+
+## Dirty_Kids — post 392256
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392256_1781582636.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شلیک محمد محبی سمت تماشاگران🔫⚽️
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/03/26 07:24
 ---
 

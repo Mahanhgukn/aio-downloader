@@ -7,6 +7,202 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/26 16:34
+---
+
+## VahidOOnLine — post 245860
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس‌جمهوری آمریکا، در حاشیه نشست سران گروه هفت (G7) در اویان فرانسه و در دیدار با امیر قطر، از رویکرد نظامی بنیامین نتانیاهو در قبال لبنان انتقاد کرد.
+
+ترامپ با اشاره به حمله هوایی اسرائیل به بیروت، درست دو ساعت پیش از امضای توافق آتش‌بس با جمهوری اسلامی ایران، آن را «کور و بی‌هدف» خواند و گفت: «به آن‌ها فهماندم که اصلا از این کار راضی نیستم. برای کشتن یک نفر لازم نیست یک آپارتمان را با خاک یکسان کنید؛ آدم‌های زیادی آنجا هستند که همه‌شان حزب‌الله نیستند.»
+
+رئیس‌جمهوری آمریکا با بیان اینکه اسرائیل زمان زیادی است که با حزب‌الله می‌جنگد و افراد زیادی کشته می‌شوند، پیشنهاد داد که کنترل این گروه به سوریه واگذار شود. ترامپ با تمجید از عملکرد احمد الشرع، رئیس‌جمهوری سوریه در ساماندهی سریع این کشور گفت: «او با مشارکت من و اردوغان روی کار آمد. او از حزب‌الله خوشش نمی‌آید و این کار را بهتر انجام می‌دهد؛ اگر اسرائیل نمی‌تواند بدون کشتن دیگران کار را تمام کند، سوریه این کار را خواهد کرد.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245859
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245859_1781615094.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمدرضا مرادبهروزی، فعال سیاسی، بار دیگر دادسرای انقلاب محمدیه قزوین احضار شد.
+
+این احضاریه همزمان برای او و همسرش، سوری بابایی چگینی صادر شده است. او پیش‌تر در جریان اعتراضات دی‌ماه بازداشت شده و همچنان در زندان به‌سر می‌برد و از حق ملاقات با خانواده محروم است.
+
+اتهامات مطرح‌شده علیه مرادبهروزی و همسرش شامل «انتشار محتوا و ارتباطات رسانه‌ای علیه امنیت ملی» و «ارتباط یا همکاری با طرف‌های متخاصم» عنوان شده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245858
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245858_1781615095.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهوری آمریکا، در پاسخ به پرسشی درباره متحدان او که نسبت به چارچوب تفاهم با جمهوری اسلامی تردید دارند، از جمله لیندزی گراهام، سناتور جمهوری‌خواه، با لحنی طنزآمیز گفت: «لیندزی تردید دارد؟ باید با او صحبت کنم؛ دچار دردسر بزرگی می‌شود.»
+
+ترامپ سپس تلاش کرد نگرانی‌ها در میان هم‌حزبی‌های خود را کم‌اهمیت جلوه دهد و گفت گراهام «آدم خوبی» است و مشکلی با این توافق ندارد.
+
+او افزود: «این توافق یک موضوع مهم را به‌خوبی پوشش می‌دهد. ما بابت آن هیچ پولی پرداخت نمی‌کنیم.»
+
+رییس‌جمهوری آمریکا ادامه داد: «بازارها اکنون نسبت به زمانی که کار را آغاز کردیم در سطح بالاتری قرار دارند.»
+
+ترامپ گفت: «اختلاف فقط بر سر یک موضوع است؛ این‌که ایران هرگز سلاح هسته‌ای نخواهد داشت؛ هرگز، هرگز و هرگز.» او افزود: «بقیه مسائل اهمیتی ندارند.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## mwarmonitor — post 11026
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📌«چیز زیادی در حال عبور نیست...
+🔸امروز صبح ۲ تصویر از ماهواره Sentinel-1 (رادار SAR) و Sentinel-2 (تصویربرداری نوری) گرفته شده است.»
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 11022
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴«حزب‌الله از ایران تضمین‌هایی دریافت کرده است که تا زمانی که اسرائیل از لبنان عقب‌نشینی نکند، توافق نهایی هسته‌ای با آمریکا را امضا نخواهد کرد - دفتر روابط رسانه‌ای حزب‌الله» «رویترز»
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 11021
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رسانه‌های اسرائیلی: کابینه کوچک (کابینت امنیتی) امروز درخواست آمریکا را بررسی خواهد کرد مبنی بر اینکه اسرائیل تا زمان امضای توافق با ایران، از لبنان عقب‌نشینی کند.
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 343020
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343020_1781615095.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: President Trump vows to hold a press conference to read the full memorandum of understanding with Iran word-by-word to make sure the media covers it fairly.
+
+"I will actually not only release it, I'll probably have a press conference and read it to you word-by-word, so that the press covers it accurately, because it's, it's a very important document."
+
+"And, unlike Obama, who could have destroyed the Middle East with a horrible JCPoA, it is the worst agreement that was a road to a nuclear weapon. Mine is a wall against a nuclear weapon."
+</div>
+
+## FoxNewsTwitter — post 343019
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343019_1781615097.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NEW: VP JD Vance calls out media "propagandists" for their comments surrounding the Iran agreement, accusing critics of amplifying Iranian talking points while ignoring what's actually in the deal.
+
+"Not a single cent of American money goes to Iran. Not $300 billion, not $24 billion."
+
+Vance accuses media figures and critics of focusing on hypothetical benefits Iran could receive while glossing over the deal's central requirement: a long-term, verifiable commitment to never obtain a nuclear weapon.
+
+"The propagandists are saying, here are all the things Iran gets... but they don't get any of that stuff unless they totally transform themselves as a country." | @foxandfriends
+</div>
+
+## IranIntlTV — post 342705
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342705_1781615099.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمدرضا مرادبهروزی، فعال سیاسی، بار دیگر دادسرای انقلاب محمدیه قزوین احضار شد.
+
+این احضاریه همزمان برای او و همسرش، سوری بابایی چگینی صادر شده است. او پیش‌تر در جریان اعتراضات دی‌ماه بازداشت شده و همچنان در زندان به‌سر می‌برد و از حق ملاقات با خانواده محروم است.
+
+اتهامات مطرح‌شده علیه مرادبهروزی و همسرش شامل «انتشار محتوا و ارتباطات رسانه‌ای علیه امنیت ملی» و «ارتباط یا همکاری با طرف‌های متخاصم» عنوان شده است.
+https://iranintl.com/202606161252
+</div>
+
+## FarsiVOA — post 220911
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220911_1781615099.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ناو «‌یواس‌اس دلبرت دی‌بلک» که در حال عبور از دریای عرب است، یک عملیات تامین مایحتاج در دریا را با کمک ناو تامین‌کننده «یواس‌ان‌اس جان لوئیس»، روز دو‌شنبه، ۲۵ خرداد به پایان رساند.
+
+در این عملیات مواد و لوازم مورد نیاز، با هلیکوپتر از ناو تامین‌کننده به ناو «‌یواس‌اس دلبرت دی‌بلک» منتقل شد.
+
+«تامین در دریا»، تضمین می‌کند که ملوانان بدون نیاز به ورود کشتی به بندر، لوازم، بسته‌های ارسالی و سایر اقلام مورد نیاز خود را دریافت کنند.
+</div>
+
+## Dirty_Kids — post 392297
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392297_1781615101.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وطی به شبهه چیست؟ یعنی شما اگه به جای زنت اشتباهی یکی دیگه رو مورد عنایت قرار بدی طبق قانون اسلامی جرم نیست😂😂
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 128479
+
+<div align="center">
+  <a href="telegram/content/alonews_128479_1781615103.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ در مورد توافق هسته‌ای با ایران:
+این توافق در مورد یک چیز است: ایران هرگز سلاح اتمی نخواهد داشت. هرگز.
+
+
+🔴 بقیه آن، صادقانه بگویم، بی‌اهمیت است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128478
+
+<div align="center">
+  <a href="telegram/content/alonews_128478_1781615103.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / هم اکنون حمله پهپادی هدفمند به خودرویی در شهر نبطیه، جنوب لبنان، گویا چندین عضو حزب الله در این حمله ترور شدند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128477
+
+<div align="center">
+  <a href="telegram/content/alonews_128477_1781615103.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: توافق با ایران را برای بررسی به کنگره خواهم فرستاد
+
+
+🔴ممکن است به زودی تحریم‌ها بر نفت روسیه را دوباره اعمال کنم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/26 16:24
 ---
 

@@ -7,6 +7,66 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/26 23:14
+---
+
+## WithYashar — post 15103
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+با این جماعت چه کنم 😞
+</div>
+
+## WithYashar — post 15102
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسکل عقده ای یه پیام رو جواب نمیدی
+عقده ای هستی زیاددد
+</div>
+
+## Persian_Trend_Official — post 17300
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17300_1781639079.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شنیده شدن صدای انفجار در اربیل عراق
+
+منابع خبری از حمله پهپادی به مقر گروهک‌های کرد در کردستان عراق می‌دهند.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 22763
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22763_1781639080.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 کارشناس صداوسیما :
+
+شماها دارید با کسی مذاکره میکنید که به رهبر گفته همجنسگرا و کونی ...
+
+@IranianMinds
+</div>
+
+## alonews — post 128556
+
+<div align="center">
+  <a href="telegram/content/alonews_128556_1781639081.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈دست ترامپ امروز در اجلاس هفت‌گانه در اویان-له-بن، فرانسه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/26 23:05
 ---
 

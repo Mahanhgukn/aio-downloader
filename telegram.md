@@ -7,6 +7,122 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/26 04:53
+---
+
+## VahidOOnLine — post 245798
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245798_1781573003.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️تیم فوتبال نیوزلند در دقیقه ۷ بازی توانست اولین گل را مقابل ایران به ثمر برساند. بازی دو تیم ایران و نیوزلند از ساعت ۴:۳۰ بامداد سه‌شنبه (به وقت ایران) در ورزشگاه سوفای لس‌آنجلس در ایالت کالیفرنیا آغاز شده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 343003
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343003_1781573003.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"It's written right there in the agreement, Sean."
+
+Vice President JD Vance joins @seanhannity to discuss the Trump administration's newly announced Iran agreement and what it could mean for the Middle East, global energy markets, and U.S. national security.
+
+The deal includes provisions tied to reopening the Strait of Hormuz and ensures Iran will never build a nuclear weapon, according to administration officials.
+</div>
+
+## IranianMinds — post 22698
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22698_1781573005.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 مردم سرود جمهوری اسلامیو اینطوری هو‌ کردن
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22696
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22696_1781573005.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+داداش یکم بیشتر دووم میاوردی حداقل به احترام پیکر رهبر
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22695
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سینگ گل بزننن
+</div>
+
+## IranianMinds — post 22694
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کل ورزشگاه ترکیده نیوزیلند گل زده هر دو طرفن دارن خوشحالی میکنن 😂😂😂😂
+</div>
+
+## Dirty_Kids — post 392223
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392223_1781573006.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بیرانوند انگار داره مرغ میگیره😂
+</div>
+
+## Dirty_Kids — post 392222
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کارت زرد باید بگیره مغانلو متقلب
+</div>
+
+## Dirty_Kids — post 392221
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+از بین ۴۸ تیمی که در جام جهانی حضور دارند، رتبه‌ی نیوزیلند در رنکینگ فیفا از همه پایینتر است؛ حتی از کیپ ورد، هائیتی و کوراسائو.
+
+🇨🇻 کیپ ورد - ۶۷
+🇨🇼 کوراسائو - ۸۲
+🇭🇹 هائیتی - ۸۳
+🇳🇿 نیوزیلند - ۸۵
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392220
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تنگه‌ی بیرو عین تنگه‌ی مامانش زود پاره شد
+</div>
+
+## Dirty_Kids — post 392219
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خط‌دفاعو ببین کیرم تو شرفتون بی‌شرفای پلشت 😂😂😂
+
+از این تیم کسشر تو اولین حمله گل خوردن
+قیافه میساکی دیدن داره
+</div>
+
+---
 📅 بروزرسانی: 1405/03/26 04:43
 ---
 

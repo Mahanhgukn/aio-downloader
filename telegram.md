@@ -7,6 +7,159 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/27 02:33
+---
+
+## WithYashar — post 15114
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سنا با محدودکردن اختیارات جنگی ترامپ در قبال ایران مخالفت کرد.
+@withyashar 🚨
+</div>
+
+## pm_afshaa — post 94223
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94223_1781650987.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴طرح «محدود کردن اختیارات جنگی ترامپ» بعد از 7 تلاش ناموفق، بالاخره با 47 مخالف و 50 موافق، تصویب شد! سنای آمریکا یه طرحی رو جلو برد که میگه ترامپ واسه ادامه درگیری نظامی با ایران، باید مجوز رسمی کنگره رو داشته باشه و نمیتونه خودسر وارد جنگ بشه. 
+💧 Rainbet.com…
+</div>
+
+## IranIntlTV — post 342787
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342787_1781650988.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دیوید هیل، دیپلمات برجسته موسسه خاورمیانه، در نشست عمومی ایران‌اینترنشنال در واشینگتن دی‌سی گفت: «بدترین اشتباه در برابر یک قیام مردمی این است که در ظاهر از معترضان حمایت و آن‌ها را تشویق کنید، اما در عمل تنهاشان بگذارید.»
+تماشای نسخه کامل این نشست در یوتیوب ایران‌اینترنشنال:
+
+https://youtu.be/D6e4ychQWgk
+
+@iranintltv
+</div>
+
+## BBCPersian — post 284074
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_284074_1781650990.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌ ‌ ‌ ‌
+یک مقام ارشد آمریکایی به رویترز گفته است که آمریکا به ایران اجازه خواهد داد تا براساس تفاهمنامه بدست آمده، بلافاصله فروش نفت و سوخت خود را آغاز کند.
+
+این مقام که نامی از او برده نشده است، گفت که بند مربوط به لغو تحریم‌ها علیه فروش نفت ایران از زمانی که این تفاهمنامه در هفته جاری امضا شود، اجرایی خواهد شد و همچنین خدماتی مانند بانکداری، حمل‌ونقل و بیمه را که برای تسهیل این فروش‌ها لازم است را هم شامل می‌شود.
+
+با این حال، این مقام آمریکایی تأکید کرد که این توافق مشروط است.
+
+به گفته این مقام آمریکایی «این یک تفاهمنامه مبتنی بر عملکرد است. یعنی ایران فقط در صورتی می‌تواند از مزایای این تفاهم‌نامه بهره‌مند شود که به همه تعهداتش عمل کند از جمله نداشتن سلاح هسته‌ای، رقیق کردن اورانیوم غنی شده و اجازه تردد آزاد به کشتی‌ها در تنگه هرمز.»
+
+https://bbc.in/4a4v3EM
+📷Reuters
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 392364
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🙂همه شنیدید 
+💖 ترامپ قمار باز 
+💖 میدونی سرمایه چند صد ملیون دلاری ترامپ از شرط بندی چطور جمع شده 
+⁉️ 
+✔️من بهت نه چیزی میخوام بفروشم نه پولی ازت میگیرم من بهت پول دراوردن رو رایگان آموزش میدم https://t.me/+lCR7HeYTU15iNjM0 https://t.me/+lCR7HeYTU15iNjM0 A26…
+</div>
+
+## Dirty_Kids — post 392363
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392363_1781650990.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🙂همه شنیدید 
+💖 ترامپ قمار باز 
+💖
+
+میدونی سرمایه چند صد ملیون دلاری ترامپ از شرط بندی چطور جمع شده 
+⁉️
+
+
+✔️من بهت نه چیزی میخوام بفروشم نه پولی ازت میگیرم من بهت پول دراوردن رو رایگان آموزش میدم
+
+https://t.me/+lCR7HeYTU15iNjM0
+https://t.me/+lCR7HeYTU15iNjM0
+A26
+عضو کانال شو تا بفهمی 
+✅
+</div>
+
+## Dirty_Kids — post 392362
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392362_1781650991.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#بخوابیم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392361
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392361_1781650991.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بابای پسره تبدیل به دشمنِ جدید مرد آهنی شد، تو قسمت بعدی باهاش میجنگه.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392360
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392360_1781650992.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 توی آذربایجان و توی هوای به شدت بارونی، یه نفر با تمام وجودش سعی می‌کنه تا یه توله سگ رو که افتاده داخل فاضلاب نجات بده و مادرِ توله ام نگران بالا سرش وایساده.
+
+مرد تمام تلاششو کرد، اما بی فایده بود و نتیجش جز غم چیزی نبود...
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392359
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392359_1781650994.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سنای آمریکا اجازه نداد اختیارات ترامپ برای اقدام نظامی علیه ایران محدود بشه.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392358
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392358_1781650995.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جی‌دی ونس:
+اگر ترامپ رهبر معظم ایران هم میشد، بازم دموکرات‌ها میگفتن که ترامپ جلوی ایران شکست خورده.
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/03/27 02:23
 ---
 

@@ -7,6 +7,218 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/26 12:14
+---
+
+## VahidOOnLine — post 245827
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️عباس عراقچی، وزیر امور خارجه جمهوری اسلامی روز سه‌شنبه ۲۶ خردادماه گفت جنگ در تمام جبهه‌ها از روز گذشته پایان یافته است.
+
+عراقچی گفت از نظر ما، آمریکا و اسرائیل یک طرف تفاهم‌نامه پایان جنگ و ایران و حزب‌الله طرف دیگر آن هستند. او گفت برای خاتمه جنگ، اسرائیل باید از لبنان خارج شود و در صورت حمله مجدد اسرائیل به لبنان، این مساله به‌عنوان ادامه جنگ در نظر گرفته خواهد شد.
+
+بنیامین نتانیاهو و اسرائیل کاتز، نخست وزیر و وزیر دفاع اسرائیل روز گذشته اعلام کرده بودند طرف این تفاهم‌نامه نیستند و از لبنان خارج نمی‌شوند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 15032
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عراقچی: هرگونه حمله نظامی اسرائیل به لبنان ، نقض یادداشت تفاهم محسوب می‌شود
+@withyashar
+</div>
+
+## DEJradio — post 5727
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5727_1781599442.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺🎥 بر اساس ویدیویی که در شبکه‌های اجتماعی منتشر شده، یکی از هواداران جمهوری اسلامی در استادیوم «سوفای» لس‌آنجلس پس از توهین به هم‌میهنان تنبیه شد.
+
+#فوتبال #جمهوری_اسلامی #جام_جهانی
+@DEJradio
+</div>
+
+## mamlekate — post 103721
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 وال‌استریت ژورنال: ترامپ از «تسلیم بی‌قید و شرط» به توافقی محدود با ایران رسید
+
+در حالی که دونالد ترامپ از دستیابی به «توافقی بزرگ» با ایران سخن می‌گوید، گزارش وال‌استریت ژورنال نشان می‌دهد روزهای منتهی به اعلام این تفاهم با تلاش‌های فشرده دیپلماتیک، اختلاف نظر در دولت آمریکا و نگرانی از فروپاشی مذاکرات همراه بوده است.
+
+قرار است مراسم رسمی امضای این توافق، جمعه ۲۹ خرداد در ژنو برگزار شود.
+
+
+📝 هشت پرسش بی‌پاسخ درباره توافق ترامپ با جمهوری اسلامی ایران
+
+مقام‌های ارشد دولت آمریکا روز دوشنبه به خبرنگاران گفتند که توافق میان آمریکا و جمهوری اسلامی ایران روز یکشنبه به‌صورت الکترونیکی به امضای دونالد ترامپ، رئیس‌جمهوری آمریکا، جی‌دی ونس، معاون او  و محمدباقر قالیباف، رئیس مجلس شورای اسلامی ایران، رسیده است.
+
+@mamlekate
+</div>
+
+## IranIntlTV — post 342672
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342672_1781599446.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تفاهم به‌دست آمده میان جمهوری اسلامی و ایالات متحده آمریکا بازتاب گسترده‌ای در مطبوعات و شبکه‌های خبری این کشور داشته است.
+
+گفت‌وگو با جواد همدانی، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## FarsiVOA — post 220886
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220886_1781599448.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دولت بریتانیا همزمان با برگزاری نشست سران گروه هفت درباره جنگ اوکراین، از تحریم‌های جدید علیه روسیه خبر داد.
+
+بریتانیا سه‌شنبه اعلام کرد که ۷۰ تحریم جدید این کشور «ناوگان سایه» فرسوده روسیه که زنجیره‌های تأمین نظامی و شبکه‌های مالی غیرقانونی این کشور را تشکیل می‌دهند و برای دور زدن تحریم‌ها استفاده می‌شوند، هدف گرفته است.
+
+بریتانیا تاکید کرد که در جریان نشست گروه هفت و پس از حملات اخیر مسکو علیه اوکراین که منجر به کشته شدن غیرنظامیان و تخریب اماکن مقدس شد، فشار بر روسیه را افزایش می‌دهد.
+
+بریتانیا به‌تنهایی صدها فرد، نهاد و کشتی را تحت رژیم تحریم‌های روسیه هدف قرار داده است.
+
+تحریم‌های جدید یاندکس بانک و مؤسسات مالی «اِوروفایننس» و «بانک وایلدبریس» را نیز شامل می‌شود.
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 17236
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17236_1781599449.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک منبع آگاه به انتخاب: در پی هشدارهای جدی قالیباف و مقاومت او بر سر خطوط قرمز، ترامپ در لحظات پایانی عقب نشینی کرد و محاصره دریایی علیه ایران را که قرار بود براساس متن تفاهم در طول 30 روز بردارد، به صورت کامل و درجا لغو کرد. 📝 Amir 📌 @persian_trend_official…
+</div>
+
+## Dirty_Kids — post 392269
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392269_1781599450.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پسرم! کص مادرت با این تنگه نگه داشتنت
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392268
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392268_1781599450.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ابراز محبت هموطنا به مادر بیرانوند
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392267
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392267_1781599451.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اون زمان که اینترنت نداشتیم این اقا تمام قد پشت مردم ایران واستاد
+
+
+@Dirty_Kids 👻
+</div>
+
+## Hranews — post 113643
+
+<div align="center">
+  <img src="telegram/content/Hranews_113643_1781599451.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرحناز نیکخو از زندان اوین آزاد شد
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– فرحناز نیکخو، زندانی سیاسی، با توقف اجرای حکم حبس روز یکشنبه ۲۴ خردادماه از #زندان_اوین آزاد شد.
+
+به گزارش خبرگزاری هرانا، ارگان خبری مجموعه فعالان حقوق بشر در ایران، فرحناز نیکخو، آزاد شد.
+
+بر اساس اطلاعات دریافتی هرانا، خانم نیکخو در پی صدور دستور توقف اجرای حکم حبس، ظهر روز یکشنبه ۲۴ خردادماه از زندان اوین آزاد شده است.
+
+ادامه مطلب
+
+#فرحناز_نیکخو
+
+↘️
+@hranews_bot تماس ✉️ -  @Hranews  کانال هرانا 🆑
+</div>
+
+## alonews — post 128411
+
+<div align="center">
+  <a href="telegram/content/alonews_128411_1781599452.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ویدیدیی از یک درگیری دیگر بین موافقان و مخالفان جمهوری اسلامی در ورزشگاه
+
+
+🔴پ.ن: ژاپنی‌ها بعد بازی آشغال جمع میکنن و کل دنیا میگن دمتون گرم. ایرانیا بعد بلزی دعوا میکنن و همه میخندن بهمون
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128410
+
+<div align="center">
+  <a href="telegram/content/alonews_128410_1781599454.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈جمعه قالیباف و ونس امضا خواهند کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128409
+
+<div align="center">
+  <a href="telegram/content/alonews_128409_1781599454.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حزب‌الله: ایران الان یکی از ابرقدرت های دنیاست
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128408
+
+<div align="center">
+  <a href="telegram/content/alonews_128408_1781599454.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تخت روانچی: در سوییس پس از اینکه مسئله امضا ( تفاهمنامه پاکستان) انجام شد، مذاکرات شروع خواهد.
+
+
+🔴درباره جزئیاتی نظیر اینکه چه مدت در سوییس باشیم و چه مباحثی مطرح شوند، صحبتی نشده اما این مورد تایید دو طرف است که بعد از امضا، بحث‌ها (درباره توافق نهایی) شروع خواهد شد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/26 12:04
 ---
 

@@ -7,6 +7,116 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/27 01:03
+---
+
+## WithYashar — post 15113
+
+<div align="center">
+  <a href="telegram/content/WithYashar_15113_1781645584.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ونس : اگه دونالد ترامپ حتی به عنوان رهبر معظم انقلاب در ایران هم انتخاب می‌شد، دموکرات‌ها باز هم می‌گفتن آمریکا شکست خورده
+@withyashar
+</div>
+
+## WithYashar — post 15112
+
+<div align="center">
+  <a href="telegram/content/WithYashar_15112_1781645586.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+معاون رئیس جمهور جی دی ونس:
+
+پرزیدنت ترامپ هرگز نگفت که هدفش نصب رضا پهلوی برای تبدیل شدن به رهبر جدید ایران است.
+
+آنچه گفته این است که اگر مردم ایران بخواهند قیام کنند ، عالی است. این کار اوناست این بین آنها و دولتشان است.
+چیزی که ما می خواهیم توقف برنامه هسته ای آنهاست.‌‌
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 343044
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343044_1781645588.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"Not a single cent of American money."
+
+VP JD Vance pushed back on claims that the Iran deal will hand Tehran billions of dollars in U.S. funding, arguing that critics are misrepresenting what's actually on the table.
+
+Speaking on @TheFive, Vance said any economic benefits would come only if Iran completely changes its behavior and meets U.S. demands.
+</div>
+
+## FoxNewsTwitter — post 343043
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343043_1781645590.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"How real are they? How fake are they?"
+
+Vice President JD Vance tells @TheFive that the Iran deal signing won't just be a photo opportunity — their compliance is what really matters.
+</div>
+
+## pm_afshaa — post 94218
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94218_1781645592.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴جی‌دی ونس، معاون ترامپ:
+ترامپ هیچوقت نگفته که هدفش اینه که رضا پهلوی رو به عنوان رهبر جدید ایران منصوب کنه. چیزی که اون گفته اینه که اگر مردم ایران بخوان قیام کنن، عالی میشه. این کار خودشونه و این موضوع بین مردم و دولتشونه. چیزی که ما میخوایم، توقف برنامه هسته‌ای ایرانه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## Dirty_Kids — post 392345
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392345_1781645593.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 رسما و شرعا «تهران» منطقه آزاد شد و هر ماشینی خواستین میتونین وارد کنین. فعلا برای فرودگاه امام خمینی اجرایی شده و گفته شده بزودی در سراسر تهران اجرا میشه!
+
+لندکروز ۲۰۲۵: پلاک ملی ۶۳-۶۸ میلیارد
+پلاک منطقه آزاد: ۱۶-۱۹ میلیارد
+لکسوس Lx600: پلاک ملی ۹۵-۱۰۵ میلیارد
+پلاک منطقه آزاد: ۲۵-۳۰ میلیارد!
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 128577
+
+<div align="center">
+  <a href="telegram/content/alonews_128577_1781645593.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈مجری : گزارش‌هایی هست که می‌گن قطری‌ها دارن به ایرانی‌ها پول می‌دن درسته؟
+
+
+🔴ونس : درست نیست، من اون گزارش رو دیدم
+
+
+🔴مجری : هیچ پولی جابه‌جا نشده؟ ایران حتی یک دلار هم از کشورهای حاشیه خلیج فارس نگرفته؟
+
+
+🔴ونس : درسته
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/27 00:52
 ---
 

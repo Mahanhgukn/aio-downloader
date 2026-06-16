@@ -7,6 +7,102 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/26 11:14
+---
+
+## VahidOOnLine — post 245824
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️عباس عراقچی، وزیر امور خارجه جمهوری اسلامی روز سه‌شنبه گفت دور جدید مذاکرات با آمریکا از روز جمعه ۲۹ خرداد و پس از امضای رسمی «تفاهم‌نامه پایان جنگ» آغاز خواهد شد.
+
+عراقچی که در نشستی با حضور نمایندگان دیپلماتیک کشورهای خارجی در تهران سخن می‌گفت، افزود: «یادداشت تفاهم بین ایران و آمریکا روز یکشنبه نهایی شد و به زودی امضای رسمی آن صورت خواهد گرفت، احتمالا روز جمعه و در محلی که مشخص خواهد شد. همزمان، دور جدید مذاکرات ایران و آمریکا برای رسیدن به توافق نهایی آغاز خواهد شد.»
+
+همزمان، خبرگزاری تسنیم گزارش کرد که مراسم امضای تفاهم‌نامه در سوئیس برگزار خواهد شد. شهباز شریف، نخست وزیر پاکستان پیش از این گفته بود که این کشور میزبان این مراسم خواهد بود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## DW_Farsi — post 126041
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎥 حواشی پس از بازی ایران و نیوزیلند؛ روایت ایرانیان از فضای ورزشگاه
+
+تساوی ۲ بر ۲ ایران و نیوزیلند در جام جهانی ۲۰۲۶ با حضور شماری از ایرانیان در ورزشگاه لس‌آنجلس همراه بود. برخی از آن‌ها در گفت‌وگو با دویچه‌وله فارسی پس از پایان مسابقه، از ورود پرچم‌های شیر و خورشید به ورزشگاه و محدودیت‌های احتمالی برای نمایش آن‌ها سخن گفتند.
+
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 17234
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17234_1781595859.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرمانده نیروی هوایی اسرائیل: تنها یک ساعت تا حمله گسترده به ایران مانده بود.
+
+عومر تیشلر، فرمانده نیروی هوایی ارتش اسرائیل، اعلام کرد که ساعاتی پیش از توقف عملیات، کل نیروی هوایی به حالت کامل رزمی درآمده بود؛ هواپیماها مسلح شده، صدها هدف در عمق خاک ایران شناسایی و برنامه‌ریزی شده بود و اسکادران‌ها دقیقاً یک ساعت پیش از پرواز در حال توجیه نهایی اهداف بودند.
+
+
+
+👺Phantom
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Dirty_Kids — post 392266
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392266_1781595859.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اورانیوم غنی شده به شکل جاساز تحویل آمریکا شد:
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392265
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392265_1781595860.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+من تو اینستاگرام فقط محتوای آموزشی و فاخر می‌بینم،
+محتوای فاخری که میبینم: 👆
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 128398
+
+<div align="center">
+  <a href="telegram/content/alonews_128398_1781595862.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈درگیری موافقان و مخالفان ج.ا در ورزشگاه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128397
+
+<div align="center">
+  <a href="telegram/content/alonews_128397_1781595864.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈عراقچی: هرگونه حمله نظامی اسرائیل به لبنان ، نقض یادداشت تفاهم محسوب می‌شود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/26 11:04
 ---
 

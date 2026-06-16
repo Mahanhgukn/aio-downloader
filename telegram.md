@@ -7,6 +7,129 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/27 01:52
+---
+
+## VahidOOnLine — post 245949
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245949_1781648567.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وای‌نت گزارش داد نتانیاهو روز سه‌شنبه ایال زمیر، رییس ستاد ارتش اسرائیل، را به دلیل افشای جزئیات جدید درباره یک حمله گسترده برنامه‌ریزی‌شده علیه جمهوری اسلامی که اندکی پیش از آغاز عملیات لغو شده بود، مورد انتقاد قرار داد.
+نتانیاهو گفت: «او نباید این موضوع را می‌نوشت. این یک اشتباه ملی است و به وحدت ما آسیب می‌زند. همچنین باعث شرمندگی در برابر ترامپ می‌شود.»
+طبق گزارش وای‌نت، فرمانده نیروی هوایی اسرائیل در نامه‌ای از یک موج حملات بزرگ علیه جمهوری اسلامی خبر داده بود که حدود یک ساعت پیش از برخاستن جنگنده‌ها متوقف شد.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## IranIntlTV — post 342782
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342782_1781648568.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+الکس وطن‌خواه، پژوهشگر ارشد موسسه خاورمیانه، در نشست عمومی ایران‌اینترنشنال در واشینگتن دی‌سی گفت در دکترین جدید دفاعی جمهوری اسلامی، حمله به حزب‌الله، حشدالشعبی و دیگر نیروهای نیابتی تهران به‌منزله حمله به خاک ایران تلقی می‌شود؛ رویکردی که به گفته او می‌تواند به جنگی بی‌پایان منجر شود.
+
+تماشای نسخه کامل این نشست در یوتیوب ایران‌اینترنشنال:
+
+https://youtu.be/D6e4ychQWgk
+
+@iranintltv
+</div>
+
+## IranIntlTV — post 342781
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342781_1781648570.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وای‌نت گزارش داد نتانیاهو روز سه‌شنبه ایال زمیر، رییس ستاد ارتش اسرائیل، را به دلیل افشای جزئیات جدید درباره یک حمله گسترده برنامه‌ریزی‌شده علیه جمهوری اسلامی که اندکی پیش از آغاز عملیات لغو شده بود، مورد انتقاد قرار داد.
+نتانیاهو گفت: «او نباید این موضوع را می‌نوشت. این یک اشتباه ملی است و به وحدت ما آسیب می‌زند. همچنین باعث شرمندگی در برابر ترامپ می‌شود.»
+طبق گزارش وای‌نت، فرمانده نیروی هوایی اسرائیل در نامه‌ای از یک موج حملات بزرگ علیه جمهوری اسلامی خبر داده بود که حدود یک ساعت پیش از برخاستن جنگنده‌ها متوقف شد.
+
+https://iranintl.com/202606169175
+</div>
+
+## Persian_Trend_Official — post 17310
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17310_1781648571.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عادل فردوسی‌پور: بدنچال دکترخوش چشم فوتبال هستم
+دکتر خوش چشم هر چه میگوید بر عکس میشود.
+
+
+👺Phantom
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 22771
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22771_1781648571.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بعد از حدود دو ماه محاصره دو نفتکش ایرانی از تنگه هرمز رد شدن.
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 392352
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392352_1781648572.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تو ورزش نکنی سالمتر میمونی:)))
+نباید میخندیدم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392351
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392351_1781648573.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 تحقیقات جدید نشون میده که مغزتون به چهره‌ی بهترین دوستتون، دقیقا مثل خوردن غذای مورد علاقتون واکنش نشون میده.
+
+وقتی شما چهره دوست صمیمی‌تون رو می بینین، بخش هایی از مغزتون فعال میشه که باعث لذت و آرامش میشه، دقیقا مثل خوردن غذای مورد علاقه‌مون.
+نگاه کردن به دوست صمیمی‌مون می‌تونه باعث ترشح دوپامین و اکسی‌توسین بشه و درنتیجه، افزایش آرامش، کاهش استرس و حس امنیت رو همراه داشته باشه.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392350
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محبی بازی بدی رو شروع کردش
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 128582
+
+<div align="center">
+  <a href="telegram/content/alonews_128582_1781648573.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یا رب روا مدار روزی گدا معتبر شود
+
+@AloSport
+</div>
+
+---
 📅 بروزرسانی: 1405/03/27 01:43
 ---
 

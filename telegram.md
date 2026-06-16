@@ -7,6 +7,69 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/27 01:43
+---
+
+## FoxNewsTwitter — post 343046
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343046_1781647989.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"I guarantee that when Barack Obama was president, or Joe Biden was pretending to be president, that you had Republicans who still said they're proud of America."
+
+VP Vance said he wished Democrats would be proud of their country, even when their party is out of power, telling @TheFive he rejected the idea that patriotic pride should rise and fall with politics.
+</div>
+
+## IranIntlTV — post 342780
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/342780" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی برنامه با کامبیز حسینی؛ آیا جمهوری اسلامی با «قاتل خامنه‌ای» آشتی کرد؟
+@iranintlTV
+</div>
+
+## FarsiVOA — post 220957
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️مهدی عربشاهی در گفت‌وگو با صدای آمریکا گفت غیبت مجتبی خامنه‌ای، تصمیم‌گیری‌های بزرگ در جمهوری اسلامی را دشوار کرده و حتی درون حکومت این پرسش را ایجاد کرده است که چه کسانی به نام او تصمیم می‌گیرند.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220956
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺هشدار نهادهای حقوق بشری درباره خطر اعدام قریب‌الوقوع سه معترض ایرانی توسط جمهوری اسلامی
+
+▪️سازمان عفو بین‌الملل با ابراز نگرانی از خطر اعدام قریب‌الوقوع علی فتاح و محمد نقی‌زاده، خواستار توقف فوری اجرای احکام این دو معترض شد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/human-rights-organnization-warn-of-the-imminent-execution-of-three-iranan-protesters-by-the-islamic-republic/8161564.html
+@FarsiVOA
+</div>
+
+## alonews — post 128581
+
+<div align="center">
+  <a href="telegram/content/alonews_128581_1781647993.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈طبق گزارش شبکه خبری ان‌بی‌سی، سپاه پاسداران انقلاب اسلامی از زمان امضای دیجیتال تفاهم‌نامه در روز یکشنبه، هر شب پهپادهای متعددی را پرتاب کرده است
+
+
+🔴یک مقام آمریکایی می‌گوید که این پهپادها توسط سپاه پاسداران انقلاب اسلامی پرتاب می‌شوند، در حالی که نیروهای آمریکایی آن‌ها را قبل از اینکه بتوانند به کشتیرانی تجاری، کشتی‌های نظامی ایالات متحده یا پرسنل در منطقه تهدید کنند، رهگیری کرده‌اند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/27 01:32
 ---
 

@@ -7,6 +7,162 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/26 20:35
+---
+
+## WithYashar — post 15081
+
+<div align="center">
+  <a href="telegram/content/WithYashar_15081_1781629527.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## WithYashar — post 15080
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یاشار اخبار خیلی دارن میگن که شکاف به شدت زیاد شده بین بی بی و ترامپ
+به نظرت زرگریه یا واقعا ترامپ پشت اسرائیل رو خالی کرده ؟
+</div>
+
+## FoxNewsTwitter — post 343033
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+🚨 BREAKING: DOJ announces charges against 15 members of left-wing anti-ICE group Direct Action Minnesota for allegedly 'surveilling, harassing, and confronting' federal agents
+</div>
+
+## pm_afshaa — post 94197
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🟢تو این اوضاع سر سبز بورس، این کانال قطعا به دردتون میخوره داشته باشید :
+
+رادار بورس، اخبار و سرخطی بازار :
+
+
+➡️https://t.me/BorsRadar
+
+➡️https://t.me/BorsRadar
+</div>
+
+## pm_afshaa — post 94196
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94196_1781629529.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴یک منبع اطلاعاتی آمریکایی به سی‌ان‌ان:
+ارزیابی واشینگتن اینه که ایران از این به بعد هر زمان بخواد میتونه تنگه هرمز رو ببنده.
+
+ما عملا کنترل تنگه هرمز رو به ایران دادیم؛ سلاحی که حتی از سلاح هسته‌ای هم قدرتمندتره!
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 342735
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342735_1781629530.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نفتالی بنت، نامزد جانشینی بنیامین نتانیاهو، در گفت‌وگو با ایران‌اینترنشنال گفت: به ملت شریف ایران می‌گویم که امیدتان را از دست ندهید، جمهوری اسلامی رژیم فاسدی است که سقوط خواهد کرد. نوبت بعد که مردم ایران قیام کنند ما ابزارهای لازم را در اختیارشان قرار می‌دهیم.
+@iranintltv
+</div>
+
+## DW_Farsi — post 126070
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 تاثیر توافق ایران با آمریکا بر وضعیت اقتصادی و سفره‌های مردم
+ 
+🔻گزارشی از مراد رحمتی
+
+جی‌دی ونس، معاون رئیس‌جمهور آمریکا می‌گوید توافق احتمالی با ایران می‌تواند "آغازگر دوره‌ای جدید از ثبات، شکوفایی و موفقیت" باشد.
+ 
+دونالد ترامپ، رئیس‌جمهور آمریکا نیز گفته است که می‌خواهد شاهد "شکوفایی، عملکرد خوب، موفقیت و شادی ایران" باشد.
+ 
+ایران و آمریکا تائید کرده‌اند که روز جمعه ۱۹ ژوئن توافق میان دو کشور امضا خواهد شد.
+ 
+این تحول، پس از دو جنگ ویرانگر اکنون نوعی امید را در میان بسیاری از مردم ایران ایجاد کرده است؛ امید به اینکه شاید وضعیت اقتصادی کشور بهبود یابد و اثرات آن در نهایت در زندگی روزمره و معیشت خانوارها نیز احساس شود.
+ 
+احمد علوی، اقتصاددان، در تحلیل خود درباره مذاکرات و سناریوی توافق احتمالی ایران و آمریکا به دویچه وله فارسی می‌گوید هنوز متن یا جزئیات دقیق این تفاهم‌نامه مشخص نیست و آنچه در جریان است بیشتر یک فرآیند مذاکره و "مهلت کوتاه‌مدت برای رسیدن به تفاهم" محسوب می‌شود تا یک توافق نهایی و قطعی.
+ 
+دالغا خاتین‌اوغلو، کارشناس  حوزه انرژی در عین حال تاکید کرده است که توافق یا در ادامه آن، رفع تحریم‌ها "تاثیر فوری و چشمگیری بر معیشت مردم نخواهد داشت".
+@dw_farsi
+</div>
+
+## Dirty_Kids — post 392326
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392326_1781629532.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صحبت‌های این آخونده خیلی وایرال شده و همزمان دماغ، جیگر و کون عرزشی‌ها رو خیلی سوزونده و آتش زده
+
+خیلی داغونشون کرده هیچ کاریم از دستشون ساخته نیست از ترس ممدباقر، فقط فشار میخورن رو ۳ تا شعار میدن
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392325
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392325_1781629536.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این چه کوفتی بود، ملت رد دادن
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 128530
+
+<div align="center">
+  <img src="telegram/content/alonews_128530_1781629539.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈طبق گزارش شبکه‌ی العربیه از پیش‌نویس توافق ۱۴ ماده‌ای میان تهران و واشینگتن، در متن این یادداشت تفاهم هیچ اشاره‌ای به اسرائیل نشده است.
+
+
+🔴این افشاگری در حالی صورت می‌گیرد که جزئیات این توافقِ کلیدی، توجه محافل دیپلماتیک را به خود جلب کرده است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128529
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈قیمت هرگرم طلای ۱۸ عیار به ۱۵.۴۰۰.۰۰۰ هزارتومن رسید
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128528
+
+<div align="center">
+  <a href="telegram/content/alonews_128528_1781629540.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حملات اسرائیل به لبنان ادامه دارد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/26 20:24
 ---
 

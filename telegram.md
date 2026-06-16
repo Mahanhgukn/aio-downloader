@@ -7,6 +7,106 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/27 02:12
+---
+
+## VahidOOnLine — post 245952
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245952_1781649770.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش عراق در پاسخ به پرسش العربیه درباره خلع سلاح گروه‌های شبه‌نظامی در این کشور گفت پس از برقراری ثبات امنیتی، دیگر توجیهی برای حضور گروه‌های مسلح وجود ندارد.
+ارتش عراق با تاکید بر اینکه تصمیم‌های امنیتی در این کشور صرفا عراقی خواهد بود و هیچ‌گونه دخالت خارجی در آن پذیرفته نخواهد شد، گفت در پرونده انحصار سلاح، همه طرف‌ها تابع حاکمیت قانون خواهند بود.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245951
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245951_1781649771.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️تانکر ترکرز، سامانه رصد تردد نفتکش‌ها، سه‌شنبه ۲۶ خرداد اعلام کرد دست‌کم دو نفتکش غول‌پیکر شرکت ملی نفتکش ایران با مجموع حدود ۳ میلیون و ۸۰۰ هزار بشکه نفت خام، از محدوده محاصره دریایی نیروی دریایی آمریکا خارج شده‌اند.
+بر اساس این گزارش، این نخستین صادرات نفت خام ایران در دو ماه گذشته به شمار می‌رود. تانکر ترکرز اعلام کرد اطلاعات مربوط به حرکت این نفتکش‌ها را با استفاده از داده‌های رهگیری دریایی و تصاویر ماهواره‌ای تایید کرده است.
+این موسسه همچنین گزارش داد یک نفتکش دیگر شرکت ملی نفتکش ایران که طی هفت هفته گذشته در منطقه اقتصادی پاکستان منتظر ورود به آب‌های ایران بوده، در حال نزدیک شدن به خط محاصره دریایی است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## IranIntlTV — post 342785
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342785_1781649772.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رابرت ساتلوف، مدیر اجرایی موسسه واشینگتن، در نشست عمومی ایران‌اینترنشنال در واشینگتن دی‌سی گفت: «حمله جمهوری اسلامی به کشورهای منطقه، بهترین فرصت برای دونالد ترامپ، رییس‌جمهوری آمریکا، است تا ائتلافی منطقه‌ای علیه جمهوری اسلامی شکل دهد و این کشورها را بیش از پیش با آمریکا همراه کند.»
+
+تماشای نسخه کامل این نشست در یوتیوب ایران‌اینترنشنال:
+
+https://youtu.be/D6e4ychQWgk
+
+@iranintltv
+</div>
+
+## IranIntlTV — post 342784
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342784_1781649773.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش عراق در پاسخ به پرسش العربیه درباره خلع سلاح گروه‌های شبه‌نظامی در این کشور گفت پس از برقراری ثبات امنیتی، دیگر توجیهی برای حضور گروه‌های مسلح وجود ندارد.
+ارتش عراق با تاکید بر اینکه تصمیم‌های امنیتی در این کشور صرفا عراقی خواهد بود و هیچ‌گونه دخالت خارجی در آن پذیرفته نخواهد شد، گفت در پرونده انحصار سلاح، همه طرف‌ها تابع حاکمیت قانون خواهند بود.
+
+https://iranintl.com/202606160021
+</div>
+
+## IranIntlTV — post 342783
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342783_1781649774.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بن سبطی، پژوهشگر ایران و اسرائیل، درباره نقش لبنان و حزب‌الله به‌عنوان مانعی در مسیر توافق تهران و واشینگتن گفت: «جمهوری اسلامی وقتی در طرف آمریکایی نشانه‌ای از انعطاف می‌بیند، تلاش می‌کند مفاد این توافق را گسترش دهد.»
+@iranintltv
+</div>
+
+## FarsiVOA — post 220959
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220959_1781649775.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️جی‌دی ونس، معاون رئیس‌جمهوری آمریکا، در مصاحبه‌ای با «شوی مگان کلی» گفت که اگر جمهوری اسلامی ایران به تامین مالی گروه حزب‌الله در لبنان ادامه دهد، ایالات متحده آمریکا، دارایی‌های مسدود‌شده آن را آزاد نخواهد کرد.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220958
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ریزش قیمت دلار تا کجا ادامه دارد
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 17311
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17311_1781649775.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبتون بخیر 🌌
+F-16 Falcon
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+---
 📅 بروزرسانی: 1405/03/27 02:03
 ---
 

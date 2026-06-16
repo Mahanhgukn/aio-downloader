@@ -7,6 +7,140 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/26 23:43
+---
+
+## VahidOOnLine — post 245938
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_245938_1781640836.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علیرضا زاکانی، شهردار تهران، گفت «مراسم وداع» با علی خامنه‌ای و تشییع جنازه او و دیگر اعضای خانواده‌اش که همراه با او کشته شدند، از ۱۳ تیر آغاز می‌شود. تدفین او در روز ۱۸ تیر در مشهد برنامه‌ریزی شده است.
+به گفته او، برگزارکنندگان امیدوارند این مراسم به تشییعی «بی‌نظیر و تاریخی» بدل شود.
+او همچنین افزود: «پیش‌بینی می‌شود دست‌کم ۱۵ تا ۲۰ میلیون نفر در تهران در این مراسم شرکت کنند.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## pm_afshaa — post 94214
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_94214_1781640837.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امروز 26 خرداد، سالگرد و تولد مجیدرضا رهنورده
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 342768
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342768_1781640838.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وال‌استریت ژورنال می‌گوید ایران طبق توافق با واشینگتن می‌تواند فورا صادرات نفت را از سر بگیرد و بخشی از تحریم‌های بانکی و حمل‌ونقل نیز تعلیق شود. همزمان، دونالد ترامپ، گفت این توافق ۹۹ درصد خواسته‌های آمریکا را تامین کرده است.
+
+ارزیابی علی دادپی، اقتصاددان
+@iranintltv
+</div>
+
+## IranIntlTV — post 342767
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342767_1781640839.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علیرضا زاکانی، شهردار تهران
+</div>
+
+## IranianMinds — post 22764
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ابراهیم عزیزی، رئیس کمیسیون امنیت ملی:
+
+اگر اسرائیل همچنان به جنوب لبنان حمله کند، پاسخ سختی می‌دهیم.
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 392341
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392341_1781640840.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+داداش تو چه کار خوبی تو زندگیت کردی؟ یه هموطن رفته تور و همه کسایی که اومدن، دخترن😂
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392340
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392340_1781640841.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 این ویدیو پربازدیدترین و پر شیر ترین ویدیو اینستاگرام فارسی تو چندماه اخیره؛
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 128564
+
+<div align="center">
+  <a href="telegram/content/alonews_128564_1781640842.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حرف حق پزشکیان:
+مشکلات خودتون رو خودتون حل کنید، من سیاستمدار نیستم من دکترم، برا سلامت مردم اومدم رئیس‌جمهور شدم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128563
+
+<div align="center">
+  <a href="telegram/content/alonews_128563_1781640844.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 پزشکیان: حوادث دی‌ماه سال گذشته قابل پیشگیری بود
+
+
+🔴بخش قابل توجهی از کسانی که در این رخداد‌ها حضور داشتند، با آسیب‌هایی همچون بیکاری، محرومیت درگیر بودند،
+
+
+🔴اگر می‌توانستیم زمینه‌های شکل‌گیری این آسیب‌ها را شناسایی و مدیریت کنیم، بسیاری از این مسائل بروز نمی‌یافت
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128562
+
+<div align="center">
+  <a href="telegram/content/alonews_128562_1781640844.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کانال ۱۵ عبری: سند تفاهماتی که میان امریکا و ایران در حال شکل‌گیری است، مجموعه‌ای از امتیازات بسیار گسترده واشنگتن را در ازای پایان فوری جنگ در تمامی جبهه‌ها، از جمله لبنان، نشان می‌دهد
+
+
+🔴واشنگتن متعهد می‌شود محاصره دریایی را لغو کند، تمامی تحریم‌ها را بردارد، از منطقه خارج شود و دست‌کم ۳۰۰ میلیارد دلار برای بازسازی ایران اختصاص دهد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/26 23:34
 ---
 

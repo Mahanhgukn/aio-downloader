@@ -7,6 +7,115 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/26 05:13
+---
+
+## FarsiVOA — post 220865
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️دادگاهی در کالیفرنیا شکایت یک موسسه ایرانی از فیفا به خاطر راه ندادن پرچم شیر و خورشید به ورزشگاه را رد کرد؛ گفتگو با شاهرخ مختارزاده
+@FarsiVOA
+</div>
+
+## IranianMinds — post 22707
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22707_1781574227.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کو‌ ما این پرچمو ندیدیم که خایمال ولی پرچم ملیمونو زیاد داریم میبینیم خودتونم پخشش میکنید :)))
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22706
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شیر بچه های نیوزیلند خیلی کسخلن
+سطح دفاع فقط
+</div>
+
+## IranianMinds — post 22705
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وای گل زدن کصکشا
+</div>
+
+## IranianMinds — post 22704
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22704_1781574228.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+داداش یکم بیشتر دووم میاوردی حداقل به احترام پیکر رهبر @IranianMinds
+</div>
+
+## IranianMinds — post 22703
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22703_1781574229.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+داداش یکم بیشتر دووم میاوردی حداقل به احترام پیکر رهبر @IranianMinds
+</div>
+
+## BBCPersian — post 283956
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻شنیدن شدن «صدای انفجار» در جنوب قشم و تنگه هرمز؛ «شلیک هشدار به کشتی‌ها»
+
+خبرگزاری مهر گزارش کرده که در ساعات پایانی روز گذشته «صدای سه انفجار در جنوب قشم و تنگه هرمز» شنیده شده است.
+
+به نوشته این رسانه «دو انفجار نخست ساعات پایانی شامگاه دوشنبه ۲۵ خرداد و سومین انفجار ساعات اولیه بامداد سه‌شنبه ۲۶ خرداد رخ داده است.»
+
+مهر به نقل از خبرنگارش نوشته که این «انفجارها در محدوده تنگه هرمز روی داده و بر اساس گزارش‌های اولیه، احتمالا برای مدیریت تردد» در این تنگه بوده با این حال «هیچ نهاد رسمی از جمله سپاه یا نهادهای محلی نسبت به جزئیات این رویداد واکنشی نشان نداده است.»
+https://bbc.in/3SIA6ol
+@BBCPersian
+</div>
+
+## BBCPersian — post 283955
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️گل ایران در دقیقه ۳۲ با شوت رامین رضائیان
+</div>
+
+## Dirty_Kids — post 392228
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392228_1781574230.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هو کردن پرچم خرچنگ‌نشان
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392227
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گل اول جمهوری‌عسهالی توسط رامین رضاییان
+
+
+تماشا
+</div>
+
+## Dirty_Kids — post 392226
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چه کصخل بازاریه
+
+ننه اینفانتینو رو گاییدن ک جام جهانی رو ۴۸ تیمی کرد
+</div>
+
+---
 📅 بروزرسانی: 1405/03/26 05:04
 ---
 

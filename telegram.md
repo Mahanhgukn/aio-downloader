@@ -7,6 +7,96 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/26 20:14
+---
+
+## IranIntlTV — post 342733
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342733_1781628270.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تیتراول با نیوشا صارمی، سه‌شنبه ۲۶ خرداد
+@iranintltv
+</div>
+
+## Shin_Persian — post 7113
+
+<div align="center">
+  <a href="telegram/content/Shin_Persian_7113_1781628271.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Emanuel (Mannie) Fabian ✓ @manniefabian
+Tue, 16 Jun 2026 16:12:41 UTC
+
+Several rockets launched by Hezbollah at Israeli troops in southern Lebanon this morning were intercepted by air defenses, the military says.
+
+A short while later, the Israeli Air Force struck and destroyed the launcher, the IDF says.
+
+Additionally, the IDF it spotted a suspicious vehicle in an area of southern Lebanon where troops are operating today. The soldiers fired warning shots, and later carried out a strike "to remove the threat," the army says.
+
+ترجمه خودکار فارسی در بخش نظرات
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 220921
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220921_1781628272.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل اعلام کرد سکوی پرتاب موشک متعلق به حزب‌الله را که برای هدف‌گیری نیروهای اسرائیلی در جنوب لبنان استفاده شده بود منهدم کرده است.
+
+بنابر بیانیه ارتش اسرائیل چند موشکی که امروز حزب‌الله به سمت محل فعالیت نیروهای اسرائیل شلیک کرده بود رهگیری و منهدم شدند. نیروی هوایی این ارتش کمی بعد سکوی پرتاب موشک‌ها را شناسایی و هدف‌گیری کرد.
+
+ارتش اسرائیل همچنین اعلام کرد یک خودروی مشکوک در محدوده فعالیت نیروهای این ارتش بعد از شلیک هشدار، هدف‌گیری شد.
+</div>
+
+## Persian_Trend_Official — post 17285
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17285_1781628273.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ و بله، سرمایه ایلان ماسک حالا از مجموع ثروت 4 فرد ثروتمند پس از خودش بیشتر شد و او به اولین تريليونر تاریخ بشر تبدیل شد. 📝 Nick 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Dirty_Kids — post 392322
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392322_1781628274.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دستا‌ورد قالیباف برای عرزشیا
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 128524
+
+<div align="center">
+  <a href="telegram/content/alonews_128524_1781628274.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈هم اکنون پرواز پهپاد های اسرائیلی بر فراز لبنان
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128523
+
+<div align="center">
+  <a href="telegram/content/alonews_128523_1781628274.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / منبع به العربیه انگلیسی گفت که ایالات متحده، طبق این تفاهم‌نامه، متعهد به لغو «همه انواع تحریم‌ها» علیه ایران است 
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/26 20:04
 ---
 

@@ -7,6 +7,225 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/26 18:44
+---
+
+## VahidOOnLine — post 245885
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245885_1781622899.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لیندزی گراهام، سناتور جمهوری‌خواه آمریکا، در شبکه ایکس نوشت گسترش توافق‌های ابراهیم و ایجاد ثبات و رفاه در خاورمیانه یکی از مهم‌ترین اهداف دونالد ترامپ است و این هدف زمانی محقق می‌شود که جمهوری اسلامی تضعیف شود یا رفتار خود را تغییر دهد.
+
+او افزود که امیدوار است مذاکرات پیش رو برای پایان دادن به برنامه هسته‌ای ایران موفق باشد.
+
+لیندزی گراهام اضافه کرد: «جمهوری اسلامی و نیروهای نیابتی آن به‌شدت تضعیف شده‌اند و توانایی آن‌ها برای رقم زدن رخدادی مشابه هفتم اکتبر دیگر وجود ندارد.»
+
+او ادامه داد: «اگر درگیری با جمهوری اسلامی به گسترش توافق‌های ابراهیم، همگرایی منطقه‌ای و صلح پایدار منجر شود، این نتیجه یکی از موفق‌ترین عملیات‌های نظامی در تاریخ آمریکا خواهد بود.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 15069
+
+<div align="center">
+  <a href="telegram/content/WithYashar_15069_1781622900.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اخوند عرزشی هم صداش در اومد
+@withyashar
+اینو پیدا کنین استخدام کنم اتاق جنگ سبک منو داره میره 🤣
+</div>
+
+## WithYashar — post 15068
+
+<div align="center">
+  <img src="telegram/content/WithYashar_15068_1781622903.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دراپ سایت: ایران برای تحلیل رفتار ترامپ، دوتا روانشناس به تیم مذاکره کننده اضافه کرده
+@withyashar
+</div>
+
+## WithYashar — post 15067
+
+
+
+
+## FoxNewsTwitter — post 343030
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343030_1781622904.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+A Vietnam War veteran just earned his college degree at 81.
+
+Charley Whaley dropped out of high school more than six decades ago before serving 23 years in the U.S. Navy. Inspired by his family, he enrolled at a local college, learned how to navigate computers, and spent years working toward a goal he'd never forgotten.
+
+"I wanted to see if I could do it. And I did."
+</div>
+
+## FoxNewsTwitter — post 343027
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+RT @BillMelugin_: BREAKING: Details via federal arrest affidavit reveal that a California man named Michael Alan Thomas was one of the alleged organizers of the alleged UFC White House terror plot. Feds say he admitted he believes the U.S. government is run by elites who sacrifice and eat children, had involvement with Jeffrey Epstein, and are protected by President Trump.
+
+Investigators took screenshots of his Signal chats in which details of the plot were discussed and maps of the UFC event were shown with suggestions on where snipers should be placed. Feds also recovered rifles & ammo.
+
+Sources tell colleague @davidspunt those in custody are American citizens snd there is no foreign nexus believed to be at play.
+</div>
+
+## FoxNewsTwitter — post 343026
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343026_1781622905.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+RT @AmericaNewsroom: 🚨TERROR PLOT FOILED: The FBI now says it thwarted an alleged terror plot targeting thousands attending Sunday's UFC Freedom event at the White House.
+
+@davidspunt reports.
+</div>
+
+## IranIntlTV — post 342724
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342724_1781622906.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در حالی که ترامپ تکرار کرد در ازای توافق به جمهوری اسلامی پول نخواهد داد، رئیس سی‌آی‌ای به او گفته درباره حسن نیت تهران بر اجرای تعهدات هسته‌ای توافق تردید دارد. همزمان در اسرائیل درخواست‌ها از دولت برای عدم همراهی با ترامپ در توافق افزایش یافته است.
+
+گزارشی از مجتبا پورمحسن
+@iranintltv
+</div>
+
+## IranIntlTV — post 342723
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342723_1781622908.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لیندزی گراهام، سناتور جمهوری‌خواه آمریکا، در شبکه ایکس نوشت گسترش توافق‌های ابراهیم و ایجاد ثبات و رفاه در خاورمیانه یکی از مهم‌ترین اهداف دونالد ترامپ است و این هدف زمانی محقق می‌شود که جمهوری اسلامی تضعیف شود یا رفتار خود را تغییر دهد.
+
+او افزود که امیدوار است مذاکرات پیش رو برای پایان دادن به برنامه هسته‌ای ایران موفق باشد.
+
+لیندزی گراهام اضافه کرد: «جمهوری اسلامی و نیروهای نیابتی آن به‌شدت تضعیف شده‌اند و توانایی آن‌ها برای رقم زدن رخدادی مشابه هفتم اکتبر دیگر وجود ندارد.»
+
+او ادامه داد: «اگر درگیری با جمهوری اسلامی به گسترش توافق‌های ابراهیم، همگرایی منطقه‌ای و صلح پایدار منجر شود، این نتیجه یکی از موفق‌ترین عملیات‌های نظامی در تاریخ آمریکا خواهد بود.»
+https://iranintl.com/202606168121
+</div>
+
+## Persian_Trend_Official — post 17282
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_17282_1781622909.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری فرانسه گزارش می‌دهد که وانگ یی، وزیر امور خارجه چین، می‌گوید مرحله بعدی مذاکرات آمریکا و ایران دشوارتر از مرحله اول خواهد بود.
+
+وانگ یی، وزیر امور خارجه، به اسحاق دار، وزیر امور خارجه پاکستان، گفت که اجماع فعلی با مقصد نهایی فاصله زیادی دارد، این یک نقطه شروع جدید است.
+
+
+وانگ خواستار ایفای نقش بیشتر شورای امنیت سازمان ملل در حمایت از مذاکرات شد. چین می‌گوید آماده همکاری با پاکستان در پیشبرد ابتکارات صلح در خاورمیانه و منطقه خلیج فارس است.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17281
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17281_1781622910.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+معاون رئیس جمهور امریکا، جی دی ونس: اگر مردم ایران رفاه بیشتری می‌خواهند، رهبری آنها باید قدم پیش بگذارد و رفتار خود را تغییر دهد.
+
+اگر این کار را بکنند، عالی است. اگر این کار را نکنند، ایالات متحده تا همین الان هم چیزهای زیادی به دست آورده است.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 22750
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22750_1781622913.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 قلعه نویی :
+
+خیلی در حقمون ظلم کردن همین که بازی تموم شد به زور و‌ مجبورمون کردن سوار هواپیما بشیم و از آمریکا خارج بشیم ، این حق تیم ما نیست اینطوری باهامون رفتار کنن.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22749
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22749_1781622916.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+میکسمون عالی برد شد ❤️
+✅
+@Tabanii_Mafia
+</div>
+
+## BBCPersian — post 284044
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_284044_1781622917.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻وزارت خارجه سوئیس به روزنامه « «سوئیس امروز» گفت ایران و آمریکا تفاهمنامه را در اقامتگاه ساحلی بورگنشتوک امضا می‌کنند.
+
+انتظار می‌رود هیئت‌های دو کشور روز جمعه ۱۹ ژوئن (۲۹ خرداد) با یکدیگر دیدار کنند.
+
+طبق گزارش رسانه‌های سوئیسی، پاکستان و قطر به‌عنوان میانجی، این محل را برای مذاکرات پیشنهاد کرده‌اند.
+
+این اقامتگاه لوکس در ساحل و مشرف به دریاچه لوسرن است.
+
+این دومین بار در دو سال گذشته است که این اقامتگاه برای میزبانی گفت‌وگوهای دیپلماتیک سطح بالا انتخاب می‌شود.
+
+در ژوئن ۲۰۲۴، سران جهان برای «نشست صلح اوکراین» در همین مکان گرد آمدند.
+
+معاون وزیر خارجه ایران امروز صبح گفته بود که هنوز مکان مذاکره تعیین نشده است.
+📸Universal Images Group via Getty Images
+https://bbc.in/4emPXAb
+@BBCPersian
+</div>
+
+## alonews — post 128508
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خانعلی زاده مجری صدا و سیما در ونزوئلا قبل سقوط: اوضاع اینجا عالیه و همه چی اوکیه 
+✅ @AloNews
+</div>
+
+## alonews — post 128507
+
+<div align="center">
+  <a href="telegram/content/alonews_128507_1781622918.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تغییر رژیم به سریال‌ها هم رسیده
+
+[@AloTweet]
+</div>
+
+---
 📅 بروزرسانی: 1405/03/26 18:34
 ---
 

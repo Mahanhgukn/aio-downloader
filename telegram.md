@@ -7,6 +7,192 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/27 00:22
+---
+
+## WithYashar — post 15109
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اورشلیم پست: ماهواره‌های اسرائیلی در طول حدود ۴۰ روز اجرای عملیات «غرش شیران» بیش از ۵۰ هزار بار از ایران تصویربرداری کردند
+
+میانگین هر روز بیش از هزار تصویربرداری
+@withyashar
+</div>
+
+## mwarmonitor — post 11048
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_11048_1781643168.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 پس از یک محاصره دریایی دوماهه، نفت خام از ایران خارج شد.
+
+🔸بر اساس داده‌های AIS که دیروز (۱۵ ژوئن ۲۰۲۶) با تصاویر ماهواره‌ای نیز آن را تأیید کردیم، دست‌کم دو نفتکش غول‌پیکر VLCC متعلق به National Iranian Tanker Company (NITC) با نام‌های DIONA (9569695) و HERO2 (9362073) از محدوده محاصره نیروی دریایی United States Navy خارج شده‌اند و مجموعاً حدود ۳.۸ میلیون بشکه نفت خام ایران را حمل می‌کنند.
+
+🔸این نخستین صادرات نفت خام ایران طی دو ماه گذشته است.
+
+🔸همچنین مشاهده می‌شود نفتکش STREAM (9569633) متعلق به NITC از منطقه اقتصادی انحصاری Pakistan به سمت خط محاصره در حرکت است؛ جایی که طی ۷ هفته گذشته منتظر ورود به ایران بوده است.
+
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 343042
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌Fox News (Twitter/X)
+
+Read more 👉
+</div>
+
+## FoxNewsTwitter — post 343041
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343041_1781643169.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Iran was ordered to leave the U.S. and return to Mexico directly after their first match of the World Cup.
+
+The team had expected to spend the night in California, but was told after their match that everyone must immediately get on a plane for the 140-mile trip back to Tijuana, Mexico.
+
+Coach Amir Ghalenoei says the team was ordered to leave the U.S. but did not say why or who ordered them to leave earlier than planned.
+
+"I think our team is perhaps the most oppressed in the World Cup."
+</div>
+
+## Persian_Trend_Official — post 17305
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17305_1781643170.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جی دی ونس با اشاره به صحبت‌های سناتور لیندسی گراهام: یکی گفت، یادم نیست چه کسی، اما یکی گفت، می‌دانید، این مثل انجام طرح مارشال است وقتی که نازی‌ها هنوز کنترل اوضاع را در دست دارند. این از چند جهت اشتباه است.
+
+اول اینکه، طرح مارشال مقدار زیادی پول مالیات آمریکایی‌ها بود. این پول مالیات آمریکایی‌ها نیست. دوم اینکه، ما می‌گوییم شما فقط در صورتی از مزایای این معامله بهره‌مند می‌شوید که رفتارتان را تغییر دهید.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17304
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جی دی ونس: امارات متحده عربی را درنظر بگیرید، که یکی از بهترین متحدان ما در منطقه است.
+
+فرض کنید آنها می‌خواهند در یک نیروگاه هسته‌ای در ایران سرمایه‌گذاری کنند. آنها واقعاً نمی‌توانند این کار را بدون لغو برخی از تحریم‌های موجود در سیستم مالی جهانی برای امکان‌پذیر کردن این امر انجام دهند.
+
+حالا، آیا اماراتی‌ها در ایران سرمایه‌گذاری خواهند کرد یا آمریکا به آنها اجازه سرمایه‌گذاری در ایران را می‌دهد؟ مگر اینکه ایرانی‌ها رفتار خود را تغییر دهند؟ نه.
+
+بنابراین همه این افراد می‌گویند: خب، می‌دانید، شما به ایران پول می‌دهید. نه، نه، نه. ما می‌گوییم اگر ایرانی‌ها رفتار خود را تغییر دهند، ما به برخی از این کشورهای دیگر اجازه می‌دهیم در بازسازی کشور خود و ایجاد رفاه برای مردم خود سرمایه‌گذاری کنند.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17303
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17303_1781643172.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جی دی ونس درباره توافق با ایران: این یک توافق صلح منطقه‌ای است. شامل خلیج فارس، اسرائیل و لبنان خواهد شد.
+
+اگر ایران حزب الله را تأمین مالی می‌کند، ما اجازه نخواهیم داد که انبوهی از دارایی‌های آزاد شده به دست ایرانی‌ها برسد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17302
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17302_1781643174.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جی دی ونس درباره ایران: ما هرگز قرار نبود در باتلاقی که بسیاری از مردم درباره آن هشدار می‌دادند، گرفتار شویم، زیرا دونالد ترامپ، جورج بوش نیست.
+
+ما الان یک حوزه انتخابیه داریم که می‌گوید ما قصد داریم نیروی زمینی اعزام کنیم. آنها می‌خواهند دونالد ترامپ صدها هزار نیروی زمینی به ایران بفرستد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 22769
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22769_1781643175.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 جی‌دی ونس درباره ایران:
+
+ترامپ هیچوقت نگفته که هدفش روی کار آوردن رضا پهلوی به‌عنوان رهبر جدید ایران است.
+
+آنچه او گفته این است که اگر مردم ایران بخواهند علیه حکومت خود قیام کنند، بسیار خوب؛ این موضوع به خودشان و دولتشان مربوط است.
+
+آنچه ما می‌خواهیم، پایان برنامه هسته‌ای ایران است.
+
+تمرکز رئیس‌جمهور همواره بر جلوگیری از دستیابی ایران به سلاح هسته‌ای بوده، نه تغییر حکومت به ما ربطی نداره.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22768
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 شاهزاده رضا پهلوی :
+
+سوال مردم ایران از ایالات متحده الان این است که چرا بمباران متوقف شد ؟ مردم ایران میخواستن این ادامه پیدا کنه.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 284071
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_284071_1781643178.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌ ‌ ‌ ‌
+در دیدار امروز تیم‌های فوتبال فرانسه و سنگال در چارچوب بازی‌های جام‌جهانی، علیرضا فغانی، داور ایرانی‌الاصل و نماینده فدراسیون فوتبال استرالیا در جام جهانی توانست به رکورد داوری در چهار دوره جام جهانی برسد.
+
+آقای فغانی پیشتر در جام‌های جهانی ۲۰۱۴ و ۲۰۱۸ و ۲۰۲۲ هم قضاوت کرده بود.
+
+او در سال ۲۰۰۸ تنها یک سال پس از قضاوت در لیگ برتر فوتبال ایران به فهرست داوران الیت فیفا پیوست و اولین حضورش در جام جهانی به عنوان داور چهارم بازی افتتاحیه جام جهانی ۲۰۱۴ بین برزیل و کرواسی بود.
+
+📷IMAGN IMAGES/Reuters
+@BBCPersian
+</div>
+
+## alonews — post 128567
+
+<div align="center">
+  <a href="telegram/content/alonews_128567_1781643178.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈آمار فاجعه بار ستاد مبارزه با مواد مخدر از مبتلایان به HIV در کشور
+
+
+🔴از هر ۸ نفر معتاد ۱ نفرشان مبتلا به ویروس اچ‌آی‌وی است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/27 00:12
 ---
 

@@ -7,6 +7,37 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/27 02:03
+---
+
+## VahidOOnLine — post 245950
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245950_1781649180.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️محتوای این خبر ممکن است برای برخی مخاطبان آزاردهنده باشد.
+به گزارش خبرگزاری فرانسه، پلیس ویتنام با متلاشی کردن یک باند بزرگ سرقت حیوانات خانگی در هوشی‌مین، بیش از ۴۰۰ گربه زنده را که برای ذبح و مصرف خوراکی قاچاق شده بودند، نجات داد. بر اساس بیانیه انجمن حمایت از حقوق حیوانات، تاکنون دست‌کم ۴۰ گربه ربوده‌شده به صاحبانشان بازگردانده شده‌اند. پلیس در جریان این عملیات، ۹ نفر را بازداشت و علاوه بر حیوانات زنده، جسد یخ‌زده ۸۰ گربه را نیز کشف و ضبط کرده است.
+اگرچه مصرف گوشت سگ و گربه در ویتنام قانونی است و رستوران‌ها مجوز فروش آن را دارند، اما فروشندگان ملزم به ارائه گواهی اصالت و منشأ قانونی حیوانات هستند. متهمان این پرونده اعتراف کرده‌اند که طی سه سال گذشته به سرقت و به دام انداختن گربه‌ها در سراسر جنوب ویتنام مشغول بوده‌اند. با وجود موفقیت‌آمیز بودن این عملیات، گزارش‌ها حاکی از آن است که حدود ۱۰۰ قلاده از گربه‌های نجات‌یافته به دلیل شرایط سخت اسارت تلف شده‌اند و تلاش‌ها برای نجات و نگهداری مبرم بقیه حیوانات در ایستگاه پلیس ادامه دارد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 343047
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343047_1781649181.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+RT @SpecialReport: WATCH: "The only way you can get this done is to nuke the legislative filibuster. And this is not something that we have anywhere close to the votes to do. So we have had votes... We will continue to put the Democrats on record. The Democrats are voting against an issue that 80 to 85% of the American people are for."
+
+Following President Trump’s ultimatum to attach the SAVE America Act to the pending surveillance renewal package, @LeaderJohnThune walks @BretBaier through the unyielding floor math confronting Republican leadership. While strongly endorsing the voter validation measures, Thune gives a realistic assessment of institutional boundaries and explains why the upper chamber lacks the votes to force a rules change.
+</div>
+
+---
 📅 بروزرسانی: 1405/03/27 01:52
 ---
 

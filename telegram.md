@@ -7,6 +7,79 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/26 15:44
+---
+
+## VahidOOnLine — post 245856
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245856_1781612084.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس جمهوری آمریکا، روز سه‌شنبه ۲۶ خرداد و در حاشیه اجلاس سران گروه ۷ (جی ۷) گفت اگرچه اورانیوم غنی‌شده ایران ارزش مادی بالایی ندارد اما تصاحب آن از نظر روان‌شناختی اهمیت دارد.
+
+دونالد ترامپ در جریان دیدار با امیر قطر بار دیگر تاکید کرد که تاسیسات هسته‌ای ایران در جریان بمباران‌های آمریکا کاملا نابود شده است و شاید کشوری به‌جز چین، امکان خارج کردن ذخایر اورانیوم مدفون شده ایران را نداشته باشد.
+
+رسانه‌های داخلی ایران به نقل از مقام‌های مذاکره‌کننده گزارش کرده بودند که قرار است ذخایر اورانیوم غنی‌شده در خاک ایران رقیق شود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 15058
+
+<div align="center">
+  <a href="telegram/content/WithYashar_15058_1781612084.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+طرف با پراید رفته دم لانچر در حال شلیک
+@withyashar
+</div>
+
+## WithYashar — post 15057
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری دولتی ایسنا:
+محاصره دریایی آمریکا در حال لغو شدن است
+@withyashar
+</div>
+
+## alonews — post 128466
+
+<div align="center">
+  <a href="telegram/content/alonews_128466_1781612087.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فون در لاین، عضو اتحادیه اروپا: من به ترامپ به خاطر توافق با ایران تبریک گفتم.
+
+
+🔴هر دو موافقیم که این توافق باید به معنای پایان قطعی برنامه هسته‌ای ایران باشد.
+
+
+🔴تنگه هرمز بازگشایی خواهد شد.
+
+
+🔴قیمت نفت در حال کاهش است.
+و اینگونه است که دیپلماسی نتیجه می‌دهد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128465
+
+<div align="center">
+  <a href="telegram/content/alonews_128465_1781612087.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈اکیپ: دونالد ترامپ دستور مستقیم ابطال ویزای برخی از اعضای ایران از جمله مهدی ترابی و مهدی طارمی رو صادر کرده و ویزای این بازیکنا ابطال شده!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/26 15:34
 ---
 

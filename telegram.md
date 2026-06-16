@@ -7,6 +7,215 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/26 18:57
+---
+
+## VahidOOnLine — post 245886
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245886_1781623667.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمدباقر قالیباف، رییس‌ مجلس شورای اسلامی، در گفت‌وگو با نبیه بری، رییس مجلس لبنان، گفت اسرائیل باید از جنوب لبنان عقب‌نشینی کند و مردم در این مناطق به خانه‌های خود بازگردند.
+
+او تاکید کرد: «جنگ باید در همه جبهه‌ها، از جمله لبنان، پایان یابد.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## pm_afshaa — post 94191
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94191_1781623668.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴دراپ سایت: ایران برای تحلیل رفتار ترامپ، دوتا روانشناس به تیم مذاکره کننده اضافه کرده. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94190
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94190_1781623669.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴دراپ سایت:
+ایران برای تحلیل رفتار ترامپ، دوتا روانشناس به تیم مذاکره کننده اضافه کرده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94189
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سفیر اسرائیل در آمریکا:ما از جنوب لبنان عقب‌نشینی نخواهیم کرد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## VahidOnline — post 76426
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76426_1781623670.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لیندزی گراهام، سناتور جمهوری‌خواه آمریکا، در شبکه ایکس نوشت گسترش توافق‌های ابراهیم و ایجاد ثبات و رفاه در خاورمیانه یکی از مهم‌ترین اهداف دونالد ترامپ است و این هدف زمانی محقق می‌شود که جمهوری اسلامی تضعیف شود یا رفتار خود را تغییر دهد.
+
+او افزود که امیدوار است مذاکرات پیش رو برای پایان دادن به برنامه هسته‌ای ایران موفق باشد.
+
+لیندزی گراهام اضافه کرد: «جمهوری اسلامی و نیروهای نیابتی آن به‌شدت تضعیف شده‌اند و توانایی آن‌ها برای رقم زدن رخدادی مشابه هفتم اکتبر دیگر وجود ندارد.»
+
+او ادامه داد: «اگر درگیری با جمهوری اسلامی به گسترش توافق‌های ابراهیم، همگرایی منطقه‌ای و صلح پایدار منجر شود، این نتیجه یکی از موفق‌ترین عملیات‌های نظامی در تاریخ آمریکا خواهد بود.»
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 342726
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342726_1781623671.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻تیم ملی فوتبال ایران بامداد امروز به وقت تهران، در نخستین دیدار خود در جام جهانی، مقابل نیوزیلند به تساوی ۲ بر ۲ رسید. در حاشیه این مسابقه، مخالفان جمهوری اسلامی با برافراشتن پرچم شیر و خورشید و نمایش نمادهای اعتراضی، مخالفت خود را با جمهوری اسلامی ابراز کردند و در عین حال، حمایت خود را از بازیکنان تیم ملی به نمایش گذاشتند.
+
+🔹گزارش علیرضا مدیری، ایران‌اینترنشنال از لس‌آنجلس
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 342725
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342725_1781623673.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمدباقر قالیباف، رییس‌ مجلس شورای اسلامی، در گفت‌وگو با نبیه بری، رییس مجلس لبنان، گفت اسرائیل باید از جنوب لبنان عقب‌نشینی کند و مردم در این مناطق به خانه‌های خود بازگردند.
+
+او تاکید کرد: «جنگ باید در همه جبهه‌ها، از جمله لبنان، پایان یابد.»
+https://iranintl.com/202606169268
+</div>
+
+## Shin_Persian — post 7112
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet: Golden Owl ✓ @GoldenOwl_AI Tue, 16 Jun 2026 14:39:48 UTC Otus is live. A global Human Intelligence Network connecting organizations with vetted experts worldwide. Confidentiality. Anonymity. Accountability. Trust. https://otus.goldenowl.ai/…
+</div>
+
+## Shin_Persian — post 7111
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_7111_1781623674.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+Golden Owl ✓ @GoldenOwl_AI
+Tue, 16 Jun 2026 14:39:48 UTC
+
+Otus is live.
+
+A global Human Intelligence Network connecting organizations with vetted experts worldwide.
+
+Confidentiality. Anonymity. Accountability. Trust.
+
+https://otus.goldenowl.ai/
+
+↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
+
+ترجمه خودکار فارسی
+
+اوتیس (Otus) راه‌اندازی شد.
+
+یک شبکه جهانی هوش انسانی (HUMINT) که سازمان‌ها را به کارشناسان تایید شده در سراسر جهان متصل می‌کند.
+
+محرمانگی. گمنامی. مسئولیت‌پذیری. اعتماد.
+
+https://otus.goldenowl.ai/
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 7110
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Emanuel (Mannie) Fabian ✓ @manniefabian
+Tue, 16 Jun 2026 15:19:16 UTC
+
+Lebanese media reports four dead in Israeli airstrikes near Nabatieh in southern Lebanon this afternoon.
+
+Initially a car was targeted in a drone strike in Mayfadoun, before a second strike hit the area after locals gathered there, Lebanon's National News Agency reports.
+
+NNA says a third strike hit another car in the town, and fourth strike hit a car in the adjacent town of Shoukine.
+
+The strikes resulted in the deaths of four and injured others, according to NNA.
+
+ترجمه خودکار فارسی
+
+رسانه‌های لبنانی از کشته شدن چهار نفر در حملات هوایی اسرائیل در نزدیکی نبطیه در جنوب لبنان در بعدازظهر امروز خبر دادند.
+
+خبرگزاری ملی لبنان (NNA) گزارش می‌دهد که در ابتدا یک خودرو در میفدون هدف حمله پهپادی قرار گرفت و پس از آن، زمانی که مردم محلی در آنجا تجمع کردند، دومین حمله به منطقه انجام شد.
+
+این خبرگزاری می‌گوید حمله سوم به خودروی دیگری در این شهر و حمله چهارم به خودرویی در شهر مجاور، شوکین، اصابت کرده است.
+
+طبق گزارش خبرگزاری ملی لبنان، این حملات منجر به کشته شدن چهار نفر و مجروح شدن تعدادی دیگر شده است.
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 220919
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ماراتن پول و سراب آموزش رایگان؛ از قولنامه‌های صوری تا سفره ۳۰ هزار میلیاردی مافیای کنکور
+</div>
+
+## Persian_Trend_Official — post 17283
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17283_1781623674.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قدردانی شیخ نعیم قاسم از حمایت تیم مذاکره کننده جمهوری اسلامی از لبنان
+
+دبیرکل حزب الله به رییس مجلس: از جانب حزب‌الله و مقاومت اسلامی آن، از سوی دوستداران مقاومت در میان ملت لبنان که خواستار انتقال قدردانی خود به شما هستند، از طرف شهدا و در رأس آنان سید شهدای امت، سید حسن نصرالله (رضوان‌الله علیه)، همچنین مجروحان و اسرا، از شما تشکر می‌کنم. به‌ویژه در جایگاه رئیس هیئت مذاکره‌کننده و همراه با تیم مستقیم شما، از جمله وزیر امور خارجه دکتر عباس عراقچی. همچنین امیدوارم مراتب سپاس و قدردانی ما را به رهبر، آیت‌الله سید مجتبی حسینی خامنه‌ای (دام ظله)، که ما را مشمول توجه خود قرار داد و برکات و حمایت‌های شهید امام خامنه‌ای (قدس سره) را در ما زنده کرد، و نیز به رئیس‌جمهور دکتر پزشکیان، دوستدار مقاومت، سپاه پاسداران انقلاب اسلامی، این نیروی نورانی که با صلابت خود معادلات را دگرگون کرد، ارتش، نخبگان و تمامی نهادها و اقشار رسمی و مردمی ایران، منتقل فرمایید.
+
+به طور ویژه از ملت بزرگ ایران یاد می‌کنم. ما آنان را در میدان‌های شهرهای ایران دیدیم و درخواست‌هایشان را شنیدیم که آماده‌اند جان خود را برای نجات مقاومت و ملت آن فدا کنند.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+
+---
+### ⚠️ کانال‌های با خطا در این بروزرسانی
+
+* IranianMinds
+* BBCPersian
+* IranWire
+* idfinfarsi
+* Dirty_Kids
+* Hranews
+* officialrezapahlavi
+* manototv
+* alonews
+
+دلایل احتمالی: مسدود بودن کانال، حذف کانال، یا خطای شبکه.
+---
+
+---
 📅 بروزرسانی: 1405/03/26 18:44
 ---
 

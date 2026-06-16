@@ -7,6 +7,178 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/26 04:43
+---
+
+## VahidOOnLine — post 245797
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245797_1781572424.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️تیم فوتبال ایران ساعت ۴:۳۰ بامداد سه‌شنبه، ۲۶ خردادماه، (به وقت ایران) در ورزشگاه سوفای لس‌آنجلس در ایالت کالیفرنیا به مصاف نیوزلند رفت. این مسابقه در حالی آغاز شد که ایرانیان با در دست داشتن پرچم‌های ملی شیروخورشید نشان، مقابل ورزشگاه محل برگزاری مسابقه تجمع اعتراضی برگزار کرده و علیه جمهوری اسلامی شعار سردادند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## FarsiVOA — post 220864
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220864_1781572425.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️حواشی احتمالی بازی تیم فوتبال ایران و نیوزیلند در گفتگو با کوروش بازیار کارشناس فوتبال
+@FarsiVOA
+</div>
+
+## IranianMinds — post 22693
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بنازم به شیر بچه های نیوزیلند
+</div>
+
+## IranianMinds — post 22692
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نیوزیلند ۱ جمهوری اسلامی ۰
+</div>
+
+## IranianMinds — post 22691
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گللل خوردن 😂😂😂
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22690
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22690_1781572427.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 بنازم به هموطنامون تیکه های پرچم شیروخورشید رو از بازرسی رد کردن، توی ورزشگاه دارن میدوزن 😂😂😂
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22689
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پرچما انقد جای خوبین صداوسیما هرکاری میکنه نمیتونه درست سانسور کنه 😂😂
+</div>
+
+## IranianMinds — post 22688
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22688_1781572429.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## IranianMinds — post 22687
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کل استادیوم پرچم شیر و خورشیده
+</div>
+
+## IranianMinds — post 22686
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22686_1781572431.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پرچم شیر و خورشیدو بنازم تو صداوسیما
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 283954
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️گل در دقیقه ۶ بازی برای نیوزیلند
+</div>
+
+## Dirty_Kids — post 392218
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سوپررررر گل نیوزلندددددد
+
+تماشا
+</div>
+
+## Dirty_Kids — post 392217
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کریس ووود افسانه‌ای پاس داد
+</div>
+
+## Dirty_Kids — post 392216
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ماشالا شیربچه‌های نیوزلند
+</div>
+
+## Dirty_Kids — post 392215
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گللللللللللل
+</div>
+
+## Dirty_Kids — post 392214
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عجب تیم کصشریه نیوزلند
+</div>
+
+## Dirty_Kids — post 392210
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در ادامه‌ی زیبایی‌ها 🤍
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392209
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392209_1781572432.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 اینا ایرانی جماعتو نشناختن، تیکه های پرچم شیروخورشید رو از بازرسی رد کردن، توی ورزشگاه دارن میدوزن😂
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392208
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392208_1781572434.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بچه ها دارن یکاری میکنن ، صدا و سیما پرچم جمهوری اسلامی هم نتونه نشون بده :)))))))
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/03/26 04:33
 ---
 

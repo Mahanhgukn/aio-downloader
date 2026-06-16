@@ -7,6 +7,186 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/26 19:04
+---
+
+## VahidOOnLine — post 245887
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245887_1781624063.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ وزارت امور خارجه سوئیس رسما اعلام کرد که مراسم امضای تفاهم‌نامه میان جمهوری اسلامی ایران و ایالات متحده برای پایان دادن به درگیری‌های خاورمیانه، روز جمعه ۲۹ خرداد (۱۹ ژوئن) در مجتمع مجلل و کوهستانی «بورگن‌اشتوک» برگزار خواهد شد.
+
+این وزارت‌خانه با اشاره به اینکه مکان مذکور به پیشنهاد مشترک میانجی‌گران (قطر و پاکستان) و طرفین مناقشه انتخاب شده، تاکید کرد که سوئیس صرفا تسهیل‌کننده این فرآیند دیپلماتیک است. این تفریحگاه لوکس که بر فراز دریاچه لوسرن واقع شده، به دلیل احاطه شدن با آب از سه طرف، دسترسی محدودی داشته و از امنیت بسیار بالایی برخوردار است.
+
+این توافق‌نامه چارچوبی پیش از این به صورت الکترونیکی توسط دونالد ترامپ، جی‌دی ونس و محمدباقر قالیباف (مذاکره‌کننده ارشد ایران) امضا شده است. اگرچه تضادهای جدی بر سر برنامه هسته‌ای، تحریم‌ها و تنگه هرمز همچنان باقی است و متن سند هنوز علنی نشده، جی‌دی ونس، معاون رئیس‌جمهوری آمریکا، در گفتگو با سی‌ان‌ان این متن را سندی «بسیار کلی و در حدود یک صفحه و نیم» توصیف کرد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 15070
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری وابسته به سپاه:
+اسرائیل آتش‌بس در لبنان را نقض کرد.
+@withyashar
+</div>
+
+## pm_afshaa — post 94192
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94192_1781624064.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴جی‌دی ونس، معاون ترامپ:
+اگر مردم ایران به دنبال رفاه بیشتر هستن، رهبری آنها باید اقدام کنن و رفتار خودشون رو تغییر بدن. اگر این کار رو انجام بدن عالیه، اگر انجام ندن، ایالات متحده آمریکا قبلاً دستاورد زیادی کسب کرده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5740
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5740_1781624066.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺📢 بحران اعتماد در راه است؛
+
+*روح‌الله رحیم‌پور، تحلیلگر سیاسی
+
+#جمهوری_اسلامی #بحران
+@DEJradio
+</div>
+
+## FarsiVOA — post 220920
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220920_1781624068.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مهرداد درویش‌پور، جامعه‌شناس در میدان می‌گوید دانش‌آموزران احساس بی‌آیندگی می‌کنند. آمنه عسگری، فعال حق کودکی معتقد است با تشکیل شورای دانش‌آموزی می‌توان به دانش‌آموزان کمک کرد
+</div>
+
+## Persian_Trend_Official — post 17284
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_17284_1781624069.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گفتگوی تلفنی وزیر امور خارجه جمهوری اسلامی و عمان
+
+وزرای امور خارجه جمهوری اسلامی ایران و سلطنت عمان در گفتگویی تلفنی، ضمن بررسی روابط دوجانبه، بر لزوم حفظ امنیت دریانوردی و تقویت فضای دیپلماتیک پس از تفاهم اخیر میان تهران و واشنگتن تأکید کردند.
+
+طرفین بر گسترش همکاری‌های دوجانبه بر پایه اصول حسن همجواری و پیوندهای تاریخی و فرهنگی تاکید کردند.
+
+همچنین دو طرف به رعایت قوانین بین‌المللی برای عبور امن و آزاد کشتی‌ها از تنگه هرمز در پرتو تفاهمات اخیر با آمریکا متعهد شدند.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 22753
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ارتش اسرائیل :
+
+هیچ گونه اقدامی رو از سمت تروریست های حزب الله تحمل نخواهیم کرد ، مناطقی که تحت تصرف ارتش اسرائیل هستند تخلیه نخواهند شد و هرگونه تهدید یا اقدامی علیه نیروهای ما با پاسخی ویران‌کننده و قاطع مواجه خواهد شد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22752
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22752_1781624069.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 حملات اسرائیل به جنوب لبنان ادامه دارد:
+میفدون.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22751
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22751_1781624070.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 توافق آمریکا و ایران روز جمعه در بورگن‌اشتاک، نزدیک لوچرن سوئیس امضا خواهد شد.
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 392310
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏با قیمت یک کیلو انبه پاکستانی امسال، پارسال میشد ژنرال عاصم منیرو بکنی
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392309
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392309_1781624071.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دادلش ادیتور سراغ دارم با صد تومن کارو جمع میکنه
+
+ادیتورش:
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 128511
+
+<div align="center">
+  <a href="telegram/content/alonews_128511_1781624072.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈توپخانه ارتش اسرائیل (IDF) شهر مجدال زون و همچنین حومه المنصوری در جنوب لبنان را هدف قرار داد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128510
+
+<div align="center">
+  <a href="telegram/content/alonews_128510_1781624073.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+❤️ویتنی رایت پورن استار آمریکایی تصاویر جدیدی از حضورش در تهران منتشر کرد. 
+✅ @AloNews
+</div>
+
+## alonews — post 128509
+
+<div align="center">
+  <a href="telegram/content/alonews_128509_1781624073.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حملات اسرائیل به لبنان ادامه داره
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/26 18:57
 ---
 

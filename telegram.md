@@ -7,6 +7,117 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/26 19:25
+---
+
+## VahidOOnLine — post 245890
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_245890_1781625302.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️تازه‌عروس خانواده ترامپ یکی از مهمان‌های جشن تولد دونالد ترامپ در کاخ سفید بود؛ جایی که نخستین حضور رسمی او در مقام «خانم ترامپ» پس از ازدواج با دونالد ترامپ جوان بود.
+
+دونالد ترامپ، رئیس‌جمهوری آمریکا، روز یکشنبه هشتادمین سال تولد خود را جشن گرفت. این مناسبت هم‌زمان با «روز پرچم» آمریکا برگزار شد و در آستانه آماده‌سازی ایالات متحده برای جشن‌های دویست‌وپنجاهمین سالگرد استقلال این کشور قرار داشت.
+
+مراسم در محوطه جنوبی کاخ سفید برگزار شد و هزاران مهمان در آن حضور داشتند.
+
+بتینا ۳۹ ساله اوایل همین ماه با پسر ترامپ ازدواج کرد. این زوج حدود یک ماه قبل مراسمی خصوصی و کوچک در جزیره‌ای خصوصی در باهاما، برگزار کردند. در این مراسم، گروه محدودی از مهمانان حضور داشتند؛ از جمله خواهران و برادران داماد، ایوانکا، اریک و تیفانی ترامپ، همراه با همسرانشان. خانواده بتینا و چند دوست نزدیک او نیز در این مراسم شرکت کردند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 343031
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343031_1781625303.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Just months after walking the Grammys red carpet hand-in-hand and celebrating a major win together, Jelly Roll has filed for divorce from his wife, Bunnie Xo.
+
+Court records viewed by Fox News Digital show the country star filed in Tennessee, listing May 9 as the date of separation and citing irreconcilable differences.
+
+The couple married in a whirlwind Las Vegas ceremony in 2016 and have often been open about the highs and lows of their relationship. Now, one of country music’s most recognizable couples appears headed for a split.
+</div>
+
+## pm_afshaa — post 94193
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94193_1781625304.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نفتالی بنت، نخست وزیر سابق اسرائیل:
+توافق فعلی بین جمهوری اسلامی و آمریکا فقط یک توافق موقته.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## RadioFarda — post 158397
+
+<div align="center">
+  <a href="https://t.me/radiofarda/158397" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تساوی ایران و نیوزیلند؛ «خواستن همیشه توانستن نیست»
+
+🔸تیم ملی فوتبال ایران در نخستین دیدار خود در جام جهانی ۲۰۲۶ برابر نیوزیلند که روز دوشنبه ۲۵ خرداد برگزار شد، دو بار از حریف عقب افتاد اما هر دو بار نتیجه را جبران کرد و سرانجام به تساوی ۲-۲ دست یافت. مسابقه‌ای که در پی هفته‌ها حاشیه و چالش برگزار شد و رضایت بسیاری از کارشناسان فوتبال را در پی نداشت. کوروش بازیار، کارشناس و مربی فوتبال در آلمان، به رادیوفردا می‌گوید این بازی نشان داد که «خواستن همیشه توانستن نیست» و شرایط آن نیز باید مهیا باشد.
+
+@RadioFarda
+</div>
+
+## BBCPersian — post 284045
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🖋مروه جمال
+بی‌بی‌سی عربی
+
+در فاصله چند کیلومتری از خط مقدم درگیری‌ها، دکتر حسن وزنه، مدیر بیمارستان دولتی نبطیه، در کنار همکارانش در اتاق عمل مانده و هدایت بحرانی را بر عهده دارد که یک لحظه هم فروکش نمی‌کند.
+
+او به برنامه «روزنگار خاورمیانه» رادیو بی‌بی‌سی عربی، جزئیات وضعیت میدانی و نحوه تقسیم مسئولیت‌ها میان بیمارستان‌هایی را که همچنان به فعالیت خود ادامه می‌دهند، تشریح کرد.
+
+دکتر وزنه گفت: «ما اینجا هستیم، ما و همه بیمارستان‌های منطقه. در نبطیه سه بیمارستان وجود دارد که یکی از آن‌ها بیمارستان دولتی نبطیه است که من مدیریت آن را برعهده دارم. حملات در نزدیکی ما رخ داده است و البته شیشه‌ها، سقف‌ها و برخی درها آسیب دیده‌اند، اما بیمارستان مستقیما هدف قرار نگرفته است. ما اینجا را ترک نخواهیم کرد. اگر کسی بخواهد منطقه را ترک کند یا شیفت خود را با فرد دیگری جابه‌جا کند، این کار از طریق صلیب سرخ انجام می‌شود.»
+ادامه مطلب⬇️
+
+📸BBC/ GettyImages/ Reuters/ AFP via Getty Images
+https://bbc.in/3S6WEPD
+@BBCPersian
+</div>
+
+## alonews — post 128515
+
+<div align="center">
+  <a href="telegram/content/alonews_128515_1781625305.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈اف‌بی‌آی یک طرح تروریستی عظیم و چند مرحله‌ای را که هدف آن رویداد یو‌اف‌سی فریدام 250 روز یکشنبه در چمنزار جنوبی کاخ سفید بود، خنثی کرد.
+
+
+🔴طبق گفته مقامات فدرال، این طرح ترسناک طوری طراحی شده بود که «حداکثر تلفات» را به همراه داشته باشد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128514
+
+<div align="center">
+  <a href="telegram/content/alonews_128514_1781625306.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حزب‌الله یه خودرو نظامی ارتش اسرائیل رو با پهپاد «ابابیل» زد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/26 19:15
 ---
 

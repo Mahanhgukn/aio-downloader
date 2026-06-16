@@ -7,6 +7,37 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/26 14:23
+---
+
+## IranianMinds — post 22739
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22739_1781607235.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ:
+
+اگر ایالات متحده آمریکا نبود، اسرائیل الان وجود نداشت.
+هر آدم باهوشی تو اسرائیل اینو خوب میدونه.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22738
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ :
+
+رهبری فعلی ایران آدم‌های خیلی منطقی‌ای هستن. خوش برخورد و راحت می‌شه باهاشون کار کرد؛ قوی و باهوشن.
+
+رادیکال و افراطی نیستن و دنبال کمک به کشورشون هستن.
+
+@IranianMinds
+</div>
+
+---
 📅 بروزرسانی: 1405/03/26 14:14
 ---
 

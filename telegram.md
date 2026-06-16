@@ -7,6 +7,142 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/27 00:52
+---
+
+## WithYashar — post 15111
+
+<div align="center">
+  <a href="telegram/content/WithYashar_15111_1781644958.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عادل فردوسی پور در به در دنبال دکتر خوش چشم هستم که او را به صنعت فوتبال وارد کنم
+@withyashar
+</div>
+
+## FarsiVOA — post 220952
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220952_1781644960.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️مهدیه گلرو در برنامه تفسیر خبر: پرسش این است که آیا امروز حرف آخر بزنی در جمهوری اسلامی وجود دارد؟
+@FarsiVOA
+</div>
+
+## BBCPersian — post 284072
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_284072_1781644961.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌ ‌ ‌
+اولین دیدار امروز رقابت‌های جام‌جهانی به وقت ایالات متحده میان تیم‌های فوتبال فرانسه و سنگال در شهر نیوجرسی برگزار شد که با پیروزی فرانسه همراه بود.
+
+در نیمه اول این مسابقه سنگال پرقدرت ظاهر شد و توانست خطرات جدی را برای گلزنی ایجاد کند و فرانسه بسیار پایین‌تر از تصورات بود.
+
+اما بازی در نیمه دوم روند دیگری گرفت و فرانسه توانست خود را بازیافته و کنترل بازی را به دست بگیرد.
+
+یکی از صحنه‌های مهم این بازی سرنگون شدن کیلیان امپابه در محوطه جریمه سنگال بود که علیرضا فغانی، داور ایرانی‌اصل بازی اعتقاد به خطای پنالتی نداشت.
+
+در ادامه اما امپابه در دقیقه ۶۶ گل اول فرانسه را به ثمر رساند و پس از آن هم بردلی بارکولا در دقیقه ۸۲ گل دوم فرانسه را زد.
+
+سنگال اما تسلیم نشده بود و در دقیقه ۹۵ ابراهیم امبایه گل اول سنگال را به ثمر رساند که امیدها برای این کشور زنده شود، اما کیلیان امپابه یک دقیقه بعد گل دوم خود و گل سوم فرانسه را به ثمر رساند.
+
+📷 Reuters
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 392344
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392344_1781644962.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حماسه‌ای جدید از مادران آینده‌ی این سرزمین
+قرار دعوا رو این دفعه تو مترو گذاشتن
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 128576
+
+<div align="center">
+  <a href="telegram/content/alonews_128576_1781644964.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ونس : اگه دونالد ترامپ حتی به عنوان رهبر عالی ایران هم انتخاب می‌شد، دموکرات‌ها باز هم می‌گفتن آمریکا شکست خورده
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128575
+
+<div align="center">
+  <a href="telegram/content/alonews_128575_1781644965.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈جی دی ونس : روز جمعه مراسم امضای رسمی انجام می‌شه و این موضوع عملاً شروع این مذاکرات رو کلید می‌زنه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128574
+
+<div align="center">
+  <a href="telegram/content/alonews_128574_1781644965.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈لیندسی گراهام: صادقانه بگویم، عربستان سعودی و اسرائیل خیلی به ترامپ بدهکارند.
+
+اگر این دو کشور با هم صلح کنند و روابط اقتصادی و تجاری برقرار کنند، این اتفاق هم برای منطقه و هم برای جهان مفید خواهد بود.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128573
+
+<div align="center">
+  <a href="telegram/content/alonews_128573_1781644967.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سناتور لیندسی گراهام: مطمئنم که رئیس‌جمهور ترامپ توافق بدی را امضا نخواهد کرد 
+🔴یادداشت تفاهم (MOU) آن‌طور که معاون رئیس‌جمهور و دولت توضیح داده‌اند، بسیار امیدوارکننده به نظر می‌رسد. 
+🔴من ترجیح می‌دهم مسئله برنامه هسته‌ای ایران از راه دیپلماتیک حل شود. تردید…
+</div>
+
+## alonews — post 128572
+
+<div align="center">
+  <a href="telegram/content/alonews_128572_1781644967.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سناتور لیندسی گراهام: مطمئنم که رئیس‌جمهور ترامپ توافق بدی را امضا نخواهد کرد
+
+
+🔴یادداشت تفاهم (MOU) آن‌طور که معاون رئیس‌جمهور و دولت توضیح داده‌اند، بسیار امیدوارکننده به نظر می‌رسد.
+
+
+🔴من ترجیح می‌دهم مسئله برنامه هسته‌ای ایران از راه دیپلماتیک حل شود. تردید من به خود ایران مربوط است.
+
+
+🔴یک توافق خوب چه شکلی دارد؟ هیچ غنی‌سازی‌ای نباید وجود داشته باشد.
+
+
+🔴باز شدن مسیرهای کشتیرانی و توقف درگیری‌ها به‌خودی‌خود یک موفقیت است، اما اینکه بتوانیم به مرحله دوم برسیم یا نه، نمی‌دانم.
+
+
+🔴در مورد برنامه هسته‌ای، بله، قانون می‌گوید که کنگره باید آن را تأیید کند. و ترامپ هم گفته که توافق را برای بررسی به کنگره خواهد فرستاد. پس بله
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/27 00:42
 ---
 

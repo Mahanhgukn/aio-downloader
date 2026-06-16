@@ -7,6 +7,156 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/26 23:54
+---
+
+## VahidOOnLine — post 245940
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245940_1781641447.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چاک شومر، رهبر اقلیت دموکرات در سنای آمریکا، خواستار ارائه گزارش به رهبران ارشد کنگره موسوم به «هشت نفر» و همچنین سایر اعضای کنگره درباره توافق آمریکا با جمهوری اسلامی شد.
+
+چاک شومر افزود: «ده‌ها بار به ما گفته شده این جنگ پایان یافته اما ده‌ها بار ثابت شده این ادعا نادرست بوده است.»
+
+او ادامه داد: «دو روز از زمانی که ترامپ مدعی شد به یک توافق صلح با ایران رسیده می‌گذرد، اما هنوز هیچ جزییاتی از این به‌اصطلاح توافق منتشر نکرده است.»
+
+چاک شومر گفت این مجلس بعدازظهر سه‌شنبه برای نهمین بار در سال جاری درباره طرحی با هدف محدود کردن اختیارات جنگی ترامپ در قبال جمهوری اسلامی رای‌گیری خواهد کرد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245939
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245939_1781641448.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️قرارگاه خاتم‌الانبیا، سه‌شنبه ۲۶ خرداد با انتشار بیانیه‌ای اعلام کرد اسرائیل طی دو روز گذشته و پس از اعلام پایان جنگ از سوی دونالد ترامپ، رئیس‌جمهوری آمریکا، ۸۴ بار آتش‌بس در جنوب لبنان را نقض کرده و همچنان به حملات خود ادامه می‌دهد.
+در این بیانیه آمده است که ادامه این اقدامات موجب کشته و زخمی شدن مردم لبنان شده است. قرارگاه خاتم‌الانبیا هشدار داد چنانچه ارتش اسرائیل به عملیات خود در جنوب لبنان پایان ندهد، باید منتظر «پاسخ سخت» نیروهای مسلح جمهوری اسلامی ایران باشد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## mwarmonitor — post 11047
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نگاهی عمیق و مبتنی بر گزارش‌گری دقیق به گفت‌وگوهای داخلی که به توافق آمریکا و ایران منجر شد؛ از جمله تردید مقام‌های دولت ترامپ نسبت به پایبندی ایران به تعهداتش، کسانی که مخالفت خود را ابراز کردند، و اینکه چه میزان از این روند به اجماعی بر سر پایان دادن به جنگ انجامید.
+
+🔸«می‌خواهیم این ماجرا را تمام کنیم»:
+
+🔹 چگونه مقام‌های دولت ترامپ بر تردیدها نسبت به ایران غلبه کردند و به توافق رسیدند.
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 94215
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+از جام جهانی امسال یاد گرفتم به هیچ وجه شرط بندی نکنم 🗿
+</div>
+
+## kianmeli1 — post 88038
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏🔴قیمت نفت برنت به زیر ۸۰ دلار سقوط کرد و به پایین‌ترین سطح در ۳ ماه اخیر رسید
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 88037
+
+<div align="center">
+  <a href="telegram/content/kianmeli1_88037_1781641449.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴آمار فاجعه بار ستاد مبارزه با مواد مخدر از مبتلایان به HIV در کشور
+
+از هر ۸ نفر معتاد ۱ نفرشان مبتلا به ویروس اچ‌آی‌وی است.
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 342769
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342769_1781641452.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چاک شومر، رهبر اقلیت دموکرات در سنای آمریکا، خواستار ارائه گزارش به رهبران ارشد کنگره موسوم به «هشت نفر» و همچنین سایر اعضای کنگره درباره توافق آمریکا با جمهوری اسلامی شد.
+
+چاک شومر افزود: «ده‌ها بار به ما گفته شده این جنگ پایان یافته اما ده‌ها بار ثابت شده این ادعا نادرست بوده است.»
+
+او ادامه داد: «دو روز از زمانی که ترامپ مدعی شد به یک توافق صلح با ایران رسیده می‌گذرد، اما هنوز هیچ جزییاتی از این به‌اصطلاح توافق منتشر نکرده است.»
+
+چاک شومر گفت این مجلس بعدازظهر سه‌شنبه برای نهمین بار در سال جاری درباره طرحی با هدف محدود کردن اختیارات جنگی ترامپ در قبال جمهوری اسلامی رای‌گیری خواهد کرد.
+https://iranintl.com/202606162486
+</div>
+
+## FarsiVOA — post 220946
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️از خلع سلاح تا انرژی؛ جزئیات سفر تام باراک به بغداد و اقلیم کردستان عراق
+@FarsiVOA
+</div>
+
+## IranianMinds — post 22765
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22765_1781641453.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مایک پنس، معاون سابق ترامپ:
+
+به جای توافق، باید اجازه داد نیروهای آمریکایی کار را یکسره کنند، تنگه هرمز را باز کنند، توان نظامی تهاجمی رژیم ایران را از بین ببرند و به مردم ایران یک فرصت واقعی برای آزادی بدهند.
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 392343
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392343_1781641455.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ریدممممم😂😂😂😂
+
+یه زن حرومزاده طرفدار جمهوری‌شیطانی دیشب قبل از اینکه وارد ورزشگاه بشه راه میرفت و وقتی رفته تو ورزشگاه نشسته رو ویلچر برای مظلوم نمایی!😂😂😂
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392342
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392342_1781641457.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خب دیگه کم کم اماده بشید که میخوایم برگردیم به تنظیمات کارخونه.
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 128565
+
+<div align="center">
+  <a href="telegram/content/alonews_128565_1781641460.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 هیلاری کلینتون: وقتی ترامپ جنگ علیه ایران را آغاز کرد و سپس از کاخ سفید شنیدید که «هیچ‌کس به من درباره تنگه هرمز نگفت» و پرسیدند «تنگه هرمز کجاست؟»، این چیزی است که نمی‌توان آن را ساختگی دانست. انگار فیلمی است که به دلیل عجیب و غریب بودن از آن خارج می‌شوید.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/26 23:43
 ---
 

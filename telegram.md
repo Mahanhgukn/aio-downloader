@@ -7,6 +7,185 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/26 10:14
+---
+
+## WithYashar — post 15027
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک بمب‌افکن B-52 استراتوفورتراس نیروی هوایی ایالات متحده بلافاصله پس از برخاستن در پایگاه نیروی هوایی ادواردز سقوط کرد. جزئیات تلفات هنوز گزارش نشده است. @withyashar
+</div>
+
+## pm_afshaa — post 94166
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ:ایران موافقت کرده که هرگز سلاح هسته‌ای در اختیار نداشته باشه
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94165
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جوری که بیرانوند تنگه رو بسته بود زاویه بسته وارد تنگه شدن و جر دادن
+</div>
+
+## pm_afshaa — post 94164
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تا دیر نشده باید صعود ایران از گروه در جام جهانی رو به عنوان یه بند به تفاهم‌نامه اضافه کرد🤣🤣
+</div>
+
+## pm_afshaa — post 94163
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94163_1781592256.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+میثاقی از دیدن پرچم شیر و خورشید تو ورزشگاه فشاری شده داره کونش میسوزه🤣🤣
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94162
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری CNN : در پی سقوط بی‌52 تو کالیفرنیا، هشت نیروی حاضر تو این بمب‌افکن کشته شدن
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94161
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_94161_1781592260.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سانسورچی شبکه 3 با کلی سانسور باز هم پرچم شیر و خورشید رو نتونستن سانسور کنن
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94159
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94159_1781592261.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+استقبال گرم هم میهنان از بیرانوند در بازی امروز
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 342661
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بر اساس ویدیوهای رسیده به ایران‌اینترنشنال، هنگام نمایش پرچم جمهوری اسلامی قبل از بازی تیم‌های فوتبال ایران و نیوزیلند در ورزشگاه سوفای لس‌آنجلس،‌ ایرانیان حاضر در ورزشگاه این پرچم را هو کردند. عده‌ای از حامیان جمهوری اسلامی هم در این ورزشگاه حاضر بودند که پرچم رژیم را تشویق کردند.
+</div>
+
+## RadioFarda — post 158364
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_158364_1781592265.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸سازمان حقوق بشر ایران با استقبال از توافق اعلام‌شده میان جمهوری اسلامی ایران و ایالات متحده برای پایان جنگ، هشدار داد که وضعیت حقوق بشر در ایران نباید در روند مذاکرات و تعاملات آینده با جمهوری اسلامی به حاشیه رانده شود.
+
+🔸این سازمان روز دوشنبه ۲۵ خرداد اعلام کرد که در جریان جنگی که از ۹ اسفند ۱۴۰۴ آغاز شد و پس از ۴۰ روز با آتش‌بس متوقف شد، هزاران نفر کشته یا بازداشت شدند و شمار اعدام‌های سیاسی و امنیتی به بالاترین سطح خود در حدود سه دهه گذشته رسید.
+
+🔸سازمان حقوق بشر ایران همچنین به موج بازداشت‌ها در ماه‌های اخیر اشاره کرده و گفته است که مقام‌های جمهوری اسلامی از بازداشت بیش از شش هزار و ۵۰۰ نفر از زمان آغاز جنگ خبر داده‌اند.
+
+🔸محمود امیری‌مقدم، مدیر سازمان حقوق بشر ایران، در این بیانیه گفت جنگ «نه‌تنها ارتباطی با حقوق بشر مردم ایران نداشت، بلکه تأثیر آن بر وضعیت حقوق بشر در ایران به‌شدت منفی بود». او افزود که مقام‌های جمهوری اسلامی از شرایط جنگی برای تشدید سرکوب داخلی استفاده کردند و در این مدت «هزاران ایرانی به‌طور خودسرانه بازداشت شدند و شاهد افزایش چشمگیر اعدام زندانیان سیاسی بودیم».
+
+
+@RadioFarda
+</div>
+
+## Dirty_Kids — post 392264
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392264_1781592266.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شات عرزشی‌سوز
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392263
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392263_1781592266.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شاهد عشوه‌گریِ تمام‌عیارِ یک عرزشیِ حامی ج.ا برای یک هوادار نیوزیلندی هستید.»
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392262
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392262_1781592267.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+همین قاب ما رو بس
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 128381
+
+<div align="center">
+  <a href="telegram/content/alonews_128381_1781592268.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وال‌استریت ژورنال: ترامپ در ازای تعهد تهران به ازسرگیری مذاکرات هسته‌ای، با رفع محاصره موافقت کرده؛ این یک عقب‌نشینی راهبردی است
+
+
+🔴 توافقی که رئیس‌جمهور آمریکا، دونالد ترامپ، با ایران به آن دست یافته است، بیش از آنکه یک پیروزی کامل راهبردی باشد، نشان‌دهنده عقب‌نشینی از اهداف اصلی واشنگتن در آغاز جنگ است؛ زیرا آمریکا در ازای تعهد ایران به ازسرگیری مذاکرات درباره برنامه هسته‌ای خود، با رفع محاصره موافقت کرده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128380
+
+<div align="center">
+  <a href="telegram/content/alonews_128380_1781592268.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تسنیم : دقایقی پیش، ۳ نفتکش و ۲ کشتی حامل کالای اساسی ایران از محاصره دریایی عبور کردند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/26 10:04
 ---
 

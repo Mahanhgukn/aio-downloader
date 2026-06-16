@@ -7,6 +7,92 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/26 06:13
+---
+
+## IranIntlTV — post 342628
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻درحالی که بسیاری از تماشاگران ایرانی در استادیوم سوفای لس‌آنجلس با پرچم در دست یا بر تن حاضر شده‌اند و بازی تیم فوتبال ایران و نیوزیلند را تماشا می‌کنند که بازی بدون هیچ اختلال و توقفی ادامه دارد.
+
+🔹این درحالی است که پیش‌تر، احمد دنیامالی، وزیر ورزش جمهوری اسلامی گفته بود در صورت نمایش پرچمی غیر از جمهوری اسلامی، مدیر تیم، باید از داور و مسئولان بخواهند بازی را تا جمع شدن پرچم‌ها، متوقف کنند.
+
+🔹به گزارش رویترز، افراد زیادی با پرچم شیر و خورشید یا تی‌شرت‌هایی مزین به این نماد بدون هیچ مشکلی از بازرسی‌های امنیتی عبور کردند. ده‌ها نفر نیز این پرچم را از روی سکوها به اهتزاز درآوردند.
+
+@iranintltvsport
+</div>
+
+## FarsiVOA — post 220867
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️آیا پس از توافق جمهوری اسلامی با آمریکا، حکومت به سمت سرکوب بیشتر مردم حرکت خواهد کرد؟ گفتگو با سپیده پورآقایی کنشگر سیاسی
+@FarsiVOA
+</div>
+
+## IranianMinds — post 22725
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دوستانی که به فکر تیم ملیشونن و فکر‌ میکنن فوتبال ربطی به سیاست نداره دوست عزیز شما میتونید سیکتونو بزنید برید کانال های عرزشی اونجا دور هم اکلیل برینید و لذت ببرید از بازی تیم ملیتون ما اینجا از آدمایی که انسانیت ندارن حمایتی نمیکنیم
+</div>
+
+## IranianMinds — post 22724
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دوستانی که به فکر تیم ملیشونن و فکر‌ میکنن فوتبال ربطی به سیاست نداره دوست عزیز شما میتونید سیکتونو بزنید برید کانال های عرزشی اونجا دور هم اکلیل برینید و لذت ببرید از بازی تیم ملیتون
+
+ما اینجا از آدمایی که انسانیت ندارن حمایتی نمیکنیم
+</div>
+
+## BBCPersian — post 283964
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️گل دوم ایران
+محمد محبی در دقیقه ۶۳ توانست با ضربه سر دروازه نیوزیلند را برای بار دوم باز کند.
+</div>
+
+## Dirty_Kids — post 392242
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392242_1781577806.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 امشب یه نفر با خودش پرچم جمهوری اسلامی آورده بود که مردم ریختن سرش و پرچمو پاره کردن:
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392240
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سانسور چی کلا گیوآپ کرده:))))))))))))
+</div>
+
+## Dirty_Kids — post 392239
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392239_1781577807.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عع، چرا توپ رفت اونور.
+</div>
+
+## Dirty_Kids — post 392238
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گل مساوی تیم آخوندا محبی
+
+تماشا
+</div>
+
+---
 📅 بروزرسانی: 1405/03/26 06:03
 ---
 

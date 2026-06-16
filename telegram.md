@@ -7,6 +7,352 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/26 15:24
+---
+
+## WithYashar — post 15056
+
+<div align="center">
+  <a href="telegram/content/WithYashar_15056_1781610874.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: ایران حتی یک بار به ترکیه حمله کرد، من هرگز این را درک نکردم، هیچ‌کس آن را درک نخواهد کرد
+
+این مشکل است، آن‌ها کاملاً غیرمنطقی هستند و اکنون آن افراد رفته‌اند، فکر می‌کنم ایران اکنون رهبری منطقی دارد!
+@withyashar
+</div>
+
+## pm_afshaa — post 94178
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_94178_1781610876.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جمهوری اسلامی هم‌زمان با امضای تفاهم‌نامه‌ «صلح»، دو تن دیگر از معترضان ۱۸ و ۱۹ دی‌ به نام‌های جواد زمانی و ابوالفضل ساعدی را اعدام کرد.
+
+این نتیجه معامله و سازش با یک رژیم جنایتکار است. توافق با رژیمی که تنها در دو روز، بیش از ۴۰ هزار معترض را به قتل رساند، نه‌تنها از نظر اخلاقی نادرست است، بلکه از منظر راهبردی نیز خطایی فاجعه‌بار خواهد بود.
+
+تعامل با این رژیم محکوم به شکست است و همه ما بهای پیامدهای آن را خواهیم پرداخت. جنگ ۴۷ ساله جمهوری اسلامی علیه مردم ایران همچنان ادامه دارد. رژیمی که هرگز با شهروندان خود به صلح نرسیده، هرگز با جهان نیز به صلحی واقعی دست نخواهد یافت.
+
+جامعه جهانی باید از مبارزه ملت ایران برای آزادی حمایت کند و آنها را در کانون هر مذاکره و محور هر سیاستی درباره ایران قرار دهد. اما روشن بگویم: با حمایت جهان یا بدون آن، این رژیم سقوط خواهد کرد،ٰ و مردم ایران خود را از چنگ استبداد آزاد خواهند کرد.
+
+As it signs a Memorandum of Understanding for “peace”, the Islamic Republic just executed two more protesters from January 8th and 9th— Javad Zamani and Abolfazl Saedi.
+
+This is the consequence of making a deal with this criminal regime. To do a deal with a regime that murdered more than 40,000 protestors in two days in January is morally wrong and strategically misguided.
+
+Dealing with this regime will fail and we will all face the consequences. The regime’s 47-year war against the Iranian people continues. Just as it has never made peace with its own citizens, it will never truly make peace with the world.
+
+The international community should back the people of Iran’s fight for freedom. Put them center in any negotiations and in their Iran policy. But let me be clear - with or without international support - this regime will fall. The people of Iran will liberate themselves from tyranny.
+
+@OfficialRezaPahlavi
+</div>
+
+## DEJradio — post 5734
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ ترامپ گفت با تلاش جمهوری اسلامی برای رسیدن به سلاح هسته‌ای، جهنم بر سرش فرود می‌آید
+
+دونالد ترامپ، رئیس جمهوری ایالات متحده روز سه‌شنبه گفت تفاهم با رژیم حاکم بر ایران با صدای بلند و شفاف می‌گوید جمهوری اسلامی به سلاح هسته‌ای دست نمی‌یابد.
+رئیس جمهوری آمریکا، در حاشیۀ نشست گروه هفت در فرانسه هشدار داد اگر جمهوری اسلامی به سمت دستیابی به سلاح هسته‌ای برود، جهنم بر سرش آوار می‌شود.
+ترامپ با دفاع از تفاهمنامۀ اخیر با جمهوری اسلامی افزود مهم‌ترین بخش این توافق آن است که تهران هرگز به سلاح هسته‌ای دست نمی‌یابد.
+رئیس جمهوری آمریکا با اشاره به این که مذاکرات اکنون وارد مرحله دوم شده، ادعا کرد این مرحله آسان‌تر از مرحلۀ نخست به پیش می‌رود.
+او اعلام کرد که ایالات متحده هیچ تعهدی برای سرمایه‌گذاری در ایران ندارد و حل مسائل هسته‌ای مهم‌ترین اولویت واشینگتن است.
+ترامپ همچنین مدعی شد رهبران جدید جمهوری اسلامی نسبت به گذشته «منطقی‌تر» و «کمتر افراطی» هستند.
+رئیس جمهوری آمریکا ادعا کرد هیچ‌گاه به تغییر رژیم حاکم بر ایران، توجهی نداشته است.
+
+#تفاهم #ترامپ #برنامه_هسته‌ای
+@DEJradio
+</div>
+
+## IranIntlTV — post 342696
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342696_1781610876.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻تیم ملی فوتبال ایران در دیدار مقابل نیوزیلند مشکلات جدی در ساختار دفاعی داشت. دریافت دو گل در این مسابقه، حاصل ضعف‌ دفاع تیمی، به‌ویژه در عمق خط دفاعی، بود. در طول بازی، مدافعان میانی بارها در نبردهای تک‌به‌تک مغلوب مهاجمان حریف شدند و در پوشش فضاهای خالی ناکام ماندند.
+
+🔹با توجه به آسیب‌پذیری مشهود تیم ملی در کارهای دفاعی، شما چه ارزیابی از این نمایش دارید؟ به عملکرد مدافعان ایران در این مسابقه از ۱۰ چه نمره‌ای می‌دهید؟
+
+🔹نظر خود را در اینستاگرام ایران اینترنشنال ورزشی ثبت کنید؛👇
+https://www.instagram.com/p/DZpT8_ZEWn9/?igsh=MWh1cXR1M243bGUxZg==
+
+@iranintltvsport
+</div>
+
+## FarsiVOA — post 220910
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220910_1781610876.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حرکت جنجالی محمد محبی پس از گل؛ تهدید تماشاگران با علامت شلیک؟
+
+محمد محبی پس از به ثمر رساندن گل در بازی با تیم نیوزیلند، در اقدامی جنجالی با انگشتان خود علامت شلیک اسلحه را به سمت تماشاگران ایرانی نشان داد.
+
+به تعبیر برخی از کاربران شبکه‌های اجتماعی، این حرکت او «یک خوشحالی پس از گل ساده نبود»، بلکه تهدیدی علیه آن دسته از تماشاگران ایرانی محسوب می‌شد که برای اعتراض با پرچم شیر و خورشید در ورزشگاه حاضر شده بودند.
+@FarsiVOA
+</div>
+
+## RadioFarda — post 158390
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_158390_1781610878.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸رئیس‌جمهور آمریکا روز سه‌شنبه ۲۶ خرداد با اشاره به توافق اخیر با ایران تاکید کرد که ایالات متحده بر اساس این توافق تعهدی به سرمایه‌گذاری در ایران ندارد.
+
+🔸دونالد ترامپ در حاشیه نشست گروه هفت در فرانسه و دیدار با تمیم بن حمد آل ثانی، امیر قطر، رهبران جدید در ایران را «منطقی‌تر»، «باهوش‌تر» و «کمتر افراطی» خواند و به خبرنگاران گفت: رهبران قبلی که «غیرمنطقی» بودند از بین رفته‌اند. او گفت هیچ‌وقت به تغییر رژیم در ایران توجه نداشت.
+
+🔸رئیس‌جمهور آمریکا همچنین درباره رابطه با اسرائیل گفت که اگر او نبود اسرائیل هم‌اکنون وجود نداشت و «از زمین محو» شده بود.
+
+🔸ترامپ رابطه‌اش را با بنیامین نتانیاهو «بسیار موثر» دانست و در عین حال درباره لبنان گفت که به اسرائیل پیشنهاد داده است مقابله با حزب‌الله را به دولت فعلی سوریه و رئیس‌جمهور فعلی آن احمد الشرع بسپارد چرا که به گفته ترامپ، «حملات اسرائیل تلفات زیادی به بار آورده است».
+
+@RadioFarda
+</div>
+
+## Dirty_Kids — post 392288
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392288_1781610879.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جدی می فرمایید فهمید اما بعضی هنوز گاو ماندند
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392287
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392287_1781610880.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبکه خبر: تمام کسایی که توی بیت رهبری بودن کشته شدن جز مجتبی خامنه‌ای
+
+مجتبی تو بیت رهبری:
+
+
+@Dirty_Kids 👻
+</div>
+
+## Hranews — post 113647
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جرائم مواد مخدر؛ ۲ زندانی در زندان یزد اعدام شدند
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– حکم دو زندانی که پیشتر از بابت اتهامات مرتبط با جرائم مواد مخدر، در یک پرونده مشترک به #اعدام محکوم شده بودند، امروز سه‌شنبه ۲۶ خردادماه در زندان یزد اجرا شد.
+
+ادامه مطلب
+
+#عمر_شه‌بخش
+#غفور_شه‌بخش
+
+↘️
+@hranews_bot تماس ✉️ -  @Hranews  کانال هرانا 🆑
+</div>
+
+## officialrezapahlavi — post 1845
+
+<div align="center">
+  <img src="telegram/content/officialrezapahlavi_1845_1781610880.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جمهوری اسلامی هم‌زمان با امضای تفاهم‌نامه‌ «صلح»، دو تن دیگر از معترضان ۱۸ و ۱۹ دی‌ به نام‌های جواد زمانی و ابوالفضل ساعدی را اعدام کرد.
+
+این نتیجه معامله و سازش با یک رژیم جنایتکار است. توافق با رژیمی که تنها در دو روز، بیش از ۴۰ هزار معترض را به قتل رساند، نه‌تنها از نظر اخلاقی نادرست است، بلکه از منظر راهبردی نیز خطایی فاجعه‌بار خواهد بود.
+
+تعامل با این رژیم محکوم به شکست است و همه ما بهای پیامدهای آن را خواهیم پرداخت. جنگ ۴۷ ساله جمهوری اسلامی علیه مردم ایران همچنان ادامه دارد. رژیمی که هرگز با شهروندان خود به صلح نرسیده، هرگز با جهان نیز به صلحی واقعی دست نخواهد یافت.
+
+جامعه جهانی باید از مبارزه ملت ایران برای آزادی حمایت کند و آنها را در کانون هر مذاکره و محور هر سیاستی درباره ایران قرار دهد. اما روشن بگویم: با حمایت جهان یا بدون آن، این رژیم سقوط خواهد کرد،ٰ و مردم ایران خود را از چنگ استبداد آزاد خواهند کرد.
+
+As it signs a Memorandum of Understanding for “peace”, the Islamic Republic just executed two more protesters from January 8th and 9th— Javad Zamani and Abolfazl Saedi.
+
+This is the consequence of making a deal with this criminal regime. To do a deal with a regime that murdered more than 40,000 protestors in two days in January is morally wrong and strategically misguided.
+
+Dealing with this regime will fail and we will all face the consequences. The regime’s 47-year war against the Iranian people continues. Just as it has never made peace with its own citizens, it will never truly make peace with the world.
+
+The international community should back the people of Iran’s fight for freedom. Put them center in any negotiations and in their Iran policy. But let me be clear - with or without international support - this regime will fall. The people of Iran will liberate themselves from tyranny.
+
+@OfficialRezaPahlavi
+</div>
+
+## alonews — post 128461
+
+<div align="center">
+  <a href="telegram/content/alonews_128461_1781610881.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نخست‌وزیر بریتانیا: ما از توافقی که ترامپ با ایران منعقد کرد استقبال می‌کنیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128460
+
+<div align="center">
+  <a href="telegram/content/alonews_128460_1781610881.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈قطر: تفاهم کنونی تهران و واشنگتن نخستین گام به‌سوی توافقی گسترده‌تر است 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128459
+
+<div align="center">
+  <a href="telegram/content/alonews_128459_1781610881.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ضعف فاحش شجاع خلیل زاده در بازی امروز صبح مقابل نیوزلند
+
+🫶بازیکنی که صرفا با خایه مالی به تیم ملی راه پیدا کرد نه مسائل فنی
+
+@AloSport
+</div>
+
+## alonews — post 128455
+
+<div align="center">
+  <a href="telegram/content/alonews_128455_1781610883.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رئیس‌جمهور ترامپ و رئیس‌جمهور زلنسکی در اجلاس جی۷ به طور مختصر صحبت کردند.
+
+
+🔴آنها امروز بعداً در حاشیه اجلاس دیداری خواهند داشت
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128454
+
+<div align="center">
+  <a href="telegram/content/alonews_128454_1781610883.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈اسرائیل هیوم: دونالد ترامپ داره گزینه برکناری مقاماتی که با توافق ایران مخالفن رو بررسی میکنه!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128453
+
+<div align="center">
+  <a href="telegram/content/alonews_128453_1781610884.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈قطر: تفاهم کنونی تهران و واشنگتن نخستین گام به‌سوی توافقی گسترده‌تر است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128452
+
+<div align="center">
+  <a href="telegram/content/alonews_128452_1781610884.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فیدان : ترکیه همون‌طور که می‌دونید یه کشور مهم و قدرتمند تو منطقه‌ست ، برای همین هر موضعی که می‌گیره واقعاً می‌تونه اثرگذار باشه و فرق ایجاد کنه
+
+
+🔴سیاستی هم که رئیس‌جمهور ما با محوریت ثبات و اولویت دادن به صلح پیش گرفته، تو موضوع جنگ ایران تو منطقه هم خودش رو نشون داده
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128451
+
+<div align="center">
+  <a href="telegram/content/alonews_128451_1781610884.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فیدان : بعضیا به خاطر گذشته سکوت می‌کنن (اسرائیل)
+
+
+🔴 بعضیا پشت پرده درگیر تجارت و توافق می‌شن یا حتی تو انتخابات با هم تعامل‌های پنهان دارن
+
+
+🔴نتیجه‌اش این می‌شه که این وضعیت ادامه پیدا می‌کنه و همه طرف‌ها در نهایت آسیب می‌بینن
+
+
+🔴 برای همین هم تأکیدم اینه که کشورها باید جدی‌تر و هماهنگ‌تر عمل کنن، تا جلوی اقدام اسرائیل تو منطقه رو بگیرن
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128450
+
+<div align="center">
+  <a href="telegram/content/alonews_128450_1781610884.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فیدان، وزیر امور خارجه ترکیه : اگه یه «درک و هماهنگی مشترک» بین کشورها شکل بگیره؛ و این به یک «اقدام دیپلماتیک جمعی» تبدیل بشه، اسرائیل عملاً دستش برای اقدام بسته می‌شه
+
+
+🔴 به نظرم کشورها باید صریح و هماهنگ عمل کنن، اشتباهات رو هم سریع و مشترک پاسخ بدن
+
+
+🔴چون همین فشار و اجماع بین‌المللی می‌تونه جلوی اقدامات اسرائیل رو بگیره
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128449
+
+<div align="center">
+  <a href="telegram/content/alonews_128449_1781610884.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈بری و قالیباف در تماسی تلفنی: واشنگتن باید اسرائیل را به پایان دادن جنگش علیه لبنان ملزم کند.
+
+
+🔴اسرائیل باید مجبور شود تخریب روستاهای لبنانی را متوقف کند و از سرزمین‌های اشغالی عقب‌نشینی نماید.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128448
+
+<div align="center">
+  <a href="telegram/content/alonews_128448_1781610885.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈شورای هماهنگی بانک‌ها: سپرده‌ها و اطلاعات مالی مشتریان بانک‌های ملی، صادرات، تجارت و توسعه صادرات امن است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128447
+
+<div align="center">
+  <a href="telegram/content/alonews_128447_1781610885.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خبرنگار صدا و سیما: عملیات رفع محاصره دریایی اجرایی شده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/26 15:14
 ---
 

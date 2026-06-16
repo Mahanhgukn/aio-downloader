@@ -7,6 +7,150 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/26 18:34
+---
+
+## mwarmonitor — post 11032
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚠️اطلاعیه کانال ⚠️
+
+🔸از همه عزیزانی که همواره به بنده لطف داشته و حمایت کرده‌اند، صمیمانه سپاسگزارم. در پاسخ به درخواست برخی دوستان مبنی بر معرفی پلتفرم‌هایی برای حمایت، به اطلاع می‌رساند که تمامی فعالیت‌های اینجانب صرفاً با هدف آگاهی‌بخشی و اطلاع‌رسانی صحیح انجام شده و هیچ‌گونه نگاه یا انتظار مادی در آن وجود نداشته است.
+
+🔸با این حال، چنانچه عزیزانی همچون گذشته تمایل به حمایت داشته باشند، لازم به شفافیت اعلام شود که مبالغ دریافت‌شده، همانند گذشته، به‌صورت کاملاً ناشناس در اختیار افراد نیازمند قرار خواهد گرفت و صرف امور خیرخواهانه می‌شود.
+
+پیشاپیش از اعتماد و همراهی شما سپاسگزارم.
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 343025
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343025_1781622267.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Two U.S. Army pilots were pulled from the water after their Apache helicopter went down near the Strait of Hormuz — and the rescue came from a completely unmanned vessel.
+
+An autonomous drone boat built by Austin-based defense company Saronic carried out what is believed to be the first publicly known U.S. military rescue mission involving an unmanned vessel.
+
+The Corsair operates without onboard personnel and can be designed to carry out a mission without constant remote control, allowing crews to respond in dangerous environments without putting additional service members at risk, @Brooketaylortv reports. | @AmericaNewsroom
+</div>
+
+## FoxNewsTwitter — post 343024
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343024_1781622269.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+🚨 BREAKING: At least 3 suspects identified in plot to target White House UFC event; Bryan Omar Roa, Michael Alan Thomas arrested in California, charged with conspiracy to commit murder; Tycen Proper arrested in Ohio
+</div>
+
+## DW_Farsi — post 126067
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 مهدی طارمی: شرایط ایران در جام جهانی یک فاجعه است
+ 
+پس از تساوی ۲-۲ مقابل نیوزیلند در لس‌آنجلس، تیم ملی فوتبال ایران مجبور به تخلیه فوری هتل و ترک خاک آمریکا شد. کاپیتان تیم ملی، با انتقاد شدید از فدراسیون فوتبال ایران و ناامیدی از نقش فیفا، شرایط حاکم بر اردو را یک "فاجعه" توصیف کرد.
+ 
+مهدی طارمی نه تنها فدراسیون فوتبال ایران را مسئول این وضعیت دانست، بلکه انتقادات صریحی را نیز متوجه فدراسیون جهانی فوتبال (فیفا) کرد.
+ 
+بر اساس برنامه‌ریزی قبلی، قرار بود ملی‌پوشان ایران پس از بازی برابر نیوزیلند، صبح روز سه‌شنبه ۱۶ ژوئن (۲۶ خرداد) یک جلسه تمرین ریکاوری را در لس‌آنجلس برگزار کنند و سپس عازم شهر تیخوانا در مکزیک شوند. اما این برنامه به شکل ناگهانی لغو شد.
+ 
+طارمی با انتقاد از این وضعیت گفت:«از ما خواسته شد هتل را فورا تخلیه کنیم و همان سه‌شنبه شب به سمت مکزیک حرکت کنیم.»
+ 
+کاپیتان تیم ملی ایران به غیبت ارکان اصلی مدیریت و پشتیبانی تیم در این تورنمنت بزرگ اشاره کرد و افزود: «ما در حال حاضر تیم رسانه‌ای خودمان را همراه نداریم. رئیس فدراسیون فوتبال اینجا حضور ندارد و حتی بخشی از کادر فنی و اعضای تدارکات که وجودشان برای ما حیاتی است، غایب هستند. در جریان جام جهانی، یک تیم باید بتواند با آرامش خود را برای بازی بعدی آماده کند؛ این شرایط اصلا در شان ما و فوتبال نیست.»
+ 
+طارمی در ادامه صحبت‌های خود به نارضایتی از عملکرد فدراسیون جهانی فوتبال اشاره کرد و گفت: «فیفا می‌توانست و باید کمک بیشتری به ما می‌کرد.»
+ 
+او همچنین فاش کرد که جیانی اینفانتینو، رئیس فیفا، شخصا در رختکن تیم ملی ایران حاضر شده است، اما به نظر می‌رسد او نیز توانایی تغییر شرایط را نداشته است. طارمی در این باره گفت: «البته که او می‌خواهد به ما کمک کند، اما دست او هم بسته است و پای مسائل دیگری در میان است.»
+@dw_farsi
+</div>
+
+## RadioFarda — post 158396
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_158396_1781622269.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸سوئیس روز سه‌شنبه اعلام کرد برگزاری مراسم امضای توافق موقت میان آمریکا و ایران با هدف پایان دادن به جنگ در خاورمیانه در اقامتگاه کوهستانی بورگن‌اشتوک در مرکز سوئیس برنامه‌ریزی شده است.
+
+🔸وزارت امور خارجه سوئیس در بیانیه‌ای اعلام کرد که درباره احتمال امضای آنچه «یادداشت تفاهم» میان واشنگتن و تهران خوانده شده، در تماس نزدیک با آمریکا، ایران، پاکستان و قطر بوده است.
+
+🔸در این بیانیه آمده است: «در حال حاضر، امضای این سند برای روز جمعه ۱۹ ژوئن (۲۹ خرداد) در بورگن‌اشتوک، واقع در کانتون نیدوالدن، برنامه‌ریزی شده است. این محل از سوی میانجی‌های پاکستانی و قطری، و همچنین از سوی آمریکا و ایران پیشنهاد شده است.»
+
+🔸بورگن‌اشتوک یک اقامتگاه و مجموعه کنفرانسی مشهور در مرکز سوئیس است که پیش‌تر نیز میزبان نشست‌های بین‌المللی و مذاکرات دیپلماتیک مهم بوده است.
+
+🔸ایران و آمریکا یادداشت تفاهم پایان جنگ را که در قالب یک سند کلی تنظیم شده است، روز ۲۴ خرداد به صورت الکترونیکی امضا کردند و این سند قرار است روز ۲۹ خرداد با حضور مقام‌های ارشد دو کشور به شکل حضوری نیز امضا شود.
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 22748
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22748_1781622270.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ :
+
+بزودی متن توافق رو میدیم رسانه ها براتون بخونن بفهمید چقدر خفنه.
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 392308
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392308_1781622270.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صاحبشو دسگیر کردن این احمقارو:
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 128506
+
+<div align="center">
+  <a href="telegram/content/alonews_128506_1781622272.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کارشناس فاکس‌نیوز: زمانی هدف ترامپ تسلیم بی قید و شرط ایران بود
+
+بریت هیوم:
+
+🔴اگر تمام چیزهایی که رئیس جمهور ترامپ ادعا می‌کند که در توافق هست، در توافق باشد و به آنها پایبند باشیم، احتمالاً یک پیروزی بزرگ خواهد بود.
+
+
+🔴اما او به دلیل حرف‌های گزافی که در مورد دستاوردهای اولیه ما زده، کمی در موقعیت نامساعد سیاسی قرار دارد. هدفی که او زمانی گفته بود تسلیم بی‌قید و شرط ایران بود.
+
+🔴ایران چیزهای زیادی از دست داده است، اما این تسلیم بی‌قید و شرط نیست، این چیزی است که وقتی مذاکره می‌کنید به دست می‌آورید. دولت به وضوح در اینجا کمی عقب‌نشینی کرده است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128505
+
+<div align="center">
+  <a href="telegram/content/alonews_128505_1781622273.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈عکس یادگاری سران G7
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/26 18:24
 ---
 

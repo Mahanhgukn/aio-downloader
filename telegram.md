@@ -7,6 +7,47 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/26 06:34
+---
+
+## DW_Farsi — post 126030
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 جام‌جهانی ۲۰۲۶ تا دقیقه ۷۵؛ ایران ۲ ـ ۲ نیوزیلند
+
+پس از پایان نیمه نخست با تساوی ۱-۱، نیوزیلند در دقیقه ۵۵ با دومین گل الیجا جاست دوباره پیش افتاد. اما ایران در دقیقه ۶۴ با ضربه سر محمد محبی روی ارسال رامین رضاییان بازی را به تساوی ۲-۲ کشاند. این دیدار در ورزشگاه سوفای لس‌آنجلس برگزار می‌شود. در دیگر دیدار گروه "جی" نیز بلژیک و مصر به تساوی ۱-۱ رضایت دادند.
+@dw_farsi
+</div>
+
+## IranianMinds — post 22728
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بازی ۲-۲ مساوی شد،
+
+ویزاتونم تمومه برگردید مکزیک حالا
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 392245
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392245_1781579051.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امیر رولکس😂😂😂
+</div>
+
+## Dirty_Kids — post 392244
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+۲۰ دقیقه دیگه ویزاشون تموم میشه 🤔
+</div>
+
+---
 📅 بروزرسانی: 1405/03/26 06:23
 ---
 

@@ -7,6 +7,59 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/26 05:23
+---
+
+## VahidOOnLine — post 245799
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245799_1781574815.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️رامین رضاییان در دقیقه ۳۲ بازی توانست گل اول را برای تیم فوتبال ایران مقابل نیوزلند به ثمر برساند و نتیجه بازی را یک بر یک مساوی کند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 343007
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343007_1781574816.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"[Trump] doesn't wear it on his sleeve, but he is a person of faith."
+
+Vice President Vance tells @seanhannity that President Trump recognizes that many of the people who helped him get to the White House are Christians, deepening his connection to the faith.
+</div>
+
+## FoxNewsTwitter — post 343006
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343006_1781574819.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"When you believe something ... then of course you want the people that you love to share that perspective as well."
+
+VP JD Vance tells @seanhannity he hopes Second Lady Usha Vance, who is Hindu, will one day convert to Christianity.
+
+Vance said faith is deeply important to him, but emphasized that religious belief is ultimately a personal decision.
+
+The vice president's comments offered a glimpse into how he and his wife navigate their interfaith marriage.
+</div>
+
+## Dirty_Kids — post 392229
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فارغ از هر نتیجه‌ای آبشو میدیم میثاقی بخوره
+</div>
+
+---
 📅 بروزرسانی: 1405/03/26 05:13
 ---
 

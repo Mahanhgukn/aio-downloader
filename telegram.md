@@ -7,6 +7,87 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/26 05:04
+---
+
+## FoxNewsTwitter — post 343005
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343005_1781573673.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Vice President JD Vance tells @seanhannity how the US will work to guarantee that Iran never has a nuclear weapon.
+
+"They're agreeing right now to eliminate the enriched stockpile. And if they don't get to a point where they agree to stop enriching, then they don't get the other benefits of the bargain."
+</div>
+
+## FoxNewsTwitter — post 343004
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343004_1781573676.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"The Gulf Arabs hated the Obama deal."
+
+Vice President JD Vance tells @seanhannity why he believes the new Iran agreement will succeed where previous deals failed.
+
+Vance says regional allies support the framework and that the administration has built in safeguards to verify compliance, prevent nuclear weapons development, and maintain stability in the Middle East.
+</div>
+
+## IranianMinds — post 22702
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دومیو بزنید شیر مردان نیوزیلند ما بهتون ایمان داریم
+</div>
+
+## IranianMinds — post 22701
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خایمال بزرگ رید
+</div>
+
+## IranianMinds — post 22700
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به امید پیروزی تیم بزرگ و غیور و قدرتمند نیوزیلند ❤️‍🔥
+</div>
+
+## IranianMinds — post 22699
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وای نزدیک بود دومیو‌ بزنن
+</div>
+
+## Dirty_Kids — post 392225
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سوت اول جنگو که زدن علی خامنه‌ای مُرد،
+الانم سوت اول بازی رو که زدن علی بیرانوند گشاد شد.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392224
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392224_1781573679.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تنگه گشاد شد که😂
+</div>
+
+---
 📅 بروزرسانی: 1405/03/26 04:53
 ---
 

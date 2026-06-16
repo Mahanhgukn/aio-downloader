@@ -7,6 +7,218 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/26 16:14
+---
+
+## mwarmonitor — post 11020
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نامه نعیم قاسم به قالیباف:
+
+🔸جناب رئیس مجلس شورای اسلامی، دکتر محمدرضا قالیباف، خداوند شما را تأیید و حفظ فرماید.
+
+🔸کلمات از بیان تشکر عمیق ما نسبت به مواضع قوی و حمایت‌گرانه شما از لبنان، مردم آن و مقاومتش در الزام رژیم اسرائیل به توقف فوری و دائمی عملیات نظامی در همه جبهه‌ها، از جمله لبنان، در پیوند با توقف جنگ علیه جمهوری اسلامی ایران به عنوان بند اول و اساسی توافق میان ایران و آمریکا، قاصر است. شما روزنه امیدی را که تنها راه مؤثر برای جلوگیری از تجاوز اسرائیلی-آمریکایی علیه لبنان بود به واقعیت تبدیل کردید؛ واقعیتی که به جهان نشان داد ایران حامی حق، مقاومت و مستضعفان است. اگر دیگران نیز چنین راهی را می‌پیمودند، آمریکا و اسرائیل چنین گستاخ نمی‌شدند و اشغالگری صهیونیستی همچنان بر سرزمین فلسطین و قدس باقی نمی‌ماند.
+
+
+ما همواره گفته‌ایم که ایران به حزب‌الله، مقاومت و مردم لبنان همه‌چیز داده و چیزی از آنان نگرفته است. ایران ما را برای انتخاب‌هایمان، برای قدرت‌مان در جهت آزادسازی سرزمین‌مان و برای التیام زخم‌های جامعه‌مان یاری کرده است. و اکنون ایران خون می‌دهد، در برابر حملات رژیم صهیونیستی پاسخ می‌دهد، و تبعاتی را که آن را به سوی جنگی گسترده تهدید می‌کند با فداکاری عظیم تحمل می‌نماید. ایران نماد عزت و شرف است.
+
+از طرف حزب‌الله و مقاومت اسلامی، از طرف دوستداران مردم لبنان که خواستند سپاس خود را به شما برسانیم، از طرف شهدا و در رأس آنان سید شهدای امت سید حسن نصرالله (رض)، مجروحان و اسرا، از شما تشکر می‌کنیم و از شما می‌خواهیم این قدردانی و امتنان را به رهبر آیت‌الله سید مجتبی خامنه‌ای (دام ظله)، رئیس‌جمهور دکتر پزشکیان، و سپاه پاسداران انقلاب اسلامی، ارتش، نخبگان و همه مسئولان و مردم منتقل کنید.
+
+و به‌طور ویژه از مردم بزرگ ایران یاد می‌کنیم؛ ما آنان را در میدان‌های شهرهای ایران دیدیم و شنیدیم که آماده‌اند جان خود را برای حمایت از مقاومت و مردم آن فدا کنند. سپاس از شما. سپاس از ایران وفادار.
+
+﻿
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 343018
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343018_1781613862.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: VP JD Vance says the foiled UFC 250 attack plot is another reminder of where America's political climate is heading.
+
+"This is what happens when people turn the rhetoric up so loud that disagreeing with somebody is a cause for violence."
+
+Vance argues that political leaders across the board need to lower the temperature, while contending that much of today's political violence is coming from the left.
+
+He also credits the FBI and federal law enforcement for stopping what could have been a major tragedy, saying Americans rarely see the attacks agents prevent every day:
+
+"They don't get the credit for the attacks they prevent. They only get the blame for the attacks that actually happen." | @foxandfriends
+</div>
+
+## FoxNewsTwitter — post 343017
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343017_1781613864.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH LIVE: President Trump meets with world leaders for key G7 summit talks https://twitter.com/i/broadcasts/1qxvvvdAApWxB
+</div>
+
+## FoxNewsTwitter — post 343016
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343016_1781613865.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: President Trump publicly rebukes Israel over its war against Hezbollah.
+
+"Israel's fighting Hezbollah too long and too many people are being killed."
+
+Trump said he opposed strikes that destroy apartment buildings filled with civilians and revealed he urged Israel to let Syria take the lead against Hezbollah instead.
+
+"If Israel can't do the job without killing everyone else, he'll do the job. Syria will do the job."
+</div>
+
+## IranIntlTV — post 342702
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/342702" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی اخبار نیم‌روزی | سه‌شنبه ۲۶ خرداد
+@iranintlTV
+</div>
+
+## Dirty_Kids — post 392296
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392296_1781613867.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فقط صدای گزارشگر! 😅🤌🏽
+
+استاد، هر کجایی اعلام حضور کن لطفاً؛ خودم شخصاً می‌خوام بابت این شاهکار ازت تشکر کنم.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392295
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 سپاه و عرزشی ها دارن به خاطر توافقی که قالیباف انجام میده، الیاس قالیباف پسر قالیباف که مسئولیت امنیت بیت رهبری رو داشته به جاسوسی برای اسرائیل متهم میکنن .
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392294
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392294_1781613869.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 حالا که توافق تقریبا انجام شده، این صحبتای خامنه‌ای (11 روز قبل از کشته شدنش) تو این چند روز دوباره وایرال شده:
+
+امام حسین گفت من با کسی مثل یزید بیعت نمیکنم، ملت ما هم با این فرهنگ، سابقه و معارف عالی، با افراد فاسدی که تو آمریکا روی کار هستن [ترامپ] بیعت نخواهد کرد.
+‌
+
+
+@Dirty_Kids 👻
+</div>
+
+## Hranews — post 113648
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سال گذشته ۸ هزار کودک در خوزستان از تحصیل بازماندند
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– معاون آموزش ابتدایی اداره‌کل آموزش و پرورش خوزستان اعلام کرد که در سال گذشته هشت هزار دانش آموز در این استان از #تحصیل بازمانده اند.
+
+ادامه مطلب
+
+↘️
+@hranews_bot تماس ✉️ -  @Hranews  کانال هرانا 🆑
+</div>
+
+## alonews — post 128473
+
+<div align="center">
+  <a href="telegram/content/alonews_128473_1781613870.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ درباره ایران: تنگه هرمز باز خواهد بود و همیشه بدون عوارض خواهد ماند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128472
+
+<div align="center">
+  <a href="telegram/content/alonews_128472_1781613871.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ درباره توافق ایران: لیندسی گراهام شکاک است؟ باید با او صحبت کنم. او در دردسر بزرگی خواهد بود.
+
+
+🔴لیندسی خوب است. او مشکلی ندارد. او شکاک نیست
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128471
+
+<div align="center">
+  <a href="telegram/content/alonews_128471_1781613873.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ درباره ایران: روابط اکنون عادی شده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128470
+
+<div align="center">
+  <a href="telegram/content/alonews_128470_1781613875.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رئیس‌جمهور امارات، محمد بن زاید، به ترامپ:باعث افتخار من است، آقای رئیس‌جمهور، که اینجا با شما هستم. و می‌خواهم بگویم که ما بسیار سپاسگزاریم که شما اینجا هستید و به عنوان رئیس‌جمهور ایالات متحده.
+
+
+🔴تشکر ویژه‌ای برای حمایت شما در طول جنگ شش هفته‌ای. این برای ما بسیار مهم است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128469
+
+<div align="center">
+  <a href="telegram/content/alonews_128469_1781613876.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ درباره رئیس‌جمهور امارات MbZ:
+حضرت ایشان یک جنگجو است. او در آنجا می‌جنگید و آنچه باید انجام شود را انجام می‌دهد. و به خاطر همین شناخته شده است. او مردی شجاع است
+
+
+🔴او کشوری عالی دارد. کشوری فوق‌العاده است. و آنها مدت‌هاست که با ایالات متحده همراه بوده‌اند. اما من می‌گویم از زمانی که من به کار آمدم، خیلی بیشتر بوده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/26 16:04
 ---
 

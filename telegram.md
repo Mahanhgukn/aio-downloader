@@ -7,6 +7,150 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/27 02:42
+---
+
+## WithYashar — post 15115
+
+<div align="center">
+  <img src="telegram/content/WithYashar_15115_1781651563.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+همین الان ، چه خبره خلیج فارس
+@withyashar
+</div>
+
+## IranIntlTV — post 342791
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342791_1781651564.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دلواپس‌ها علیه توافق؛وقتی سازندگان شعار، قربانی شعار می‌شوند
+
+سال‌ها جمهوری اسلامی به هوادارانش گفت آمریکا «شیطان بزرگ» است، مذاکره خیانت است و سازش یعنی تسلیم. به همین دلیل، نسلی از نیروهای وفادار و دلواپس پرورش یافت که با هرگونه مذاکره و توافق مخالفت می‌کردند.
+
+حالا اما همان نیروها از مسئولان جمهوری اسلامی می‌پرسند: «پس آن همه شعار چه شد؟» و «اگر مذاکره بد بود، چرا حالا توافق می‌کنید؟»
+
+کامبیز حسینی در «برنامه» به این موضوع می‌پردازد.
+
+«یک ایران صدای شما را می‌شنود»
+
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+
+از تلویزیون ایران‌اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+
+https://youtu.be/BkAr0eHIGII
+@iranintltv
+</div>
+
+## IranIntlTV — post 342790
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342790_1781651565.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شاهو از تهران:ترامپ هرگز با جمهوری اسلامی به توافق نمی‌رسد؛بزودی ورق به نفع مردم برمی‌گردد
+
+«یک ایران صدای شما را می‌شنود»
+
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+
+از تلویزیون ایران‌اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+
+https://youtu.be/BkAr0eHIGII
+@iranintltv
+</div>
+
+## IranIntlTV — post 342789
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342789_1781651567.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بهروز رضوی درگذشت؛صدای ماندگار حافظه فرهنگی ایرانیان
+
+بهروز رضوی، از ماندگارترین صداهای رادیو و تلویزیون ایران، متولد ۱۳۲۶ بود و بیش از پنج دهه در عرصه گویندگی، اجرای برنامه‌های فرهنگی و ترویج ادبیات فارسی فعالیت کرد. تسلط بر زبان فارسی، فن بیان کم‌نظیر و احترام عمیق به کلمه از برجسته‌ترین ویژگی‌های او بود.
+
+او در ۲۴ خرداد درگذشت، اما صدایش همچنان بخشی از حافظه فرهنگی چند نسل از ایرانیان باقی خواهد ماند.
+
+یادش گرامی.
+
+«یک ایران صدای شما را می‌شنود»
+
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+
+از تلویزیون ایران‌اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+
+https://youtu.be/BkAr0eHIGII
+@iranintltv
+</div>
+
+## IranIntlTV — post 342788
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342788_1781651568.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جواد زمانی و ابوالفضل ساعدی؛
+
+بین دو نیمهٔ بازی دیشب، دو نفر را اعدام کردند
+
+در حالی که میلیون‌ها نفر سرگرم تماشای بازی ایران و نیوزیلند بودند، جواد زمانی و ابوالفضل ساعدی در ایران اعدام شدند. دو نامی که بسیاری از مردم حتی فرصت شنیدن داستان زندگی‌شان را پیدا نکردند.
+
+کامبیز حسینی در «برنامه» به این موضوع می پردازد.
+
+«یک ایران صدای شما را می‌شنود»
+
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+
+https://youtu.be/BkAr0eHIGII
+@iranintltv
+</div>
+
+## FarsiVOA — post 220961
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️اعدام معترضان در ایران در آستانه امضای توافق جمهوری اسلامی و آمریکا ادامه دارد
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 17312
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_17312_1781651569.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تداوم فعالیت هواگردهای آمریکایی بر فراز خلیج فارس
+
+هم‌اکنون چندین هواپیمای پشتیبانی و شناسایی نیروی هوایی و نیروی دریایی آمریکا در منطقه خلیج فارس فعال هستند.
+✈️ در میان این هواگردها، سوخت‌رسان‌های KC-135 Stratotanker و KC-46A Pegasus، هواپیمای هشدار زودهنگام E-3G Sentry و هواپیمای گشت دریایی و شناسایی P-8A Poseidon مشاهده شده‌اند.
+</div>
+
+## alonews — post 128585
+
+<div align="center">
+  <a href="telegram/content/alonews_128585_1781651570.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کاخ سفید:
+«نه سلاح هسته‌ای، نه لغو کامل تحریم‌ها, نه پول»
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/27 02:33
 ---
 

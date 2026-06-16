@@ -7,6 +7,53 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/27 01:32
+---
+
+## VahidOOnLine — post 245948
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در پاسخ به فراخوان شاهزاده رضا پهلوی، ایرانیان نیوکاسل روز ۲۶ خرداد پرچم شیر و خورشید ایران را در تجمعی برافراشتند و نقاشی چهره مجیدرضا رهنورد را در زادروزش به نمایش گذاشتند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## pm_afshaa — post 94222
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🟢تو این روزهای سر سبز بورس، گزارش‌ها و سرخطی‌های این کانال قطعا به دردتون میخوره و به‌شدت سود آوره؛
+
+رادار بورس، اخبار و سرخطی بازار :
+
+
+➡️https://t.me/BorsRadar
+
+➡️https://t.me/BorsRadar
+</div>
+
+## IranIntlTV — post 342779
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در پاسخ به فراخوان شاهزاده رضا پهلوی، ایرانیان نیوکاسل روز ۲۶ خرداد پرچم شیر و خورشید ایران را در تجمعی برافراشتند و نقاشی چهره مجیدرضا رهنورد را در زادروزش به نمایش گذاشتند.
+</div>
+
+## alonews — post 128580
+
+<div align="center">
+  <a href="telegram/content/alonews_128580_1781647375.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تیکه عادل به خوش چشم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/27 01:22
 ---
 

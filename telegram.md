@@ -7,6 +7,178 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/26 22:55
+---
+
+## WithYashar — post 15099
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به گزارش ان‌بی‌سی نیوز، کارشناسان ارشد صنعت نفت هشدار می‌دهند که علیرغم فضای مثبت ناشی از توافق میان ایالات متحده و ایران برای پایان دادن به جنگ چندماهه در خاورمیانه، بازگشت بازارهای نفت به حالت عادی و از سرگیری تردد در تنگه هرمز فرآیندی زمان‌بر است و احتمالاً چندین هفته به طول خواهد انجامید.
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 343040
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343040_1781637943.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+A cougar had its jaws locked on a helpless goat - seconds later, the owner was chasing the predator off all by herself.
+
+Wild footage from British Columbia shows farmer Gina Moore sprinting toward the scene after spotting a cougar attacking one of her Nigerian dwarf goats.
+
+Moore says she acted on pure instinct, knowing the cougar could have turned on her at any moment.
+</div>
+
+## IranIntlTV — post 342759
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342759_1781637945.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آیا ترامپ به مردم ایران و مخالفان حکومت پشت کرده است؟
+
+«چشم‌انداز با مهدی‌ مهدوی‌آزاد»
+
+تماشای نسخه کامل این برنامه در یوتیوب:
+
+https://youtu.be/cfxLX7qbIE0
+@iranintltv
+</div>
+
+## IranIntlTV — post 342758
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342758_1781637948.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری رویترز به نقل از یک منبع آگاه گزارش داد که بیش از نیمی از صندوق سرمایه‌گذاری ۳۰۰ میلیارد دلاری برای ایران از طریق تعهد شرکت‌هایی از آمریکا، کشورهای عربی حاشیه خلیج فارس، آسیا، آمریکای جنوبی و آفریقا تامین شده است.
+
+گفت‌وگو با آرام حسامی، استاد علوم سیاسی کالج مونتگومری و علی دادپی، اقتصاددان
+@iranintltv
+</div>
+
+## FarsiVOA — post 220943
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ارزیابی عملکرد تیم ملی فوتبال ایران در مقابل نیوزیلند از دید حسن نظری، بازیکن پیشین تیم ملی فوتبال ایران در جام جهانی آرژانتین
+@FarsiVOA
+</div>
+
+## DW_Farsi — post 126077
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎥 دوپامینِ بی‌هزینه در سبد خریدِ خیالی
+ 
+"سایت‌های دوپامین" در کره‌جنوبی به سرعت در حال گسترش‌اند. پلتفرم‌هایی که تجربه خرید آنلاین را شبیه‌سازی می‌کنند اما نه کالایی در آن‌ها وجود دارد و نه تراکنشی انجام می‌شود. کاربران می‌گویند با این روش همان هیجان خرید را تجربه می‌کنند، بدون آنکه پولی خرج کنند.
+ @dw_farsi
+</div>
+
+## Persian_Trend_Official — post 17298
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_17298_1781637951.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به گزارش Türkiye Today، احمد الشرع، رئیس جمهور سوریه، ممکن است برای شرکت در اجلاس آتی ناتو به آنکارا سفر کند و در حاشیه این اجلاس با ترامپ دیدار کند.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17297
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17297_1781637952.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نفتالی بنت، نخست وزیر سابق اسرائیل: ما تمام تلاش خود را خواهیم کرد تا در نهایت این رژیم وحشتناک را سرنگون کنیم. و من می‌خواهم به ملت شگفت‌انگیز ایران بگویم امید خود را از دست ندهید.
+
+این رژیم وحشتناک، از هم گسیخته، فاسد و شیطانی سقوط خواهد کرد. شما آزاد خواهید شد. این اتفاق خواهد افتاد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## RadioFarda — post 158406
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸در پی حملات روز سه‌شنبه ارتش اسرائیل به جنوب لبنان که چهار کشته به جا گذاشت، قرارگاه مرکزی خاتم‌الانبیا تهدید به پاسخ کرد. این حملات بعد از اعلام توافق ایران و آمریکا انجام شد. 🔸قرارگاه خاتم‌الانبیا که وظیفه هماهنگی میان نیروهای مسلح جمهوری اسلامی را برعهده…
+</div>
+
+## RadioFarda — post 158405
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_158405_1781637953.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸در پی حملات روز سه‌شنبه ارتش اسرائیل به جنوب لبنان که چهار کشته به جا گذاشت، قرارگاه مرکزی خاتم‌الانبیا تهدید به پاسخ کرد. این حملات بعد از اعلام توافق ایران و آمریکا انجام شد.
+
+🔸قرارگاه خاتم‌الانبیا که وظیفه هماهنگی میان نیروهای مسلح جمهوری اسلامی را برعهده دارد، در بیانیه‌ای اعلام کرد که اگر اسرائیل به حملات خود در جنوب لبنان پایان ندهد، باید منتظر «پاسخ سخت» نیروهای مسلح جمهوری اسلامی باشد.
+
+🔸در این بیانیه ادعا شده که در پی اعلام نهایی شدن تفاهم پایان جنگ توسط دونالد ترامپ، ارتش اسرائیل «۸۴ بار» آتش‌بس در جنوب لبنان را «نقض کرده است».
+
+🔸لبنان ساعتی پیش اعلام کرد که حملات اسرائیل در جنوب این کشور چهار کشته بر جای گذاشته است؛ این در حالی است که اسرائیل گفت چند راکت شلیک‌شده از سوی حزب‌الله را رهگیری کرده و حملاتی را نیز انجام داده است.
+
+🔸خبرگزاری رسمی لبنان گزارش داد که پهپادهای اسرائیلی دو خودرو را در شهر میفدون و یک خودروی دیگر را در شهرک نزدیک شقین، هر دو در منطقه نبطیه، هدف قرار دادند که «بر اساس آمار اولیه به کشته شدن چهار نفر» و زخمی شدن تعدادی دیگر منجر شد.
+
+@RadioFarda
+</div>
+
+## Hranews — post 113660
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارشی از معوقات مزدی، بلاتکلیفی و تعدیل کارگران در ۲ واحد مختلف
+
+
+❗️
+❗️
+❗️
+❗️
+❗️ – حدود ۸۰ #کارگر شاغل در پروژه سد معشوره در شهرستان نورآباد تعدیل شدند و مطالبات مزدی آنان تاکنون پرداخت نشده است. شماری از کارگران خدمات و فضای سبز شرکت بهره‌برداری نفت و گاز گچساران نیز از بلاتکلیفی وضعیت شغلی خود انتقاد دارند.
+
+ادامه مطلب
+
+↘️
+@hranews_bot تماس ✉️ -  @Hranews  کانال هرانا 🆑
+</div>
+
+## alonews — post 128552
+
+<div align="center">
+  <a href="telegram/content/alonews_128552_1781637954.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / گزارش ها از انفجار در اربیل عراق
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128551
+
+<div align="center">
+  <a href="telegram/content/alonews_128551_1781637954.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈به گزارش ان‌بی‌سی نیوز، کارشناسان ارشد صنعت نفت هشدار می‌دهند که علیرغم فضای مثبت ناشی از توافق میان ایالات متحده و ایران برای پایان دادن به جنگ چندماهه در خاورمیانه، بازگشت بازارهای نفت به حالت عادی و از سرگیری تردد در تنگه هرمز فرآیندی زمان‌بر است و احتمالاً چندین هفته به طول خواهد انجامید.
+
+
+✅ @AloNews خیر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/26 22:45
 ---
 

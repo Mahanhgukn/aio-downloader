@@ -7,6 +7,119 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/26 06:43
+---
+
+## VahidOOnLine — post 245807
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245807_1781579631.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مقام‌های نظامی آمریکا اعلام کردند در سقوط یک بمب‌افکن بی-۵۲ صبح دوشنبه، اندکی پس از برخاستن از پایگاه نیروی هوایی آمریکا در ادواردز، واقع در صحرای موهاوی در جنوب کالیفرنیا، هر هشت سرنشین آن جان باختند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245806
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️تصاویر ارسال شده به ایندیپندنت فارسی، فضای ورزشگاه «سوفای» لس‌آنجلس را در میان تشویق هوادارن دو تیم نشان می‌دهد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## IranIntlTV — post 342639
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342639_1781579632.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻تیم فوتبال ایران در اولین بازی خود در جام جهانی مقابل نیوزیلند به تساوی دو بر دو رسید و سه امتیاز ساده‌ای که کادر فنی تیم ملی گمان می‌کردند به دست می‌آید، از دست رفت.
+
+🔹گل اول بازی را الیجا جاست در دقیقه ۷ برای نیوزیلند به ثمر رساند. رامین رضاییان در دقیقه ۳۲ گل مساوی را وارد دروازه نیوزیلند کرد. پیش از گل تساوی، شوت مهدی طارمی از پشت ۱۸ قدم به تیرک عمودی دروازه برخورد کرد.
+
+🔹در آخرین دقایق وقت اضافه نیمه اول نیز ضربه سر علی نعمتی توپ را به تور دروازه نیوزیلند دوخت، اما این گل آفساید شناخته و رد شد.
+
+🔹در دقیقه ۵۴ بازی، جاست گل دوم نیوزیلند و خودش را به ثمر رساند. در ادامه، مهدی محبی در دقیقه ۶۴، گل دوم ایران و تساوی را به ثمر رساند.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 342638
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342638_1781579633.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مقام‌های نظامی آمریکا اعلام کردند در سقوط یک بمب‌افکن بی-۵۲ صبح دوشنبه، اندکی پس از برخاستن از پایگاه نیروی هوایی آمریکا در ادواردز، واقع در صحرای موهاوی در جنوب کالیفرنیا، هر هشت سرنشین آن جان باختند.
+https://iranintl.com/202606164629
+</div>
+
+## BBCPersian — post 283968
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283968_1781579637.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌ ‌ ‌
+یاسمین انصاری، نماینده ایرانی الاصل کنگره آمریکا، گفته است تفاهمنامه بدست آمده میان ایالات متحده و ایران، پس از آن به دست آمد که «هزینه‌های هنگفتی» را هم برای آمریکا و مردم ایران به بار آورد.
+
+خانم انصاری در پستی در شبکه اجتماعی ایکس نوشت که پایان جنگ «گامی مثبت» است و «منتظر جزئیات نهایی توافق» است.
+
+نماینده کنگره آمریکا نوشته جنگ «برای مردم ایران شرایط بدتری را به همراه داشت» و «تلفات جانی عظیم، بی‌ثباتی بین‌المللی و افزایش سرسام‌آور قیمت بنزین» را در پی داشت.
+
+به گفته او «این اتفاق هرگز نباید از همان ابتدا رخ می‌داد» و «کنگره باید هرگونه توافق نهایی امضا شده با جمهوری اسلامی را به طور گسترده بررسی کند.»
+
+https://bbc.in/4vPLsFq
+📷 Tom Brenner/Getty Images
+@BBCPersian
+</div>
+
+## BBCPersian — post 283967
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️پایان بازی با فقط یک امتیاز در جیب ایران
+
+مسابقه نخست تیم ملی ایران در جام جهانی ۲۰۲۶ مقابل تیم نیوزیلند با نتیجه ۲-۲ پایان یافت.
+
+گزارش بازی، حواشی و تحلیل‌ها را اینجا بخوانید:
+https://www.bbc.com/persian/live/c79y8j7d0zet
+@bbcpersian
+</div>
+
+## Dirty_Kids — post 392247
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392247_1781579638.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تموم شد‌‌و رفت 🔞😂😂😂😂
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392246
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392246_1781579640.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پایان بازی
+نیوزلند شگفتی آفرید
+
+تیم خایمالان 2_2 نیوزلند
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/03/26 06:34
 ---
 

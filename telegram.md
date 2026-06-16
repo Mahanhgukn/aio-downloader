@@ -7,6 +7,132 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/26 20:24
+---
+
+## VahidOOnLine — post 245898
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245898_1781628851.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مایک هاکبی، سفیر آمریکا در اسرائیل، در شبکه ایکس نوشت حزب‌الله بخشی از توافق میان آمریکا و جمهوری اسلامی نیست.
+
+هاکبی افزود وزیر خارجه آمریکا «به‌روشنی» اعلام کرده است که این دو موضوع به یکدیگر ارتباطی ندارند و اسرائیل برای دفاع از خود به اجازه ایران نیاز ندارد. زنجیره تروریسم باید پایان یابد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 15079
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبکه ۱۲ اسرائیلی به نقل از یک منبع امنیتی:
+کاهش محسوس در عملیات‌های ارتش اسرائیل در لبنان
+@withyashar
+</div>
+
+## WithYashar — post 15078
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دلار ۱۵۲،۹۰۰
+@withyashar
+</div>
+
+## mwarmonitor — post 11040
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 اطلاعات آمریکا ارزیابی می‌کند که ایران از این پس می‌تواند هر زمان که بخواهد تنگه هرمز را مسدود کند.
+
+🔴 یک منبع اطلاعاتی گفته است: «ما عملاً کنترل این تنگه را به ایران داده‌ایم؛ و این یک سلاح است که از هر سلاح هسته‌ای قدرتمندتر است.» CNN
+
+@mwarmonitor
+</div>
+
+## IranIntlTV — post 342734
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342734_1781628851.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مایک هاکبی، سفیر آمریکا در اسرائیل، در شبکه ایکس نوشت حزب‌الله بخشی از توافق میان آمریکا و جمهوری اسلامی نیست.
+
+هاکبی افزود وزیر خارجه آمریکا «به‌روشنی» اعلام کرده است که این دو موضوع به یکدیگر ارتباطی ندارند و اسرائیل برای دفاع از خود به اجازه ایران نیاز ندارد. زنجیره تروریسم باید پایان یابد.
+https://iranintl.com/202606162123
+</div>
+
+## Persian_Trend_Official — post 17286
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ ایلان ماسک در حال نزدیک شدن به مجموع ثروت 6 فرد ثروتمند بعد از خودش است. 🔥 📝 Nick 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Dirty_Kids — post 392324
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به ویدیو دیدم از کشته های افغانستان اینطوری معرفیش کردن که "فرزند افغانستان و جان فدای خواهر"
+کشته شد به‌خاطر اینکه نزاشت خواهر ۱۰ ساله‌اش رو طالبان ببره :(
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392323
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392323_1781628852.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خب گوساله،
+مگه ۹۰ میلیون نفر همینو بهتون نگفتن؟
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 128527
+
+<div align="center">
+  <a href="telegram/content/alonews_128527_1781628852.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خبرگزاری سی‌ان‌ان: برآوردهای اطلاعاتی آمریکا نشان می‌دهد که ایران اکنون می‌تواند هر زمان که بخواهد تنگه هرمز را ببندد. یک منبع اطلاعاتی گفت: ما عملاً کنترل تنگه را به ایران داده‌ایم که سلاحی قوی‌تر از هر سلاح هسته‌ای است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128526
+
+<div align="center">
+  <a href="telegram/content/alonews_128526_1781628852.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فیصل بن فرحان، وزیر امور خارجه عربستان سعودی از تفاهم میان آمریکا و جمهوری اسلامی ایران استقبال کرد و ابراز امیدواری کرد این تفاهم به بازگشت ثبات در منطقه کمک کند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128525
+
+<div align="center">
+  <a href="telegram/content/alonews_128525_1781628852.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈بر اساس نظرسنجی مؤسسه کانتار، میزان حمایت از دونالد ترامپ در اسرائیل طی فقط ۳ هفته به‌طور کامل معکوس شده و از مثبت ۲۳ به منفی ۲۳ رسیده؛ افتی ۴۶ واحدی
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/26 20:14
 ---
 

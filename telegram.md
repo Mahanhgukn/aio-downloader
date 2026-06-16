@@ -7,6 +7,174 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/26 23:34
+---
+
+## VahidOOnLine — post 245937
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_245937_1781640264.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گروهی از ایرانیان در مالمو سوئد روز سه‌شنبه ۲۶ خرداد ۱۴۰۵، همزمان با زادروز مجیدرضا رهنورد و «روز ملی پرچم شیر و خورشید»، با تشکیل زنجیره انسانی و بازخوانی نام جان‌باختگان «انقلاب ملی»، یاد آنان را گرامی داشتند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245936
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245936_1781640266.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ پلیس شهرستان کرمان، روز سه‌شنبه ۲۶ خرداد، اعلام کرد که یک خودرو لوکس پورشه که در فهرست اموال سردار آزمون ذکر شده و دستور توقیف آن صادر شده بود، در این شهرستان شناسایی و ضبط شده است.
+
+به گفته اکبر نجفی، فرمانده انتظامی کرمان، این خودرو توسط «گشت‌های محسوس و نامحسوس» کشف شده است.
+
+قوه قضاییه جمهوری اسلامی پیش از این دستور توقیف اموال سردار آزمون، فوتبالیست مشهور و عضو تیم ملی را به اتهام «همکاری با دشمن» صادر کرده بود. آزمون در جریان انقلاب ملی ایرانیان، عبارت «از خون جوانان وطن لاله دمیده» را روی دستش خالکوبی کرد و در دی‌ماه نیز با انتشار ویدیویی از کشته‌شدگان این اعتراضات، در شبکه اجتماعی اینستاگرام نوشت: «این‌ها قصه نبودند، واقعی بودند. هیچ‌وقت شما را از یاد نمی‌بریم».
+
+این همراهی سردار آزمون با مردم، منجر به خط خوردن او از ترکیب تیم ملی فوتبال نیز شد و او امکان حضور در جام‌جهانی ۲۰۲۶ را نیافت.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 15105
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال ۱۳ اسرائیل: ترامپ مانع اجرای یک عملیات نظامی‌برنامه‌ریزی‌شده اسرائیل در غزه شد
+
+این طرح در بالاترین سطوح سیاسی و امنیتی اسرائیل بررسی شده بود، اما پس از ارائه جزئیات به آمریکا، واشنگتن با آن مخالفت کرده و خواستار عدم اجرای آن در شرایط فعلی شده است.
+@withyashar
+</div>
+
+## pm_afshaa — post 94213
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پینای کانال خدان🙂
+</div>
+
+## DEJradio — post 5748
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5748_1781640267.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺📢 صورتحساب جنگ روی میز سپاه
+
+*عطا حسینیان، روزنامه‌نگار اقتصادی
+
+#جنگ #IRGCterrorists
+@DEJradio
+</div>
+
+## DEJradio — post 5747
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5747_1781640270.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️
+🔺 برنامه دژ فوتبالی
+
+*مهدی رستم‌پور، خبرنگار ورزشی
+
+#دژفوتبالی #جام_جهانی
+</div>
+
+## VahidOnline — post 76435
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76435_1781640271.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تصویری که روز سه‌شنبه ۲۶ خردادماه در شبکه‌های اجتماعی منتشر شد، دارا خسروشاهی، مدیرعامل ایرانی‌-آمریکایی شرکت اوبر، را در استادیوم سوفای لس‌آنجلس و در جریان دیدار تیم‌های ایران و نیوزیلند در جام جهانی ۲۰۲۶ نشان می‌دهد.
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 342766
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342766_1781640271.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گروهی از ایرانیان در مالمو سوئد روز سه‌شنبه ۲۶ خرداد ۱۴۰۵، همزمان با زادروز مجیدرضا رهنورد و «روز ملی پرچم شیر و خورشید»، با تشکیل زنجیره انسانی و بازخوانی نام جان‌باختگان «انقلاب ملی»، یاد آنان را گرامی داشتند.
+</div>
+
+## FarsiVOA — post 220945
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220945_1781640274.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️چگونگی انتقال پول برای خرید ملک و سرمایه‌گذاری سران حکومت جمهوری اسلامی در خارج از کشور؛گفت‌وگو با رضا غیبی
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 17301
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://youtube.com/live/h4d-8fb4luQ?feature=share
+</div>
+
+## BBCPersian — post 284068
+
+<div align="center">
+  <a href="telegram/content/BBCPersian_284068_1781640275.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آخرین خبرهای مهم روز سه‌شنبه ۲۶ خرداد ماه ۱۴۰۵ از تلویزیون بی‌بی‌سی فارسی
+
+@BBCPersian
+</div>
+
+## alonews — post 128561
+
+<div align="center">
+  <a href="telegram/content/alonews_128561_1781640278.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈به علت پخش و انتشار سوالات امتحانی تو کانال های تلگرامی هندی، این پیام‌رسان تو هند تا بعد امتحانات فیلتر شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128560
+
+<div align="center">
+  <a href="telegram/content/alonews_128560_1781640278.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈قلعه نویی: خداروشکر یک امتیاز هم نتیجه خوبی بود، با برد مصر و حداقل تساوی با بلژیک میتونیم اول یا دوم‌گروه بشیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128559
+
+<div align="center">
+  <a href="telegram/content/alonews_128559_1781640278.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈معاون سابق رئیس‌جمهور ترامپ، مایک پنس، درباره تفاهم‌نامه آمریکا و ایران:
+من نگرانی‌های واقعی دارم، حداقل درباره آنچه در بحث‌های عمومی مطرح می‌شود.
+
+
+🔴در طول سال‌ها زمان زیادی را در اتاق وضعیت گذرانده‌ام. تفاوت بین آنچه واقعاً حل شده و آنچه در رسانه‌ها مطرح می‌شود را می‌دانم، بنابراین نمی‌خواهم پیش‌داوری کنم... اما من به ایرانی‌ها اعتماد ندارم.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/26 23:23
 ---
 

@@ -7,6 +7,79 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/27 01:13
+---
+
+## FoxNewsTwitter — post 343045
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343045_1781646188.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"I do think the political violence and rhetoric in this country is completely out of control."
+
+Speaking on @TheFive, VP JD Vance reacted to news that the FBI disrupted an alleged drone and sniper plot targeting the White House UFC Freedom 250 event.
+
+Vance said the suspects never came close to carrying out the attack and credited law enforcement for stopping the plot before it reached the point of execution.
+</div>
+
+## FarsiVOA — post 220955
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️جی دی ونس: تفاهم‌نامه با جمهوری اسلامی یعنی رهبری آن قدم پیش بگذارد و رفتارش را تغییر دهد
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220954
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220954_1781646191.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️شادی گل محمد محبی جنجال‌ساز شد؛ موج واکنش‌ها در بین حاضرین در استادیوم
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220953
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺سنای آمریکا قطعنامه جدید محدود کردن اختیارات جنگی دونالد ترامپ علیه جمهوری اسلامی را رد کرد
+
+▪️سنای آمریکا روز سه‌شنبه ۲۶ خرداد قطعنامه‌ای درباره اختیارات جنگی در قبال جمهوری اسلامی ایران را رد کرد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8161573.html
+@FarsiVOA
+</div>
+
+## alonews — post 128578
+
+<div align="center">
+  <a href="telegram/content/alonews_128578_1781646192.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈جون بولتون:
+
+به نظر من این برای ایالات متحده معامله بسیار بدی است.
+
+ترامپ به پیامدهای ژئواستراتژیک این معامله فکر نمی‌کند.
+
+او فقط به یک چیز فکر می‌کند. او می‌خواهد تنگه باز بماند. او می‌خواهد نفت خلیج فارس در بازارهای بین‌المللی عرضه شود.
+
+او می‌خواهد قیمت بنزین در پمپ‌ها پایین بیاید. این تنها چیزی است که برایش مهم است.
+
+ما نمی‌دانیم در این معامله چه چیزی وجود دارد. اگر معامله‌ای عالی بود، در دسترس عموم قرار می‌گرفت.
+
+به نظر من این تقریباً همان چیزی را به شما می‌گوید که نیاز به دانستن آن دارید.
+﻿
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/27 01:03
 ---
 

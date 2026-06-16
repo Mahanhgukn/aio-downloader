@@ -7,6 +7,78 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/26 04:04
+---
+
+## VahidOnline — post 76407
+
+<div align="center">
+  <a href="telegram/content/VahidOnline_76407_1781570067.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جی دی ونس معاون رئیس‌جمهور آمریکا ویدیویی منتشر کرده:
+رئیس جمهور از روز اول صریحاً گفته است: ایران هرگز سلاح هسته‌ای نخواهد داشت.
+بار دیگر، تلاش‌های رئیس جمهور ترامپ برای برقراری صلح، علیرغم تلاش‌های بی‌شمار افرادی که از آمریکا و رئیس جمهور ترامپ متنفرند، برای مردم آمریکا نتیجه داده است.
+JDVance
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 342607
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342607_1781570068.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻با وجود گزارش‌های قبلی درباره ممنوعیت ورود پرچم شیر و خورشید به استادیوم‌های محل بازی تیم ملی در جام جهانی ۲۰۲۶، اما یک ساعت مانده به شروع این بازی، تصاویر اختصاصی ایران اینترنشنال نشان می‌دهد هواداران ایرانی، با پرچم شیر و خورشید وارد استادیوم سوفای لس‌آنجلس، ورزشگاه بازی ایران و نیوزیلند شده‌اند.
+
+🔹علیرضا مدیری، خبرنگار ایران اینترنشنال گزارش می‌دهد
+
+@iranintltvsport
+</div>
+
+## FarsiVOA — post 220862
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺جی‌دی ونس: توافق با حکومت ایران تنگه هرمز را باز می‌کند و مانع دستیابی رژیم به سلاح هسته‌ای می‌شود
+
+▪️جی‌دی ونس، معاون رئیس‌ جمهوری آمریکا، شامگاه دوشنبه ۲۵ خرداد با انتشار پیامی ویدیویی درباره یاداشت تفاهم‌ تازه آمریکا با جمهوری اسلامی گفت این توافق «تنگه هرمز را بلافاصله باز می‌کند» و تضمین می‌کند که رژیم ایران هرگز به سلاح هسته‌ای دست نخواهد یافت.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/president-trump-says-iran-accepted-never-to-have-nuclear-weapons/8161379.html
+@FarsiVOA
+</div>
+
+## Dirty_Kids — post 392199
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392199_1781570070.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بچه های #لس_انجلس خوب دارن از خجالت خایه مال های #جمهوری_اسهالی در میان، دمتون گرم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392198
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392198_1781570073.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تیپیکال طرفدار ج‌ا در خارج…
+
+بری بپرسی تو ایران این شکلی بری خیابون گشت میگیره کونت میذاره، چرا اینجام مثل تهران لباس نمیپوشی؟
+وایمیسه دو ساعت کصشرای فمینیستی برات تفت میده، آخرشم با فحش و بدوبیراه کارو جمع میکنه.
+#فمینیست_ایرانی، انگل اجتماع
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/03/26 03:54
 ---
 

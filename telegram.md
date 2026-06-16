@@ -7,6 +7,75 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/26 04:14
+---
+
+## FarsiVOA — post 220863
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220863_1781570645.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️حال و هوای لس انجلس پیش از بازی امشب تیم فوتبال ایران و نیوزیلند در گزارش آرمیتا آزاد
+@FarsiVOA
+</div>
+
+## BBCPersian — post 283953
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283953_1781570646.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌ ‌ ‌
+دونالد ترامپ، رئیس جمهور آمریکا، دوشنبه شب در پیامی در شبکه اجتماعی تروث سوشال نوشت: «ایران موافقت کرده است که هرگز سلاح هسته‌ای نداشته باشد.» او همچنین گزارش‌هایی را که مدعی بودند آمریکا قرار است ۳۰۰ میلیون دلار به ایران پرداخت کند، رد کرد.
+
+آقای ترامپ در این پست نوشت: «همچنین خبر مربوط به پرداخت ۳۰۰ میلیون دلار از سوی آمریکا به ایران، اخبار جعلی است که دموکرات‌های احمق آن را منتشر کرده‌اند.»
+
+جزئیات کامل تفاهم نامه‌ای که روز دوشنبه گزارش شد آقای ترامپ شخصا آن را امضاء کرده است هنوز منتشر نشده و روایت های آمریکا و ایران درباره مفاد توافق در برخی موارد با یکدیگر تفاوت دارد. با این حال، هر دو از امضای الکترونیکی این تفاهم‌نامه استقبال کرده و گفته اند که به زودی طی تشریفات رسمی در سوئیس نمایندگان دو کشور آن را امضاء خواهند کرد.
+
+https://bbc.in/4vvVBYp
+📷PA
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 392202
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392202_1781570646.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 میثاقی فشاری شده، پرچم جمهوری اسلامی رو نشون میده میگه پرچم ایران همینه که می بینین، بقیش اضافیه!!
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392201
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392201_1781570648.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏این حرامزاده رو باش ترخدا. دنبال کیر میگرده واسه قبر مرده هاش.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392200
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392200_1781570648.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+همین اول کار سانسورچی رید و پرچم شیر و خورشید رو نشون داد😂
+👑🔥
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/03/26 04:04
 ---
 

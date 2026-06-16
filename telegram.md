@@ -7,6 +7,39 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/26 07:53
+---
+
+## mwarmonitor — post 11009
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔹شان هنیتی «بگذارید به این موضوع بپردازم، چون این مهم‌ترین چیز است و رئیس‌جمهور بیشترین ثبات و قاطعیت را روی این نکته داشته است؛ و آن این است که آن‌ها [ایران] نمی‌توانند و هرگز نباید سلاح هسته‌ای داشته باشند.» 🔸جی‌دی ونس «درسته.» 🔹شان هنیتی «ما چطور می‌توانیم…
+</div>
+
+## IranIntlTV — post 342642
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342642_1781583835.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرخط خبرهای سه‌شنبه ۲۶ خرداد
+@iranintltv
+</div>
+
+## Dirty_Kids — post 392257
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392257_1781583837.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرشو گذاشته رو زمین آمریکا و سجده کرده. همون خاک نجس آمریکا که رهبرشون رو کتلت کرد.
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/03/26 07:43
 ---
 

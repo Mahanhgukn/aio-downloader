@@ -7,6 +7,86 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/26 11:44
+---
+
+## WithYashar — post 15031
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کیهان: معنای سکوت رهبری درباره هسته‌ای این است که دیگر مذاکره‌ای در کار نیست
+@withyashar
+روزنامه کیهان وابسته به اصولگرایان تندرو نزدیک به بیت رهبری است و مدیر مسئول آن مستقیماً توسط علی خامنه‌ای انتخاب شده .
+</div>
+
+## pm_afshaa — post 94173
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ اعلام کرد تنگه بیرانوند بازه و عبور مرور در آن آزاد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5713
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5713_1781597658.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👑
+🔺 با وجود ممنوعیتی که فیفا قائل شده بود، هزاران تن از تماشاگران مسابقه تیم‌های جمهوری اسلامی و نیوزلند با پرچم شیروخورشید به استادیوم لس‌آنجلس رفتند. اگرچه صداوسیمای حکومتی تلاش کرد تصاویر استادیوم را سانسورکند اما بارها پرچم‌ها پخش زنده نمایان شد.
+
+احمد دنیامالی، وزیر ورزش و جوانان جمهوری اسلامی تهدید کرده بود در صورت نمایش «پرچم‌های غیرمجاز و غیررسمی» یا سر دادن شعارهایی علیه تیم ملی در ورزشگاه‌ها، مسابقات از جانب این تیم متوقف خواهد شد.
+
+#جمهوری_اسلامی #جام_جهانی #پرچم_شیروخورشید
+@DEJradio
+</div>
+
+## DEJradio — post 5712
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5712_1781597659.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️
+🔺 پیش از مسابقه تیم‌های فوتبال جمهوری اسلامی و نیوزلند، بامداد ۲۶ خرداد ۱۴۰۵ به‌وقت ایران، مردم در استادیوم لس‌آنجلس سرود رژیم را هو کردند.
+
+#جمهوری_اسلامی #جام_جهانی #رژیم_جنایتکار
+@DEJradio
+</div>
+
+## alonews — post 128401
+
+<div align="center">
+  <a href="telegram/content/alonews_128401_1781597661.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈صبح زود امروز، پهپادهای اوکراینی به پالایشگاه مسکو در کاپوتنیا، روسیه حمله کردند و باعث آتش‌سوزی عظیمی در این تأسیسات شدند.
+
+
+🔴 در چند ساعت گذشته حداقل ۶۰ پهپاد در منطقه مسکو رهگیری شده‌اند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128400
+
+<div align="center">
+  <a href="telegram/content/alonews_128400_1781597662.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ارتش آمریکا برای تخلیه بخشی از هواپیماهای سوخت‌رسان مستقر در فرودگاه بن گوریون آماده می‌شود. احتمالا حدود ۲۰٪ از هواپیماهای مستقر در اسرائیل منتقل خواهند شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/26 11:34
 ---
 

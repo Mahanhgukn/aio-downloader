@@ -7,6 +7,87 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/26 05:33
+---
+
+## IranIntlTV — post 342626
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342626_1781575429.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻گروهی از ایرانیان که برای تماشای دیدار تیم‌ ملی فوتبال با نیوزیلند به ورزشگاه سوفای لس‌آنجلس رفته‌اند، بنری را به نمایش گذاشتند که یادآور کشتار بی‌سابقه مردم ایران به دست جمهوری اسلامی در دی‌ماه ۱۴۰۴ است.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 342617
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻تیم فوتبال نیوزیلند درحالی در دقیقه ۷ بازی با ایران در جام جهانی ۲۰۲۶، گل اول خود را به ثمر رساند که دروازه‌بان و مدافعان تیم ملی عملا نتوانستند جلوی حمله و ضربه نهایی را بگیرند و به راحتی، توپ وارد دروازه شد.
+
+@iranintltvsport
+</div>
+
+## IranianMinds — post 22710
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22710_1781575430.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بنازم‌ به بچه های داخل ورزشگاه ❤️‍🔥
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22709
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سطح دروازه بان نیوزیلند فقط
+</div>
+
+## IranianMinds — post 22708
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گل زدن ولی آفساید بود
+</div>
+
+## Dirty_Kids — post 392232
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392232_1781575432.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بن جیکوبز: ترامپ جام قهرمانی رو به تیم قهرمان جام جهانی میده.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392231
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392231_1781575433.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ج‌ا نشون نمیده…
+
+تماشاگران نیوزیلندی:))
+</div>
+
+## Dirty_Kids — post 392230
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نعمتی ۳۰ متر تو آفساید بود😂😂😂😂
+
+احمدی چه عن شد
+</div>
+
+---
 📅 بروزرسانی: 1405/03/26 05:23
 ---
 

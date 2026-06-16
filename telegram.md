@@ -7,6 +7,70 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/26 21:14
+---
+
+## VahidOOnLine — post 245913
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️رهبران حاضر در نشست گروه هفت (G7) روز سه‌شنبه ۲۶ خردادماه در شهر اویان فرانسه برای گرفتن عکس یادگاری سنتی این اجلاس در کنار یکدیگر قرار گرفتند. در این مراسم، امانوئل مکرون، رئیس‌جمهوری فرانسه، به همراه رهبران آمریکا، کانادا، بریتانیا، آلمان، ژاپن و ایتالیا و همچنین شماری از رهبران و مقام‌های کشورهای مهمان حضور داشتند.
+
+در تصاویری که خبرگزاری رویترز از این مراسم منتشر کرده است، گفت‌وگوی دونالد ترامپ، رئیس‌جمهوری آمریکا، با مارک کارنی، نخست‌وزیر کانادا، و همچنین حضور عبدالفتاح السیسی، رئیس‌جمهوری مصر، نارندرا مودی، نخست‌وزیر هند، جورجا ملونی، نخست‌وزیر ایتالیا، فریدریش مرتس، صدراعظم آلمان، سانائه تاکایچی، نخست‌وزیر ژاپن و اورزولا فون در لاین، رئیس کمیسیون اروپا دیده می‌شود.
+
+ترامپ در حالی در این نشست شرکت کرد که ساعاتی پیش از آن از دستیابی به توافقی برای پایان دادن به درگیری‌ها با جمهوری اسلامی ایران خبر داده بود. ناهار کاری رهبران در روز سه‌شنبه بر موضوع بازگشایی ایمن تنگه هرمز و بررسی مسیرهای جایگزین برای حمل‌ونقل انرژی و تجارت جهانی متمرکز بود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 15085
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Voice message
+</div>
+
+## WithYashar — post 15084
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+@withyashar استادیوم
+</div>
+
+## WithYashar — post 15083
+
+
+
+
+## FoxNewsTwitter — post 343037
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343037_1781631874.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+“This censorship law is a wolf in sheep’s clothing.”
+
+Elon Musk fires back after the UK announced an under-16 social media ban set for early 2027 — with officials also eyeing curfews and limits on infinite scrolling for people under 18.
+
+His warning: this isn’t just about kids. It could force age checks on everyone.
+</div>
+
+## alonews — post 128538
+
+<div align="center">
+  <a href="telegram/content/alonews_128538_1781631874.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈عبدالناصر همتی رئیس‌کل بانک مرکزی به خبرگزاری تسنیم: پس از امضا و آغاز اجرای یادداشت تفاهم، اقدامات فنی و بانکی لازم برای راستی‌آزمایی آزادسازی دارایی‌ها و امکان استفاده عملی از آنها انجام خواهد شد تا اطمینان کامل نسبت به دسترسی مؤثر به منابع فراهم شود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/26 21:04
 ---
 

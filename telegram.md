@@ -7,6 +7,86 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/27 09:33
+---
+
+## WithYashar — post 15127
+
+<div align="center">
+  <img src="telegram/content/WithYashar_15127_1781676216.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+️ارتش اسرائیل اعلام کرد یک انبار تسلیحات جدید حزب‌الله حاوی ۵ تن مواد منفجره و ده‌ها پهپاد انتحاری را کشف کرده است
+@withyashar
+</div>
+
+## WithYashar — post 15126
+
+
+
+
+## VahidOnline — post 76439
+
+<div align="center">
+  <a href="telegram/content/VahidOnline_76439_1781676217.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک جت خصوصی تو یک اتوبان در تگزاس سقوط کرده، راننده‌ها رفتن کمک سرنشینها
+J74wabx
+یک نفر کشته شد؛ پنج نفر به دلیل استنشاق دود در بیمارستان بستری شدند.
+AZ_Intel_
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 342801
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342801_1781676219.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رویترز گزارش داد شرکت‌هایی از آمریکا، کشورهای عربی حاشیه خلیج فارس، آسیا، آفریقا و آمریکای جنوبی متعهد شده‌اند بیش از ۱۵۰ میلیارد دلار از منابع صندوق ۳۰۰ میلیارد دلاری بازسازی و توسعه ایران را تامین کنند
+@iranintltv
+</div>
+
+## RadioFarda — post 158415
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_158415_1781676221.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸شبکه خبری ان‌بی‌سی به نقل از یک مقام آمریکایی گزارش داد که حکومت ایران پس از اعلام توافق با آمریکا برای پایان جنگ، به سمت کشتی‌های تجاری در تنگه هرمز چندین پهپاد پرتاب کرده است.
+
+🔸این مقام آمریکایی که نام و سمتش اعلام نشده، گفت که ارتش آمریکا این پهپادها را قبل از این‌که بتوانند کشتی‌های تجاری و خدمهٔ نظامی آمریکایی در منطقه را تهدید کنند، سرنگون کرده است.
+
+🔸به‌ادعای این مقام آمریکایی، سپاه پاسداران انقلاب اسلامی از زمان امضای دیجیتالی یادداشت تفاهم در روز یکشنبه، هر شب چندین پهپاد شلیک کرده است.
+
+🔸 بر اساس این گزارش، ارتش آمریکا همچنان در هماهنگی با شرکت‌های کشتیرانی برای پشتیبانی از کشتی‌هایی است که در تنگه هرمز رفت‌وآمد می‌کنند.
+
+🔸حکومت ایران هنوز واکنشی به این گزارش نشان نداده است، اما در دو شب اخیر گزارش‌های پراکنده و تأییدنشده‌ای از شنیده شدن صدای انفجار در نزدیکی تنگه هرمز منتشر شده بود.
+
+@RadioFarda
+</div>
+
+## alonews — post 128596
+
+<div align="center">
+  <a href="telegram/content/alonews_128596_1781676222.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈هواپیمای "سسنا ۶۸۰ سایتیشن لاتیتود" هنگام ورود به تگزاس منفجر شد
+
+
+🔴 تیم‌های اورژانس به سرعت به محل حادثه رفتند.
+
+
+🔴 ورود به پنجره کابین خلبان
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/27 09:23
 ---
 

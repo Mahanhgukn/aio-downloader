@@ -7,6 +7,148 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/27 17:13
+---
+
+## VahidOOnLine — post 246021
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_246021_1781703824.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دانش‌آموزان مقطع ابتدایی یکی از مکاتب/مدارس ولایت/استان بلخ، در نمایشگاه آثار دستی‌ خود که با حضور نمایندگان طالبان برگزار شد، با پوشاندن چهره‌هایشان به‌ گونه‌ای که تنها چشمانشان دیده می‌شد، حاضر شدند. 
+
+این دختران لباس‌های سیاه بر تن داشتند و صورتشان را نیز به شکلی پوشانده بودند که تنها چشمانشان معلوم بود. این نوع پوشش با استقبال نمایندگان طالبان روبرو شد. 
+
+رژیم طالبان پوشیدن برقع، چادر سیاه و روبنده را ترویج و تبلیغ می‌کند. اکنون پس از نزدیک به پنج سال از حاکمیت دوباره طالبان، پوشش بخشی از زنان افغانستان به این سبک تغییر کرده است و آنان مطابق خواست این گروه لباس می‌پوشند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 15154
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسرائیل پرچم خود را در منطقه‌ای از سوریه برافراشت
+
+منابع خبری در سوریه از نفوذ نظامیان ارتش اسرائیل به روستای «القحطانیه» در استان قنیطره خبر دادند و پرچم خود را برفراشتند
+@withyashar
+</div>
+
+## pm_afshaa — post 94258
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94258_1781703826.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴زاکانی، شهردار تهران: جنازه علی خامنه‌ای در عراق هم تشییع میشه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94257
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94257_1781703827.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴جی‌دی ونس، معاون ترامپ:
+کاخ سفید میخواد متن توافق با جمهوری اسلامی رو چهارشنبه منتشر کنه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94256
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94256_1781703828.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نفتالی بنت (رقیب نتانیاهو در انتخابات نخست وزیری اسرائیل) تو پخش زنده خطاب به جمهوری اسلامی گفت : باور دارم به‌زودی یه دولت جدید تو اسرائیل میاد و امیدوارم من رهبری اون دولت رو به دست بگیرم و از همینجا به رژیم ایران میگم؛ من قراره بدترین کابوس شما باشم،…
+</div>
+
+## IranIntlTV — post 342862
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342862_1781703828.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرخط خبرهای چهارشنبه ۲۷ خرداد
+@iranintltv
+</div>
+
+## FarsiVOA — post 221020
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_221020_1781703830.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️سازمان ملل اعلام کرد از پایان هفته گذشته، سطح خشونت و تبادل آتش در جنوب لبنان «به‌طور قابل توجهی» کاهش یافته است.
+
+استفان دوجاریک، سخنگوی دبیرکل سازمان ملل، روز سه‌شنبه گفت نیروهای سازمان ملل در لبنان روز گذشته ۳۸ مورد نقض حریم هوایی لبنان از سوی ارتش اسرائیل را ثبت کرده‌اند؛ آماری که نسبت به ۸۳ مورد گزارش‌شده در روز یکشنبه کاهش محسوسی داشته است.
+
+با این حال، دوجاریک تأکید کرد که کاهش خشونت به معنای بازگشت کامل امنیت نیست. به گفته او، هنوز هم گزارش‌هایی از حوادث پراکنده در جنوب لبنان دریافت می‌شود و همین وضعیت بر توانایی مردم برای سر زدن به خانه‌هایشان یا رفت‌وآمد در مناطق آسیب‌دیده اثر مستقیم گذاشته است.
+
+این گزارش در حالی منتشر شده که جنوب لبنان همچنان با پیامدهای درگیری‌های اخیر، تخریب گسترده و آوارگی شمار زیادی از ساکنان روبه‌رو است.
+</div>
+
+## IranianMinds — post 22791
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 زاکانی شهردار تهران :
+
+جنازه علی خامنه‌ای در عراق هم تشییع میشه.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22790
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 جی‌ دی ونس معاون ترامپ :
+
+کاخ سفید میخواد متن توافق با جمهوری اسلامی رو چهارشنبه منتشر کنه.
+
+@IranianMinds
+</div>
+
+## alonews — post 128678
+
+<div align="center">
+  <a href="telegram/content/alonews_128678_1781703830.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈جی‌دی ونس: برخی افراد فقط می‌خواهند بمباران ادامه یابد، صرف نظر از اینکه آیا برای آمریکایی‌ها دستاوردی دارد یا خیر.
+
+
+🔴ترامپ سعی در ایجاد بدبختی برای مردم ایران ندارد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128677
+
+<div align="center">
+  <a href="telegram/content/alonews_128677_1781703831.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈یک روحانی: من شاااشیدم وسط ایران مذاکرات و دوقطبی‌ای که میگید، مذاکره اوج بیشرفیه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/27 17:04
 ---
 

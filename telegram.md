@@ -7,6 +7,20 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/27 04:33
+---
+
+## FarsiVOA — post 220969
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220969_1781658185.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ادعادی «وحدت» جمهوری اسلامی در سایه اعدام معترضان چقدر حقیقت دارد؟ گفت‌وگو با مهرداد درویش‌پور
+@FarsiVOA
+</div>
+
+---
 📅 بروزرسانی: 1405/03/27 04:23
 ---
 

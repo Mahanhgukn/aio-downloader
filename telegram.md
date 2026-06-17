@@ -7,6 +7,101 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/28 01:23
+---
+
+## pm_afshaa — post 94306
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بقائی:تفاهم‌نامه به‌صورت الکترونیکی بین پزشکیان و ترامپ امضا شده. جمعه هم خبری از مراسم رسمی نیست و فقط هیئت‌های ایران و آمریکا به سرپرستی قالیباف و جی‌دی ونس تو سوئیس دور اول مذاکرات فنی 30 روزه برای اجرای تفاهم‌نامه رو شروع می‌کنن
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94305
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94305_1781733235.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیش بینی 2 سال پیش شاهین نجفی در مورد قالیباف
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranianMinds — post 22839
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22839_1781733235.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 پشماتون بریزه ببینید شاهین نجفی ۲ سال پیش راجب قالیباف چی گفته بوده
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 392438
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392438_1781733236.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عزیزان ببخشید وسط فوتبال مزاحم شدم،
+
+ممدباقر (شغال طرقبه) خونخواهی موشعلی رو حواله داد به آزادی قدس و گفت ۱۰۰ نتانیاهو بند کفش موشعلی ما هم نمی‌شه،
+
+این در حالیه که موشعلی هزارپدر نعلین می‌پوشید و نمی‌دونست بند کفش اصلا چی چی هست.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392437
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392437_1781733238.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انتقام رهبرتونم رفت پيش انتقام قاسم و هنیه و سنوار و نصراله 😁
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 128821
+
+<div align="center">
+  <img src="telegram/content/alonews_128821_1781733239.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📉
+📈 بازار می‌ریزد؛ اما آربیتراژ متوقف نمی‌شود
+
+وقتی معامله‌گران از ریزش بازار ضرر می‌کنند، ربات هوشمند اطلس اختلاف قیمت بین صرافی‌ها را به فرصت سود تبدیل می‌کند.
+
+
+✅ برداشت سود روزانه
+
+✅ گزارش لحظه ای معاملات آربیتراژ
+
+✅ شروع سرمایه‌گذاری از ۵ دلار
+
+✅ بدون نیاز به دانش ترید
+
+
+🚀 مشاهده عملکرد اطلس:
+@AtlasSmartBot
+اطلاعات بیشتر در کانال تلگرام
+</div>
+
+---
 📅 بروزرسانی: 1405/03/28 01:13
 ---
 

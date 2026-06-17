@@ -7,6 +7,215 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/27 18:14
+---
+
+## VahidOOnLine — post 246029
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246029_1781707464.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ دونالد ترامپ، رئیس‌جمهوری آمریکا، روز چهارشنبه ۲۷ خرداد در اجلاس سران گروه هفت (G7) اعلام کرد که روند تغییرات قیمت جهانی نفت تعیین خواهد کرد که آیا واشنگتن تحریم‌ها علیه محموله‌های نفت خام روسیه را مجددا اعمال می‌کند یا خیر.
+
+ترامپ با اشاره به کاهش شدید قیمت‌ها پس از اعلام توافق با ایران گفت: «باید ببینیم قیمت نفت تا چه حد پایین می‌آید؛ در حال حاضر قیمت‌ها واقعا در حال ریزش است.» دولت ترامپ در اوایل سال جاری میلادی و با هدف کاهش بحران عرضه انرژی ناشی از جنگ با ایران، تحریم‌های برخی از محموله‌های نفتی روسیه را کاهش داده بود؛ معافیتی موقت که اواخر این هفته منقضی می‌شود و وزارت خزانه‌داری هنوز تصمیمی برای تمدید مجدد آن اعلام نکرده است.
+
+این اظهارات ترامپ در حالی مطرح می‌شود که رهبران گروه هفت روز سه‌شنبه در بیانیه‌ای مشترک بر «حمایت تزلزل‌ناپذیر خود از اوکراین» و تقویت تحریم‌ها علیه بخش نفت و گاز روسیه تاکید کردند. با این حال، هرچند قیمت نفت پس از اعلام خبر توافق میان جمهوری اسلامی ایران و آمریکا سقوط کرده، اما همچنان به مراتب بالاتر از سطوح پیش از آغاز جنگ است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 343064
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343064_1781707465.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: “I think it will be done, they want to sign.”
+
+President Trump announces he’s confident that Iran will formally agree to the latest peace deal that’s set to be adopted on Friday.
+
+“This is a memorandum of understanding, but it's a very strong one. This isn't just like a two paragraph- this is a long, you know, pretty detailed memorandum that goes into a regular contract. I would think they would do it. If they don't, then that's, you know, that's okay. We'll have to start the process again.”
+</div>
+
+## FoxNewsTwitter — post 343063
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343063_1781707468.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH: President Trump cracks a joke about America's commitment to defending India as long as Prime Minister Narendra Modi is still leading the country:
+
+REPORTER: "Can you speak to the defense relationship between India and the United States?"
+
+TRUMP: "If anybody attacks that man, we're going to be there. Now if there's a new leader, I'm not sure about it."
+
+"If they're attacked and he's the leader, we're going to be there to help."
+</div>
+
+## pm_afshaa — post 94264
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94264_1781707470.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: هیچکس فکرش رو نمیکرد بشه ولی ما تو همون هفته اول ایران رو‌ از نظر نظامی شکست دادیم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 342870
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342870_1781707471.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند اصفهانی با ارسال ویدیویی به ایران اینترنشنال، همزمان با برگزاری رقابت‌های جام جهانی از محدودیت‌های اعمال‌شده برای حضور زنان در ورزشگاه‌ها انتقاد کرد. او گفت از دوران مدرسه به فوتبال علاقه داشته و سال‌ها این ورزش را دنبال کرده است، اما اکنون در ۲۷ سالگی هنگام تلاش برای حضور در ورزشگاه‌ها با موانع مختلفی روبه‌رو می‌شود. به گفته او، محدود شدن سهمیه صندلی‌های زنان یا اعلام تعمیر جایگاه بانوان از جمله بهانه‌هایی است که دسترسی زنان به ورزشگاه‌ها را محدود می‌کند. این شهروند چنین وضعیتی را نشانه تبعیض جنسیتی دانست و افزود که این محدودیت‌ها حتی حوزه ورزش را نیز در بر گرفته است.
+</div>
+
+## IranIntlTV — post 342869
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342869_1781707474.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻سازمان حقوق بشر برای ورزش در نامه‌ای سرگشاده به کمیته انضباطی فیفا، شادی پس از گل محمد محبی، بازیکن تیم ملی فوتبال ایران، در دیدار مقابل نیوزیلند در جام جهانی ۲۰۲۶ را مصداق «رفتارهای غیرورزشی» دانسته که می‌تواند «موجب بی‌اعتباری فوتبال» شود.
+
+🔹مطابق این آیین‌نامه، رفتارهای غیرورزشی می‌تواند مجازات‌هایی در پی داشته باشد.
+
+🔹محبی پس از زدن گل دوم ایران به نیوزیلند، دست خود را به شکل اسلحه درآورد و به سمت هواداران گرفت.
+
+🔹این سازمان در نامه خود، با استناد به مواد ۱۳، ۱۴ و ۲۵ آیین‌نامه انضباطی فیفا، بر لزوم رعایت اصول بازی جوانمردانه، پرهیز از رفتارهای غیرورزشی و امکان اعمال مجازات در صورت استفاده از حرکات یا نشانه‌هایی که می‌تواند موجب بی‌اعتباری فوتبال شود، تاکید کرده است.
+
+🔹به نوشته سازمان حقوق بشر برای ورزش، نشان دادن ژست «تفنگ» مستقیما در چارچوب مقررات کمیته انضباطی فیفا قرار می‌گیرد و پرسش‌هایی را درباره نحوه اعمال این مقررات در مسابقات رسمی، از جمله جام جهانی ۲۰۲۶، مطرح می‌کند.
+
+🔹جزییات بیشتر این نامه را در سایت بخوانید.
+
+@iranintltvsport
+</div>
+
+## FarsiVOA — post 221026
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_221026_1781707475.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️دونالد ترامپ، رئیس جمهوری آمریکا در دیدار با نخست وزیر هند در حاشیه نشست گروه هفت گفت: تغییرات جمهوری اسلامی با دستور من برای کشتن قاسم سلیمانی آغاز شد.
+پرزیدنت ترامپ افزود: جمهوری اسلامی رده اول و دوم رهبری خود را از دست داده و اکنون با توافق من هرگز به سلاح هسته‌ای دست پیدا نخواهند کرد.
+</div>
+
+## DW_Farsi — post 126109
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_126109_1781707475.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 ایزدخواه: تعطیلی مجلس نشانه "خرده‌دیکتاتوری" است
+
+روح‌الله ایزدخواه، نماینده مجلس، در ویدیویی که از سخنرانی او در جمع تعدادی از تجمع‌کنندگان مقابل مجلس منتشر شده، گفت تعطیلی مجلس تصمیم هیات رئیسه بوده است. او خطاب به معترضان گفت فریاد خود را باید بر سر هیات رئیسه بزنند، نه نماینده‌ای که در جمع آنان حاضر شده است.
+
+ایزدخواه در این سخنان گفت: "مجلس را من تعطیل نکردم؛ هیات رئیسه تعطیل کرده است." او همچنین افزود اداره مجلس در اختیار هیات رئیسه است و حراست نیز از او دستور نمی‌گیرد.
+
+او با لحنی انتقادی گفت: "من مجلس را پلمپ نکردم" و تاکید کرد تعطیلی مجلس تصمیم شخص او نبوده است.
+
+این نماینده مجلس گفت این تعلیق و تعطیلی در تاریخ مجالس ایران ثبت خواهد شد؛ همان‌طور که به توپ بستن مجلس و نیز انحلال مجلس توسط مصدق در تاریخ ثبت شده است.
+
+ایزدخواه همچنین این وضعیت را نشانه "نوعی خرده‌دیکتاتوری" توصیف کرد و گفت روزی روشن خواهد شد که این تصمیم از کجا ناشی شده و چرا به وجود آمده است.
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 17354
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17354_1781707476.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: ما در هفته اول جنگ، ایران را از نظر نظامی شکست دادیم.
+
+هیچ کس فکر نمی‌کرد که این کار شدنی باشد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17353
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17353_1781707479.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرنگار: آیا می‌خواهید اروپایی‌ها مین‌روب به هرمز بفرستند؟
+
+ترامپ: ما به آن نیازی نداریم، اما اگر آنها بخواهند آن را بفرستند، خوب است.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 22799
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ :
+
+اگه ایرانیا بخوان بازی کنن باهامو‌ن و‌ در آخر امضا نکنن توافق رو دوباره برمیگردیم به جنگ !
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 284140
+
+<div align="center">
+  <a href="telegram/content/BBCPersian_284140_1781707482.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻محمدحسین خوشوقت، برادر همسر مصطفی خامنه‌ای، می‌گوید کارشناسان امنیتی به مجتبی خامنه‌ای توصیه کرده‌اند «حتی در حد نشر صدا هم خودشان را نشان ندهند.»
+
+آقای خوشوقت در یک مصاحبه تفصیلی با انصاف‌نیوز، در مورد رهبری مجتبی خامنه‌ای گفت: «او راه پدر را با صلابت و عقلانیت ادامه خواهد داد و البته با توجه به شرایط پس از جنگ ممکن است در بعضی موارد با پدر متفاوت باشد.»
+
+او در مورد مذاکره مستقیم با آمریکا گفت: «چند سال پیش از ایشان پرسیدم که به طور مطلق با مذاکره مخالفید یا در شرایط فعلی ملاحظاتی دارید، در پاسخ گفتند من نه تنها با مذاکره بلکه با برقرار روابط سیاسی و تجاری با آمریکا هم موافقم اما به شرط اینکه آمریکا از موضع محترمانه با ما رفتار کند.»
+
+مجتبی خامنه‌ای از زمانی که به عنوان جانشین پدرش انتخاب شده است، در انظار عمومی ظاهر نشده و هیچ عکس و فیلم و صدایی هم از او منتشر نشده است.
+
+https://bbc.in/4uLuDL4
+@BBCPersian
+</div>
+
+## Hranews — post 113677
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بازداشت ۶ شهروند در جریان اعتراض به بهره‌برداری از معدن کرومیت پشموکی
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– امروز چهارشنبه ۲۷ خردادماه، مرضیه حوت، ماه‌بی‌بی حوت، صمیه بامری، علی‌بخش بامری، رضا بیگ‌بامری و انور حوت در جریان تجمع اعتراضی شهروندان در روستای پشموکی از توابع شهرستان فاریاب در استان کرمان توسط نیروهای انتظامی و امنیتی بازداشت و به مکان نامعلومی منتقل شدند. اهالی این منطقه برای دومین روز متوالی در اعتراض به نحوه بهره‌برداری از معدن کرومیت در این منطقه تجمع کرده بودند که با دخالت نیروهای انتظامی و امنیتی به خشونت کشیده شد.
+
+ادامه مطلب
+
+#مرضیه_حوت #ماه‌بی‌بی_حوت #صمیه_بامری
+#علی‌بخش_بامری #رضا_بیگ‌بامری #انور_حوت
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+---
 📅 بروزرسانی: 1405/03/27 18:03
 ---
 

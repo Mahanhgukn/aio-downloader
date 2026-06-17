@@ -7,6 +7,149 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/28 03:03
+---
+
+## VahidOOnLine — post 246109
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_246109_1781739195.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمدباقر قالیباف، رییس هیات مذاکره‌کننده جمهوری اسلامی با آمریکا، گفت داوطلب این مسئولیت نبوده و حتی «کراهت شدید» نسبت به آن داشته است زیرا دونالد ترامپ در کشته شدن قاسم سلیمانی نقش داشت.
+او افزود با وجود این، چون مسئولان بر حضور او تاکید داشتند این مسئولیت را از سر وظیفه پذیرفت.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## IranIntlTV — post 342945
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342945_1781739198.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+از موشک تا معیشت؛ تغییر ناگهانی روایت؛
+قالیباف: سنگر را از «بچه‌های لانچر» تحویل می‌گیریم!
+
+قالیباف می‌گوید: «باید سنگر را از لانچرها تحویل بگیریم و به سمت ساختن کشور برویم.»
+
+تا دیروز می‌گفتند اولویت کشور موشک است، نه معیشت. هر صدای منتقدی را با «مقاومت» و «امنیت» ساکت می‌کردند. حالا از اقتصاد، توسعه و برداشتن فشار از دوش مردم حرف می‌زنند.
+
+اگر اقتصاد امروز اولویت شده، پس چهار دهه گذشته صرف چه شد؟ چه کسانی کشور را به این نقطه رساندند؟ و آیا قرار است میلیاردها دلار سرمایه و منابع تازه، دوباره در اختیار همان ساختارهایی قرار بگیرد که کشور را به این وضعیت رسانده‌اند؟
+
+کامبیز حسینی در «برنامه» به این موضوع می‌پردازد.
+
+«یک ایران صدای شما را می‌شنود»
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/VniCfgW1sPQ
+@iranintltv
+</div>
+
+## IranIntlTV — post 342944
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342944_1781739200.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مهستی از لندن: این بازی دو نیمه دارد؛ برای نیمه دوم، مردم ایران باید آماده باشند
+
+«یک ایران صدای شما را می‌شنود»
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/VniCfgW1sPQ
+@iranintltv
+</div>
+
+## IranIntlTV — post 342943
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342943_1781739204.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چیدا از خرم‌آباد: ما لرها حامی ایرانیم و سال‌ها برای یک تکه نان در سرزمین خودمان جان داده‌ایم
+
+«یک ایران صدای شما را می‌شنود»
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/VniCfgW1sPQ
+@iranintltv
+</div>
+
+## IranIntlTV — post 342942
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342942_1781739206.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امید از تهران: آخر کار را ما تعیین می‌کنیم، نه ترامپ و نه هیچ‌کس دیگر؛ حق‌مان را می‌گیریم
+
+«یک ایران صدای شما را می‌شنود»
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/VniCfgW1sPQ
+@iranintltv
+</div>
+
+## IranIntlTV — post 342941
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342941_1781739208.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+زهرا از رشت: باید به ترامپ فشار می‌آوردند که دست‌کم زندانی‌های ما را آزاد کند
+
+«یک ایران صدای شما را می‌شنود»
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/VniCfgW1sPQ
+@iranintltv
+</div>
+
+## IranIntlTV — post 342940
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342940_1781739211.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمدباقر قالیباف، رییس هیات مذاکره‌کننده جمهوری اسلامی با آمریکا، گفت داوطلب این مسئولیت نبوده و حتی «کراهت شدید» نسبت به آن داشته است زیرا دونالد ترامپ در کشته شدن قاسم سلیمانی نقش داشت.
+او افزود با وجود این، چون مسئولان بر حضور او تاکید داشتند این مسئولیت را از سر وظیفه پذیرفت.
+</div>
+
+## FarsiVOA — post 221063
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_221063_1781739213.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️دونالد ترامپ، در پاسخ به سوال خبرنگاران که آیا تفاهم‌نامه با جمهوری اسلامی را امضا کرده است پاسخ داد: «بله امضا کردم...در ورسای امضا کرد.»
+@FarsiVOA
+</div>
+
+## BBCPersian — post 284195
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻کاخ سفید متن یادداشت تفاهم ایران و آمریکا را منتشر کرد. این سند که به طور الکترونیکی امضا شده است، قرار است روز جمعه در مراسمی در سوئیس به امضای مقامات ایرانی و آمریکایی برسد. متن منتشر شده ۱۴ بند دارد و مقامات آمریکایی توضیحاتی در کنار برخی موارد نوشتند.
+
+توضیحات تفاهمنامه را در لینک زیر بخوانید:
+
+https://bbc.in/4xCgJxh
+@BBCPersian
+</div>
+
+---
 📅 بروزرسانی: 1405/03/28 02:43
 ---
 

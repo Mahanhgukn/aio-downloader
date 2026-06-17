@@ -7,6 +7,268 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/27 21:04
+---
+
+## VahidOOnLine — post 246071
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246071_1781717685.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهوری آمریکا، در نشست گروه هفت گفت واشینگتن از اهرم‌های قابل توجهی برای جلوگیری از نقض آتش‌بس میان اسرائیل و حزب‌الله برخوردار است.
+
+ترامپ با اشاره به توافق اخیر با جمهوری اسلامی گفت: «تهران اکنون باید رفتار متفاوتی داشته باشد» و همین موضوع به آمریکا نفوذ بیشتری برای حفظ آتش‌بس می‌دهد.
+
+او در ادامه درگیری میان اسرائیل و حزب‌الله را در مقایسه با جنگ اخیر «کوچک‌تر» توصیف کرد و گفت از اینکه این تنش‌ها هنوز پایان نیافته‌اند، شگفت‌زده است.
+
+رییس‌جمهوری آمریکا همچنین به توان نظامی و ابزارهای اقتصادی واشینگتن اشاره کرد و افزود محاصره بنادر ایران از حملات هوایی تاثیرگذارتر بوده است.
+
+ترامپ افزود آمریکا از اهرم‌های نظامی و اقتصادی قدرتمندی برخوردار است و می‌تواند از این ابزارها برای جلوگیری از نقض آتش‌بس و کاهش تنش‌ها در منطقه استفاده کند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246070
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی رسیده به ایران‌اینترنشنال نشان می‌دهد مردم در مراسم خاکسپاری ابوالفضل ساعدی،‌ معترض بازداشتی اعدام‌شده در شاهرود، او را جاویدنام خواندند و تشویق کردند. آن‌ها شعار دادند «این گل پرپر شده، هدیه به میهن شده»
+
+ابوالفضل ساعدی به همراه جواد زمانی، دو تن از بازداشت‌شدگان اعتراضات، بامداد سه‌شنبه در شاهرود اعدام شدند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## mwarmonitor — post 11081
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبرگزاری آسوشیتدپرس— پیش‌نویس آمریکا از توافق با ایران فقط عبور بدون عوارض از تنگه هرمز را برای ۶۰ روز تضمین می‌کند و مانع وضع هزینه‌ها یا عوارض در آینده نمی‌شود.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 11080
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴یک مقام کاخ سفید: نشست سوئیس درباره مرحله بعدی بسیار مهم خواهد بود، زیرا متن فعلی بازتاب‌دهنده نیت‌ها و قصدهای طرف‌هاست.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 11079
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_11079_1781717686.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚠️هشدار ⚠️ حاوی صحنه خشونت آمیز @mwarmonitor
+</div>
+
+## pm_afshaa — post 94285
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94285_1781717687.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴الجزیره به نقل از وزارت امور خارجه ایران: در حال حاضر در حال بررسی ایده امضای تفاهم‌نامه از راه دور توسط رؤسای جمهور ایران و ایالات متحده هستیم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## mamlekate — post 103731
+
+<div align="center">
+  <img src="telegram/content/mamlekate_103731_1781717687.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سلامتی، با اعضای باند فرقه‌ی اپستین توافق کردم.
+
+Gerduo
+@mamlekate
+</div>
+
+## mamlekate — post 103730
+
+<div align="center">
+  <a href="telegram/content/mamlekate_103730_1781717688.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ در تمجید از رهبران جدید جمهوری اسلامی: فکر می‌کنم آن‌ها بسیار باهوش‌اند، بسیار کمتر افراطی هستند. آن‌ها کشورشان را دوست دارند. فکر می‌کنم رفتارشان بسیار متفاوت‌تر خواهد بود.
+
+@mamlekate
+</div>
+
+## IranIntlTV — post 342893
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342893_1781717689.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهوری آمریکا، در نشست گروه هفت گفت واشینگتن از اهرم‌های قابل توجهی برای جلوگیری از نقض آتش‌بس میان اسرائیل و حزب‌الله برخوردار است.
+
+ترامپ با اشاره به توافق اخیر با جمهوری اسلامی گفت: «تهران اکنون باید رفتار متفاوتی داشته باشد» و همین موضوع به آمریکا نفوذ بیشتری برای حفظ آتش‌بس می‌دهد.
+
+او در ادامه درگیری میان اسرائیل و حزب‌الله را در مقایسه با جنگ اخیر «کوچک‌تر» توصیف کرد و گفت از اینکه این تنش‌ها هنوز پایان نیافته‌اند، شگفت‌زده است.
+
+رییس‌جمهوری آمریکا همچنین به توان نظامی و ابزارهای اقتصادی واشینگتن اشاره کرد و افزود محاصره بنادر ایران از حملات هوایی تاثیرگذارتر بوده است.
+
+ترامپ افزود آمریکا از اهرم‌های نظامی و اقتصادی قدرتمندی برخوردار است و می‌تواند از این ابزارها برای جلوگیری از نقض آتش‌بس و کاهش تنش‌ها در منطقه استفاده کند.
+https://iranintl.com/202606179357
+</div>
+
+## IranIntlTV — post 342892
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی رسیده به ایران‌اینترنشنال نشان می‌دهد مردم در مراسم خاکسپاری ابوالفضل ساعدی،‌ معترض بازداشتی اعدام‌شده در شاهرود، او را جاویدنام خواندند و تشویق کردند. آن‌ها شعار دادند «این گل پرپر شده، هدیه به میهن شده»
+
+ابوالفضل ساعدی به همراه جواد زمانی، دو تن از بازداشت‌شدگان اعتراضات، بامداد سه‌شنبه در شاهرود اعدام شدند.
+</div>
+
+## Shin_Persian — post 7122
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_7122_1781717689.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+UKMTO Operations Centre @UK_MTO
+Wed, 17 Jun 2026 17:30:39 UTC
+
+UKMTO WARNING 071-26 - ATTACK
+
+Click here to view the full warning.⤵️
+https://www.ukmto.org/-/media/ukmto/products/20260617-ukmto_warning_attack-071-26-1.pdf?rev=14367a82da014116ba713d926e41e876
+
+#MaritimeSecurity #MarSec
+
+ترجمه خودکار فارسی
+
+هشدار UKMTO (عملیات تجارت دریایی بریتانیا) ۰۷۱-۲۶ - حمله
+
+برای مشاهده هشدار کامل اینجا کلیک کنید.⤵️
+https://www.ukmto.org/-/media/ukmto/products/20260617-ukmto_warning_attack-071-26-1.pdf?rev=14367a82da014116ba713d926e41e876
+
+#MaritimeSecurity #MarSec_
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 221042
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پرزیدنت ترامپ در یک کنفرانس خبری پس از نشست گروه هفت گفت: در توافق با جمهوری اسلامی به همه آن چیزهایی که می‌خواستیم دست پیدا کردیم؛ حتی بیشتر. برشی از پوشش ویژه با ترجمه همزمان پژواک کیومرثی
+</div>
+
+## Persian_Trend_Official — post 17383
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17383_1781717690.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سازمان تجارت دریایی بریتانیا گزارش می‌دهد که یک کشتی در فاصله 105 مایل دریایی شمال شرقی عدن، یمن، اوایل امروز مورد حمله قرار گرفت.
+
+دو قایق حامل افراد مسلح تا فاصله چهار متری به آن نزدیک شدند و به کشتی آتش گشودند. تیم امنیتی کشتی به آتش پاسخ داد و مهاجمان را وادار به قطع حمله و عقب‌نشینی از منطقه کرد. خدمه در امان هستند.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 22816
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 به گزارش کلش ریپورت متن توافق تأییدشده بین ایالات متحده و جمهوری اسلامی ایران:
+
+• آتش‌بس فوری و دائمی در همه جبهه‌ها، از جمله لبنان، با تعهد به عدم هرگونه اقدام یا تهدید نظامی بیشتر.
+
+• احترام متقابل به حاکمیت ملی و عدم دخالت در امور داخلی یکدیگر.
+• مذاکره برای توافق نهایی ظرف ۶۰ روز (قابل تمدید با توافق).
+
+•برداشتنتدریجیمحاصرهدریاییآمریکاظرف۳۰روزوخروجنیروهاازاطرافایرانپسازتوافقنهایی.
+
+•بازگرداندنوحفاظتازمسیرهایتجاریکشتیرانیدرمنطقهخلیجفارسودریایعمان،همراهباپاکسازیموانعومین‌ها.
+
+• ایران با عمان و کشورهای منطقه برای اتفاقات آینده در تنگه هرمز مشورت خواهد کرد.
+
+• تدوین طرح مشترک بازسازی اقتصادی ایران (حداقل ۳۰۰ میلیارد دلار).
+
+• برداشتن کامل همه تحریم‌ها (سازمان ملل، آژانس، تحریم‌های اولیه و ثانویه آمریکا) طبق زمان‌بندی توافق‌شده.
+
+• ایران مجدداً تأیید کرد که سلاح هسته‌ای تولید نخواهد کرد. مسائل غنی‌سازی و مواد غنی‌شده تحت نظارت کامل آژانس بین‌المللی انرژی اتمی خواهد بود.
+
+• حفظ وضعیت موجود تا توافق نهایی: عدم اعمال تحریم جدید یا تشدید نظامی.
+
+• آمریکا مجوز صادرات نفت ایران و خدمات مالی مرتبط را صادر خواهد کرد.
+
+• آزادسازی کامل دارایی‌های ایران و دسترسی به آن‌ها طبق رویه‌های مشترک.
+
+• ایجاد مکانیسم نظارت بر اجرای توافق.
+
+• توافق نهایی در چارچوب مراحل آتش‌بس مذاکره شده و سپس توسط شورای امنیت سازمان ملل تأیید خواهد شد.
+
+@IranianMinds
+</div>
+
+## alonews — post 128762
+
+<div align="center">
+  <a href="telegram/content/alonews_128762_1781717690.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈یک مقام کاخ سفید: نشست سوئیس برای مرحله بعدی بسیار مهم خواهد بود زیرا سند کنونی نیت‌های طرفین را منعکس می‌کند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128761
+
+<div align="center">
+  <a href="telegram/content/alonews_128761_1781717691.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کاخ سفید: توافق نهایی از طریق یک قطعنامه الزام‌آور از سوی شورای امنیت سازمان ملل تصویب خواهد شد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128760
+
+<div align="center">
+  <a href="telegram/content/alonews_128760_1781717691.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / وزارت امور خارجه : در حال حاضر در حال بررسی ایده امضای یادداشت تفاهم از راه دور توسط روسای جمهور ایران و ایالات متحده هستیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128759
+
+<div align="center">
+  <a href="telegram/content/alonews_128759_1781717691.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈یک مقام کاخ سفید: به همان اندازه که ایران به مسائل هسته‌ای پایبند باشد، تحریم‌ها علیه آن کاهش خواهد یافت
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/27 20:54
 ---
 

@@ -7,6 +7,18 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/27 04:23
+---
+
+## FarsiVOA — post 220968
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️دکترین تام باراک برای عراق: توسعه، ثبات و پایان نفوذ جمهوری اسلامی
+@FarsiVOA
+</div>
+
+---
 📅 بروزرسانی: 1405/03/27 04:12
 ---
 

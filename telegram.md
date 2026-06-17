@@ -7,6 +7,74 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/27 05:52
+---
+
+## VahidOOnLine — post 245962
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245962_1781662974.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ان‌بی‌سی نیوز به نقل از یک مقام آمریکایی گزارش داد از زمان امضای یادداشت تفاهم جمهوری اسلامی و آمریکا، سپاه هر شب چندین پهپاد را به سمت کشتی‌های تجاری در تنگه هرمز پرتاب کرده، اما نیروهای آمریکا آنها را رهگیری کرده‌اند.
+این مقام گفت ارتش آمریکا همچنان برای حمایت از عبور ایمن کشتی‌ها از تنگه هرمز، با شرکت‌های کشتیرانی تجاری هماهنگی می‌کند.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 343048
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343048_1781662974.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"Donald Trump did exactly what he came to do."
+
+VP JD Vance touted the administration's Iran strategy during an appearance on @Gutfeldfox, arguing that the U.S. achieved its core objectives and now holds the leverage moving forward.
+
+"We accomplished what we set out to accomplish and now we have, as the president says, all the cards."
+
+Vance pointed to the destruction of Iran's nuclear infrastructure and the ongoing negotiations with Tehran, saying any future economic benefits for Iran will depend entirely on whether it follows through on its commitments.
+</div>
+
+## IranIntlTV — post 342795
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342795_1781662976.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ان‌بی‌سی نیوز به نقل از یک مقام آمریکایی گزارش داد از زمان امضای یادداشت تفاهم جمهوری اسلامی و آمریکا، سپاه هر شب چندین پهپاد را به سمت کشتی‌های تجاری در تنگه هرمز پرتاب کرده، اما نیروهای آمریکا آنها را رهگیری کرده‌اند.
+این مقام گفت ارتش آمریکا همچنان برای حمایت از عبور ایمن کشتی‌ها از تنگه هرمز، با شرکت‌های کشتیرانی تجاری هماهنگی می‌کند.
+
+https://iranintl.com/202606172267
+</div>
+
+## FarsiVOA — post 220981
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️هشدار کارزار «سه‌شنبه‌های نه به اعدام» به افزایش تعداد اعدام‌ها در ایران توسط جمهوری‌ اسلامی
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220980
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺مخالفت سناتور ریک اسکات با آزادسازی منابع رژیم ایران: اگر پولی از آنها داریم باید به خاطر «خشم حماسی» و به سرعقل درآوردنشان بگیریم
+
+▪️ریک اسکات با آزادسازی دارایی‌های مسدود شده مخالف است و می‌گوید این پول باید برای پرداخت هزینه عملیات خشم حماسی استفاده شود
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8161815.html
+@FarsiVOA
+</div>
+
+---
 📅 بروزرسانی: 1405/03/27 05:42
 ---
 

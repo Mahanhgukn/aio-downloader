@@ -7,6 +7,54 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/28 02:04
+---
+
+## VahidOOnLine — post 246103
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246103_1781735645.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسماعیل بقایی، سخنگوی وزارت خارجه جمهوری اسلامی، گفت: «از ابتدا گفته‌ایم که مواد غنی‌شده هسته‌ای به خارج از ایران منتقل نخواهد شد. رقیق‌سازی مواد غنی‌شده گزینه جدیدی نیست، الان هم به عنوان یک گزینه معرفی شده است تا راه را بر گزینه‌های دیگر ببندیم.»
+او افزود: «گزینه غیرقابل قبول برای ما، انتقال مواد غنی‌شده هسته‌ای به خارج از کشور است.»
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 15203
+
+
+
+
+## IranIntlTV — post 342932
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342932_1781735646.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسماعیل بقایی، سخنگوی وزارت خارجه جمهوری اسلامی، گفت: «از ابتدا گفته‌ایم که مواد غنی‌شده هسته‌ای به خارج از ایران منتقل نخواهد شد. رقیق‌سازی مواد غنی‌شده گزینه جدیدی نیست، الان هم به عنوان یک گزینه معرفی شده است تا راه را بر گزینه‌های دیگر ببندیم.»
+او افزود: «گزینه غیرقابل قبول برای ما، انتقال مواد غنی‌شده هسته‌ای به خارج از کشور است.»
+
+https://iranintl.com/202606175498
+</div>
+
+## Dirty_Kids — post 392439
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392439_1781735646.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+باراک راوید | آکسیوس:
+ایران و آمریکا تفاهمنامه رو از راه دور امضا کردن.
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/03/28 01:54
 ---
 

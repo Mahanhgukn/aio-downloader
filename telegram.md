@@ -7,6 +7,111 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/27 04:12
+---
+
+## VahidOOnLine — post 245957
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245957_1781656966.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️بلومبرگ سه‌شنبه ۲۶ خرداد متن پیش‌نویس ۱۴ ماده‌ای تفاهم‌نامه میان ایران و آمریکا را منتشر کرد؛ سندی که بر اساس آن، دو کشور قرار است ۲۹ خرداد (۱۹ ژوئن) در سوئیس آن را به امضا برسانند.
+بر اساس این پیش‌نویس، تهران، واشنگتن و متحدان دو طرف با امضای تفاهم‌نامه «پایان فوری و دائمی جنگ در همه جبهه‌ها، از جمله لبنان» را اعلام می‌کنند و متعهد می‌شوند از هرگونه اقدام خصمانه، تهدید یا استفاده از زور علیه یکدیگر خودداری کنند.
+در این سند همچنین آمده است که ایران و آمریکا ظرف ۶۰ روز برای دستیابی به توافق نهایی مذاکره خواهند کرد. رفع محاصره دریایی ایران، ازسرگیری صادرات نفت، آزادسازی دارایی‌های مسدودشده ایران، لغو تدریجی تحریم‌ها و تاکید جمهوری اسلامی بر عدم تولید سلاح هسته‌ای از دیگر مفاد این پیش‌نویس است.
+بر اساس متن منتشرشده، توافق نهایی نیز با قطعنامه الزام‌آور شورای امنیت سازمان ملل تایید خواهد شد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## FarsiVOA — post 220967
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220967_1781656967.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️جمع‌آوری پرچم شیروخورشید در ورزشگاه؛ اجرای قانون فیفا یا محدودیت؟ گفت‌وگو با محمد اولیایی فرد
+@FarsiVOA
+</div>
+
+## IranianMinds — post 22774
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22774_1781656968.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 جی‌دی ونس:
+
+اگر ترامپ رهبر معظم ایران هم میشد، بازم دموکرات‌ها میگفتن که ترامپ جلوی ایران شکست خورده.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22773
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22773_1781656968.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✅ اپلیکیشن حرفه ای اندروید سایت بین المللی دربی بت
+
+✅اسپانسر لیگ انگلستان
+
+💰اولین سایت جهانی با امکان شارژ و برداشت با کارت بانکی
+
+◻️ برای ورود فیلترشکن روشن کرده روی کانادا یا سنگاپور یا آلمان و ....
+📢
+
+😀Telegram Channel
+👇
+https://t.me/+bcynkEgSW2dlYTc0
+</div>
+
+## IranianMinds — post 22772
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22772_1781656969.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😤میخوای جام جهانی پیش بینی کنی؟!
+
+🔹پس نیاز داری به یه سایت بین المللی و معتبر
+🔹
+
+
+⛔دربی بت همون انتخاب  100%
+
+
+💎ویژگی های سایت جهانی Derby Bet:
+
+⬅️امکان شارژ امن با کارت بانکی
+
+⬅️واریز اول دوبل شارژ می شوید(بونوس۱۰۰٪)
+
+⬅️پر اپشن ترین سایت فعال در ایران
+
+⬅️تسویه حساب کمتر از 5 دقیقه
+
+⬅️برگشت بخشی از باخت به صورت هفتگی
+
+⭐دارای لایسنس و مجوز anjuan
+
+
+🚨کد هدیه ثبت نام:GG007
+
+
+⚠️برای دانلود اپلکیشن کلیک کنید
+👉
+
+
+🔔کانال دربی بت ea26:
+👇
+
+✅https://t.me/+bcynkEgSW2dlYTc0
+</div>
+
+---
 📅 بروزرسانی: 1405/03/27 04:02
 ---
 

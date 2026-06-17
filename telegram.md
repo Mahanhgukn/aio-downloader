@@ -7,6 +7,84 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/28 03:14
+---
+
+## VahidOOnLine — post 246111
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️محمدباقر قالیباف، رئیس مجلس شورای اسلامی که اکنون نام او به عنوان مذاکره‌کننده اصلی با آمریکا مطرح است، در سخنرانی و مجموعه‌ اظهارنظرهایی که چهارشنبه شب، همزمان با انتشار متن یادداشت تفاهم انجام شد، از نقش خود در مجموعه تحولات اخیر صحبت کرد و تاکید کرد که یا دیگران با او برای تصمیم‌گیری همراه می‌شوند یا خودش تصمیم می‌گیرد. قالیباف همچنین گفت سیستم «مدیریتی» و «نظامی» کشور از «فرد محوری» خارج شده است. تا پیش از کشته شدن علی خامنه‌ای، رهبر سابق جمهوری اسلامی در حمله آمریکا و اسرائیل، او درباره همه امور تصمیم می‌گرفت. قالیباف افزود که برای همه سناریو‌ها، از جمله کشته شدن علی خامنه‌ای هم برنامه‌ریزی شده بود. اظهارات قالیباف در حالی مطرح می‌شود که هنوز با گذشت بیش از سه ماه از معرفی مجتبی خامنه‌ای به عنوان رهبر جدید نظام، هیچ تصویر یا حتی صدای ضبط شده‌ای از او منتشر نشده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246110
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246110_1781739878.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️فاکس‌نیوز به نقل از یک مقام کاخ سفید گزارش داد دونالد ترامپ، رئیس‌جمهوری آمریکا، بامداد پنجشنبه ۲۸ خرداد در جریان ضیافت شام با امانوئل مکرون، رئیس‌جمهوری فرانسه، در کاخ ورسای، تفاهم‌نامه میان آمریکا و ایران را شخصا امضا کرد.
+بر اساس این گزارش، پس از امضای مسعود پزشکیان، رئیس‌جمهوری ایران، این تفاهم‌نامه اجرایی شده است. یک نسخه از سند امضاشده نیز برای ایران و کشورهای میانجی ارسال شده است.
+فاکس‌نیوز همچنین گزارش داد با اجرایی شدن این توافق، مراسم اصلی امضای تفاهم‌نامه که قرار بود در ژنو برگزار شود، لغو شده است. با این حال، اسماعیل بقایی، سخنگوی وزارت امور خارجه جمهوری اسلامی، اعلام کرد برنامه حضور تیم‌های مذاکره‌کننده در ژنو همچنان پابرجاست.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 343102
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343102_1781739879.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"It's signed."
+
+President Trump told reporters he signed the Iran memorandum of understanding in Versailles as he departed the palace following a dinner with French President Emmanuel Macron.
+
+A White House official says a photo of the signed agreement was sent to Iran and the mediating countries, to formally put the deal into effect.
+</div>
+
+## FoxNewsTwitter — post 343098
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+President Trump tours the Palace of Versailles alongside French President Emmanuel Macron and his wife, Brigitte Macron, just before a major development in the Iran negotiations.
+
+The dinner meeting inside the historic French landmark ended with Trump signing the Iran memorandum of understanding, according to the White House.
+
+The gathering at Versailles was intended to celebrate the historic ties between the U.S and France during America's 250th birthday celebration.
+</div>
+
+## FarsiVOA — post 221064
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️گفت‌وگوهای احتمالی اروپا با طالبان؛ اخراج مهاجران افغان از آلمان و چالش‌های حقوقی و سیاسی آن
+@FarsiVOA
+</div>
+
+## BBCPersian — post 284196
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻کاخ سفید متن یادداشت تفاهم ایران و آمریکا را منتشر کرد. این سند که به طور الکترونیکی امضا شده است، قرار است روز جمعه در مراسمی در سوئیس به امضای مقامات ایرانی و آمریکایی برسد. متن منتشر شده ۱۴ بند دارد و مقامات آمریکایی توضیحاتی در کنار برخی موارد نوشتند.
+
+آلبوم را ورق بزنید و مفاد این تفاهمنامه را بخوانید و توضیخات بیشتر را از لینک زیر در وبسایت بی‌بی‌سی فارسی بخوانید:
+
+https://bbc.in/4vdkMP7
+📷Getty Images/ Anadolu via Getty Images/ Sygma via Getty Images/ Bloomberg via Getty Images
+
+@BBCPersian
+</div>
+
+---
 📅 بروزرسانی: 1405/03/28 03:03
 ---
 

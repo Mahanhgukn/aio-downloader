@@ -7,6 +7,43 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/27 23:53
+---
+
+## mwarmonitor — post 11087
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ: ظرف ۴۸ ساعت آینده توافق با ایران امضا خواهد شد و احتمالاً برای مدتی ارتش را در خلیج فارس نگه خواهیم داشت.
+
+@mwarmonitor
+</div>
+
+## Persian_Trend_Official — post 17401
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17401_1781727830.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یه سفر کوتاه اومدم به امید باز شدن گره ها 😄
+</div>
+
+## alonews — post 128786
+
+<div align="center">
+  <a href="telegram/content/alonews_128786_1781727831.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈توضیحات قالیباف در مورد فرآیند مذاکرات اسلام آباد
+
+
+🔴 طی ۲۴ ساعت ۳ دور مذاکرات با متن و ۳ دور مذاکرات سه جانبه با حضور میانجی برگزار شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/27 23:43
 ---
 

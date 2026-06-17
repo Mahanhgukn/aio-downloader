@@ -7,6 +7,223 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/27 20:54
+---
+
+## VahidOOnLine — post 246069
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس‌جمهوری آمریکا، روز چهارشنبه ۲۷ خرداد در حاشیه نشست سران گروه هفت (G7) در فرانسه و در گفتگو با خبرنگاران گفت که مذاکرات فنی درباره انتقال و خارج‌سازی ذخایر اورانیوم غنی‌شده ایران «بلافاصله» آغاز خواهد شد.
+ترامپ با اشاره به محل نگهداری این مواد گفت که ذخایر اورانیوم غنی‌شده در اعماق بسیار زیاد زمین قرار دارند و دسترسی به آن‌ها امکان‌پذیر نیست، از همین رو ضرورتی برای اقدام فوری وجود ندارد. او افزود هر زمان فرصت مناسب فراهم شود، این روند با سرعت انجام خواهد شد.
+رئیس‌جمهوری آمریکا همچنین تاکید کرد که بر تمامی تاسیسات هسته‌ای ایران نظارت کامل وجود دارد و گفت: «روی هر وجب آن دوربین داریم.» او در ادامه هشدار داد که در صورت هرگونه اقدام برای جابه‌جایی این مواد، آمریکا واکنش نشان خواهد داد.
+ترامپ همچنین اعلام کرد گفتگوهای فنی برای خارج کردن تمامی ذخایر مواد غنی‌شده از ایران به‌زودی آغاز می‌شود و تاکید کرد این روند بدون تاخیر کلید خواهد خورد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 15176
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرنگار: آیا اکنون می‌توانید بگویید که آیا کسی را در دولت خود به خاطر حمله به مدرسه‌ای که در اولین روز جنگ بیش از ۱۰۰ کودک را کشت، مسئول می‌دانید؟
+
+پرزیدنت ترامپ:
+این سوال عجیبی است که در این تاریخ پرسیده می‌شود، چون شما درباره زمانی صحبت می‌کنید که مدت زیادی گذشته است، اما کسی این کار را عمداً انجام نداد.
+فکر می‌کنم باید درباره آن‌ها بگویید، چه می‌شود درباره هزاران سربازی که وقتی در ماشین خود را باز کردند منفجر شدند؟ چه می‌شود درباره هزاران نفری که توسط ایران کشته شدند؟
+اشتباهات رخ می‌دهد، جنگ زشت است، می‌دانم که تحت بررسی است. از پیت هگستث این سوال را می‌پرسم زیرا آن‌ها آن را تحت بررسی دارند.
+﻿@withyashar
+</div>
+
+## FoxNewsTwitter — post 343082
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343082_1781717081.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: President Trump says the strike on an Iranian school that reportedly killed over 100 children at the beginning of Operation Epic Fury wasn’t done on purpose and is being investigated by Secretary of War Pete Hegseth.
+
+“It's such a strange question to be asked at this state because you're talking about a long time ago, but nobody did that on purpose... Mistakes are made. War is nasty. But I know it's under investigation.”
+</div>
+
+## mamlekate — post 103729
+
+<div align="center">
+  <a href="telegram/content/mamlekate_103729_1781717083.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قالیباف میگه من مثل خامنه‌ای نیستم که جلوی شما بایستم بگم «این کار را بکنید، آن کار را نکنید»
+
+@mamlekate
+</div>
+
+## IranIntlTV — post 342891
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342891_1781717085.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جمشید برزگر، روزنامه‌نگار و تحلیل‌گر سیاسی، گفت: «اگر بر اساس اطلاعات و گزارش‌های منتشرشده تاکنون قضاوت کنیم، ارزیابی غالب این است که دست‌کم در کوتاه‌مدت جمهوری اسلامی از این تفاهم فرصت تنفس و بازسازی بیشتری به دست می‌آورد.»
+
+او افزود: «با این حال، قضاوت نهایی همچنان به جزییات توافق و نحوه اجرای آن بستگی خواهد داشت.»
+@iranintltv
+</div>
+
+## FarsiVOA — post 221041
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_221041_1781717087.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیویی از شوخی رییس جمهوری آمریکا در نشست گروه هفت در شبکه‌های اجتماعی پربازدید شده است. چهارشنبه، ۲۷ خرداد، دونالد ترامپ هنگام ورود به جلسه خطاب به دیگر رهبران حاضر در نشست گفت: «من رییس هستم.»
+
+نشست گروه هفت در اویان فرانسه با محور توافق اولیه آمریکا و جمهوری اسلامی، بازگشایی تنگه هرمز و جنگ اوکراین برگزار شد.
+</div>
+
+## Persian_Trend_Official — post 17382
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17382_1781717089.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرنگار: حالا می‌توانید بگویید که آیا کسی را در دولت خود به خاطر حمله به مدرسه‌ای که در روز اول جنگ بیش از صد کودک را کشت، پاسخگو خواهید دانست یا خیر؟
+
+ترامپ: اشتباهاتی رخ می‌دهد، جنگ زشت است، می‌دانم که در دست بررسی است.
+
+من این سوال را از پیت هگست می‌پرسیدم چون آنها این موضوع را در دست بررسی دارند.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17381
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17381_1781717092.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرنگار: چرا حالا برای شما قابل قبول است که آنها بخشی از توانایی موشکی خود را حفظ کنند؟
+
+ترامپ: آنها چه چیزی را حفظ می‌کنند؟ آنها اکنون کمتر از کشورهای دیگر توانایی موشکی دارند.
+
+ما احتمالاً 84 تا 85 درصد از موشک‌های آنها را از کار انداخته‌ایم، بقیه آنها زیرزمینی هستند، آنها حتی نمی‌توانند آنها را بیرون بیاورند.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17380
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17380_1781717094.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ در مورد ایران: اگر آنها پرچم سفید تسلیم را بالا می‌بردند و می‌گفتند الحمدلله، دونالد ترامپ بزرگترین رئیس جمهور تاریخ است، نیویورک تایمز و سی‌ان‌ان می‌گفتند ایران پیروزی بزرگی کسب کرد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17379
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17379_1781717096.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرنگار: یک مرد خردمند در ژانویه 2020 گفت: ایران هرگز در جنگی پیروز نشده، اما هرگز در مذاکره‌ای شکست نخورده است.
+
+ترامپ: چه کسی این را گفته؟
+
+خبرنگار: دونالد ترامپ.
+
+ترامپ: اوه، فکر می‌کردم همین را می‌خواهی بگویی.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Hranews — post 113687
+
+<div align="center">
+  <img src="telegram/content/Hranews_113687_1781717098.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+توسعه امنیتی‌سازی کنشگری در قانون جدید تشدید مجازات جاسوسی/ #سارا_قریشی
+
+
+📡
+📡
+📡
+📡
+📡 – ساعت ده شب است. از پنجره آپارتمانتان صدای شعارهایی را می‌شنوید. گوشی را برمی‌دارید، چند ثانیه فیلم می‌گیرید و برای یک کانال خبری خارج از کشور آن ویدئو را ارسال می‌کنید. فردای آن روز، با احضاریه‌ای مواجه می‌شوید که عنوانش نه «انتشار تصویر» یا «اخلال در نظم عمومی»، بلکه «همکاری با رسانه‌های معاند» یا «#جاسوسی» است.
+
+این سناریو دیگر فرضیِ محض نیست. با تصویب قانون تشدید مجازات جاسوسی و همکاری با رژیم صهیونیستی و کشورهای متخاصم علیه امنیت و منافع ملی، مرز میان ارسال یک فیلم خیابانی و «جاسوسی» به‌شدت کم‌رنگ شده است. این مقاله توضیح می‌دهد که این تغییر چگونه رخ داده، با چه اصولی در تعارض است و چه پیامدهایی در پی خواهد داشت.
+
+ادامه مطلب
+
+ادامه مطلب در وب‌سایت خط صلح
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## alonews — post 128758
+
+<div align="center">
+  <a href="telegram/content/alonews_128758_1781717098.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سازمان تجارت دریایی بریتانیا گزارش می‌دهد که یک کشتی در ۱۰۵ مایل دریایی شمال شرق عدن، یمن، امروز زودتر مورد حمله قرار گرفت پس از اینکه دو قایق کوچک حامل افراد مسلح تا فاصله چهار متری نزدیک شدند و آتش گشودند.
+
+
+🔴 تیم امنیتی کشتی پاسخ آتش داد، که باعث شد مهاجمان حمله را متوقف کرده و از منطقه عقب‌نشینی کنند. خدمه در امان هستند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128757
+
+<div align="center">
+  <a href="telegram/content/alonews_128757_1781717098.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / تسنیم :گزارش شده قایق‌های تندرو و کوچک ناشناس، یک کشتی عبوری را در فاصله ۱۰۵ مایل دریایی شمال شرق عدن هدف قرار دادند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128756
+
+<div align="center">
+  <a href="telegram/content/alonews_128756_1781717099.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈گزارشگر: آیا بخشی از این موضوع این است که معاون رئیس‌جمهور را می‌فرستید؟ اگر جواب داد، عالی است؛ شما به خاطر فرستادن او نابغه به نظر می‌رسید. و اگر جواب نداد، تقصیر معاون رئیس‌جمهور است.
+
+
+🔴ترامپ: این ایده را دوست دارم، حتماً. به این ترتیب، اگر جواب داد، من اعتبارش را می‌گیرم. اگر جواب نداد، تقصیر JD است. بهتر است مراقب باشی، JD. او هواپیمایش را برمی‌گرداند و از اینجا فرار می‌کند.
+
+
+🔴بله، این ایده را دوست دارم. فکر می‌کنم ایده خوبی است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/27 20:44
 ---
 

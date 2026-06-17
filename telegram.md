@@ -7,6 +7,76 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/28 02:23
+---
+
+## VahidOOnLine — post 246105
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246105_1781736833.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک مقام کاخ سفید به رویترز گفت: «ترامپ چهارشنبه یادداشت تفاهمی را که با هدف پایان دادن به جنگ با ایران تدوین شده است، امضا کرد.»
+خبرگزاری تسنیم، وابسته به سپاه، نیز به نقل از یک منبع نزدیک به تیم مذاکره‌کننده گزارش داد که متن فارسی این تفاهم‌نامه به عنوان یک سند رسمی به امضای دو طرف آمریکا و جمهوری اسلامی رسیده است.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## mwarmonitor — post 11094
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_11094_1781736834.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝در این قاب از ویدیو، شاهکار دیپلماسی ترامپ را می‌بینیم که با همان وقاحت همیشگی پشت تریبون اعلام می‌کند اگر کارها خوب پیش برود افتخارش برای اوست و اگر خراب شود، تقصیر جی‌دی ونس است! اما اوج کمدی سیاه این صحنه، قیافه مارکو روبیو در سمت راست است؛ مردی که انگار روح از بدنش خارج شده و با فکی منقبض و نگاهی خیره به افق، به مرز جنون رسیده است. چهره عصبانی و مستأصل او دقیقاً شبیه کسی است که متوجه شده در گروگان یک کله‌زرد روان‌پریش است، اما برای حفظ ظاهر مجبور است مثل یک مجسمه دکوری بایستد و سقوط آزاد کشورش را تماشا کند.
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 343095
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343095_1781736835.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+A dinner at Versailles just became the setting for a major diplomatic breakthrough.
+
+President Trump personally signed the Iran memorandum of understanding Wednesday while meeting with French President Emmanuel Macron, a White House official confirmed.
+
+The agreement, which Iranian President Masoud Pezeshkian also signed, is now in effect to end the war and cancels the formal signing ceremony that had been scheduled in Geneva.
+</div>
+
+## IranIntlTV — post 342935
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342935_1781736836.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک مقام کاخ سفید به رویترز گفت: «ترامپ چهارشنبه یادداشت تفاهمی را که با هدف پایان دادن به جنگ با ایران تدوین شده است، امضا کرد.»
+خبرگزاری تسنیم، وابسته به سپاه، نیز به نقل از یک منبع نزدیک به تیم مذاکره‌کننده گزارش داد که متن فارسی این تفاهم‌نامه به عنوان یک سند رسمی به امضای دو طرف آمریکا و جمهوری اسلامی رسیده است.
+
+https://iranintl.com/202606174397
+</div>
+
+## IranIntlTV — post 342934
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342934_1781736836.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بر اساس بند پنجم تفاهم‌نامه جمهوری اسلامی و آمریکا، ایران متعهد شده است عبور ایمن کشتی‌های تجاری را بدون دریافت هیچ هزینه‌ای و فقط برای مدت ۶۰ روز از خلیج فارس به دریای عمان و بالعکس فراهم کند.
+
+پس از این دوره، ایران و عمان با مشورت سایر کشورهای حاشیه خلیج فارس درباره مدیریت آینده و خدمات دریایی تنگه هرمز گفت‌وگو خواهند کرد.
+
+گفت‌وگو با رضا گوهرزاد، روزنامه‌نگار و تحلیل‌گر سیاسی، و شهرام خلدی، پژوهشگر تاریخ خاورمیانه و روابط بین‌الملل
+@iranintltv
+</div>
+
+---
 📅 بروزرسانی: 1405/03/28 02:14
 ---
 

@@ -7,6 +7,47 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/27 06:03
+---
+
+## FoxNewsTwitter — post 343049
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343049_1781663589.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"Honestly Greg, I expected them to be absolutely vicious, and they were only a little bit vicious."
+
+VP JD Vance is looking back on his recent appearance on The View and says it went better than he expected.
+
+While appearing on Gutfeldfox, Vance joked that "it wasn't as bad as I thought it was gonna be" despite sparring with the show's co-hosts over immigration, race, and his past "childless cat ladies" comments.
+
+He even revealed what happened once the cameras stopped rolling: "Joy Behar even said during the break, not joking, she said, 'You know what, you're pretty good for a Republican.'"
+</div>
+
+## FarsiVOA — post 220983
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220983_1781663591.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️نمایشگاه سئول فود ۲۰۲۶ با حضور بیش از ۱۸۰۰ شرکت از ۴۹ کشور برگزار شد. آمریکا به‌عنوان مهمان ویژه، همزمان با ۲۵۰ سالگی استقلال خود، محصولات غذایی و کشاورزی‌اش را به نمایش گذاشت؛ رویدادی برای نمایش تنوع، نوآوری و همکاری‌های بین‌المللی.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220982
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220982_1781663592.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️قیمت نفت خام روز سه‌شنبه بیش از ۵ درصد کاهش یافت؛ به این ترتیب کاهش قیمت‌ نفت در این هفته ادامه یافت. کاهش قیمت نفت با ادامه خوش‌بینی‌ها در مورد توافق اولیه آمریکا و جمهوری اسلامی صورت می‌گیرد. این توافق اولیه مسیر مذاکرات دشوارتر برای رسیدن به یک توافق هسته‌ای را فراهم می‌کند. رویترز گزارش داد که قیمت نفت خام برنت ۴ دلار و ۲۱ سنت (۵.۱ درصد) کاهش یافت و به قیمت ۷۸ دلار و ۹۶ سنت رسید. دونالد ترامپ، رئیس‌جمهوری آمریکا پیشتر وعده داده بود که با رسیدن به یک توافق، قیمت‌ها به سرعت پایین می‌آید.
+@FarsiVOA
+</div>
+
+---
 📅 بروزرسانی: 1405/03/27 05:52
 ---
 

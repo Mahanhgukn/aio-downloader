@@ -7,6 +7,398 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/27 20:36
+---
+
+## VahidOOnLine — post 246066
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_246066_1781716016.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ ترامپ با انتقاد شدید از محافظه‌کاران تندرو در آمریکا که خواهان تداوم جنگ هستند، گفت: «این مدعیان سرسخت متوجه نیستند که این توافق، نتیجه یک کار سه‌ماهه نیست؛ بلکه حاصل سال‌ها زمینه‌سازی است. اگر من سرلشکر [قاسم] سلیمانی را نکشته بودم، احتمالا الآن اصلا صحبت از این توافق نبود؛ چرا که او یک «نابغه دیوانه» بود و آن‌ها هرگز نتوانستند جایگزینی برایش پیدا کنند.»
+
+رئیس‌جمهوری آمریکا با کنایه به رویکرد جنگ‌طلبانه مخالفان توافق صلح افزود: «خیلی از مردم این موضوع را فراموش می‌کنند؛ همین تندروهایی که با تصمیماتشان کشور را درست به ته دره سقوط می‌دهند.» او تاکید کرد که تضعیف ساختار فرماندهی و نظامی ایران در سال‌های گذشته، مسیر را برای توافق مفصل و محکم فعلی هموار کرده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 15173
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ : به آنها می‌گویم: شما احتمالاً سومین ذخایر بزرگ نفت در جهان را دارید، به چه دلیل به سلاح هسته‌ای نیاز دارید؟
+@withyashar
+</div>
+
+## mwarmonitor — post 11077
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ درباره اینکه اسرائیل از توافق در حال شکل‌گیری چه به‌دست می‌آورد، گفت: «آن‌ها دچار بمب هسته‌ای در قلب اسرائیل نخواهند شد.»
+
+🔸او افزود که به نتانیاهو گفته است: «به این فکر کن — تو مهم‌ترین چیزی را که درخواست کرده بودی به دست آوردی»، و گفت این توافق «از یک هولوکاست هسته‌ای جلوگیری کرد.»
+
+📝دنیا به کام دونالد است؛ نابغه‌ای که با یک سناریوی دست‌چندم هالیوودی، «هیچِ مطلق» را بسته‌بندی کرد و به قیمت چند میلیارد دلار به ریش نتانیاهو و مالیات‌دهندگان نگون‌بخت آمریکایی بست تا مثلاً جلوی یک «هولوکاست هسته‌ای» خیالی را بگیرد. طفلکی بی‌بی که برای حفظ ظاهر باید این چرندیات را بشنود، لبخند بزند و دم برنیاورد؛ آن‌هم توافقی که در آن ترامپ ادعا می‌کند بمب هسته‌ایِ نداشته را از قلب اسرائیل بیرون کشیده است! خلاصه کله‌زرد قصه ما روی دست مهدی بلیغ بلند شد؛ کاخ دادگستری پیشکشش، او توهمِ سلاح هسته‌ای را چنان به واقعیت فاکتور کرد که خودِ جمهوری اسلامی هم باورش شد بمب داشته و تازه بعد از بمباران فهمید داستان چه بوده است.
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 343080
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343080_1781716018.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH LIVE: VP Vance outlines admin's crackdown on crime and fraud https://twitter.com/i/broadcasts/1pKdRRraXzVJW
+</div>
+
+## FoxNewsTwitter — post 343079
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343079_1781716019.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+JUST IN: President Trump tells @pdoocy that Iran’s economic relief and rebuilding investments are strictly contingent on good behavior, noting the massive path ahead to recover from recent strikes.
+
+"We're not putting up money. Only if they're doing things right... Remember this also when you talk about billions of dollars, they've had much more than $1 trillion worth of damage done.”
+
+“They got a long way. They'll be 15 to 20 years to rebuild what they have right now. So, they have to behave themselves. If they're not behaving, they get hit again."
+</div>
+
+## pm_afshaa — post 94283
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94283_1781716036.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: رهبرهای جدید ایران آدم‌های خیلی باهوشی هستن؛ به اندازه قبلی‌ها تندرو و افراطی نیستن و فکر میکنم واقعا کشورشون رو دوست دارن و آدم‌ های خوبی هستن!
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94282
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94282_1781716037.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: موضوع آزاد کردن پول‌ها پاسخ دادنش ساده‌ست. ما مقدار زیادی از پول خودشون رو گرفتیم. وقتی پول مال ما نیست، پولِ خودِ آنهاست، و ما در یک مقطع زمانی مسدودش کردیم، فکر میکنم ناچاریم اونو پس بدیم، می‌دونید؟ اگر پس ندیم، دیگر هیچکس هرگز روی دلار سرمایه‌گذاری نخواهد کرد!
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DW_Farsi — post 126114
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_126114_1781716037.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 عون: مسیر مذاکرات لبنان با اسرائیل مستقل از توافق آمریکا و ایران است
+
+جوزف عون، رئیس‌جمهوری لبنان، روز چهارشنبه ۱۷ ژوئن (۲۷ خرداد) اعلام کرد مسیر مذاکرات کشورش با اسرائیل در واشنگتن مستقل از توافق آمریکا و ایران برای پایان دادن به درگیری‌های خاورمیانه است.
+
+او گفت تضمین‌هایی که لبنان دریافت کرده و بر آن اصرار دارد، این است که مسیر لبنان در مذاکرات مستقل بماند، هرچند بیروت از آتش‌بس و از هر کشوری که به آن کمک کند، از جمله ایران، حمایت می‌کند.
+
+عون، بنا بر بیانیه دفترش، گفت دخالت در امور لبنان مجاز نیست.
+
+او همچنین تاکید کرد دولت لبنان در تصمیم‌گیری‌های خود مستقل است و برای نخستین بار این خود لبنان است که مذاکرات را پیش می‌برد و هیچ‌کس به جای آن مذاکره نمی‌کند.
+
+رئیس‌جمهوری لبنان ابراز امیدواری کرد دور پنجم مذاکرات که هفته آینده برگزار می‌شود، مثبت‌تر باشد؛ به‌ویژه با توجه به آنچه علاقه زیاد دولت آمریکا به لبنان خواند.
+
+او گفت به مردم لبنان اطمینان می‌دهد که هیچ‌کس این کشور را به کشور دیگری گره نزده و هرگونه راه‌حل نیز از مسیر خود لبنان خواهد گذشت، نه به بهای آن.
+@dw_farsi
+</div>
+
+## RadioFarda — post 158438
+
+<div align="center">
+  <a href="https://t.me/radiofarda/158438" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📻بشنوید: ایستگاه ۱۹ با رادیوفردا، ۲۷ خرداد ۱۴۰۵
+
+@RadioFarda
+</div>
+
+## RadioFarda — post 158437
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸دونالد ترامپ روز چهارشنبه ۲۷ خرداد در یک کنفرانس خبری در پایان نشست رهبران گروه ۷ با دفاع از توافق پایان جنگ با ایران گفت که نمی‌توان به تهران گفت موشک نداشته باشد. 🔸او گفت: «ما در کنار این توافق، با کشورهای حوزه خلیج فارس روی یک مسیر موازی نیز کار خواهیم…
+</div>
+
+## IranianMinds — post 22815
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ :
+
+افغانستان داره خایمالیمونو میکنه.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22814
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22814_1781716038.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 خبرنگار : آیا حالا می‌تونید بگید که آیا کسی از دولتتون رو به خاطر حمله به یک مدرسه که در روز اول جنگ بیش از صد کودک رو کشت، پاسخگو می‌کنید؟
+
+ترامپ: در جنگ اشتباهات رخ میده، جنگ زشته و کثیفه. می‌دونم که داره بررسی می‌شه.
+
+این سؤال رو از پیت هگزت بپرسید، چون اونا دارن بررسی می‌کنن.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22813
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22813_1781716040.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 خبرنگار: چرا حالا براتون قابل قبوله که ایران هنوز بخشی از توان موشکی‌ش رو نگه داشته؟
+
+ترامپ: چی رو نگه داشتن؟ الان موشک‌هاشون خیلی کمتر از کشورهای دیگه شده.
+
+ما احتمالاً ۸۴-۸۵ درصد موشک‌هاشون رو زدیم و نابود کردیم. بقیه‌شون هم زیر زمینن و حتی نمی‌تونن بیرون بیارنشون.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22812
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ خطاب به جمهوری اسلامی :
+
+بهشون می‌گم: شما احتمالاً سومین ذخایر نفتی بزرگ دنیا رو دارید، اصلاً چرا به هسته‌ای نیاز دارید؟
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22811
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22811_1781716042.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ درباره ایران:
+
+آیا می‌خواید اجازه بدید ۹۱ میلیون نفر از گرسنگی بمیرن؟
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22810
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22810_1781716044.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ درباره پول های بلوکه شده ایران:
+
+خب، موضوع آزاد کردن پول‌ها جوابش ساده‌ست.
+
+ما کلی از پولشون رو گرفتیم، پول خودشون رو ازشون گرفتیم.
+
+وقتی پول مال ما نیست، مال اونهاست و ما در یه مقطعی اون رو فریز کردیم.
+
+فکر کنم مجبوریم برگردونیمش، مگه نه؟
+
+اگر برنگردونیم، دیگه هیچ‌کس تو دنیا دلار سرمایه‌گذاری نمی‌کنه.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22808
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22808_1781716046.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ درباره ایران:
+
+اگر اونا پرچم سفید تسلیم رو بالا می‌بردن و می‌گفتن: الحمدلله، دونالد ترامپ بزرگ‌ترین رئیس‌جمهور تاریخه، نیویورک تایمز و سی‌ان‌ان می‌گفتن: ایران پیروزی بزرگی کسب کرد.
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 392408
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392408_1781716048.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دو سال پیش محرم، این یه عکس ساده و نرمال بود 😌
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392406
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گاهی فاصلهٔ میان قهرمان و بی‌شرف،
+فقط به اندازهٔ جهتِ یک دست است.
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 128750
+
+<div align="center">
+  <a href="telegram/content/alonews_128750_1781716048.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ درباره ایران: به آنها می‌گویم: شما احتمالاً سومین ذخایر بزرگ نفت در جهان را دارید، به چه دلیل به سلاح هسته‌ای نیاز دارید؟
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128749
+
+<div align="center">
+  <a href="telegram/content/alonews_128749_1781716050.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ درباره ایران: آیا اجازه می‌دهید ۹۱ میلیون نفر از گرسنگی بمیرند؟
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128748
+
+<div align="center">
+  <a href="telegram/content/alonews_128748_1781716050.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈گزارشگر: چرا اکنون برای شما قابل قبول است که آنها بخشی از توان موشکی خود را حفظ کنند؟
+
+
+🔴ترامپ: آنها چه چیزی را حفظ می‌کنند؟ آنها اکنون کمتر از سایر کشورها دارند.
+
+
+🔴ما احتمالاً ۸۴-۸۵٪ از موشک‌هایشان را از کار انداختیم؛ بقیه زیر زمین هستند؛ حتی نمی‌توانند آنها را بیرون بیاورند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128747
+
+<div align="center">
+  <a href="telegram/content/alonews_128747_1781716051.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ درباره ایران: اگر آنها پرچم سفید تسلیم را بالا ببرند و بگویند، «سپاس خداوند را، دونالد ترامپ بزرگ‌ترین رئیس‌جمهور تاریخ است؛ ما کاملاً تسلیم می‌شویم؛ کاملاً دست می‌کشیم؛ این جنگ تمام شده است؛ ما شکست خورده‌ایم»، نیویورک تایمز و سی‌ان‌ان و چند رسانه دیگر خواهند گفت، «ایران پیروزی بزرگی کسب کرده است.»
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128746
+
+<div align="center">
+  <a href="telegram/content/alonews_128746_1781716053.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ : ما یه میلیارد دلار بمب روی ایران ریختیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128745
+
+<div align="center">
+  <a href="telegram/content/alonews_128745_1781716053.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: حادثه مربوط به حمله به مدرسه میناب در ایران هنوز در دست بررسی است و اشتباهات در جنگ اتفاق می‌افتد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128744
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پیتر دوسی از فاکس نیوز: مرد خردمندی یک بار در ژانویه ۲۰۲۰ گفت: «ایران هرگز در جنگی پیروز نشده، اما هرگز در مذاکره‌ای شکست نخورده است.»
+
+
+🔴پرزيدنت ترامپ: کی این رو گفته؟
+
+
+🔴پیتر دوسی از فاکس نیوز: دونالد ترامپ.
+
+
+🔴 پرزيدنت ترامپ: آها، فکر می‌کردم می‌خواهی همین را بگویی
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128743
+
+<div align="center">
+  <a href="telegram/content/alonews_128743_1781716088.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ درباره خنثی بودن متحدان جمهوری اسلامی ایران: می‌خواهم از چین، رئیس‌جمهور شی، تشکر کنم، با او بودم و او خنثی ماند، کاملاً خنثی، و من از آن قدردانی می‌کنم.
+
+
+🔴و می‌خواهم از ولادیمیر پوتین تشکر کنم، او بسیار خنثی بود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128742
+
+<div align="center">
+  <a href="telegram/content/alonews_128742_1781716090.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: حمله اخیر اسرائیل به بیروت خشونت‌آمیز و غیرضروری بود
+
+
+🔴محاصره دریایی ایران از بمباران مؤثرتر بود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+
+---
+### ⚠️ کانال‌های با خطا در این بروزرسانی
+
+* Persian_Trend_Official
+* BBCPersian
+
+دلایل احتمالی: مسدود بودن کانال، حذف کانال، یا خطای شبکه.
+---
+
+---
 📅 بروزرسانی: 1405/03/27 20:24
 ---
 
@@ -327,8 +719,6 @@ https://bbc.in/4vYUdxa
 
 ✅ @AloNews خبر جنگ
 </div>
-
-
 <!-- MSG END -->
 
 <!-- NAV START -->

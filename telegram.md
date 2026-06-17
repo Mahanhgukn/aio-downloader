@@ -7,6 +7,86 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/28 01:44
+---
+
+## VahidOOnLine — post 246100
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246100_1781734450.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسماعیل بقایی، سخنگوی وزارت خارجه جمهوری اسلامی، گفت: «احتمالا اکنون متن تفاهم‌نامه اسلام آباد به امضای روسای جمهور ایران و آمریکا رسیده باشد. متن این تفاهم‌نامه الان رسما نهایی شده است، چرا که دو طرف آن را امضا کرده‌اند. این تفاهم‌نامه قرار شد که به صورت دیجیتال امضا شود.»
+او افزود: وقتی تفاهم‌نامه به امضای روسای جمهوری دو کشور برسد نقض آن هزینه بیشتری خواهد داشت.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 15201
+
+
+
+
+## WithYashar — post 15200
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کاخ سفید: ترامپ تفاهم‌نامه با ایران را امضا کرد
+@withyashar
+</div>
+
+## pm_afshaa — post 94309
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94309_1781734451.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رویترز: یک مقام کاخ سفید تأیید کرد که ترامپ یادداشت تفاهم با جمهوری اسلامی رو امضا کرده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## kianmeli1 — post 88058
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_88058_1781734451.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وضعیت نتانیاهو
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 88057
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وزارت امور خارجه ایران اعلام کرد که لغو تحریم‌های نفتی ایران از امروز آغاز می‌شود.
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 342928
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342928_1781734452.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻تیم ملی فوتبال انگلیس در نخستین دیدار خود در گروه L جام جهانی ۲۰۲۶، کرواسی را در ورزشگاه شهر دالاس آمریکا با نتیجه ۴ بر ۲ شکست داد.
+
+🔹گل‌های انگلیس را هری کین در دقایق ۱۱ (پنالتی) و ۴۱، جود بلینگام در دقیقه ۴۷ و مارکوس رشفورد در دقیقه ۸۵ به ثمر رساندند.
+
+🔹گل‌های کرواسی نیز توسط مارتین باتورینا در دقیقه ۳۶ و پتر موسا در دقیقه ۵+۴۵ به ثمر رسید.
+
+🔹هری کین تاکنون در جام‌های جهانی پنج گل از روی نقطه پنالتی (بدون احتساب ضربات پنالتی پایان بازی) به ثمر رسانده است. او اکنون رکورددار گلزنی از روی نقطه پنالتی در تاریخ جام جهانی است.
+
+@iranintltvsport
+</div>
+
+---
 📅 بروزرسانی: 1405/03/28 01:34
 ---
 

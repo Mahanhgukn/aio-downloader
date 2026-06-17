@@ -7,6 +7,231 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/28 02:43
+---
+
+## VahidOOnLine — post 246108
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246108_1781738039.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چند مقام ارشد دولت آمریکا در یک نشست توجیهی با خبرنگاران تاکید کردند که هیچ‌یک از امتیازهای اقتصادی پیش‌بینی‌شده در یادداشت تفاهم تهران و واشینگتن بدون اجرای تعهدات حکومت ایران عملی نخواهد شد و همه مراحل به صورت تدریجی، قابل راستی‌آزمایی و مشروط به رفتار تهران خواهد بود.
+این مقام‌های آمریکایی درباره بند نخست تفاهم‌نامه درباره پایان فوری و دائمی عملیات نظامی در همه جبهه‌ها از جمله لبنان، گفتند این بند هیچ تعهد تازه‌ای برای واشینگتن ایجاد نمی‌کند، بلکه چارچوبی طراحی شده است که هرگونه گشایش اقتصادی در آینده تنها در صورتی اتفاق بیفتد که حکومت ایران به تعهدات خود عمل کند.
+این مقامات درباره بند سوم در ارتباط با ضرب‌الاجل ۶۰ روزه برای توافق نهایی، تاکید کردند که تفاهم‌نامه، خود توافق نهایی نیست و هر یک از طرفین تا زمان دستیابی به توافق جامع می‌توانند از مذاکرات خارج شوند.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246107
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_246107_1781738039.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️اسماعیل بقایی، سخنگوی وزارت امور خارجه جمهوری اسلامی، بامداد پنجشنبه ۲۸ خردادماه گفت گزینه رقیق‌سازی مواد غنی‌شده در داخل ایران از ابتدای مذاکرات هسته‌ای مطرح بوده و موضوع تازه‌ای نیست. او افزود این گزینه برای جلوگیری از طرح پیشنهادهایی مانند انتقال مواد غنی‌شده به خارج از ایران مطرح شده است و تاکید کرد: «انتقال مواد غنی‌شده به خارج از ایران برای ما قابل قبول نیست.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 15204
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مذاکرات جمعه ایران و آمریکا در سوئیس الان قطعی نیست
+
+بقایی، سخنگوی وزارت خارجه:
+جلسه جمعه تا چند ساعت قبل قطعی بود ولی وقتی قرار شد روسای جمهور دو طرف (ایران و آمریکا) تفاهمنامه را امضا کنند، قرار شد درباره جلسه جمعه فعلاً تامل شود.
+@withyashar
+</div>
+
+## mwarmonitor — post 11095
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_11095_1781738040.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 هنر والای «ربط دادن گوز به شقیقه» دقیقاً از همین‌جا شکل می‌گیرد؛ جایی که ممدباقر طرقبه‌چی با استشمام بوی شیرین دلار، حتی اگر کل هیمنه و رهبران مقاومت هم روی هوا بروند، با وقاحت تمام ایستاده و برای حفظ صندلی‌اش معامله می‌کند. او در این مصاحبه خفت‌بار ، با یک پاس‌کاری فلسفی-انتحاری، پرونده «انتقام سخت» را رسماً بست و صورت‌حساب خون موشعلی را حواله داد به امام زمان تا خودش بیاید و حساب کند! منطقِ مملی این است که کشتن صد تا نتانیاهو هم به اندازه بند کفش رهبرشان ارزش ندارد و اصلاً اگر شمر را همان موقع می‌کشتند مگر انتقام امام حسین گرفته می‌شد!!! اینجاست که مجری فلک‌زده با چشم‌های از حدقه درآمده، دو سکته ناقص را رد می‌کند و غرق در این شاهکارِ ماست‌مالی می‌شود. بی‌غیرتی ممدباقر در ترانسفر کردنِ وظیفه جنگیدن به دوش مقدسات، اوج رذالت است که نشان می‌دهد این جماعت چطور خون می‌فروشند و به ریش عالم و آدم می‌خندند.
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 343097
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343097_1781738042.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+The American flag is flying over a new political divide.
+
+Just 27% of Democrats say they'll display a U.S. flag this July 4, according to a new poll, compared with 64% among Republicans.
+
+The survey also found major differences in how Americans view the holiday itself. Nearly two-thirds of Republicans (65%) said July 4 is "a day where I celebrate the United States of America," while only 24% of Democrats agreed.
+
+What was once one of the country's most universal symbols is increasingly being viewed through a partisan lens as Americans prepare to celebrate Independence Day.
+</div>
+
+## FoxNewsTwitter — post 343096
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343096_1781738042.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH LIVE: Trump arrives in Paris ahead of meetings with French President Macron https://twitter.com/i/broadcasts/1XGyggyZZEgxM
+</div>
+
+## IranIntlTV — post 342939
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342939_1781738043.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چند مقام ارشد دولت آمریکا در یک نشست توجیهی با خبرنگاران تاکید کردند که هیچ‌یک از امتیازهای اقتصادی پیش‌بینی‌شده در یادداشت تفاهم تهران و واشینگتن بدون اجرای تعهدات حکومت ایران عملی نخواهد شد و همه مراحل به صورت تدریجی، قابل راستی‌آزمایی و مشروط به رفتار تهران خواهد بود.
+این مقام‌های آمریکایی درباره بند نخست تفاهم‌نامه درباره پایان فوری و دائمی عملیات نظامی در همه جبهه‌ها از جمله لبنان، گفتند این بند هیچ تعهد تازه‌ای برای واشینگتن ایجاد نمی‌کند، بلکه چارچوبی طراحی شده است که هرگونه گشایش اقتصادی در آینده تنها در صورتی اتفاق بیفتد که حکومت ایران به تعهدات خود عمل کند.
+این مقامات درباره بند سوم در ارتباط با ضرب‌الاجل ۶۰ روزه برای توافق نهایی، تاکید کردند که تفاهم‌نامه، خود توافق نهایی نیست و هر یک از طرفین تا زمان دستیابی به توافق جامع می‌توانند از مذاکرات خارج شوند.
+
+https://iranintl.com/202606171881
+</div>
+
+## IranIntlTV — post 342938
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342938_1781738043.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در بندهای ۷ و ۸ تفاهم‌نامه آمریکا و جمهوری اسلامی تاکید شده است که ایران متعهد شده به دنبال غنی‌سازی نرود. یک مقام ارشد آمریکایی این بند را «پیروزی بزرگ» آمریکا توصیف کرده و گفته ایران پذیرفته است ذخایر اورانیوم خود را نابود کند و لغو تحریم‌ها نیز مستقیماً به حل‌وفصل موضوع هسته‌ای گره خورده است.
+در یکی دیگر از بندهای این تفاهم‌نامه نیز به پایان درگیری‌ها در همه جبهه‌ها، از جمله لبنان، اشاره شده است.
+
+گفت‌وگو با آرام حسامی، استاد علوم سیاسی، و جمشید برزگر، روزنامه‌نگار و تحلیل‌گر سیاسی
+@iranintltv
+</div>
+
+## FarsiVOA — post 221062
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️نگاهی به مفاد تفاهمنامه بین دولت پرزیدنت ترامپ و جمهوری اسلامی ایران
+@FarsiVOA
+</div>
+
+## Dirty_Kids — post 392452
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ جام جهانی شروع شده و میدون مال توئه! 
+🌟 این #جام_جهانی رو فقط باید توی #بت فیدو پیش‌بینی کنی 
+💰 با ۵۰ میلیون تومان شرط روزانه ← ۴ میلیون تومان اعتبار شرط‌بندی رایگان 
+📊 با ۱۰۰ میلیون تومان شرط روزانه ← ۸ میلیون تومان اعتبار شرط‌بندی رایگان 
+💸 هرچی بزرگ‌تر…
+</div>
+
+## Dirty_Kids — post 392451
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392451_1781738045.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ جام جهانی شروع شده و میدون مال توئه!
+
+
+🌟 این #جام_جهانی رو فقط باید توی #بت فیدو پیش‌بینی کنی
+
+
+💰 با ۵۰ میلیون تومان شرط روزانه ← ۴ میلیون تومان اعتبار شرط‌بندی رایگان
+
+📊 با ۱۰۰ میلیون تومان شرط روزانه ← ۸ میلیون تومان اعتبار شرط‌بندی رایگان
+
+
+💸 هرچی بزرگ‌تر بازی کنی، جایزت بزرگ‌تره!
+
+🥅همین حالا پیش بینیتو ثبت کن
+💖
+https://fido874vt.click
+https://fido874vt.click
+
+👆
+👆
+👆
+👆
+👆
+(ورود با وی-پی-ان غیر اروپایی)
+❌
+A27
+
+📲کانال تلگرام 
+👇
+https://t.me/+dySI_QFj0T0xZGVk
+</div>
+
+## Dirty_Kids — post 392450
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392450_1781738045.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#بخوابیم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392447
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اگه فوتبال نمیبینی شاید وقتش رسیده پیگیری کنی...
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392446
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392446_1781738046.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+زنده یاد مانوکیان خدا بخشیان ...
+
+یک السیس ایرانی وارد بازی میشه کودتا میکنه و بعد
+به فروپاشی نظام کمک میکنه و بعد قدرت انقالی رو
+به یک شخص دیگ واگذار میکنه ... )
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392445
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لاریجانی بی خود ترور نشد
+با وجود لاریجانی قالیباف نمیتونست اینجور وسط معرکه بیاد،در واقع لاریجانی به نظر گروه دوم از حاکمان بود که ترامپ گفت چون باما راه نیومدن کشته شدن و حالا با گروه سوم یعنی قالیباف سروکار داریم.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392444
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کسانی که فرزندان ایران کشتند مولایشان حسین بود، کصمادر هر کسی که در این روزها برای حسین عزاداری می‌کند
+
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/03/28 02:34
 ---
 

@@ -7,6 +7,168 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/27 23:34
+---
+
+## VahidOOnLine — post 246088
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246088_1781726641.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمدباقر قالیباف، رییس مجلس در شبکه خبر صداوسیما گفت: «نیروهای مسلح ما نیاز به بازسازی و توجه ویژه دارند.»
+
+او ادامه داد: «شغل من مذاکره نیست، من رزمنده‌ام و با رزمندگی دیپلماسی را دنبال می‌کنم. من بی‌اعتمادترین فرد به آمریکا هستم، به جی‌دی ونس هم گفتم که کمترین اعتمادی به شما ندارم.»
+
+او افزود: «اگر مذاکره نبود، به هدفمان نمی‌رسیدیم، هر آنچه را که می‌خواستیم با اقدام نظامی به دست بیاوریم، چندین برابر آن را که اصلا قابل قیاس نیست، از طریق مذاکره به دست آوردیم.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 15193
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+@withyashar Reeee
+</div>
+
+## WithYashar — post 15191
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مجری شبکه خبر : چرا ایران در روز آخر مذاکره حمله به اسرائیل را متوقف کرد؟
+
+قالیباف: ما هر آنچه که می‌خواستیم با حمله بگیریم را چندین برابرش را با مذاکره گرفتیم. ساعت ۲ صبح ترامپ آتش‌بس را در کل لبنان داد و با آن ادبیات با نتانیاهو صحبت کرد.
+
+قرار بود آمریکا محاصره را ظرف ۳۰ روز بردارد اما ترامپ گفت همین امشب محاصره را برمی‌داریم
+@withyashar
+</div>
+
+## IranIntlTV — post 342921
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342921_1781726642.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمدباقر قالیباف، رییس مجلس در شبکه خبر صداوسیما گفت: «نیروهای مسلح ما نیاز به بازسازی و توجه ویژه دارند.»
+
+او ادامه داد: «شغل من مذاکره نیست، من رزمنده‌ام و با رزمندگی دیپلماسی را دنبال می‌کنم. من بی‌اعتمادترین فرد به آمریکا هستم، به جی‌دی ونس هم گفتم که کمترین اعتمادی به شما ندارم.»
+
+او افزود: «اگر مذاکره نبود، به هدفمان نمی‌رسیدیم، هر آنچه را که می‌خواستیم با اقدام نظامی به دست بیاوریم، چندین برابر آن را که اصلا قابل قیاس نیست، از طریق مذاکره به دست آوردیم.»
+https://iranintl.com/202606172843
+</div>
+
+## Persian_Trend_Official — post 17399
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قالیباف، رئیس تیم مذاکره‌کننده ایرانی: لبنان بخشی از جبهه مقاومت است. در تفاهم‌نامه نیز ایران پشتیبان جبهه مقاومت و آمریکا حامی و متحد رژیم صهیونیستی است.
+
+زمانی که رژیم صهیونیستی ضاحیه را هدف قرار داد، ما آمریکا را تهدید کردیم و اولتیماتوم دادیم که باید خواسته‌های ما پذیرفته شود؛ در غیر این صورت واکنش نشان خواهیم داد. ترامپ ناچار شد توئیت بزند و به نتانیاهو بگوید که باید آتش را متوقف کند و دیگر حق ندارد ضاحیه را هدف قرار دهد.
+
+روز یکشنبه در حال مذاکره با میانجی‌ها بودیم که حادثه ضاحیه رخ داد. همان‌جا، در میانه مذاکرات، بلافاصله توئیت زدم که حتماً به حمله به ضاحیه پاسخ خواهیم داد. پس از آن، فضای مذاکرات به‌طور کامل تغییر کرد. ما صریحاً اعلام کردیم که تحت هر شرایطی پاسخ خواهیم داد. دوستان ما در میدان نیز آماده بودند و فرمان لازم را در اختیار داشتند.
+
+آن‌ها گفتند پاسخ ندهید، اما ما گفتیم حتماً پاسخ خواهیم داد و اگر واکنشی نشان دهید، دامنه پاسخ را گسترش خواهیم داد. این همان فرهنگ مذاکره به‌عنوان یک روش مبارزه است.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## BBCPersian — post 284180
+
+<div align="center">
+  <a href="https://t.me/bbcpersian/284180" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پادکست برنامه ۶۰ دقیقه چهارشنبه ۲۷ خرداد ۱۴۰۵
+
+این نسخه رادیویی برنامه شصت دقیقه تلویزیون فارسی بی‌بی‌سی است که هرشب بعد از پخش، با حجم کم از اپلیکیشن‌های پادگیر و صفحه تلگرام بی‌بی‌سی فارسی در دسترس است.
+
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 392429
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392429_1781726643.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قالیباف:
+اگه مذاکره نمی‌کردیم، به هدف هامون نمی‌رسیدیم.
+
+ما از راه مذاکره چندین برابر بیشتر از چیزی که می خواستیم با عملیات نظامی به دست بیاریم، نتیجه گرفتیم؛ اون قدر بیشتر که اصلاً قابل مقایسه نیستن!
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392428
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392428_1781726644.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+باور کنید شاه برگشته به ما نمیگن
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392427
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392427_1781726645.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این ویدیو از یه پسر بچه ایرانی قبل و بعد از خوردن شیر، بالای ۱۰ میلیون بازدید داشته😂
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 128781
+
+<div align="center">
+  <a href="telegram/content/alonews_128781_1781726647.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈قالیباف: بدبینی و بی اعتمادی من به آمریکا از همه بیشتر است، حتی اگر توافق نهایی باشد و آن به تایید قطعنامه شورای امنیت برسد بازهم اصلا قابل اعتماد نیست، تضمین ما قدرت ایران است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128780
+
+<div align="center">
+  <a href="telegram/content/alonews_128780_1781726647.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈قالیباف: در مذاکرات به ونس گفتم ما کاملا به شما بی اعتمادیم
+
+
+🔴بند ۱۴ تفاهم نامه این است که باید به تصویب شورای امنیت برسد و تبدیل به قطعنامه شود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128779
+
+<div align="center">
+  <a href="telegram/content/alonews_128779_1781726647.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈قالیباف: رئیس مجلس لبنان به من می‌گفت ایران مایهٔ افتخار جهان اسلام شده است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/27 23:23
 ---
 

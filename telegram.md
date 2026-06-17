@@ -7,6 +7,85 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/27 22:14
+---
+
+## VahidOOnLine — post 246079
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246079_1781721871.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمدباقر قالیباف در نشست همفکری نماینده ویژه در امور چین با اتاق بازرگانی ایران گفت: «تحریم کاغذپاره نیست، اما اگر معنایش این باشد که برای رفع تحریم‌ها باید تسلیم شویم، هرگز.»
+
+او ادامه داد: «ما رشد اقتصادی صنعت را در ابتدای دهه ۸۰ دیده‌ایم و امروز، با وجود همه زحماتی که کشیده‌شده، شاهد رشد منفیِ نیم هستیم.»
+
+رییس مجلس در همین نشست گفته بود: «باید سنگر را از بچه‌های لانچر تحویل بگیریم، مردم را از زیر فشار اقتصادی دربیاوریم و کشور را بسازیم.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 15182
+
+<div align="center">
+  <img src="telegram/content/WithYashar_15182_1781721872.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سناتور لیندسی گراهام: به نظر من امضای این تفاهم‌نامه به نفع آمریکا خواهد بود، چون تنگه هرمز شروع به بازگشایی میکنه و درگیری‌ها با ایران متوقف میشه.
+
+اینکه آیا آمریکا میتونه با ایران بر سر برنامه هسته‌ای و سایر مسائل به توافقی قابل قبول و قابل راستی‌آزمایی برسه یا نه، هنوز مشخص نیست، اما من تلاش برای رسیدن به چنین توافقی رو کم‌هزینه می‌بینم.
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 343087
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343087_1781721872.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH LIVE: Fed Chair Warsh holds press conference after announcing decision on interest rates https://twitter.com/i/broadcasts/1pJdRRreZovKW
+</div>
+
+## IranIntlTV — post 342903
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342903_1781721873.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+۲۴ با فرداد فرحزاد
+@iranintltv
+</div>
+
+## IranIntlTV — post 342902
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342902_1781721874.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمدباقر قالیباف در نشست همفکری نماینده ویژه در امور چین با اتاق بازرگانی ایران گفت: «تحریم کاغذپاره نیست، اما اگر معنایش این باشد که برای رفع تحریم‌ها باید تسلیم شویم، هرگز.»
+
+او ادامه داد: «ما رشد اقتصادی صنعت را در ابتدای دهه ۸۰ دیده‌ایم و امروز، با وجود همه زحماتی که کشیده‌شده، شاهد رشد منفیِ نیم هستیم.»
+
+رییس مجلس در همین نشست گفته بود: «باید سنگر را از بچه‌های لانچر تحویل بگیریم، مردم را از زیر فشار اقتصادی دربیاوریم و کشور را بسازیم.»
+https://iranintl.com/202606174186
+</div>
+
+## alonews — post 128770
+
+<div align="center">
+  <a href="telegram/content/alonews_128770_1781721875.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ با هواپیما به سمت کاخ ورسای رفت، تا مکرون شام بخوره
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/27 22:04
 ---
 

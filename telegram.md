@@ -7,6 +7,79 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/27 22:34
+---
+
+## WithYashar — post 15185
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبکه i24News اسرائیل:
+
+متن رسمی یادداشت تفاهم ایران و آمریکا منتشر شده و طبق این توافق، همه درگیری‌ها از جمله در لبنان باید فورا متوقف بشه.
+همچنین یک برنامه اقتصادی 300 میلیارد دلاری برای جمهوری اسلامی در نظر گرفته شده.
+بر اساس گزارش، ذخایر اورانیوم با غنای بالای ایران داخل کشور و تحت نظارت آژانس رقیق خواهد شد.
+@withyashar
+</div>
+
+## DEJradio — post 5771
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5771_1781723086.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🔸 خبر ۲۱
+چهارشنبه ۲۷ خرداد ۱۴۰۵
+
+#خبر۲۱
+@DEJradio
+</div>
+
+## Dirty_Kids — post 392423
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392423_1781723089.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بحران اقتصادی جمهوری اسلامی و دزدی و کم فروشی شرکتهای تولیدی صنایع غذایی
+
+این قسمت : بیسکوئیت !!!!!
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392422
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392422_1781723090.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+از وقتی ترامپ داره با جمهوری‌عسلامی لاس میزنه، تصوراتم نسبت به سربازای امریکایی اینشکلی شده:
+
+حرفای عمو مانوک محفوظه ولی فعلا اینجویم
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 128773
+
+<div align="center">
+  <a href="telegram/content/alonews_128773_1781723091.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سخنگوی وزارت خارجه: تعهد ما این است که در مدت مشخصی، ترافیک دریایی را تنگهٔ هرمز به حالت عادی برگردانیم
+
+
+🔴برای تدوین سازوکار مدیریت تنگهٔ هرمز و خدمات دریایی، ایران و عمان همکاری خواهند کرد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/27 22:24
 ---
 

@@ -7,6 +7,224 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/27 23:23
+---
+
+## VahidOOnLine — post 246087
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246087_1781726009.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️فدراسیون بین‌المللی فوتبال، فیفا، تحقیقاتی را درباره ریبکا مایلانو، خواننده و مقلد ونزوئلایی مشهور به «شاکیبکا»، آغاز کرده است؛ تحقیقاتی که به دلیل استفاده بدون مجوز از تصاویر، نمادها و علائم تجاری رسمی جام جهانی ۲۰۲۶ انجام می‌شود و در صورت اثبات تخلف، می‌تواند به جریمه مالی سنگینی برای این هنرمند منجر شود.
+براساس گزارش رسانه‌های اسپانیایی، این پرونده پس از اجرای نمایشی الهام‌گرفته از ترانه رسمی جام جهانی ۲۰۲۶ با عنوان «دای دای» شکل گرفته است؛ اثری که توسط شکیرا، خواننده سرشناس کلمبیایی، با همکاری برنا بوی اجرا شده است. گفته می‌شود شاکیبکا در این اجرا از عناصر بصری، گرافیک‌ها و نشان‌های تبلیغاتی متعلق به فیفا و جام جهانی بدون دریافت مجوز رسمی استفاده کرده است.
+ریبکا مایلانو بیش از دو دهه است که با تقلید از سبک، صدا و حرکات شکیرا فعالیت می‌کند و توانسته با اجراهای خود بیش از ۶۵۰ هزار دنبال‌کننده در شبکه‌های اجتماعی جذب کند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246086
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246086_1781726009.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمدباقر قالیباف، رییس هیات مذاکره‌کننده جمهوری اسلامی، در گفت‌وگو با شبکه خبر صدا و سیما گفت: «جنگ اخیر، جنگ جبهه حق و باطل بود.»
+
+قالیباف گفت: «ما در جنگ مقابل آمریکا و اسرائیل، پیروز شدیم.»
+
+او افزود: «اجازه ندادیم آمریکا و اسرائیل به ۹ هدفی که از آغاز جنگ مطرح کردند، برسند، وقتی حرف از مذاکره و دیپلماسی می‌زنم، منظورم دیپلماسی اقتدار است.»
+
+قالیباف گفت: «زمان برجام هم گفتم که با مذاکره مخالف نیستم، اما تاکید کردم با مذاکره‌ای موافقم که خودش یک شیوه مبارزه باشد.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 15190
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 343092
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343092_1781726010.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH LIVE: President Trump arrives at Palace of Versailles for dinner with French President Macron https://twitter.com/i/broadcasts/1XxyggyMkYEGM
+</div>
+
+## pm_afshaa — post 94294
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94294_1781726011.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴قالیباف: شغل من دیپلماسی نیست؛ من یه رزمنده‌ام ولی با رزمندگی و فرهنگ رزمندگی کار دیپلماسی رو دنبال میکنم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94293
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94293_1781726011.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴قالیباف: ما در جنگ مقابل آمریکا و اسرائیل پیروز شدیم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5772
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5772_1781726012.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️
+🔺 برنامه دژ فوتبالی
+
+*مهدی رستم‌پور، خبرنگار ورزشی
+
+#دژفوتبالی #جام_جهانی
+@DEJradio
+</div>
+
+## IranIntlTV — post 342920
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/342920" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی ‌‌‏﻿﻿۲۴ با فرداد فرحزاد: رمزگشایی از توافق جنجالی ترامپ با جمهوری‌اسلامی
+@iranintlTV
+</div>
+
+## IranIntlTV — post 342910
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻کریستیانو رونالدو، فوق‌ستاره فوتبال جهان، پس از تساوی تیم ملی پرتغال در نخستین بازی‌اش در جام جهانی ۲۰۲۶ و ناکامی در گل‌زنی، با چهره‌ای درهم و نگران راهی رختکن شد.
+
+🔹رونالدو در حالی نتوانست در آغاز ششمین حضورش در جام جهانی گل بزند و همراه با تیم ملی پرتغال به پیروزی برسد که شب گذشته لیونل مسی، اسطوره فوتبال آرژانتین، که او نیز ششمین جام جهانی خود را تجربه می‌کند، در نخستین بازی آلبی‌سلسته هت‌تریک کرد و کیلیان امباپه، ستاره تیم ملی فرانسه، و ارلینگ هالند، ستاره تیم ملی نروژ، هر کدام دو گل به ثمر رساندند.
+
+@iranintltvsport
+</div>
+
+## FarsiVOA — post 221055
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_221055_1781726013.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️آمادگی مشروط اروپا برای نقش‌آفرینی در بحران ایران و تاکید آلمان بر دیپلماسی
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221054
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️جی دی ونس: حکومت ایران در چارچوب توافق با دولت آمریکا حتی یک سنت از پول آمریکا را دریافت نخواهد کرد
+@FarsiVOA
+</div>
+
+## IranianMinds — post 22831
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 متن کامل تفاهم‌نامه آمریکا و جمهوری اسلامی منتشر شد طبق گزارش آکسیوس، متن کامل تفاهم‌نامه (Memorandum of Understanding) میان ایالات متحده آمریکا و جمهوری اسلامی ایران منتشر شده است. این سند که توسط یک مقام ارشد دولت آمریکا به خبرنگاران خوانده شده، به عنوان…
+</div>
+
+## Hranews — post 113694
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پرستو احمدی و عوامل «کنسرت کاروانسرا» به شلاق و محرومیت از فعالیت هنری محکوم شدند
+
+
+❗️
+❗️
+❗️
+❗️
+❗️ – پرستو احمدی، خواننده، به همراه هشت نفر از دست‌اندرکاران و نوازندگان «کنسرت کاروانسرا» توسط دادگاه کیفری استان قم به ۷۴ ضربه #شلاق تعزیری، دو سال ممنوع‌الخروجی و دو سال محرومیت از فعالیت هنری محکوم شدند.
+
+ادامه مطلب
+
+#پرستو_احمدی
+
+↘️
+@hranews_bot تماس ✉️ -  @Hranews  کانال هرانا 🆑
+</div>
+
+## alonews — post 128778
+
+<div align="center">
+  <a href="telegram/content/alonews_128778_1781726014.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈قالیباف: تو مذاکره به ترامپ اولتیماتوم دادیم
+
+
+🔴آتش‌بس رو هم آمریکا درخواست کرد و دنبال کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128777
+
+<div align="center">
+  <a href="telegram/content/alonews_128777_1781726014.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 قالیباف: فرق مذاکرات الان با دوره‌های قبل در این است که امروز علمِ پیروزیِ میدان، پشتوانه مذاکرات است/ در مذاکره‌ به روش مبارزه وادادگی و شعارزدگی وجود ندارد
+
+
+
+
+🔴وقتی حرف از مذاکره و دیپلماسی می‌زنم، منظورم دیپلماسیِ اقتدار است.
+
+
+🔴 زمان برجام هم گفتم که با مذاکره مخالف نیستم، اما تأکید کردم که با مذاکره‌ای موافقم که خودش یک شیوه مبارزه باشد.
+
+
+🔴 فرق مذاکرات الان با دوره‌های قبل در این است که امروز این علمِ پیروزیِ میدان، که هم دشمنان و هم دوستان به آن اعتراف کرده‌اند، پشتوانه مذاکره است. نیروهای مسلح ما در مقابل این دشمنِ سراپا مجهز، پیروز شدند.
+
+
+🔴 در مذاکره‌ای که یک روش مبارزه است، وادادگی وجود ندارد و در کنار آن، شعارزدگی هم جایی ندارد. اگر شعارها را مدام تکرار کنیم، دشمن می‌فهمد که تهدیدها توخالی است و این موضوع باعث می‌شود جسورتر و گستاخ‌تر شود.
+
+
+🔴همزمان با مذاکرات به تمام اقدامات دشمن در خلیج فارس پاسخ مناسب دادیم
+
+
+🔴 در جنگ تحمیلی سوم، برای مثال اتفاقاتی که در خلیج فارس در دوران آتش‌بس رخ داد، قابل توجه است. در آن مقطع، این دشمن بود که پیگیر آتش‌بس بود و ما در ابتدا آن را نمی‌پذیرفتیم.
+
+
+🔴 به هر حال، وقتی آتش‌بس اجرا شد، دیدید که دشمن اقداماتی را در خلیج فارس انجام داد و ما نیز بلافاصله واکنش نشان دادیم. آخرین نمونه آن، حادثه بالگرد آمریکایی‌ها بود. همچنین دو ناوچه دشمن که قصد عبور از تنگه هرمز را داشتند، مورد اصابت قرار گرفتند و دچار آتش‌سوزی گسترده شدند؛ موضوعی که تصاویر ماهواره‌ای نیز آن را تأیید کرد.
+
+
+🔴 از سوی دیگر، هر فرودگاهی در هر کشوری که جنگنده‌های دشمن از آن به پرواز درمی‌آمدند، مورد اصابت قرار گرفت. همه این اتفاقات در شرایطی رخ داد که ما همزمان در حال مذاکره نیز بودیم.
+
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/27 23:14
 ---
 

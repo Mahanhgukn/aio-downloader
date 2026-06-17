@@ -7,6 +7,166 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/27 21:24
+---
+
+## FoxNewsTwitter — post 343085
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343085_1781718873.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH LIVE: President Trump departs from the G7 summit after reaching Iran deal https://twitter.com/i/broadcasts/1kJzDDyQdMgKv
+</div>
+
+## FoxNewsTwitter — post 343084
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343084_1781718873.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH LIVE: House Dems hold a field hearing on anti-ICE protests at Delaney Hall https://twitter.com/i/broadcasts/1AKEmmBoeBXKL
+</div>
+
+## FoxNewsTwitter — post 343083
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343083_1781718874.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"If it doesn't work out, I'm blaming JD!"
+
+President Trump joked with @pdoocy that Vice President JD Vance will take the heat if the Iran peace signing goes sideways:
+
+PETER DOOCY: "There's some element to this where you send the vice president- if it works out, great, you look like a genius for sending him. And if it doesn't work out, it's the vice president's fault."
+
+PRESIDENT TRUMP: "I like that idea. This way, if it works out I'm going to take the credit... You better be careful, JD. He's going to turn his plane around and get the hell out of here!"
+</div>
+
+## pm_afshaa — post 94286
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+معاون وزارت ارتباطات : با اشاره به تجربه قطع اینترنت در جریان جنگ اخیر کشور به سطحی از بلوغ رسیده که حتی در شرایط بحرانی و التهاب شدید نیز میتواند بدون قطع اینترنت مدیریت شود و دیگر شاهد قطع اینترنت نخواهیم بود
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## iaghapour — post 2681
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ دسترسی مستقیم و بدون واسطه به اینترنت آزاد 🔹کافی است آدرس subscription را در برنامه v2rayN/v2rayNG وارد کنید: https://raw.githubusercontent.com/patterniha/Serverless-for-Iran/refs/heads/main/Subscription/Serverless-for-Iran.json — نکات استفاده👇🏻 ۱. کانفیگ…
+</div>
+
+## FarsiVOA — post 221045
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_221045_1781718876.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراسم خاکسپاری ابوالفضل ساعدی، یکی از معترضان اعدام شده، سه‌شنبه ۲۶ خرداد، در شاهرود برگزار شد. حاضران در این مراسم شعار «این گل پرپر شده، هدیه به میهن شده» و «جاویدنام روحت شاد» سردادند.
+
+جواد زمانی و ابوالفضل ساعدی، دو نفر از بازداشت‌شدگان اعتراضات دی‌ ۱۴۰۴، بامداد سه‌شنبه اعدام شدند.
+</div>
+
+## FarsiVOA — post 221044
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مخالفت چهره‌های تندروی جمهوری اسلامی با توافق با آمریکا چه‌قدر تعیین‌کننده است؟ گفت‌وگو با حامد آیینه‌وند
+</div>
+
+## FarsiVOA — post 221043
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺حمله ماموران حکومتی به معترضان عملکرد «معدن کرومیت» در فاریاب کرمان؛ دست‌کم هفت زن مجروح شدند
+
+▪️ماموران جمهوری اسلامی روز چهارشنبه ۲۷ خرداد با حمله به تجمع اعتراضی مردم فاریاب استان کرمان نسبت به عملکرد «معدن کرومیت پشموکی»، دست‌کم هفت زن را مجروح و شش معترض دیگر، از جمله سه زن، را «با خشونت» بازداشت کردند.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/attack-on-protesting-women-chromite-mine-faryab-kerman-injured/8161853.html/?nocach=1
+</div>
+
+## DW_Farsi — post 126115
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_126115_1781718878.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 زاکانی: انتظار شرکت ۲۰ میلیون نفر در مراسم تشییع جنازه خامنه‌ای
+
+مراسم وداع و تشییع علی خامنه‌ای، رهبر پیشین جمهوری اسلامی که در حملات آمریکا و اسرائیل در ماه فوریه کشته شد، از ۴ تا ۹ ژوئیه برگزار خواهد شد.
+
+به گزارش رسانه‌های حکومتی، علیرضا زاکانی، شهردار تهران گفته است که بخشی از این مراسم در عراق برگزار می‌شود و پیکر او در پایان در مشهد دفن خواهد شد.
+
+او سپس با انتشار پیامی اعلام کرد که این خبر ناقص منتشر شده است. شهردار تهران افزود: «از قرار اطلاع، پیشنهادهای متعدد و پرتکراری از طرف براداران و خواهران عزیز عراقی برای برگزاری مراسم وداع و تشییع پیکر ایشان در عراق به مسئولان ستاد برگزاری مراسم رسیده است.»
+
+او همچنین تاکید کرد: « این پیشنهاد توسط مسئولان ذی‌ربط در حال بررسی است و تاکنون هیچ مراسمی برای این منظور قطعی نشده است.»
+
+زاکانی همچنین گفت مقدمات برگزاری مراسم تشییع در تهران در حال انجام است و مقام‌ها انتظار دارند نزدیک به ۲۰ میلیون نفر در آن شرکت کنند.
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 17386
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17386_1781718879.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خلبان F-5 ایرانی: زمانی که ما پایگاه را بمباران‌ میکردیم یک F-18 کویتی در آسمان بود.
+
+زمانی که در راه برگشت بودیم یک دسته 3 فروندی از F-15 های امریکایی در راه ایران بود، پاتریوت ها و F-18 کویتی آن‌ها را به اشتباهی منهدم کردند.
+
+به چشم لحظه منهدم شدن یک هدف در آسمان را دیدم.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17385
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17385_1781718880.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خلبان F-5 ایرانی: بمب های ما سقوط آزاد بود، یعنی باید آن‌ها را بالای سر هدف رها می‌کردیم.
+
+موقع اصابت بمب ها با چشم میدیم بالگرد های دشمن بلند می‌شوند(انفجار ثانویه) پایگاه آسیب زیادی دید و با قدرت ضربتی بالا، هیچ رحمی به دشمن بی‌رحم نکردیم.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 22819
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22819_1781718882.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ :
+
+گروه جدیدی که الان ایران رو اداره میکنن خیلی ادمای دوست داشتنی و خوبی هستن و مردم و کشورشونو دوس دارن.
+
+@IranianMinds
+</div>
+
+---
 📅 بروزرسانی: 1405/03/27 21:14
 ---
 

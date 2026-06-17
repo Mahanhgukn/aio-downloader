@@ -7,6 +7,369 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/27 20:04
+---
+
+## VahidOOnLine — post 246061
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246061_1781714055.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهوری آمریکا، در اظهاراتی درباره روابط خود با بنیامین نتانیاهو، نخست‌وزیر اسرائیل، گفت از او خواسته است در عملیات نظامی در لبنان رویکردی محتاطانه‌تر در پیش بگیرد.
+
+ترامپ با توصیف نتانیاهو به‌عنوان «فردی خوب» گفت او گاهی «بیش از حد هیجان‌زده» می‌شود، اما شریکی مهم برای آمریکا است.
+
+رییس‌جمهوری آمریکا افزود میان دو طرف بر سر لبنان اختلاف‌نظرهایی وجود داشته و به نتانیاهو گفته است: «می‌توانی کمی ملایم‌تر عمل کنی؛ شاید لازم نباشد هر بار که فردی از حزب‌الله وارد ساختمانی می‌شود، آن ساختمان را ویران کنی.»
+
+ترامپ در عین حال از همکاری با دولت اسرائیل تمجید کرد و گفت مشارکت آمریکا و اسرائیل «فوق‌العاده» است. او افزود نتانیاهو آمریکا را شریک بزرگ‌تر این رابطه می‌داند و این ارزیابی را «درست» توصیف کرد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 15168
+
+<div align="center">
+  <a href="telegram/content/WithYashar_15168_1781714056.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: ما یک نسخه از توافق ایران را به اسرائیل ارسال کردیم
+@withyashar
+</div>
+
+## WithYashar — post 15167
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: من با نتانیاهو در مورد لبنان اختلاف نظر داشتم و به او گفتم که مودبانه رفتار کند
+
+نتانیاهو گاهی اوقات کمی از کوره در می‌رود، اما من با او همکاری بسیار خوبی دارم
+
+ما به احتمال زیاد توافق را امضا خواهیم کرد و ایران خواهان آن است؛ آنها به طور مناسب عمل کرده و موافقت کرده اند که سلاح هسته ای تولید نکنند
+@withyashar
+</div>
+
+## WithYashar — post 15166
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: من توافق کردم چون نمی‌خواستم شاهد یک فاجعه اقتصادی باشم.
+
+دو روز گذشته به شدت دشوار بوده است، و ما به ایرانی‌ها اطلاع داده‌ایم که اگر به توافقی نرسیم، بمباران آن‌ها را برای شب دوم از سر خواهیم گرفت
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 343075
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌Fox News (Twitter/X)
+
+https://www.foxnews.com/us/gilgo-beach-serial-killer-rex-heuermann-slammed-small-man-judge-gives-max-sentence-murder-spree
+</div>
+
+## FoxNewsTwitter — post 343074
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343074_1781714057.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: President Trump, speaking on the possibility of Iran stockpiling uranium, says the U.S. military’s surveillance technology is so advanced that personnel can identify individuals and monitor activity with remarkable precision.
+
+"If somebody walks in and he's got a badge with his name on it, like Mohammed something, which is about a 50/50 guess, Mohammed something, they can tell the name, they can give you a serial number. We can see things you wouldn't believe."
+
+Trump also highlighted Space Force capabilities while defending the effectiveness of the military blockade, which he called “unbelievable.”
+</div>
+
+## FoxNewsTwitter — post 343073
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343073_1781714059.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NEW: "In all fairness to Bibi Netanyahu, who happens to be a good man, he gets a little excited sometimes."
+
+President Trump says he urged Israeli Prime Minister Benjamin Netanyahu to take a “softer touch” in dealing with Hezbollah targets in Lebanon.
+
+"I said, you can do a little softer touch, Bibi. You don't have to knock down a building every time somebody walks into it."
+
+While praising Netanyahu and their partnership, Trump revealed the two have had disagreements over how aggressively Israel responds to threats, but the alliance between the two remains strong.
+</div>
+
+## FoxNewsTwitter — post 343072
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343072_1781714061.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NEW: "If we didn't do this deal, we could have dropped more bombs for another three weeks, two weeks, four weeks, two years."
+
+President Trump says the agreement reached with Iran accomplished his core objectives: ending the conflict, reopening the Strait of Hormuz, and, most importantly, preventing Iran from ever obtaining a nuclear weapon.
+
+He says military action could have continued indefinitely without delivering the same outcome, while pointing to surging markets and falling oil prices as signs of immediate economic impact.
+</div>
+
+## IranIntlTV — post 342885
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342885_1781714062.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهوری آمریکا، در اظهاراتی درباره روابط خود با بنیامین نتانیاهو، نخست‌وزیر اسرائیل، گفت از او خواسته است در عملیات نظامی در لبنان رویکردی محتاطانه‌تر در پیش بگیرد.
+
+ترامپ با توصیف نتانیاهو به‌عنوان «فردی خوب» گفت او گاهی «بیش از حد هیجان‌زده» می‌شود، اما شریکی مهم برای آمریکا است.
+
+رییس‌جمهوری آمریکا افزود میان دو طرف بر سر لبنان اختلاف‌نظرهایی وجود داشته و به نتانیاهو گفته است: «می‌توانی کمی ملایم‌تر عمل کنی؛ شاید لازم نباشد هر بار که فردی از حزب‌الله وارد ساختمانی می‌شود، آن ساختمان را ویران کنی.»
+
+ترامپ در عین حال از همکاری با دولت اسرائیل تمجید کرد و گفت مشارکت آمریکا و اسرائیل «فوق‌العاده» است. او افزود نتانیاهو آمریکا را شریک بزرگ‌تر این رابطه می‌داند و این ارزیابی را «درست» توصیف کرد.
+https://iranintl.com/202606172398
+</div>
+
+## IranIntlTV — post 342884
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342884_1781714063.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻تیم ملی فوتبال ایران پس از تساوی ۲ بر ۲ برابر نیوزیلند در نخستین دیدار جام جهانی ۲۰۲۶، به دلیل محدودیت‌های ویزایی نتوانست در آمریکا بماند و بلافاصله خاک این کشور را ترک کرد. ملی‌پوشان ایران بدون استراحت و انجام برنامه‌های ریکاوری، به اردوی خود در مکزیک بازگشتند.
+
+🔹گزارش رضا محدث و علیرضا مدیری، خبرنگاران ایران‌اینترنشنال از لس‌آنجلس
+
+@iranintltvsport
+</div>
+
+## FarsiVOA — post 221037
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حملات به احزاب کُرد در اقلیم کردستان؛ احیای خط لوله کرکوک - بانیاس در دستور کار بغداد و واشنگتن
+</div>
+
+## FarsiVOA — post 221036
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_221036_1781714064.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل اعلام کرد دو تروریست از شاخه نظامی حماس را که در جریان کشتار ۷ اکتبر به خاک اسرائیل نفوذ کرده بودند از بین برده است.
+
+بنابر بیانیه ارتش اسرائیل، در حمله روز ‌سه‌شنبه به مرکز نوار غزه «احمد ابو هین»، فرمانده هسته تک‌تیراندازی در شاخه نظامی سازمان تروریستی حماس و «محمود ولید جبر ابو هین»، تروریست دیگر از شاخه نظامی این سازمان، حذف شدند.
+
+ارتش اسرائیل اعلام کرد این دو نفر اخیرا نیز برای بازسازی سازمان تروریستی حماس برخلاف توافق آتش‌بس فعالیت می‌کردند و به پیشبرد طرح‌های تروریستی علیه نیروهای ارتش و کشور اسرائیل مشغول بودند.
+</div>
+
+## IranianMinds — post 22807
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22807_1781714066.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+میلیاردها دلار پول مسدودشده ایران در کدام کشورها قرار دارن؟
+
+@IranianMinds
+</div>
+
+## Hranews — post 113684
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارشی از بازداشت یک شهروند در ایلام
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– امیرحسین رستمی‌مهر، شهروند اهل ایلام مورخ ۲۲ خردادماه، توسط نیروهای امنیتی در این شهرستان بازداشت و به مکان نامعلومی منتقل شد.
+
+ادامه مطلب
+
+#امیرحسین_رستمی‌مهر
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## alonews — post 128726
+
+<div align="center">
+  <a href="telegram/content/alonews_128726_1781714066.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: اگر ایران به توافق پایبند نباشد، احتمالاً بمباران آن را از سر می‌گیریم تا زمانی که به آن پایبند بماند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128725
+
+<div align="center">
+  <a href="telegram/content/alonews_128725_1781714067.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: از شرکایمان در پاکستان و قطر تشکر می‌کنم؛ آنها تلاش‌های فوق‌العاده‌ای انجام داده‌اند
+
+
+🔴امیدوارم این توافق صلح آغاز یک توافق گسترده‌تر باشد که خاورمیانه را نیز شامل شود.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128724
+
+<div align="center">
+  <a href="telegram/content/alonews_128724_1781714067.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ درباره ایران: آنها از یک نظر فرهنگی ابتدایی دارند، اما این فرهنگ ابتدایی نابغه است، آنها مردم بسیار باهوش و مذاکره‌کنندگان بسیار خوبی هستند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128723
+
+<div align="center">
+  <a href="telegram/content/alonews_128723_1781714069.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: ما موظف نیستیم چیزی به ایران بدهیم، اما ممکن است برخی بخواهند آنجا سرمایه‌گذاری کنند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128722
+
+<div align="center">
+  <a href="telegram/content/alonews_128722_1781714069.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: جلوگیری از دستیابی ایران به سلاح هسته‌ای، در کنار باز کردن تنگه هرمز، مهمترین نکته برای من است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128721
+
+<div align="center">
+  <a href="telegram/content/alonews_128721_1781714069.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: این دستاورد بدون فشار فوق‌العاده‌ای که ما طی یک سال و نیم گذشته بر ایران اعمال کرده‌ایم، امکان‌پذیر نبود
+
+
+🔴ما با کشورهای خلیج فارس برای رسیدگی به مسائل غیرهسته‌ای مانند موشک‌های بالستیک همکاری خواهیم کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128720
+
+<div align="center">
+  <a href="telegram/content/alonews_128720_1781714069.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / ترامپ: ما یک نسخه از توافق ایران را به اسرائیل ارسال کردیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128719
+
+<div align="center">
+  <a href="telegram/content/alonews_128719_1781714071.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ درباره نتانیاهو و اسرائیل:
+ما شریک بزرگ هستیم و او شریک بسیار کوچک است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128718
+
+<div align="center">
+  <a href="telegram/content/alonews_128718_1781714072.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ درباره نتانیاهو: نتانیاهو به کشور آمد و از باراک حسین اوباما، رئیس‌جمهور، التماس کرد که برجام را انجام ندهد.
+
+
+🔴او گفت این می‌تواند پایان اسرائیل باشد، و اگر من نبودم، همینطور می‌شد.
+
+
+🔴و اوباما به او گوش نداد.
+
+
+🔴بیبی واقعاً به کنگره رفت و از آنها التماس کرد، اما به جایی نرسید. و آنها این توافق وحشتناک را داشتند که برای اسرائیل فاجعه‌بار بود.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128717
+
+<div align="center">
+  <a href="telegram/content/alonews_128717_1781714073.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: هیچ پولی در ایران سرمایه‌گذاری نخواهیم کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128716
+
+<div align="center">
+  <a href="telegram/content/alonews_128716_1781714073.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: ایران با ما همکاری می‌کند تا اورانیوم دفن شده در اعماق زمین را تحویل دهد و زمان در این موضوع نقشی ندارد.
+
+
+🔴فکر می‌کنم اسرائیلی‌ها می‌توانستند در مورد حزب‌الله بهتر عمل کنند
+
+
+🔴نمی‌گویم اسرائیلی‌ها نباید از خودشان دفاع کنند، اما نیازی به تخریب ساختمان‌ها در بیروت نیست
+
+
+🔴از بابت لبنان خیلی متاسفم
+
+
+🔴مذاکرات فنی در مورد ذخایر هسته‌ای ایران فوراً آغاز خواهد شد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128715
+
+<div align="center">
+  <a href="telegram/content/alonews_128715_1781714073.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / ترامپ: توافق با ایران فردا یا پس‌فردا امضا خواهد شد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/27 19:54
 ---
 

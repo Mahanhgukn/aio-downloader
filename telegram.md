@@ -7,6 +7,117 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/27 23:43
+---
+
+## VahidOOnLine — post 246090
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246090_1781727235.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمدباقر قالیباف، رییس هیات مذاکره‌کننده جمهوری اسلامی گفت: «ترامپ طراح کشتن قاسم سلیمانی بود و بر آن عملیات نظارت کرد، برای من سخت بود که با چنین فردی بنشینم، اما همه مسئولان فقط اسم من را آوردند و از من خواستند وارد عرصه شوم.»
+
+او ادامه داد: «من برای شرکت در مذاکرات کراهت داشتم و دلم نمی‌خواست وارد شوم.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246089
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_246089_1781727236.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️محمدباقر قالیباف، رئیس مجلس شورای اسلامی و مذاکره‌کننده ارشد جمهوری اسلامی، در مصاحبه‌ای که همزمان با انتشار مفاد تفاهم‌نامه تهران و واشنگتن از صداوسیما پخش شد، به حمله اسرائیل به بیروت در آستانه امضای تفاهم‌نامه تهران و واشنگتن اشاره کرد.
+
+قالیباف در پاسخ به سوال مجری درباره علت انجام نشدن حمله متقابل به مواضع اسرائیل از سوی نیروهای نظامی جمهوری اسلامی، مذاکره را نیز یک «روش مبارزه» خواند و گفت: «هر آن‌چه را که می‌خواستیم با اقدام نظامی به‌دست بیاوریم، چندین برابرش را که اصلا قابل مقایسه نیست از طریق مذاکره به‌دست آوردیم.»
+
+او با اشاره به اظهارات ترامپ در گفتگو با آکسیوس که با الفاظ تندی از نتانیاهو انتقاد کرده بود، گفت: «شما دیدید که ترامپ، تا ساعت دو بامداد برای برقراری آتش‌بس نه در ضاحیه بلکه در سراسر لبنان وارد عمل شد و با آن ادبیات با نتانیاهو صحبت کرد.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## IranIntlTV — post 342922
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342922_1781727237.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمدباقر قالیباف، رییس هیات مذاکره‌کننده جمهوری اسلامی گفت: «ترامپ طراح کشتن قاسم سلیمانی بود و بر آن عملیات نظارت کرد، برای من سخت بود که با چنین فردی بنشینم، اما همه مسئولان فقط اسم من را آوردند و از من خواستند وارد عرصه شوم.»
+
+او ادامه داد: «من برای شرکت در مذاکرات کراهت داشتم و دلم نمی‌خواست وارد شوم.»
+https://iranintl.com/202606171938
+</div>
+
+## FarsiVOA — post 221056
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺چهارده بند یادداشت تفاهم میان ایالات متحده و جمهوری اسلامی
+
+▪️یک مقام ارشد دولت ایالات متحده روز چهارشنبه ۲۷ خرداد ۱۴۰۵ مفاد اجمالی یادداشت تفاهم میان ایالات متحده آمریکا و جمهوری اسلامی ایران را برای صدای آمریکا ارسال کرد. بر این اساس، مفاد توافق به این شرح است.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/us-iran-mou-full-text/8161939.html
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 17400
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امشب متاسفانه لایو نداریم و نمیتونم در خدمتتون باشم
+</div>
+
+## alonews — post 128785
+
+<div align="center">
+  <a href="telegram/content/alonews_128785_1781727237.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈قالیباف: اگر می‌خواستیم محاصره دریایی را با موشک بشکنیم باید جنگی بزرگتر از جنگ ۴۰ روزه رقم میزدیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128784
+
+<div align="center">
+  <a href="telegram/content/alonews_128784_1781727238.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / جمهوری اسلامی ایران و ایالات متحده آمریکا، به طور مشترک و با حسن نیت، در تاریخ ۲۸ خرداد ۱۴۰۵ نسبت به موارد زیر توافق کردند: 
+🔴1️⃣جمهوری اسلامی ایران و ایالات متحده آمریکا و متحدین آنها در جنگ حاضر، با امضای این یادداشت تفاهم خاتمه فوری و دائمی عملیات‌های…
+</div>
+
+## alonews — post 128783
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈جهت رزرو تبلیغات در الونیوز به اینجا مراجعه کنید
+⬇️
+
+https://t.me/ads_alonews
+https://t.me/ads_alonews
+</div>
+
+## alonews — post 128782
+
+<div align="center">
+  <a href="telegram/content/alonews_128782_1781727238.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈قالیباف: ما حتما باید با عقلانیت حرکت کنیم، شعار قدرت نیست، گرهی که با دست باز می‌شود را لازم نیست با دندان باز کنیم. اگر دوبار شعار بدهیم ولی قدرت نداشته باشیم یعنی بی اعتباری و کمک به دشمن
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/27 23:34
 ---
 

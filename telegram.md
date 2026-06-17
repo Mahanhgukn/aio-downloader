@@ -7,6 +7,44 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/28 02:14
+---
+
+## VahidOOnLine — post 246104
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246104_1781736241.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسماعیل بقایی، سخنگوی وزارت خارجه جمهوری اسلامی، گفت: «موشک‌های ایران فقط برای شلیک شدن هستند نه برای مذاکره. موشک‌های ما اصلا دوست ندارند که کسی درباره‌شان حرف بزند درباره توانایی دفاعی ایران در هیچ روندی و با هیچ طرفی صحبت نخواهد شد.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## IranIntlTV — post 342933
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342933_1781736241.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسماعیل بقایی، سخنگوی وزارت خارجه جمهوری اسلامی، گفت: «موشک‌های ایران فقط برای شلیک شدن هستند نه برای مذاکره. موشک‌های ما اصلا دوست ندارند که کسی درباره‌شان حرف بزند درباره توانایی دفاعی ایران در هیچ روندی و با هیچ طرفی صحبت نخواهد شد.»
+https://iranintl.com/202606178175
+</div>
+
+## Dirty_Kids — post 392440
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بانو Comatozze، رنک اول پورن هاب به صورت اختصاصی از ایرانیا تشکر کرده!
+
+اون گفته اکثر مخاطبانش ایرانین و هر روز کلی پیام محبت آمیز ازشون دریافت میکنه.
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/03/28 02:04
 ---
 

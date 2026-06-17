@@ -7,6 +7,201 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/27 13:22
+---
+
+## VahidOOnLine — post 245988
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245988_1781689978.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در آستانه دیدار مقام‌های آمریکا و جمهوری اسلامی برای امضای رسمی یادداشت تفاهم در سوئیس، خیابان‌ها و بزرگراه‌های اسلام‌آباد با بیلبوردها و نمایشگرهای دیجیتالی پوشیده شده که پیام‌هایی در حمایت از این توافق را به نمایش می‌گذارند.
+
+این کارزار تبلیغاتی که از سوی اداره شهرداری کلان‌شهر اسلام‌آباد اجرا شده، نمایشگرهای عمومی و بیلبوردهای دیجیتال پایتخت پاکستان را به محلی برای انتشار پیام‌هایی درباره صلح، همبستگی و همکاری بین‌المللی تبدیل کرده است.
+در این بیلبوردها شهباز شریف، نخست‌وزیر پاکستان، و عاصم منیر، رییس ستاد نیروهای دفاعی پاکستان دیده می‌شوند.
+
+از این تفاهم با عنوان «توافق صلح» یاد می‌شود؛ توافقی که قرار است به‌طور رسمی در ژنو امضا شود و پاکستان خود را میزبان و تسهیل‌کننده اصلی روند دستیابی به آن معرفی می‌کند.
+
+یکی از پیام‌های منتشرشده بر روی این نمایشگرها می‌گوید: «از اسلام‌آباد به جهان؛ پیامی از صلح، همبستگی و امید.»
+
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## pm_afshaa — post 94237
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_94237_1781689978.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سیریک
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94236
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارشات مردمی از انفجار در سیریک
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94235
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴بلومبرگ به نقل از یک منبع آگاه: وزارت خزانه‌داری آمریکا بلافاصله پس از امضای توافق، معافیت‌هایی برای نفت و پتروشیمی ایران صادر خواهد کرد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 342827
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342827_1781689979.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در آستانه دیدار مقام‌های آمریکا و جمهوری اسلامی برای امضای رسمی یادداشت تفاهم در سوئیس، خیابان‌ها و بزرگراه‌های اسلام‌آباد با بیلبوردها و نمایشگرهای دیجیتالی پوشیده شده که پیام‌هایی در حمایت از این توافق را به نمایش می‌گذارند.
+
+این کارزار تبلیغاتی که از سوی اداره شهرداری کلان‌شهر اسلام‌آباد اجرا شده، نمایشگرهای عمومی و بیلبوردهای دیجیتال پایتخت پاکستان را به محلی برای انتشار پیام‌هایی درباره صلح، همبستگی و همکاری بین‌المللی تبدیل کرده است.
+در این بیلبوردها شهباز شریف، نخست‌وزیر پاکستان، و عاصم منیر، رییس ستاد نیروهای دفاعی پاکستان دیده می‌شوند.
+
+از این تفاهم با عنوان «توافق صلح» یاد می‌شود؛ توافقی که قرار است به‌طور رسمی در ژنو امضا شود و پاکستان خود را میزبان و تسهیل‌کننده اصلی روند دستیابی به آن معرفی می‌کند.
+
+یکی از پیام‌های منتشرشده بر روی این نمایشگرها می‌گوید: «از اسلام‌آباد به جهان؛ پیامی از صلح، همبستگی و امید.»
+
+
+https://iranintl.com/202606177182
+</div>
+
+## FarsiVOA — post 221002
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺اسموتریچ: اسرائیل حضور خود در جنوب لبنان را عمیق‌تر می‌کند
+
+▪️وزیر دارایی اسرائیل و وزیر در وزارت دفاع این کشور، گفته است اسرائیل از جنوب لبنان عقب‌نشینی نخواهد کرد و حضور نظامی خود را در آنجا گسترش می‌دهد.
+
+▪️او که از چهره‌های راست افراطی در ائتلاف بنیامین نتانیاهو است، گفت اسرائیل «در جنوب لبنان باقی خواهد ماند» و به گفته او، حضور خود را در آنجا «عمیق‌تر» خواهد کرد.
+
+▪️او افزود نیروهای اسرائیلی برای مدتی طولانی در عمق «هشت، ۹ یا ۱۰ کیلومتری» جنوب لبنان خواهند ماند و دستور به واحدها ادامه «رفع هرگونه تهدید» است.
+
+▪️وزیر دارایی اسرائیل همچنین گفت این کشور در لبنان «آزادی عمل کامل» دارد و تا زمانی که حزب‌الله خلع سلاح نشود، عقب‌نشینی در کار نخواهد بود.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/finance-minister-smotrich-says-israel-to-deepen-its-presence-in-south-lebanon/8161822.html
+</div>
+
+## Persian_Trend_Official — post 17332
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17332_1781689980.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیویی جالب از تلاش بالگرد کاموف-52 روسی برای سرنگونی پهپاد انتحاری اوکراینی برفراز مسکو
+
+خدمه بالگرد تلاش میکنند پهپاد به ناحیه ای کم تراکم برسد تا انفجار و لاشه پهپاد تلفات انسانی نگیرد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 22777
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22777_1781689980.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 کارشناس صداوسیما :
+
+خدایا ما به کی دردمونو بگیم ؟
+ترامپ صدبار به رهبرمون گفته همجنسگرا. تهمت های زشت و جنسی بهش میزنه. تهدید به تـرورش میکنه. ما رو به لجن کشیده. همش تحقیرمون میکنه. اونوقت ما خفه خون گرفتیم داریم میریم توافق کنیم .
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22776
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ در دیدار با رهبران گروه هفت :
+
+رئیس اینجا منما !
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 392371
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392371_1781689982.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترند‌ترین و محبو‌ترین پرامپت هوش مصنوعی تو 2 سال اخیر مربوط به این پرامپته؛
+
+بااین پرامپت میتونی هرعکس قدیمی که از خودت، دوستت یا خانوادت داری و اگه کیفیتش خیلی پایین و رو مخه رو به حداکثر کیفیت برسونی:
+
+- برای اکثر هوش‌های مصنوعی (ChatGPT، Gemini، Midjourney، Flux، Ideogram، Leonardo) این پرامپت نتیجه خیلی خوبی برای بازسازی عکس‌های قدیمی میده، فقط کافیه عکس مدنظرتو همراه با پرامپت زیر براش بفرستی :
+
+Restore and enhance this old low-quality photograph. Recover lost details, remove blur, reduce noise, repair scratches and damage, improve facial features, sharpen eyes, restore realistic skin texture, correct colors naturally, enhance lighting and contrast, preserve original identity and authenticity, professional photo restoration, ultra-realistic, high-definition, true-to-life, 4K resolution, HDR quality, maximum detail.
+
+‌
+برای عکس‌های خیلی قدیمی و سیاه‌وسفید :
+
+Professional restoration of an old historical photograph. Remove scratches, dust, stains and damage. Recover missing details, sharpen faces, improve focus, restore natural textures, realistic colorization, preserve historical accuracy, cinematic quality, ultra realistic, 4K HDR, museum-grade restoration.
+﻿
+
+‌
+اگه فقط میخوای فقط کیفیت بالا بره ولی چهره تغییر نکنه :
+Do not alter facial identity, preserve original appearance exactly.
+
++این پست رو یه گوشه ذخیره کن یه روزی حتماً بدرت میخوره.
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 128636
+
+<div align="center">
+  <a href="telegram/content/alonews_128636_1781689983.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کارنی، نخست‌وزیر کانادا : من جزو معدود افرادی هستم که متن تفاهم‌نامه آمریکا و ایران رو دیدم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128635
+
+<div align="center">
+  <a href="telegram/content/alonews_128635_1781689985.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تلاش بالگرد کاموف52 روسی برای رهگیری پهپاد انتحاری اوکراینی بر فراز مسکو طی حمله صبح امروز
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/27 13:12
 ---
 

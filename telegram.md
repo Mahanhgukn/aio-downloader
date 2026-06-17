@@ -7,6 +7,236 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/27 11:13
+---
+
+## VahidOOnLine — post 245975
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_245975_1781682190.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️حمله پهپادی اوکراین به بزرگ‌ترین پالایشگاه نفتی مسکو
+
+♦️سرگئی سوبیانین، شهردار مسکو سه‌شنبه شب ۲۶ خردادماه اعلام کرد، در جریان یک حمله پهپادی اوکراین، بخشی از پالایشگاه نفتی مسکو متعلق به شرکت «گازپروم‌» آسیب دیده است.
+رویترز تصاویری از خسارت‌های واردشده به این پالایشگاه را منتشر کرد.
+
+پالایشگاه مسکو بزرگ‌ترین پالایشگاه منطقه پایتخت روسیه محسوب می‌شود و در سال ۲۰۲۴ حدود ۱۱.۶ میلیون تُن نفت خام را فرآوری کرده بود.
+
+ولودیمیر زلنسکی، رئیس‌جمهوری اوکراین نیز حمله به این تاسیسات را تایید کرده است.
+
+از ابتدای سال ۲۰۲۶، حملات پهپادی اوکراین به پالایشگاه‌ها و زیرساخت‌های انرژی روسیه افزایش یافته است. این حملات در برخی موارد به توقف کامل یا کاهش ظرفیت تولید پالایشگاه‌ها منجر شده و بر تولید بنزین، گازوئیل و سوخت هواپیما در روسیه تاثیر گذاشته است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245974
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_245974_1781682192.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی ارسالی به ایران اینترنشنال نشان می‌دهد که در اطراف ورزشگاه محل دیدار تیم‌های فوتبال ایران و نیوزیلند، گروهی از ایرانیان آمریکا در حمایت از شاهزاده رضا پهلوی و علیه جمهوری اسلامی شعار سردادند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245973
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245973_1781682195.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسحاق دار، وزیر خارجه پاکستان، چهارشنبه ۲۷ خرداد اعلام کرد این کشور بازگشت ۳۰ شهروند ایرانی به ایران را تسهیل می‌کند. این افراد شامل ۲۲ خدمه نفتکش «داوینا» هستند که از سوی آمریکا توقیف شده بود.
+
+دار در پیامی در شبکه اجتماعی ایکس نوشت این گروه شامل هشت ماهیگیر ایرانی نیز می‌شود که پس از به گل نشستن قایقشان در دریا، توسط کشتی بریتانیایی «ام‌ام‌ای ولور» نجات یافته‌اند. به گفته او، انتظار می‌رود هر دو گروه در روزهای آینده از طریق کراچی به ایران بازگردند.
+
+وزیر خارجه پاکستان گفت اسلام‌آباد در هماهنگی نزدیک با مقام‌های جمهوری اسلامی، آمریکا و بریتانیا برای تضمین انتقال امن و بازگشت سریع این شهروندان ایرانی همکاری می‌کند. او افزود پاکستان به همکاری‌های بشردوستانه متعهد است و هرگونه کمک ممکن را در اختیار شهروندان ایرانی قرار خواهد داد.
+
+ارتش آمریکا ۱۵ خرداد اعلام کرد نفتکش تحریم‌شده «داوینا» را در اقیانوس هند توقیف کرده است. این نفتکش که با نام «لنور» نیز شناخته می‌شود، توانایی حمل حدود دو میلیون بشکه نفت خام را دارد و در اکتبر ۲۰۲۴ به دلیل مشارکت در تجارت نفت ایران تحت تحریم آمریکا قرار گرفت.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245972
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_245972_1781682196.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی ارسال‌شده به ایران‌اینترنشنال نشان می‌دهد یک شهروند رو به حامیان حکومت در تجمع شبانه‌ با طعنه و خنده علیه قالیباف و عراقچی شعار می‌دهد و از آنها می‌پرسد مگر توافق نشده؟ یکی از حامیان جمهوری اسلامی جواب می‌دهد: «فقط ده شرط رهبری.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## mwarmonitor — post 11053
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 خبرنگار الجزیره: حمله‌ای از سوی یک پهپاد اسرائیلی به شهرک المنصوری در منطقه صور در جنوب لبنان انجام شده است.
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 94234
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_94234_1781682198.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرمانده انتظامی کرمان از توقیف یک دستگاه پورشه متعلق به سردار آزمون خبر داد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94233
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بانو سویینی شاتای جدید از بدن خودش منتشر کرده
+
+مشاهده
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5753
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5753_1781682198.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👑📌 دل‌های ما خون شده، اما انتقام خون جوان‌ها رو می‌گیریم...
+
+#جنگ #خون_جوانان_وطن #دی۱۴۰۴
+@DEJradio
+</div>
+
+## IranIntlTV — post 342813
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342813_1781682201.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حاشیه‌های نخستین دیدار تیم فوتبال ایران برابر نیوزیلند ادامه دارد. حضور گسترده ایرانیان مخالف جمهوری اسلامی با پرچم‌های شیر و خورشید در داخل و خارج از ورزشگاه، بازتاب گسترده‌ای در رسانه‌های جهان و شبکه‌های اجتماعی داشته است.
+
+گزارش علیرضا مدیری، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 342812
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342812_1781682203.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی ارسالی به ایران اینترنشنال نشان می‌دهد که در اطراف ورزشگاه محل دیدار تیم‌های فوتبال ایران و نیوزیلند، گروهی از ایرانیان آمریکا در حمایت از شاهزاده رضا پهلوی و علیه جمهوری اسلامی شعار سردادند.
+</div>
+
+## IranIntlTV — post 342811
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342811_1781682205.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسحاق دار، وزیر خارجه پاکستان، چهارشنبه ۲۷ خرداد اعلام کرد این کشور بازگشت ۳۰ شهروند ایرانی به ایران را تسهیل می‌کند. این افراد شامل ۲۲ خدمه نفتکش «داوینا» هستند که از سوی آمریکا توقیف شده بود.
+
+دار در پیامی در شبکه اجتماعی ایکس نوشت این گروه شامل هشت ماهیگیر ایرانی نیز می‌شود که پس از به گل نشستن قایقشان در دریا، توسط کشتی بریتانیایی «ام‌ام‌ای ولور» نجات یافته‌اند. به گفته او، انتظار می‌رود هر دو گروه در روزهای آینده از طریق کراچی به ایران بازگردند.
+
+وزیر خارجه پاکستان گفت اسلام‌آباد در هماهنگی نزدیک با مقام‌های جمهوری اسلامی، آمریکا و بریتانیا برای تضمین انتقال امن و بازگشت سریع این شهروندان ایرانی همکاری می‌کند. او افزود پاکستان به همکاری‌های بشردوستانه متعهد است و هرگونه کمک ممکن را در اختیار شهروندان ایرانی قرار خواهد داد.
+
+ارتش آمریکا ۱۵ خرداد اعلام کرد نفتکش تحریم‌شده «داوینا» را در اقیانوس هند توقیف کرده است. این نفتکش که با نام «لنور» نیز شناخته می‌شود، توانایی حمل حدود دو میلیون بشکه نفت خام را دارد و در اکتبر ۲۰۲۴ به دلیل مشارکت در تجارت نفت ایران تحت تحریم آمریکا قرار گرفت.
+https://iranintl.com/2
+</div>
+
+## FarsiVOA — post 220994
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220994_1781682206.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رئیس ستاد انتخابات کشور، اعلام کرد که در صورت امضای تفاهم‌‌نامه با آمریکا در روز جمعه ۲۹ خردادماه، تلاش می‌شود تا در فاصله ۶۰ روزه، انتخابات شوراها برگزار شود.
+
+علی زینی‌‌وند، در گفت‌‌وگویی با صداوسیمای جمهوری اسلامی، با اشاره به عدم برگزاری انتخابات به دلیل شرایط جنگی، اعلام که شورای امنیت ملی، مجوز برگزاری انتخابات را دو ماه پس از پایان جنگ، صادر کرده است.
+
+او یادآور شد که با وجود آمادگی‌های لازم برای برگزاری این دوره از انتخابات، تحقق آن به بررسی‌های بیشتر و تصمیم‌‌گیری‌ نهادهای بالادستی نیاز دارد.
+
+پیشتر قرار بود که هفتمین دوره انتخابات شوراها در روز ۱۱ اردیبهشت برگزار شود.
+@FarsiVOA
+</div>
+
+## Dirty_Kids — post 392368
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392368_1781682206.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اولین بار هم ویدیو میبینم هم عکس...
+خسته‌شو حاجب خسته‌شو یه پلک بزن
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392367
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392367_1781682209.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خانمی درحال ورزش صبح‌گاهی در پارکی در تهران، ۱۳۷۲ خورشیدی
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 128611
+
+<div align="center">
+  <a href="telegram/content/alonews_128611_1781682209.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وضعیت مارکو روبیو پس از اعلام خبر توافق تو این چند روز
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128610
+
+<div align="center">
+  <a href="telegram/content/alonews_128610_1781682209.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ادامه حملات ارتش اسرائیل به نبطیه در جنوب لبنان
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128609
+
+<div align="center">
+  <a href="telegram/content/alonews_128609_1781682211.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نفت برنت با ادامه روند کاهشی خود امروز ۷۸ دلار معامله شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/27 11:03
 ---
 

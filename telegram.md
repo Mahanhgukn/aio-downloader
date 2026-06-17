@@ -7,6 +7,198 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/28 00:23
+---
+
+## WithYashar — post 15195
+
+
+
+
+## FoxNewsTwitter — post 343094
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343094_1781729632.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+A 6-year-old boy was found floating unconscious in a Florida pool. Seconds later, an ICE officer jumped in to save him.
+
+ICE law enforcement officer Gregory Simmonds spotted the child in distress in Pasco County on May 16 and immediately pulled him from the water.
+
+The child wasn't breathing, and Simmonds began life-saving CPR at the scene until the boy regained consciousness.
+
+Local authorities say the child is expected to make a full recovery, a rescue DHS is calling an act of bravery.
+</div>
+
+## pm_afshaa — post 94301
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94301_1781729633.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴قالیباف: ما میتونیم تنگه هرمز رو بر ضد آمریکا تبدیل کنیم. هیچ کس به کمک آمریکا نیومد. این موضوع که باید عوارض تردد در تنگه هرمز پرداخت بشه، تثبیت شده در تفاهم نامه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94300
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94300_1781729635.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴قالیباف: بند 6 تفاهم‌نامه 300 میلیارد دلار برای موضوع بازسازی و توسعه اقتصادی در ایران تعیین شده!
+
+در این بند 300 میلیارد دلار تعیین شده تا در ایران سرمایه گذاری بشه که بخشی از آن صرف بازسازی خواهد شد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94299
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94299_1781729638.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴قالیباف: پول‌ها ر‌و باید بگیریم و در حساب ما و در خط اعتباری قرار بگیره.
+
+هر کجا دشمن نسبت به این موضوعات بدقولی کنه، خلاصه بچرخ تا بچرخیم. تا جایی که تعهد دادیم هستیم، و هر کجا دشمن خلاف وعده عمل کند دست به ماشه هستیم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## kianmeli1 — post 88052
+
+<div align="center">
+  <a href="telegram/content/kianmeli1_88052_1781729640.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کارشناس فاکس نیوز: حدود ۴۸ ساعت پیش این یادداشت تفاهم ایران و آمریکا رو خواندم و باورم نمی‌شد. وقتی اون رو دیدم، فکر کردم یکی داره سرِ کارم می‌گذاره یا برام یک چیز جعلی فرستاده، باورنکردنیه
+https://t.me/kianmeli1
+</div>
+
+## IranianMinds — post 22832
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 قالیباف:
+
+در قوانین ایران هیچ مانعی برای حضور و سرمایه‌گذاری شرکت‌های آمریکایی در داخل ایران وجود ندارد!
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 392432
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏عرق خور نیستم؟ قمار نمیکنم؟ عیاشی نکردم؟
+به تو چه
+این ده روزو می‌خوام یزیدی باشم
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392431
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392431_1781729642.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این ویدیو در تاریخ ۳۱ خرداد ۱۴۰۳ ضبط شده یعنی ۲ سال قبل
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392430
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392430_1781729643.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سکوت میکنم که سکوت منطقی تره
+
+دختری شب ازدواج متوجه می‌شود صاحب تالار، دوست پسر سابقش است و داماد را به سالن راه نمیدهد. این درحالیست که تمام مهمان‌ها مست کرده‌اند و روی میزها میرقصند.
+بزرگان فامیل به اتاق مدیریت تالار میروند تا وساطتت کنند، که ناگهان داماد را با پسر لخت در اتاق می‌بینند. وقتی دلیل را جویا میشوند میفهمند داماد از توقعات دختر بیچاره شده و برای گرفتن عروسی زیر بدهکاریست. برای همین با مالک تالار روی هم ریخته تا قسمتی از خرج زندگی را دربیاورد.
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 128795
+
+<div align="center">
+  <a href="telegram/content/alonews_128795_1781729643.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈قالیباف: بند 6 تفاهم‌نامه 300 میلیارد دلار برای موضوع بازسازی و توسعه اقتصادی در ایران تعیین شده!
+
+
+🔴در این بند 300 میلیارد دلار تعیین شده تا در ایران سرمایه گذاری بشه که بخشی از آن صرف بازسازی خواهد شد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128794
+
+<div align="center">
+  <a href="telegram/content/alonews_128794_1781729646.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پیت هگست، ژنرال 10 ستاره هم کماکان در حال گذراندن تمرینات آمادسازی برای قبل از مراسم برکناری خود در سمت وزارت جنگ مشاهده شده است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128793
+
+<div align="center">
+  <a href="telegram/content/alonews_128793_1781729647.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ برای شرکت در یک شام رسمی که توسط رئیس‌جمهور امانوئل مکرون و بانوی اول بریژیت مکرون برگزار شده است، به کاخ ورسای رفت.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128792
+
+<div align="center">
+  <a href="telegram/content/alonews_128792_1781729647.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈قالیباف:
+در قوانین ایران هیچ مانعی برای حضور و سرمایه‌گذاری شرکت‌های آمریکایی در داخل ایران وجود ندارد!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128791
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کسانی که در خیابان فرزندان ایران را به گلوله بستند و شکنجه کردند، مولایشان حسین بود.
+</div>
+
+---
 📅 بروزرسانی: 1405/03/28 00:13
 ---
 

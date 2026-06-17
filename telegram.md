@@ -7,6 +7,100 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/27 10:42
+---
+
+## WithYashar — post 15130
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرنگار اسرائیلی : این یک اشتباه تاریخی است.
+پرداخت میلیاردها دلار به بزرگترین حامی دولتی تروریسم در جهان، فقط باعث تأمین مالی راکت‌های بیشتر، پهپاد‌های بیشتر و حملات بیشتری علیه اسرائیل و غرب خواهد شد. این سیاست «آمریکا در اولویت اول» نیست.
+@withyashar
+</div>
+
+## mwarmonitor — post 11049
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رسانه یونانی: نیروی دریایی یونان در حال آماده‌سازی برای استقرار دو واحد دریایی در نزدیکی تنگه هرمز است.
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 94229
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وزیر دارایی اسرائیل، بزالئل سموتریچ:هیچ عقب‌نشینی از لبنان صورت نخواهد گرفت—نه تا جمعه و نه بعد از جمعه 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94228
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وزیر دارایی اسرائیل، بزالئل سموتریچ:هیچ عقب‌نشینی از لبنان صورت نخواهد گرفت—نه تا جمعه و نه بعد از جمعه
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 342807
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/342807" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی اخبار بامدادی | چهارشنبه ۲۷ خرداد
+@iranintlTV
+</div>
+
+## IranIntlTV — post 342806
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342806_1781680373.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند با ارسال ویدیویی به ایران‌اینترنشنال در چهارشنبه ۲۷ خرداد، صف طولانی خودروها را در یکی از جاده‌های استان تهران برای دریافت گازوئیل نشان می‌دهد.
+</div>
+
+## FarsiVOA — post 220992
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220992_1781680375.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های لبنان گزارش دادند که ارتش اسرائیل حملات تازه‌ای را در جنوب لبنان انجام داده است.
+
+بر اساس این گزارش،خبرگزاری ملی لبنان اعلام کرد جنگنده‌های اسرائیلی منطقه نبطیه‌الفوقا در جنوب لبنان را هدف قرار دادند و یک حمله پهپادی نیز روستای انصاریه، در ساحل جنوب لبنان، را هدف گرفت.
+
+تایمز اسرائیل نوشت ارتش اسرائیل تا زمان انتشار این گزارش درباره این حملات اظهار نظر نکرده است.
+
+این گزارش در حالی منتشر می‌شود که در روزهای گذشته نیز جنوب لبنان شاهد حملات هوایی و پهپادی اسرائیل بوده است.
+
+رویترز روز سه‌شنبه به نقل از خبرگزاری ملی لبنان گزارش داده بود حملات پهپادی اسرائیل به سه خودرو در جنوب لبنان دست‌کم چهار کشته و شماری زخمی بر جا گذاشت.
+
+جزئیات بیشتری درباره تلفات احتمالی حملات تازه، هدف‌های مورد اصابت، یا واکنش رسمی ارتش اسرائیل اعلام نشده است.
+@FarsiVOA
+</div>
+
+## alonews — post 128606
+
+<div align="center">
+  <a href="telegram/content/alonews_128606_1781680376.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈انهدام مهمات عمل‌نکرده در تبریز
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/27 10:33
 ---
 

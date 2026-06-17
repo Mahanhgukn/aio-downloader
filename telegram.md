@@ -7,6 +7,345 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/27 14:43
+---
+
+## VahidOOnLine — post 246003
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246003_1781694795.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهوری آمریکا، چهارشنبه ۲۷ خرداد در حاشیه نشست گروه هفت و در دیدار با عبدالفتاح السیسی، رییس‌جمهوری مصر، یادداشت تفاهم با جمهوری اسلامی را «بسیار قوی» توصیف کرد، اما هم‌زمان هشدار داد که این توافق هنوز نهایی نشده و در صورت نارضایتی واشینگتن، اقدام نظامی از سر گرفته خواهد شد.
+
+ترامپ گفت: «این فقط یک یادداشت تفاهم است. اگر از آن راضی نباشم و رفتارشان را اصلاح نکنند، دوباره به سمت آنها شلیک می‌کنیم و روی سرشان بمب می‌اندازیم. چون به مدت ۴۷ سال بدرفتاری کرده‌اند.»
+
+رییس‌جمهوری آمریکا همچنین مدعی شد این تفاهم بیش از ۹۹ درصد امکان دستیابی جمهوری اسلامی به سلاح هسته‌ای را از بین می‌برد و تاکید کرد که تهران هرگز به سلاح هسته‌ای دست نخواهد یافت.
+
+ترامپ افزود یادداشت تفاهم شامل لغو فوری تحریم‌ها نیست، اما این موضوع در مراحل بعدی مذاکرات مورد بحث قرار خواهد گرفت.
+
+او همچنین درباره وضعیت تنگه هرمز گفت این آبراه راهبردی هم‌اکنون به‌طور جزئی بازگشایی شده و انتظار می‌رود طی یک تا دو روز آینده به‌طور کامل باز شود.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 15146
+
+<div align="center">
+  <a href="telegram/content/WithYashar_15146_1781694796.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ‌ در‌کنار ژنرال السیسی (واقعی): فراموش نکنید، هیچ‌کس هرگز به اندازه من با ایران سخت‌گیر نبوده است.
+
+این کار باید توسط کلینتون و باراک حسین اوباما انجام می‌شد. این کار باید توسط بایدن، بوش و بسیاری از افراد دیگر انجام می‌شد.
+@withyashar
+</div>
+
+## WithYashar — post 15145
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: قابلیت پرداخت فقط یک حقه دیگر است. آنها کلمه «قابلیت پرداخت» را ساختند
+@withyashar
+</div>
+
+## WithYashar — post 15144
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: یادداشت با ایران نهایی نیست. اگر از توافق خوشمان نیاید، دوباره به بمباران بازمی‌گردیم @withyashar
+</div>
+
+## WithYashar — post 15143
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: یادداشت با ایران نهایی نیست. اگر از توافق خوشمان نیاید، دوباره به بمباران بازمی‌گردیم
+@withyashar
+</div>
+
+## mwarmonitor — post 11064
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+او همچنین گفت پیشنهاد داده است که اسرائیل اجازه دهد سوریه با حزب‌الله برخورد کند: «اگر اسرائیل نتواند بدون کشتن همه کار را انجام دهد، او [الشرع] این کار را انجام می‌دهد، سوریه انجام می‌دهد.»
+</div>
+
+## mwarmonitor — post 11063
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 دونالد ترامپ، رئیس‌جمهور آمریکا، می‌گوید گزارش مربوط به صندوق ۳۰۰ میلیارد دلاری در توافق با ایران نادرست است و تأکید می‌کند که آمریکا هیچ سرمایه‌گذاری‌ای در آن انجام نمی‌دهد — رویترز
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 11062
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_11062_1781694798.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رهبران گروه هفت (G7) بعد از تعهد برای مبارزه با «فقرِ پایدار»، با خاویار و شراب‌های وینتیج ۷ هزار دلاری ضیافت مفصل برگزار کردند. «نیویورک پست»
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 343056
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343056_1781694798.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: "If I don't like it, we'll go back to shooting at them, dropping bombs on their head."
+
+President Trump warns Iran that any change to the peace agreement or failure to comply could bring an immediate military response.
+
+"If they don't behave, we'll go right back to dropping bombs right smack in the middle of their head," Trump said.
+
+Trump contrasted the deal with the Obama-era JCPOA, arguing the previous administration tried to "bribe their way out of it."
+
+"You know what the Iranians did? They laughed at Obama and they said, 'he's a stupid son of a b****.'"
+</div>
+
+## FoxNewsTwitter — post 343055
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343055_1781694800.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NEW: Stocks up. Oil down. President Trump says that's the clearest sign yet that the proposed Iran deal is being welcomed by investors.
+
+Speaking about the agreement, Trump highlighted a market rally, declining energy prices, and progress toward reopening the Strait of Hormuz after weeks of uncertainty.
+
+"The stock market has gone through the roof and oil has come tumbling down."
+
+He argued the deal delivers economic stability while also keeping Iran from obtaining a nuclear weapon.
+</div>
+
+## DEJradio — post 5755
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5755_1781694801.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨📢 اختصاصی دژ؛
+در بین فرماندهان و نیروهای میدانی سـ.ـپاه بر سر «توافق» با آمریکا اختلاف شدیدتر شده است
+
+هرچند شماری از فرماندهان ارشد سـ.ـپاه پاسداران موافق مذاکره و توافق احتمالی با آمریکا هستند اما شماری از سرداران و همچنین بیشتر نیروهای میدانی سـ.ـپاه این توافق را «ننگ» می‌دانند و با آن مخالف‌اند.
+
+یک منبع مطلع به دژ می‌گوید، «در بین نیروها همه می‌دانند محمدباقر قالیباف با تأیید مجتبی خامنه‌ای مسئول امضاء توافق شده اما فرماندهان و نیروهای میدانی به صورت تمام و کمال از آنها تبعیت نمی‌کنند.
+
+برای نمونه، بعد از تفاهم دستور توقف حملات به کشتی‌ها صادر شد اما با این ادعا که کشتی‌ها از مقررات سرپیچی کرده‌اند با پهپاد و شهپاد به سمت آنها شلیک شده است.»
+به‌گفته همین منبع «نیروهای میدانی سـ.ـپاه به اشکال مختلف از اجرای دستورات فرماندهی مبنی بر توقف پرتاب‌ها شانه خالی می‌کنند.»
+
+اکنون بسیاری از نیروها می‌گویند قالیباف و باند او خائن‌اند و همچنین می‌پرسند: «این همه کشته دادیم که آخر با ترامپ توافق کنیم؟»
+
+بخشی از اختلافات بر سر توافق احتمالی، به بدنه نیروهای سرکوبگر سرایت کرده است. مخالفان توافق یک حرف مشترک دارند: «چرا باید با قاتلان رهبر توافق کرد؟» این اختلاف به یگان‌ها کشیده شده است و در مواردی به درگیری فیزیکی کشیده شده است.»
+
+#جنگ #توافق #مذاکرات
+@DEJradio
+</div>
+
+## IranIntlTV — post 342842
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342842_1781694802.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻یک اردک خانگی به نام «مرلین» که پیراهن کوچک تیم ملی مکزیک را به تن دارد، به یکی از پدیده‌های غیرمنتظره جام جهانی ۲۰۲۶ تبدیل شده و توجه هواداران فوتبال را به خود جلب کرده است.
+
+🔹شهرت مرلین پس از پیروزی ۲ بر صفر مکزیک مقابل آفریقای جنوبی در دیدار افتتاحیه جام جهانی آغاز شد. در حالی که هواداران در خیابان‌های پایتخت برای گل‌های تیم ملی مکزیک جشن گرفته بودند، این اردک لباس‌پوشیده در میان جمعیت در خیابان معروف رفورما قدم می‌زد.
+
+🔹رهگذران از این صحنه غیرمعمول فیلم گرفتند و تصاویر به سرعت در شبکه‌های اجتماعی فراگیر شد؛ تا جایی که برخی هواداران خواستار انتخاب مرلین به عنوان نماد غیررسمی مکزیک در جام جهانی شدند.
+
+🔹کارلا گومز، صاحب مرلین که به همراه پسرش کریستین در خیابان‌های مکزیکوسیتی نوشیدنی می‌فروشد، گفت هرگز تصور نمی‌کرد اردکش به چنین شهرتی برسد.
+
+🔹او گفت: «آن روز برای ما کاملا عادی بود. فکر می‌کردیم کسی متوجه ما نشده است. واقعا تصور نمی‌کردیم مرلین چنین استقبالی پیدا کند.»
+
+🔹جزییات بیشتر را در سایت بخوانید
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 342841
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342841_1781694802.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ در حاشیه نشست گروه هفت در فرانسه از در راه بودن «توافقی بسیار قدرتمند» خبر داد و گفت بازارهای مالی نسبت به این روند واکنش مثبت نشان داده‌اند و شاخص‌ها در حال رشد هستند. او با تاکید بر بازگشت بازارها به شرایط پیشین، بار دیگر گفت هدف اصلی این است که ایران به سلاح هسته‌ای دست پیدا نکند و باید دید تهران در ادامه چه تصمیمی خواهد گرفت.
+@iranintltv
+</div>
+
+## IranIntlTV — post 342839
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342839_1781694804.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهوری آمریکا، چهارشنبه ۲۷ خرداد در حاشیه نشست گروه هفت و در دیدار با عبدالفتاح السیسی، رییس‌جمهوری مصر، یادداشت تفاهم با جمهوری اسلامی را «بسیار قوی» توصیف کرد، اما هم‌زمان هشدار داد که این توافق هنوز نهایی نشده و در صورت نارضایتی واشینگتن، اقدام نظامی از سر گرفته خواهد شد.
+
+ترامپ گفت: «این فقط یک یادداشت تفاهم است. اگر از آن راضی نباشم و رفتارشان را اصلاح نکنند، دوباره به سمت آنها شلیک می‌کنیم و روی سرشان بمب می‌اندازیم. چون به مدت ۴۷ سال بدرفتاری کرده‌اند.»
+
+رییس‌جمهوری آمریکا همچنین مدعی شد این تفاهم بیش از ۹۹ درصد امکان دستیابی جمهوری اسلامی به سلاح هسته‌ای را از بین می‌برد و تاکید کرد که تهران هرگز به سلاح هسته‌ای دست نخواهد یافت.
+
+ترامپ افزود یادداشت تفاهم شامل لغو فوری تحریم‌ها نیست، اما این موضوع در مراحل بعدی مذاکرات مورد بحث قرار خواهد گرفت.
+
+او همچنین درباره وضعیت تنگه هرمز گفت این آبراه راهبردی هم‌اکنون به‌طور جزئی بازگشایی شده و انتظار می‌رود طی یک تا دو روز آینده به‌طور کامل باز شود.
+https://iranintl.com/202606176397
+</div>
+
+## IranIntlTV — post 342838
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342838_1781694804.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند با ارسال ویدیویی به ایران اینترنشنال گفت که پرداخت نشدن حقوق کارکنان غار علیصدر همدان، آنها را از تأمین مایحتاج زندگی ناتوان کرده و به اعتصاب کشانده است. او افزود که بخش گردشگری این میراث طبیعی ملی در حال تعطیل شدن است.
+</div>
+
+## Persian_Trend_Official — post 17335
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17335_1781694806.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇱🇧
+🇮🇱وزیر دفاع اسرائیل کاتز:
+هر کس دست به اقدامی علیه دولت اسرائیل در غزه، لبنان، سوریه یا هر جای دیگری بردارد، بداند که باید بهای آن را بپردازد.
+اول از همه، زمین را از دست می‌دهند. خانه را از دست می‌دهند.
+Phantom
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## BBCPersian — post 284118
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_284118_1781694808.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻مارک روته، دبیر کل ناتو، از توافق آمریکا و ایران برای پایان دادن به جنگ خاورمیانه استقبال کرد و گفت بازگشایی برنامه‌ریزی‌شده تنگه هرمز «گامی بسیار بزرگ»خواهد بود.
+
+آقای روته در یک کنفرانس خبری در بروکسل گفت: «بازگشت آزادی عبور و مرور از تنگه هرمز یک گام بسیار مهم و رو به جلو خواهد بود. می‌دانم که بسیاری از متحدان، از طریق ابتکاری که به رهبری فرانسه و بریتانیا انجام شده، آماده حمایت هستند.»
+
+📸Anadolu via Getty Images
+https://bbc.in/4a7qMjY
+@BBCPersian
+</div>
+
+## BBCPersian — post 284117
+
+<div align="center">
+  <a href="telegram/content/BBCPersian_284117_1781694808.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻در  نخستین مسابقه جام جهانی در سیاتل که ۲۵ خرداد (۱۵ ژوئن) بین تیم‌های بلژیک و مصر برگزار شد، نتیجه مسابقه به همراه پرچم هر دو کشور با پهپاد در آسمان این شهر نقش بست.
+ 
+به گفته «ویزیت سیاتل»، مجری این طرح، هدف از این تابلوی امتیازات «خلق تصاویری خیره‌کننده با عنصر میان‌فرهنگی و گرد هم آوردن هواداران فوتبال از نقاط مختلف در سیاتل» است.
+ 
+سیاتل میزبان شش بازی در جام جهانی ۲۰۲۶ خواهد بود که از جمله این بازی‌ها، دیدار بین تیم‌های ایران و مصر در ششم تیر است.
+ 
+این تابلوی امتیازات پهپادی در تمام روزهای برگزاری مسابقات در این شهر به نمایش در خواهد آمد.
+
+https://bbc.in/4oIqYfx
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 392378
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392378_1781694810.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+من اون دی جی بودم وقتی زمان جنگ داشتم سعی میکردم حواسم رو صد درصد بذارم رو کارم درحالی که اون پشت املاکی کله زرد با آخوند داشت لاس میزد!
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392377
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392377_1781694812.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این عجیب ترین چیزی بود که میتونستم امروز ببینیم؛
+یه مرد عکس لگن زنشو برده نشون دکتر بده زده ناحیه تناسلی رو با قیچی بریده که دکتر نبینه😐😂
+مشخصه اول ماژیک کشیده دیده فایده نداره قیچیش کرده😂
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 128652
+
+<div align="center">
+  <a href="telegram/content/alonews_128652_1781694812.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ورود نیروهای اسرائیلی به شهر بیت امر تو شمال الخلیل
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128651
+
+<div align="center">
+  <a href="telegram/content/alonews_128651_1781694814.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ درباره اوباما و ایران: هیچ‌کس نمی‌توانست این توافق را انجام دهد.
+
+
+🔴برجام توسط اوباما انجام شد؛ او ۱.۷ میلیارد دلار پول نقد سبز از بانک‌ها به آنها داد، آن را در یک بوئینگ ۷۵۷ گذاشت و به ایران پرواز داد. و آنها کنار هواپیما ایستادند. من عکس‌هایی از آن دارم: «وای خدای من. نگاه کن به این پولی که به ما می‌دهد.»
+
+
+🔴او تلاش کرد با رشوه راه فرار پیدا کند. من این کار را نکردم. هیچ‌کس به این اشاره نمی‌کند.
+
+
+🔴و می‌دانید ایرانی‌ها چه کردند؟ به اوباما خندیدند و گفتند: «او یک پسر احمق لعنتی است.»
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128650
+
+<div align="center">
+  <a href="telegram/content/alonews_128650_1781694814.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: فراموش نکنید، هیچ‌کس هرگز به اندازه من با ایران سخت‌گیر نبوده است.
+
+
+🔴این کار باید توسط کلینتون و باراک حسین اوباما انجام می‌شد. این کار باید توسط بایدن، بوش و بسیاری از افراد دیگر انجام می‌شد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128649
+
+<div align="center">
+  <a href="telegram/content/alonews_128649_1781694815.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: قابلیت پرداخت فقط یک حقه دیگر است. آنها کلمه «قابلیت پرداخت» را ساختند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/27 14:33
 ---
 

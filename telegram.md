@@ -7,6 +7,258 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/28 00:43
+---
+
+## VahidOOnLine — post 246093
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس‌جمهوری آمریکا، چهارشنبه ۲۷ خرداد پس از شرکت در نشست سران گروه هفت (G7)، برای حضور در ضیافت شام رسمی راهی کاخ ورسای شد و مورد استقبال امانوئل مکرون، رئیس‌جمهوری فرانسه، قرار گرفت.
+به گزارش رویترز، مکرون در بدو ورود ترامپ از او در کاخ تاریخی ورسای استقبال کرد. دو رهبر قرار است در این اقامتگاه تاریخی در ضیافت شام رسمی شرکت کنند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 15196
+
+
+
+
+## pm_afshaa — post 94302
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94302_1781730838.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴قالیباف: در قوانین ایران هیچ مانعی برای حضور و سرمایه‌گذاری شرکت‌های آمریکایی در داخل ایران وجود نداره!
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## kianmeli1 — post 88053
+
+<div align="center">
+  <a href="telegram/content/kianmeli1_88053_1781730838.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴قالیباف: بند 6 تفاهم‌نامه 300 میلیارد دلار برای موضوع بازسازی و توسعه اقتصادی در ایران تعیین شده!
+
+در این بند 300 میلیارد دلار تعیین شده تا در ایران سرمایه گذاری بشه که بخشی از آن صرف بازسازی خواهد شد.
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 342924
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342924_1781730840.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در ادامه حواشی دیدار ایران و نیوزیلند در جام جهانی فوتبال، سازمان حقوق بشر برای ورزش در نامه‌ای به فیفا، شادی پس از گل محمد محبی را رفتاری غیرورزشی خواند و خواستار بررسی آن شد.
+
+جزییات بیشتر در گفت‌وگو با رضا محدث، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 342923
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342923_1781730842.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ تفاهم با جمهوری اسلامی را «بسیار قوی» توصیف کرد اما گفت هنوز نهایی نشده و در صورت نقض تعهدات، گزینه نظامی روی میز خواهد بود. ترامپ گفته این توافق بیش از ۹۹ درصد توان هسته‌ای ایران را از بین می‌برد. همزمان منابع ایرانی می‌گویند سفر هیات مذاکره‌کننده به سوئیس لغو نشده و جزئیات تفاهم همچنان در حال بررسی است.
+@iranintltv
+</div>
+
+## FarsiVOA — post 221058
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️هشدار کارشناسان سازمان ملل متحد درباره وضعیت جسمی ‌زوج بریتانیایی محبوس در زندان اوین
+@FarsiVOA
+</div>
+
+## BBCPersian — post 284183
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️گروه جی (J) جام جهانی؛ آخرین ماموریت مسی
+
+تیم ملی آرژانتین به عنوان مدافع عنوان قهرمانی، وارد رقابت‌های جام جهانی ۲۰۲۶ می‌شود. لیونل اسکالونی، معمار دوران طلایی جدید آرژانتین، پس از قهرمانی در جام جهانی ۲۰۲۲ همچنان با اقتدار تیم ملی را هدایت می‌کند. بزرگ‌ترین ویژگی او مدیریت فوق‌العاده بازیکنان و ایجاد اتحاد در تیم است.
+
+تیم ملی اتریش پس از ۲۸ سال غیبت، با امیدهای فراوان راهی جام جهانی ۲۰۲۶ می‌شود. بزرگ‌ترین نقطه قوت اتریش، توانایی اجرای دقیق برنامه‌های تاکتیکی و عملکرد خوب برابر تیم‌های قدرتمند است ولی در مقابل تیم‌های ضعیف‌تر که باید ابتکار عمل را در دست بگیرد و دفاع‌های فشرده را باز کند، گاهی دچار مشکل می‌شود.
+
+تیم ملی الجزایر یکی از غیر قابل‌ پیش‌بینی‌ترین تیم‌های حاضر در جام جهانی ۲۰۲۶ است. روی کاغذ، «روباه‌های صحرا» مجموعه‌ای از بازیکنان تکنیکی و خلاق هستند که توانایی رقابت با بسیاری از تیم‌های بزرگ را دارند.
+
+تیم ملی اردن برای نخستین بار به جام جهانی صعود کرده و این بزرگ‌ترین دستاورد تاریخ فوتبال این کشور است. نقطه قوت اصلی اردن روحیه جنگندگی آن است.
+
+📸GettyImages
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 392435
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 خدایا شکرت، میا خلیفه، پورن استار معروف، در حمایت از طارمی و تیم ملی، استوری گذاشته.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392434
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392434_1781730843.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+زشته به خدا! اخه اینجا جای این کاراست؟ لطفا برید توی حرم امام انجامش بدید.
+لطفا بیشتر از این کارها بکنیدد
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392433
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392433_1781730845.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قالیباف: من دولت تعیین موکونوم! من با مشت توی دهن این دولت موزونوم... من به پشتوانه ی چین دولت تعیین موکونوم! من به واسطۀ اینکه ترامپ مرا قبول دارد، دولت تعیین موکونوم.
+
+#کودتا
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 128806
+
+<div align="center">
+  <a href="telegram/content/alonews_128806_1781730845.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری/بقایی:
+الان که با شما صحبت می‌کنم احتمالاً متن تفاهم نامه اسلام آباد به امضای روسای جمهور ایران و آمریکا رسیده باشد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128805
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وضعیت
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128804
+
+<div align="center">
+  <a href="telegram/content/alonews_128804_1781730846.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سناتور جمهوری خواه بیل کسیدی در مورد تفاهم نامه ترامپ:
+ریگان در قبر در حال لرزیدن به خود است....این بدترین سیاست خارجه آمریکا در چندین دهه اخیر است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128803
+
+<div align="center">
+  <a href="telegram/content/alonews_128803_1781730846.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈یک آسیب دیده جنگ: خونه ما موشک خورده و کامل تخریب شده اما مسئولان اصلا براشون مهم نیست و وقتی میریم پیششون نگاه هم نمیکنن مارو
+
+
+🔴الان ما آواره شدیم و چیزی نداریم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128802
+
+<div align="center">
+  <a href="telegram/content/alonews_128802_1781730848.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈قالیباف با بغض: برای من کار راحتی نبود با ترامپ قاتل سردار سلیمانی مذاکره کنم / نفر دومی جز من برای مذاکره نبود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128801
+
+<div align="center">
+  <a href="telegram/content/alonews_128801_1781730850.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈استوری میا خلیفه بازیگر مشهور لبنانی برای مهدی طارمی:
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128799
+
+<div align="center">
+  <a href="telegram/content/alonews_128799_1781730850.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈جرمی کلارکسون از مستندساز های ماشینی معروف که در ایران طرفدار زیادی دارد اعلام کرد به سرطان مبتلا شده است
+
+جرمی کلارکسون:
+سرطان پروستات دارم، ده درصد از پروستاتم را برداشته اند و اگر همه چیز طبق برنامه پیش برود، در فصل ششم «مزرعه کلارکسون» می‌بینمتان. اگر نه که مشخص است مرده ام. مراقب خودتان باشید.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128798
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کسانی که در خیابان فرزندان ایران را به گلوله بستند و شکنجه کردند، مولایشان حسین بود.
+</div>
+
+## alonews — post 128797
+
+<div align="center">
+  <a href="telegram/content/alonews_128797_1781730851.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈معاون وزیر کشور: ۶۰ درصد مردم ایران امیدی به بهبود آینده ندارن
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128796
+
+<div align="center">
+  <a href="telegram/content/alonews_128796_1781730851.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈قالیباف: ما میتونیم تنگه هرمز رو بر ضد آمریکا تبدیل کنیم. هیچ کس به کمک آمریکا نیومد. این موضوع که باید عوارض تردد در تنگه هرمز پرداخت بشه، تثبیت شده در تفاهم نامه.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/28 00:23
 ---
 

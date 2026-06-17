@@ -7,6 +7,33 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/27 06:12
+---
+
+## FoxNewsTwitter — post 343050
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"Honestly Greg, I expected them to be absolutely vicious, and they were only a little bit vicious."
+
+VP JD Vance is looking back on his recent appearance on The View and says it went better than he expected.
+
+While appearing on @Gutfeldfox, Vance joked that "it wasn't as bad as I thought it was gonna be" despite sparring with the show's co-hosts over immigration, race, and his past "childless cat ladies" comments.
+
+He even revealed what happened once the cameras stopped rolling: "Joy Behar even said during the break, not joking, she said, 'You know what, you're pretty good for a Republican.'"
+</div>
+
+## FarsiVOA — post 220984
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️اوکراین و توافق واشنگتن با جمهوری اسلامی در کانون توجه نشست سران گروه هفت
+@FarsiVOA
+</div>
+
+---
 📅 بروزرسانی: 1405/03/27 06:03
 ---
 

@@ -7,6 +7,63 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/27 11:53
+---
+
+## VahidOOnLine — post 245978
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245978_1781684606.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کامران غضنفری، عضو کمیسیون امور داخلی مجلس، با انتقاد از تفاهم‌ میان جمهوری اسلامی و آمریکا گفت اگر این تفاهم‌نامه جمعه امضا شود، اسرائیل ظرف چند روز آن را نقض خواهد کرد و دوباره به جمهوری اسلامی حمله می‌کند.
+
+این نماینده مجلس همچنین گفت در این توافق به ممنوعیت ورود ناوهای نظامی خارجی به خلیج فارس و محدودیت تردد کشتی‌های اسرائیلی اشاره نشده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## IranIntlTV — post 342815
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342815_1781684607.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کامران غضنفری، عضو کمیسیون امور داخلی مجلس، با انتقاد از تفاهم‌ میان جمهوری اسلامی و آمریکا گفت اگر این تفاهم‌نامه جمعه امضا شود، اسرائیل ظرف چند روز آن را نقض خواهد کرد و دوباره به جمهوری اسلامی حمله می‌کند.
+
+این نماینده مجلس همچنین گفت در این توافق به ممنوعیت ورود ناوهای نظامی خارجی به خلیج فارس و محدودیت تردد کشتی‌های اسرائیلی اشاره نشده است.
+https://iranintl.com/202606174626
+</div>
+
+## alonews — post 128618
+
+<div align="center">
+  <a href="telegram/content/alonews_128618_1781684607.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈غضنفری، نماینده مجلس : اسرائیل بعد امضای توافق، دوباره حملهِ میکنه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128617
+
+<div align="center">
+  <a href="telegram/content/alonews_128617_1781684608.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ : تحریم‌های روسیه که تا حدودی به دلیل جنگ ایران و با هدف کاهش قیمت نفت لغو شده بود، می‌تواند بار دیگر اعمال شود
+
+
+🔴 دونالد ترامپ رئیس‌جمهوری آمریکا در نشست گروه هفت از احتمال بازگرداندن تحریم‌های نفتی علیه روسیه پس از دوبار معافیت خبر داد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/27 11:43
 ---
 

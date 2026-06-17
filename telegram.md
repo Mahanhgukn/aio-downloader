@@ -7,6 +7,40 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/27 06:23
+---
+
+## FoxNewsTwitter — post 343051
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343051_1781664806.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"What really does bother me is that they don't show gratitude for the United States of America."
+
+VP JD Vance blasted Democrats serving in public office during an appearance on @Gutfeldfox, arguing that too many spend their time criticizing the country rather than appreciating it.
+
+Vance said he was raised to love America and be grateful for the opportunities it provides, calling patriotism a core value that shaped his upbringing.
+
+He contrasted that outlook with what he sees from many on the left, saying a lack of appreciation for the country has become increasingly common in American politics.
+</div>
+
+## FarsiVOA — post 220985
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺یادداشت رئيس‌جمهوری آمریکا تولید مهمات جنگی را سرعت می‌بخشد
+
+▪️بر اساس یک یادداشت ریاست‌جمهوری آمریکا که روز سه‌شنبه منتشر شد، رئیس‌جمهوری ایالات متحده، دونالد ترامپ، برای رفع محدودیت‌های موجود در تولید مهمات، به «قانون تولید دفاعی» استناد کرده است.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8161816.html
+@FarsiVOA
+</div>
+
+---
 📅 بروزرسانی: 1405/03/27 06:12
 ---
 

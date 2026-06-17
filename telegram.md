@@ -7,6 +7,87 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/27 17:23
+---
+
+## WithYashar — post 15155
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+️جی‌دی ونس: برخی افراد فقط می‌خواهند بمباران ادامه یابد، صرف نظر از اینکه آیا برای آمریکایی‌ها دستاوردی دارد یا خیر.
+ترامپ سعی در ایجاد بدبختی برای مردم ایران ندارد
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 343061
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343061_1781704421.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+MLB's pride problems aren't going away.
+
+Senator Josh Hawley is accusing Major League Baseball of religious discrimination after several San Francisco Giants players were warned for writing Bible verses on their Pride Night caps.
+
+The controversy prompted an apology from the Giants to the LGBTQ+ community, while supporters, like Vice President JD Vance, defended the players and argued that athletes should not be forced to display ideological messages they don't agree with, @LucasFoxNews reports.
+</div>
+
+## FarsiVOA — post 221022
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺بدون ذره‌ای شفقت؛ نگاهی به ۲۰ پرونده اجرای احکام اعدام در شرایط جنگی
+
+▪️وقتی به آرشیو نام و اطلاعات افرادی که توسط جمهوری اسلامی کشته شده‌اند رجوع می‌کنی، انگار روزنامه نتایج کنکور را در دست گرفته‌ای. مثل همان روزنامه پر است از اسامی و حتی نام‌های خانوادگی مشابه. اما شگفتی دیدن این اسامی در آن است که این‌ها راه‌یافتگان به دانشگاه نیستند، بلکه کشته‌شده‌هایی هستند، گاه با اسامی مشترک، اما از سال‌های مختلف، حتی دهه‌های مختلف، و به روش‌های مختلف: حلق‌آویز کردن، تیرباران، شلیک و …. بدون ذره‌ای شفقت.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/iran-judiciary-confession-court-pressure-defendant-protester/8161515.html
+</div>
+
+## FarsiVOA — post 221021
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_221021_1781704423.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بنابر اعلام فرماندهی جنوبی ایالات متحده، نیروهای مشترک این فرماندهی روز سه‌شنبه، ۲۶ خرداد، به دستور ژنرال فرانسیس داناوان، یک حمله هدفمند علیه شناور متعلق به سازمان‌های تروریستیِ شناسایی‌شده انجام دادند.
+
+بر اساس داده‌های اطلاعاتی، این شناور در حال حرکت در مسیرهای شناخته‌شده قاچاق مواد مخدر در شرق اقیانوس آرام و انجام عملیات انتقال محموله بود.
+
+در جریان این حمله، یکی از سه قاچاقچی تروریست کشته شد و گارد ساحلی برای بازیابی دو نفر دیگر اقدام کردند. در این عملیات به هیچ‌یک از نیروهای نظامی آمریکا آسیبی نرسید.
+</div>
+
+## IranianMinds — post 22792
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22792_1781704425.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 شرکت ایران خودرو درخواست افزایش قیمت پلاستیکاشو داد.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 284135
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_284135_1781704425.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻دونالد ترامپ که برای شرکت در نشست سران گروه هفت در فرانسه به سر می‌برد گفت تفاهم‌نامه با ایران هنوز «نهایی نشده» و در صورتی که از اجرای آن رضایت نداشته باشد، ممکن است بمباران را از سربگیرد.
+
+او در حاشیه این نشست گفت: «این یک تفاهم‌نامه است. اگر از آن خوشم نیاید، دوباره شلیک می‌کنیم و بمب بر سرشان می‌ریزیم. اگر خوشم نیاید، اگر درست رفتار نکنند، دوباره مستقیما به بمباران برمی‌گردیم.»
+
+آقای ترامپ در ادامه گفت این تفاهم‌نامه شامل رفع فوری تحریم‌های ایران نمی‌شود و تأکید کرد که در این باره بعدا توضیح بیشتری خواهد داد.
+
+📸REUTERS
+https://bbc.in/4xEdeXm
+@BBCPersian
+</div>
+
+---
 📅 بروزرسانی: 1405/03/27 17:13
 ---
 

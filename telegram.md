@@ -7,6 +7,41 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/27 06:43
+---
+
+## FoxNewsTwitter — post 343052
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343052_1781666000.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"If you believe that Jesus is the son of God, rose from the dead on the third day, there are a lot of progressives who will say you're a crazy person."
+
+VP JD Vance took aim at what he called "progressive atheistic culture," arguing that many on the left dismiss traditional religious beliefs while embracing ideas he considers far less believable.
+
+"Actually, you believe something that's far crazier and clearly a violation of nature." @Gutfeldfox
+</div>
+
+## BBCPersian — post 284084
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻جام جهانی؛ ویزای جدید برای مهدی ترابی صادر شد
+
+پس از آن که گزارش شد مهدی ترابی، هافبک تیم ملی ایران، بعد از مسابقه برابر نیوزیلند مطلع شده که ویزای او برای ورود به خاک آمریکا یک بار اعتبار داشته و با بازگشت به کمپ تیم در تیخوآنا مکزیک، باطل خواهد شد، ساعتی قبل فدراسیون فوتبال ایران از صدور مجدد ویزا برای ترابی خبر داد.
+
+بنابر این گزارش، این بار ویزای ورود متعدد برای آقای ترابی صادر شده و او در مسابقات بعدی تیم ملی ایران مشکلی برای ورود و خروج از خاک آمریکا نخواهد داشت.
+
+ایران که روز گذشته در نخستین مسابقه خود طی یک مسابقه پر فراز و نشیب و متاثر از حواشی سیاسی، برابر نیوزیلند ۲-۲ مساوی کرد، در مسابقه دوم باید دوباره از تیخوآنا به لس‌آنجلس برود اما برای مسابقه آخر برابر مصر پرواز این تیم از مرز مکزیک به سیاتل در شمال کرانه غربی آمریکا، طولانی‌تر خواهد بود و اگر مانند مسابقه دیروز این تیم ناچار به ترک خاک آمریکا بلافاصله بعد از پایان دیدار با مصر باشد، سفر بازگشت انها از سیاتل به تیخوآنا خسته کننده‌تر از دو مسابقه اول خواهد بود.
+
+https://bbc.in/4vXHNFS
+@BBCPersian
+</div>
+
+---
 📅 بروزرسانی: 1405/03/27 06:33
 ---
 

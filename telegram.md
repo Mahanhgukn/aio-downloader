@@ -7,6 +7,112 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/27 13:43
+---
+
+## VahidOOnLine — post 245990
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_245990_1781691180.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پشتِ توافق احتمالی آمریکا و جمهوری اسلامی، فقط بحث هسته‌ای نیست. مسئله اصلی مسیرهای مالی است، از نفت و دارایی‌های بلوکه‌شده تا صندوق سرمایه‌گذاری ۳۰۰ میلیارد دلاری.
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245989
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_245989_1781691181.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بخشی از یک گفت‌وگوی اختصاصی و کمتر دیده‌ شده میان خبرنگار رادیو و تلویزیون ملی ایران در لندن و رئیس اداره اطلاعات و سخنگوی سفارت اتحادجماهیر شوروی.
+این مصاحبه در اوج تنش‌های جنگ سرد و پس از اخراج دیپلمات‌های شوروی از بریتانیا انجام شده و دیدگاه رسمی شوروی درباره این بحران را روایت می‌کند.
+برای تماشای نسخه کامل این مصاحبه و صدها فیلم آرشیوی نایاب دیگر، کانال یوتیوب Manoto را دنبال کنید.
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## kianmeli1 — post 88039
+
+<div align="center">
+  <a href="telegram/content/kianmeli1_88039_1781691182.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کلینتون در حال تمسخر ترامپ
+
+ترامپ بعد از حمله به ایران گفته که: هیچ‌کس به من نگفته بود که ایرانی‌ها می‌توانند تنگهٔ هرمز را ببندد ٫ تنگه هرمز کجاست.
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 342829
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342829_1781691183.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند ساکن مشهد با ارسال ویدیویی به ایران اینترنشنال نشان داد که شامگاه ۲۶ خرداد و در پی توافق میان آمریکا و جمهوری اسلامی، یک جشن حکومتی در منطقه وکیل‌آباد برپا شده است. او گفت: «رهبر قاتل و فرماندهان حکومت کشته شدند و حالا با وجود امتیازدهی فراوان به آمریکا حامیان نظام ادعای پیروزی دارند. اینها نان خود را در خون مردم ایران می‌زنند.»
+</div>
+
+## IranIntlTV — post 342828
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342828_1781691185.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+«۲۴ با #فرداد _فرحزاد»؛ دوشنبه تا جمعه ساعت ۲۲:۰۰ تهران
+
+اخبار فوری، گزارش‌ و گفت‌وگوهای عمیق از ایران و جهان
+
+در جریان بمانید!
+@iranintltv
+</div>
+
+## ManotoTV — post 106109
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_106109_1781691187.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پشتِ توافق احتمالی آمریکا و جمهوری اسلامی، فقط بحث هسته‌ای نیست. مسئله اصلی مسیرهای مالی است، از نفت و دارایی‌های بلوکه‌شده تا صندوق سرمایه‌گذاری ۳۰۰ میلیارد دلاری.
+</div>
+
+## ManotoTV — post 106108
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_106108_1781691187.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بخشی از یک گفت‌وگوی اختصاصی و کمتر دیده‌ شده میان خبرنگار رادیو و تلویزیون ملی ایران در لندن و رئیس اداره اطلاعات و سخنگوی سفارت اتحادجماهیر شوروی.
+این مصاحبه در اوج تنش‌های جنگ سرد و پس از اخراج دیپلمات‌های شوروی از بریتانیا انجام شده و دیدگاه رسمی شوروی درباره این بحران را روایت می‌کند.
+برای تماشای نسخه کامل این مصاحبه و صدها فیلم آرشیوی نایاب دیگر، کانال یوتیوب Manoto را دنبال کنید.
+</div>
+
+## Hranews — post 113667
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جرائم مواد مخدر؛ یک زندانی در زندان زابل اعدام شد
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– سحرگاه امروز چهارشنبه ۲۷ خردادماه، حکم یک زندانی که پیشتر از بابت اتهامات مرتبط با جرائم مواد مخدر به #اعدام محکوم شده بود، در زندان زابل اجرا شد.
+
+ادامه مطلب
+
+#عارف_براهویی (#عارف_عیدوزهی)
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+---
 📅 بروزرسانی: 1405/03/27 13:33
 ---
 

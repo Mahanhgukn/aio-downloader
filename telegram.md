@@ -7,6 +7,165 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/28 01:13
+---
+
+## VahidOOnLine — post 246096
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246096_1781732636.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️اسماعیل بقایی، سخنگوی وزارت امور خارجه جمهوری اسلامی، چهارشنبه ۲۷ خرداد در گفتگو با صداوسیما اعلام کرد مراسم امضای تفاهم‌نامه ایران و آمریکا که قرار بود در سوئیس برگزار شود، انجام نخواهد شد و این سند به‌صورت دیجیتالی به امضای دو طرف خواهد رسید.
+بقایی گفت تصمیم اولیه بر برگزاری نشستی در سوئیس و امضای رسمی متن از سوی دو طرف بود، اما پس از بررسی‌های انجام‌شده، ترجیح داده شد این سند توسط روسای جمهوری دو کشور و به‌صورت مجازی امضا شود. به گفته او، امضای سند توسط بالاترین مقام‌های دو کشور، هزینه نقض آن را افزایش می‌دهد.
+سخنگوی وزارت امور خارجه همچنین تاکید کرد که با وجود لغو مراسم امضا، برنامه حضور تیم‌های مذاکره‌کننده و ادامه گفتگوها در سوئیس همچنان در دستور کار قرار دارد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 15199
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+طبق گزارش Axios، رئیس‌جمهور ترامپ شخصاً نسخه‌ای از توافقنامه را در حین صرف شام با رئیس‌جمهور فرانسه ماکرون در کاخ ورسای امضا کرد.
+
+عکسی از توافقنامه امضا شده به ایرانی‌ها و کشورهای میانجی ارسال شد.
+@withyashar
+</div>
+
+## WithYashar — post 15198
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تسنیم: متن فارسی تفاهمنامه نیز به عنوان سند رسمی به امضای ایران و آمریکا رسیده است
+@withyashar
+</div>
+
+## mwarmonitor — post 11090
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری: به گفته دو مقام آمریکایی به آکسیوس، ایالات متحده و ایران یادداشت تفاهم (MOU) پایان‌دهنده جنگ را به‌صورت الکترونیکی امضا کرده‌اند و این توافق اکنون لازم‌الاجرا شده است.
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 94304
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94304_1781732637.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴بقایی، سخنگوی وزارت خارجه:
+متن تفاهمنامه ایران و آمریکا رسما نهایی شده چون دو طرف اون رو امضا کردن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94303
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_94303_1781732637.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴باراک راوید، آکسیوس: ایران و آمریکا تفاهمنامه رو از راه دور امضا کردن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 342926
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342926_1781732638.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عملیات گسترده پلیس تورنتو برای بازداشت مظنونان حمله به کنسولگری آمریکا به درگیری خونین و کشف یک شبکه بزرگ جنایی منجر شد.
+
+مقام‌های کانادایی با همکاری اف‌بی‌آی در حال بررسی این احتمال هستند که حمله به کنسولگری آمریکا بخشی از فعالیت‌های این شبکه تروریستی فراملی بوده باشد.
+
+گزارش مهسا مرتضوی، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## FarsiVOA — post 221060
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️گزارش نرگس صبا در برنامه تفسیر خبر در باره نتایج یک تحقیق تازه: مخالفان توافق با آمریکا از چه طیف‌هایی هستند؟
+@FarsiVOA
+</div>
+
+## IranianMinds — post 22838
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 مذاکرات هنوز کامل نهایی نشده و از امروز به بعد مذاکرات ۶۰ روزه برای توافق نهایی شروع میشه ، طبق گفته ترامپ این مذاکرات قابل تمدید هم هست زمانش.
+
+برگشتیم سر پله ی اول عملا
+
+@IranianMinds
+</div>
+
+## alonews — post 128820
+
+<div align="center">
+  <a href="telegram/content/alonews_128820_1781732639.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈هم اکنون ریزش شدید تتر و طلا
+
+تتر 152000
+
+طلا 15میلیون
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128819
+
+<div align="center">
+  <a href="telegram/content/alonews_128819_1781732639.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈قاضی زاده، عضو تحریریه اینترنشنال: کجای راه را اشتباه رفتیم؟
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128818
+
+<div align="center">
+  <a href="telegram/content/alonews_128818_1781732640.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈باراک راوید، خبرنگار آکسیوس: ترامپ شخصاً یه نسخه از توافق رو توی یه مهمونی شام با مکرون تو کاخ ورسای امضا کرد و عکسِ اون توافق امضا شده رو هم برای ایران و کشورهای میانجی فرستادن
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128817
+
+<div align="center">
+  <a href="telegram/content/alonews_128817_1781732640.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سناتور لیندسی گراهام: انتظار بسیار بالاتری از این توافق داشتم و فعلا نظری ندارم!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/28 01:04
 ---
 

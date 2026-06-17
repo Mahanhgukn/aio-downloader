@@ -7,6 +7,226 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/28 01:04
+---
+
+## VahidOOnLine — post 246095
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_246095_1781732075.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس‌جمهوری آمریکا، روز چهارشنبه ۲۷ خردادماه در پاریس گفت اگر کشورهای دیگر به موشک‌های بالستیک دسترسی دارند، محروم کردن ایران از این توانمندی «کمی ناعادلانه» است. او تاکید کرد که موشک‌های بالستیک با برنامه هسته‌ای تفاوت دارند و نباید این دو موضوع با یکدیگر خلط شوند.
+
+ترامپ در پاسخ به سوالی درباره اظهارات پیشین خود گفت: «اگر کشورهای دیگر این موشک‌ها را دارند، کمی ناعادلانه است که ایران هیچ‌کدام را نداشته باشد.» او افزود: «اگر عربستان سعودی، قطر و کشورهای دیگر چنین موشک‌هایی دارند، فکر می‌کنم در یک تناسب نسبی، داشتن آن‌ها اشکالی ندارد.» ترامپ همچنین گفت موشک‌های بالستیک با موضوع سلاح هسته‌ای متفاوت‌اند و تفاهم‌نامه اخیر تهران و واشینگتن بر جلوگیری از دستیابی ایران به سلاح هسته‌ای متمرکز است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246094
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_246094_1781732077.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمدباقر قالیباف، رییس هیات مذاکره‌کننده جمهوری اسلامی با آمریکا، گفت طرف مقابل حاضر نیست بپذیرد متجاوز بوده است، زیرا در این صورت باید همه خسارت‌ها را بپردازد.
+او افزود به‌جای پرداخت خسارت، در متن بر مفاهیمی چون «بازسازی» و «توسعه اقتصادی» تاکید شده است.
+به گفته قالیباف، در همین چارچوب ۳۰۰ میلیارد دلار سرمایه‌گذاری پیش‌بینی شده که بخشی از آن صرف بازسازی و جبران خسارت‌ها خواهد شد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 15197
+
+<div align="center">
+  <a href="telegram/content/WithYashar_15197_1781732079.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بقایی: همین الان که در حال صحبت هستیم متن توافق رسما به امضا رئیس جمهور های دو طرف رسیده است
+
+قرار بود که بامداد روز ۲۸ خرداد ماه رئیس جمهور دو کشور این متن و توافق رو امضا کنند.
+@withyashar
+</div>
+
+## kianmeli1 — post 88054
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴به گزارش اکسیوس، ایران و آمریکا به صورت الکترونیکی تفاهم‌نامه‌ای برای پایان دادن به جنگ امضا کردند.
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 342925
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342925_1781732081.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمدباقر قالیباف، رییس هیات مذاکره‌کننده جمهوری اسلامی با آمریکا، گفت طرف مقابل حاضر نیست بپذیرد متجاوز بوده است، زیرا در این صورت باید همه خسارت‌ها را بپردازد.
+او افزود به‌جای پرداخت خسارت، در متن بر مفاهیمی چون «بازسازی» و «توسعه اقتصادی» تاکید شده است.
+به گفته قالیباف، در همین چارچوب ۳۰۰ میلیارد دلار سرمایه‌گذاری پیش‌بینی شده که بخشی از آن صرف بازسازی و جبران خسارت‌ها خواهد شد.
+</div>
+
+## FarsiVOA — post 221059
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_221059_1781732083.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️آمار وزارت بازرگانی آمریکا در روز چهارشنبه نشان می‌دهد که اقتصاد آمریکا با وجود جنگ با جمهوری اسلامی و شوک ناشی از افزایش قیمت نفت، شاهد افزایش فراتر از انتظار فروش خرده‌فروشی‌ها بود.
+به گزارش رویترز، خانوارهای آمریکایی با وجود قیمت بالاتر بنزین خودروهای بیشتری خریدند. فروش قوی خرده‌فروشی در ایالات متحده، نشان‌دهنده‌ انعطاف‌پذیری اقتصاد این کشور علیرغم جنگ با جمهوری اسلامی است.
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 17406
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17406_1781732084.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبتون بخیر 🌃
+F-18 Super Hornet
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17405
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17405_1781732086.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بدون شرح...
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 22837
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 قالیباف : برای من کار راحتی نبود با ترامپ قاتل سردار سلیمانی مذاکره کنم نفر دومی جز من برای مذاکره نبود! @IranianMinds
+</div>
+
+## IranianMinds — post 22836
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22836_1781732088.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 قالیباف : برای من کار راحتی نبود با ترامپ قاتل سردار سلیمانی مذاکره کنم
+نفر دومی جز من برای مذاکره نبود!
+
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22835
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 آکسیوس :
+
+آمریکا و ایران «تفاهم‌نامه (MOU) پایان جنگ» را به‌صورت الکترونیکی امضا کرده‌اند.
+
+این توافق اکنون وارد مرحله اجرا شده است.
+
+با این حال، قرار است یک مراسم رسمی امضا نیز روز جمعه در سوئیس برگزار شود.
+
+برخی مفاد عملی توافق، از جمله مسائل مربوط به تنگه هرمز و اقدامات متقابل دو طرف، پس از مراحل بعدی اجرایی خواهند شد.
+
+@IranianMinds
+</div>
+
+## alonews — post 128816
+
+<div align="center">
+  <a href="telegram/content/alonews_128816_1781732090.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رسایی: فاجعه‌ای بدتر از برجام رخ داده
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128815
+
+<div align="center">
+  <a href="telegram/content/alonews_128815_1781732090.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سخنگوی وزارت خارجه:
+قرار بود طی ۳۰ روز محاصره برداشته شود و متقابلاً ایران هم درباره تنگه هرمز این کار را انجام دهیم. اما بعد از تحولات مربوط به حمله رژیم صهیونیستی به ضاحیه و تهدیدات جدی که از سوی ایران انجام گرفت، مذاکرات فوری انجام گرفت و قرار شد آمریکا تعهداتش را فوری انجام دهد.
+
+
+🔴در رصدی که انجام شد مشخص شد کشتی‌های ما بدون مشکلی وارد بنادر شدند و خارج شدند و این تعهد {آمریکا به رفع محاصره} شروع شد. تعهدات ما ‍بس از امضای این سند شروع خواهد شد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128814
+
+<div align="center">
+  <a href="telegram/content/alonews_128814_1781732090.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تسنیم: متن فارسی تفاهمنامه نیز به عنوان سند رسمی به امضای ایران و آمریکا رسیده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128813
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حسینی با یزیدی صلح یک ساعت نخواهد کرد
+کسی مانند ما با مثل او بیعت نخواهد کرد
+</div>
+
+## alonews — post 128812
+
+<div align="center">
+  <a href="telegram/content/alonews_128812_1781732091.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سخنگوی وزارت خارجه: در متن تفاهمنامه تاکید شده است که فقط منحصراً در موضوع هسته‌ای و رفع تحریم‌ها مذاکره می‌کنیم.
+
+
+🔴از زمان اجرای تفاهمنامه، که الان است، ظرف 60 روز درباره موضوع هسته‌ای و تحریم‌ها مذاکره کنیم. اگر زودتر هم مذاکره به نتیجه برسد، بهتر است. ولی با توجه به پیچیدگی موضوع، عدد 60 روز منطقی است و اگر لازم باشد، این زمان تمدید می‌شود.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128811
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عرازش برید خونه‌هاتون
+</div>
+
+## alonews — post 128810
+
+<div align="center">
+  <a href="telegram/content/alonews_128810_1781732091.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خبرنگار اکسیوس: دو مقام آمریکایی به من گفتند که ایالات متحده و ایران روز چهارشنبه تفاهم‌نامه پایان جنگ را به صورت الکترونیکی امضا کرده‌اند و اکنون لازم‌الاجرا است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/28 00:54
 ---
 

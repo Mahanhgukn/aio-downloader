@@ -7,6 +7,180 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/27 14:23
+---
+
+## VahidOOnLine — post 246001
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246001_1781693583.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری رسمی لبنان گزارش داد در حملات هوایی روز چهارشنبه ۲۷ خرداد اسرائیل به مناطقی در جنوب لبنان، چندین نفر زخمی شدند. این حملات در حالی رخ داد که مقام‌های جمهوری اسلامی در روزهای اخیر بارها تاکید کرده‌اند حملات اسرائیل به لبنان نقض یادداشت تفاهم با آمریکا محسوب می‌شود.
+
+خبرگزاری ملی لبنان اعلام کرد سه حمله هوایی به شهرهای منصوری و عازیه انجام شده و در پی آن چندین نفر زخمی شده‌اند. این خبرگزاری همچنین از حمله دیگری به منطقه براشیت خبر داد. ارتش اسرائیل تاکنون درباره این گزارش‌ها اظهار نظر نکرده است.
+
+اندکی پس از این حملات، آژیرهای هشدار نفوذ احتمالی پهپاد از لبنان در شهرک مرزی زاریت در شمال اسرائیل به صدا درآمد، اما ارتش اسرائیل اعلام کرد این هشدار ناشی از «خطای تشخیص» بوده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246000
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246000_1781693583.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری رسمی لبنان گزارش داد در حملات هوایی روز چهارشنبه ۲۷ خرداد اسرائیل به مناطقی در جنوب لبنان، چندین نفر زخمی شدند. این حملات در حالی رخ داد که مقام‌های جمهوری اسلامی در روزهای اخیر بارها تاکید کرده‌اند حملات اسرائیل به لبنان نقض یادداشت تفاهم با آمریکا محسوب می‌شود.
+
+خبرگزاری ملی لبنان اعلام کرد سه حمله هوایی به شهرهای منصوری و عازیه انجام شده و در پی آن چندین نفر زخمی شده‌اند. این خبرگزاری همچنین از حمله دیگری به منطقه براشیت خبر داد. ارتش اسرائیل تاکنون درباره این گزارش‌ها اظهار نظر نکرده است.
+
+اندکی پس از این حملات، آژیرهای هشدار نفوذ احتمالی پهپاد از لبنان در شهرک مرزی زاریت در شمال اسرائیل به صدا درآمد، اما ارتش اسرائیل اعلام کرد این هشدار ناشی از «خطای تشخیص» بوده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 15141
+
+<div align="center">
+  <a href="telegram/content/WithYashar_15141_1781693584.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‎بخشی از سخنرانی قالیباف که تو رسانه‌ها وایرال شده
+
+دیگه ساختار مدیریتی کشور از فردمحوری خارج شده و گروهی تصمیم میگیریم.
+@withyashar
+</div>
+
+## WithYashar — post 15140
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزیر دفاع اسرائیل کاتز: تمام روستاهای نزدیک به مرز لبنان به صورت سیستماتیک ویران می‌شوند.
+@withyashar
+</div>
+
+## WithYashar — post 15139
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فاکس نیوز: ترامپ به زودی درباره توافق ایران کنفرانس خبری برگزار می‌کند
+@withyashar
+</div>
+
+## mwarmonitor — post 11058
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_11058_1781693585.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴تایوان برای اولین بار سامانه‌های راکتی High Mobility Artillery Rocket Systems (HIMARS) ساخت آمریکا را در ساحل غربی خود و به سمت تنگه مورد مناقشه تایوان شلیک کرد.
+
+🔸این شلیک‌ها بخشی از یک رزمایش بزرگ‌تر بودند که سناریوی تهاجم احتمالی و اقدامات مقابله‌ای را شبیه‌سازی می‌کردند — آکسیوس
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 343054
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343054_1781693586.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: Details are beginning to emerge ahead of the U.S.-Iran memorandum signing ceremony, now less than 48 hours away.
+
+The proposed framework reportedly includes reopening the Strait, ending the U.S. blockade, a 60-day negotiation period over Iran's uranium enrichment, sanctions relief, and a ceasefire agreement involving Israel and Hezbollah.
+
+President Trump says he plans to move against Iran's nuclear program on Tuesday, while pointing to the 60-day window for negotiations over Tehran's nuclear ambitions.
+
+Now all eyes are on whether the ceasefires can survive long enough for any deal to take hold.
+
+@TreyYingst breaks down the latest.
+</div>
+
+## FoxNewsTwitter — post 343053
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343053_1781693588.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH LIVE: Trump holds bilateral meeting with the Egyptian president
+https://twitter.com/i/broadcasts/1qxvvvqBkPaxB
+</div>
+
+## kianmeli1 — post 88044
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏🔴علی ربیعی، وزیر سابق کار، تعاون و رفاه اجتماعی جمهوری اسلامی: بر اساس نظرسنجی‌ها، نزدیک به ۷۰ درصد مردم خواهان تغییر درون نظام هستند
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 88043
+
+<div align="center">
+  <a href="telegram/content/kianmeli1_88043_1781693588.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وزیر دفاع اسرائیل کاتز: تمام روستاهای نزدیک به مرز لبنان به صورت سیستماتیک ویران می‌شوند.
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 88042
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏🔴عباس موسوی، معاون دفتر پزشکیان: ممکن است دیگر به اورانیوم با غلظت ۶۰ درصد نیاز نداشته باشیم و آن را کاهش دهیم تا امتیازات مورد نیاز خود را بگیریم و این هیچ ایرادی در دنیای سیاست ندارد
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 342837
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342837_1781693590.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری رسمی لبنان گزارش داد در حملات هوایی روز چهارشنبه ۲۷ خرداد اسرائیل به مناطقی در جنوب لبنان، چندین نفر زخمی شدند. این حملات در حالی رخ داد که مقام‌های جمهوری اسلامی در روزهای اخیر بارها تاکید کرده‌اند حملات اسرائیل به لبنان نقض یادداشت تفاهم با آمریکا محسوب می‌شود.
+
+خبرگزاری ملی لبنان اعلام کرد سه حمله هوایی به شهرهای منصوری و عازیه انجام شده و در پی آن چندین نفر زخمی شده‌اند. این خبرگزاری همچنین از حمله دیگری به منطقه براشیت خبر داد. ارتش اسرائیل تاکنون درباره این گزارش‌ها اظهار نظر نکرده است.
+
+اندکی پس از این حملات، آژیرهای هشدار نفوذ احتمالی پهپاد از لبنان در شهرک مرزی زاریت در شمال اسرائیل به صدا درآمد، اما ارتش اسرائیل اعلام کرد این هشدار ناشی از «خطای تشخیص» بوده است.
+https://iranintl.com/202606177467
+</div>
+
+## IranIntlTV — post 342836
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342836_1781693590.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری رسمی لبنان گزارش داد در حملات هوایی روز چهارشنبه ۲۷ خرداد اسرائیل به مناطقی در جنوب لبنان، چندین نفر زخمی شدند. این حملات در حالی رخ داد که مقام‌های جمهوری اسلامی در روزهای اخیر بارها تاکید کرده‌اند حملات اسرائیل به لبنان نقض یادداشت تفاهم با آمریکا محسوب می‌شود.
+
+خبرگزاری ملی لبنان اعلام کرد سه حمله هوایی به شهرهای منصوری و عازیه انجام شده و در پی آن چندین نفر زخمی شده‌اند. این خبرگزاری همچنین از حمله دیگری به منطقه براشیت خبر داد. ارتش اسرائیل تاکنون درباره این گزارش‌ها اظهار نظر نکرده است.
+
+اندکی پس از این حملات، آژیرهای هشدار نفوذ احتمالی پهپاد از لبنان در شهرک مرزی زاریت در شمال اسرائیل به صدا درآمد، اما ارتش اسرائیل اعلام کرد این هشدار ناشی از «خطای تشخیص» بوده است.
+https://iranintl.com/202606177467
+</div>
+
+## alonews — post 128644
+
+<div align="center">
+  <a href="telegram/content/alonews_128644_1781693591.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈عضو تیم رسانه‌ای هیئت مذاکره کننده هسته‌ای ایران: ما تعهد هسته‌ای نداده‌ایم/ گفت‌وگوی هسته‌ای در مرحله بعد از اعتمادسازی انجام می‌شود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/27 14:13
 ---
 

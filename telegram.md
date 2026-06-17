@@ -7,6 +7,75 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/28 00:54
+---
+
+## VahidOnline — post 76459
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+☄️ تسنیم:
+بقایی: الان که با شما صحبت می‌کنم احتمالاً متن تفاهم نامه اسلام آباد به امضای روسای جمهور ایران و آمریکا رسیده باشد.
+
+بقایی: متن تفاهمنامه ایران و آمریکا الان رسماً نهایی شده است چرا که دو طرف آن را امضا کرده‌اند.
+📡 @VahidOnline
+</div>
+
+## IranianMinds — post 22834
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 سخنگوی وزارت خارجه :
+
+جنگ به پایان رسید.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22833
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 سخنگوی‌ وزارت خارجه :
+
+متن تفاهم نامه توسط دو طرف امضا شد و توافق نهایی شد.
+
+@IranianMinds
+</div>
+
+## alonews — post 128809
+
+<div align="center">
+  <a href="telegram/content/alonews_128809_1781731454.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری و رسمی/تفاهم نامه توسط ترامپ و پزشکیان امضا شد 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128808
+
+<div align="center">
+  <a href="telegram/content/alonews_128808_1781731455.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری و رسمی/تفاهم نامه توسط ترامپ و پزشکیان امضا شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128807
+
+<div align="center">
+  <a href="telegram/content/alonews_128807_1781731455.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری/بقایی: الان که با شما صحبت می‌کنم احتمالاً متن تفاهم نامه اسلام آباد به امضای روسای جمهور ایران و آمریکا رسیده باشد. 
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/28 00:43
 ---
 

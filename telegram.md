@@ -7,6 +7,450 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/27 19:49
+---
+
+## VahidOOnLine — post 246040
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246040_1781713144.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نعیم قاسم، دبیرکل حزب‌الله لبنان، گفت که سقف مذاکرات با اسرائیل باید دستیابی به «امنیت متقابل» باشد و افزود هیچ طرحی با عنوان خلع سلاح حزب‌الله پذیرفته نخواهد شد.
+او اضافه کرد که هدف اسرائیل نابودی حزب‌الله و پایان دادن به فعالیت این گروه است.
+
+او همچنین طرح ایجاد «مناطق آزمایشی» که در چارچوب مذاکرات لبنان و اسرائیل با میانجی‌گری آمریکا مطرح شده است را رد کرد.
+
+قاسم ادامه داد: «هدف جنگ اخیر سرنگونی نظام جمهوری اسلامی بود، اما این هدف محقق نشد و طرح واشینگتن علیه تهران شکست خورد.»
+
+دبیرکل حزب‌الله گفت که جمهوری اسلامی، اسرائیل را وادار به توقف حملات خود کرد و مسیر تحولات را تغییر داد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## pm_afshaa — post 94276
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👌
+💕
+</div>
+
+## pm_afshaa — post 94275
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👌
+💕
+</div>
+
+## pm_afshaa — post 94274
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94274_1781713145.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👌
+💕
+</div>
+
+## pm_afshaa — post 94273
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94273_1781713147.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: اگر این توافق رو انجام نمی‌دادیم، میتونستیم برای 2 تا 3-4 هفته یا حتی 2 سال بمباران بیشتری کنیم؛ اما شما هرگز تنگه هرمز رو باز نمی‌دیدید. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94272
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94272_1781713148.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: اگر این توافق رو انجام نمی‌دادیم، میتونستیم برای 2 تا 3-4 هفته یا حتی 2 سال بمباران بیشتری کنیم؛ اما شما هرگز تنگه هرمز رو باز نمی‌دیدید.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94271
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94271_1781713149.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴این صحبت‌های قالیباف بعد از مرگ علی خامنه‌ای خیلی وایرال شده : دیگه ساختار مدیریت کشور از فردمحوری خارج شده و گروهی تصمیم میگیریم. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5767
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ جمهوری‌خواهان آمریکا خواستار دسترسی به متن تفاهمنامه با جمهوری اسلامی شدند
+
+رهبران جمهوری‌خواه سنا از دولت دونالد ترامپ خواستند جزئیات تفاهمنامهٔ پایان درگیری با جمهوری اسلامی را در اختیار کنگره قرار دهد.
+جان تون، رهبر اکثریت جمهوری‌خواه سنا گفت اعضای این مجلس تاکنون متن یادداشت توافق را مشاهده نکرده‌اند.
+به گفتهٔ جان تون، سیاستمداران جمهوری‌خواه در تلاش‌اند تا نسخه‌ای از تفاهمنامه را از دولت دریافت کنند.
+او تأکید کرد ارائه نشدن جزئیات یک توافق مهم بین‌المللی به رهبران حزب حاکم، اقدامی غیرمعمول به‌شمار می‌رود.
+رهبر اکثریت جمهوری‌خواهان سنا گفت در دوران حضورش در این سمت با چنین وضعیتی روبه‌رو نشده بود.
+ترامپ گفته است تاکنون به ارائهٔ تفاهمنامه به کنگره فکر نکرده بود. او افزود اکنون آمادهٔ انجام این کار است و از پیشنهاد سناتورها استقبال می‌کند.
+درز برخی از مفاد تفاهمنامهٔ ۱۴ بندی تهران و واشینگتن، واکنش‌هایی را در محافل سیاسی برانگیخته است.
+برخی تحلیلگران از «احتمال آزادکردن دارایی و رفع تحریم‌های اعمال شده علیه جمهوری اسلامی» ابراز نگرانی کرده‌اند.
+
+#تفاهمنامه #ترامپ #سنا
+@DEJradio
+</div>
+
+## VahidOnline — post 76455
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ:
+🔸یکشنبه، ما به توافقی با ایران رسیدیم که همه چیزهایی را که قصد داشتیم به آن دست یابیم محقق می‌کند—همه چیز و حتی بیشتر.
+
+🔸اگر این توافق را انجام نمی‌دادیم، می‌توانستیم برای ۲ تا ۳-۴ هفته یا حتی ۲ سال بمب‌های بیشتری رها کنیم.
+شما هرگز تنگه هرمز را باز نمی‌دیدید.
+
+🔸اگر من ژنرال سلیمانی را نکشته بودم، احتمالاً الان درباره این توافق صحبت نمی‌کردیم، چون او نابغه‌ای دیوانه بود.
+آنها هرگز نتوانستند جایگزین او شوند.
+
+
+🔸رهبران جهان از اینکه ما به توافق رسیدیم بسیار خوشحالند، همه‌شان.
+هیچ کشوری به ما نیامد و نگفت «لطفاً آقا، بمب‌ها را روی آن‌ها رها کن. لطفاً بمب‌ها را رها کن» — آدم‌های احمق این را می‌گویند.
+
+
+🔸رهبران جدید ایران باهوش هستند، بسیار باهوش.
+آنها بسیار کمتر رادیکال شده‌اند. فکر می‌کنم واقعاً کشورشان را دوست دارند. آنها خوب هستند.
+
+
+🔸نمی‌خواستم شاهد یک فاجعه اقتصادی باشم؛ اگر این روند ادامه پیدا می‌کرد، ممکن بود اتفاق بیفتد.
+هر بار که درباره صلح صحبت می‌کردیم، بازار سهام بالا می‌رفت.
+بازار سهام از هر کسی که آنجا هست، از جمله افرادی که روی این صحنه هستند—به جز من—باهوش‌تر است.
+
+
+🔸بازار سهام بسیار درخشان است. و هر بار که چیزی شگفت‌انگیز می‌گفتیم، مثل «ما قرار است توافق کنیم»، بازار بالا می‌رفت.
+و هر بار، هر بار که چیزی منفی می‌گفتیم، مثل «ببین چی شده، ما نمی‌توانیم توافق کنیم»، بازار پایین می‌آمد — خیلی زیاد، خیلی، خیلی زیاد.
+این به شما چیزی می‌گوید.
+
+📡 @VahidOnline
+
+هنوز داره حرف می‌زنه، بعدا ویدیوی زیرنویس‌شده‌ٰاش رو می‌گذارم:
+c-span
+</div>
+
+## kianmeli1 — post 88046
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_88046_1781713150.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+️ 🔴وال استریت ژورنال دارایی‌های مسدود شده ایران را اعلام کرد:
+
+· چین: ۲۰-۵۰ میلیارد دلار
+· قطر: ۲۰-۵۰ میلیارد (شامل ۶ میلیارد بشردوستانه)
+· عراق: ۱۵ میلیارد (برق و گاز)
+· هند و کره جنوبی: هرکدام ۷ میلیارد
+· ژاپن: ~۳ میلیارد
+· آمریکا: ۲ میلیارد
+· لوکزامبورگ و عمان: مبالغ کمتر
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 342882
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342882_1781713150.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نعیم قاسم، دبیرکل حزب‌الله لبنان، گفت که سقف مذاکرات با اسرائیل باید دستیابی به «امنیت متقابل» باشد و افزود هیچ طرحی با عنوان خلع سلاح حزب‌الله پذیرفته نخواهد شد.
+او اضافه کرد که هدف اسرائیل نابودی حزب‌الله و پایان دادن به فعالیت این گروه است.
+
+او همچنین طرح ایجاد «مناطق آزمایشی» که در چارچوب مذاکرات لبنان و اسرائیل با میانجی‌گری آمریکا مطرح شده است را رد کرد.
+
+قاسم ادامه داد: «هدف جنگ اخیر سرنگونی نظام جمهوری اسلامی بود، اما این هدف محقق نشد و طرح واشینگتن علیه تهران شکست خورد.»
+
+دبیرکل حزب‌الله گفت که جمهوری اسلامی، اسرائیل را وادار به توقف حملات خود کرد و مسیر تحولات را تغییر داد.
+https://iranintl.com/202606176446
+</div>
+
+## Persian_Trend_Official — post 17365
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17365_1781713151.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت امور خارجه اسرائیل تصاویری از یک انبار تجهیزات کشف شده حزب‌الله لبنان در جنوب رود لیتانی منتشر کرد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 22806
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 رویترز:
+
+تهران به حزب‌الله وعده داده که با آغاز ورود منابع مالی در پی این توافق، حمایت مالی بیشتری از این گروه خواهد کرد
+
+@IranianMinds
+</div>
+
+## idfinfarsi — post 11854
+
+<div align="center">
+  <a href="telegram/content/idfinfarsi_11854_1781713154.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+❌ارتش اسرائیل دو تروریست از شاخه نظامی حماس را که در ۷ اکتبر به خاک اسرائیل نفوذ کرده بودند، به هلاکت رساند
+
+⭕️ارتش اسرائیل روز گذشته (سه‌شنبه) در مرکز نوار غزه حمله کرد و احمد ابو هین، فرمانده هسته تک‌تیراندازی در شاخه نظامی سازمان تروریستی حماس، و محمود ولید جبر ابو هین، تروریست دیگر از شاخه نظامی این سازمان را به هلاکت رساند.
+
+⭕️هر دو تروریست در جریان کشتار خونین ۷ اکتبر به خاک دولت اسرائیل نفوذ کرده بودند.
+
+⭕️در دوره اخیر، این تروریست‌ها در راستای بازسازی سازمان تروریستی حماس برخلاف توافق آتش‌بس فعالیت کرده و به پیشبرد طرح‌های تروریستی علیه نیروهای ارتش اسرائیل و کشور اسرائیل اقدام می‌کردند.
+
+⭕️این دو تروریست تهدیدی فوری برای نیروهای ما که در نوار غزه فعالیت می‌کنند محسوب می‌شدند و در حملات دقیق به هلاکت رسیدند.
+
+⭕️نیروهای ارتش اسرائیل تحت فرماندهی جنوب بر اساس توافق در منطقه مستقر هستند و به اقدام برای رفع هرگونه تهدید فوری ادامه خواهند داد.
+</div>
+
+## Dirty_Kids — post 392403
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392403_1781713156.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تفاوت عکس بالا و پایین، فقط یه ساله!
+
+با تشکر از آقای نتانیاهو بابت خلق کردن این تصویر روح نواز
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 128712
+
+<div align="center">
+  <a href="telegram/content/alonews_128712_1781713156.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: من نمی‌خواستم "هربرت هوور بزرگ" فقید (سی و یکمین رئیس‌جمهور ایالات متحده آمریکا) باشم.
+
+
+🔴من آن را نمی‌خواستم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128711
+
+<div align="center">
+  <a href="telegram/content/alonews_128711_1781713157.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: ما در مورد لبنان کمی با نتانیاهو اختلاف نظر داریم، و او می‌توانست تحمل بیشتری داشته باشد و هر بار که یکی از اعضای حزب‌الله وارد ساختمانی می‌شود، آن را تخریب نکند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128710
+
+<div align="center">
+  <a href="telegram/content/alonews_128710_1781713157.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: اسکات، آیا بازار سهام از تو باهوش‌تر است؟
+
+
+🔴وزیر خزانه‌داری بسنت: خیر، قربان.
+
+
+🔴ترامپ: این یک جمله وحشتناک است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128709
+
+<div align="center">
+  <a href="telegram/content/alonews_128709_1781713160.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: توافق با ایران خوب است و این چیزی است که در متن یادداشت تفاهم خواهید دید.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128708
+
+<div align="center">
+  <a href="telegram/content/alonews_128708_1781713160.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: اگر من دخالت نمی‌کردم، ایران خاورمیانه و اسرائیل را نابود می‌کرد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128707
+
+<div align="center">
+  <a href="telegram/content/alonews_128707_1781713161.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ درباره ایران: بازار سهام بسیار درخشان است. و هر بار که چیزی شگفت‌انگیز می‌گفتیم، مثل «ما قرار است توافق کنیم»، بازار بالا می‌رفت.
+
+
+🔴و هر بار، هر بار که چیزی منفی می‌گفتیم، مثل «ببینید، ما قادر نخواهیم بود توافق کنیم»، بازار پایین می‌آمد — خیلی زیاد، خیلی، خیلی زیاد.
+
+
+🔴این به شما چیزی می‌گوید
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128706
+
+<div align="center">
+  <a href="telegram/content/alonews_128706_1781713161.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: من با نتانیاهو در مورد لبنان اختلاف نظر داشتم و به او گفتم که مودبانه رفتار کند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128705
+
+<div align="center">
+  <a href="telegram/content/alonews_128705_1781713161.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: من توافق کردم چون نمی‌خواستم شاهد یک فاجعه اقتصادی باشم.
+
+
+🔴دو روز گذشته به شدت دشوار بوده است، و ما به ایرانی‌ها اطلاع داده‌ایم که اگر به توافقی نرسیم، بمباران آن‌ها را برای شب دوم از سر خواهیم گرفت.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128704
+
+<div align="center">
+  <a href="telegram/content/alonews_128704_1781713161.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: من توافق کردم چون نمی‌خواستم شاهد یک فاجعه اقتصادی باشم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128703
+
+<div align="center">
+  <a href="telegram/content/alonews_128703_1781713162.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: فکر می‌کنم رهبران ایران رفتار بسیار متفاوتی خواهند داشت.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128702
+
+<div align="center">
+  <a href="telegram/content/alonews_128702_1781713162.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: دو روز گذشته فرصتی بود تا درباره جزئیات توافق با نزدیک‌ترین دوستانمان صحبت کنیم.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128701
+
+<div align="center">
+  <a href="telegram/content/alonews_128701_1781713162.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: اگر به جنگ ادامه می‌دادیم، تنگه هرمز هرگز باز نمی‌شد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128700
+
+<div align="center">
+  <a href="telegram/content/alonews_128700_1781713163.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: من در اجلاس گروه هفت جزئیات توافق ایران را با رهبران این کشورها مورد بحث قرار دادم و آنها از اینکه به توافق رسیدیم بسیار خوشحال هستند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128699
+
+<div align="center">
+  <a href="telegram/content/alonews_128699_1781713163.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: توافق با ایران هر آنچه را که می‌خواستیم، از جلوگیری از دستیابی این کشور به سلاح هسته‌ای گرفته تا باز کردن تنگه هرمز، محقق کرد
+
+
+🔴قیمت نفت پس از توافق با ایران به سطوح بی‌سابقه‌ای کاهش یافته است
+
+
+🔴اگر ما این توافق را انجام نداده بودیم، تنگه هرمز باز نمی‌شد و بمب‌ها همچنان بی‌وقفه می‌افتادند.
+
+
+🔴دو روز گذشته بسیار سخت بوده است و ما به ایرانی‌ها اطلاع داده‌ایم که اگر به توافق نرسیم، برای دومین شب به بمباران آنها باز خواهیم گشت.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128698
+
+<div align="center">
+  <a href="telegram/content/alonews_128698_1781713163.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈آکسیوس: حتی اگر زمان امضا تغییر کند، نشست هیئت‌های آمریکا و ایران به ریاست جی‌دی ونس، معاون رئیس‌جمهور آمریکا، و محمدباقر قالیباف، رئیس مجلس ایران، طبق برنامه روز جمعه در سوئیس برگزار خواهد شد.
+
+
+🔴انتظار می‌رود دو طرف درباره آغاز مذاکرات پیرامون برنامه هسته‌ای ایران گفت‌وگو کنند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/27 19:36
 ---
 

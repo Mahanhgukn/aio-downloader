@@ -7,6 +7,162 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/27 21:44
+---
+
+## VahidOOnLine — post 246076
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، روز چهارشنبه ۲۷ خرداد در حاشیه نشست سران گروه هفت (G7) در فرانسه و در پاسخ به پرسش خبرنگاران درباره تفاوت میان «پرداخت پول به ایران» و «آزادسازی دارایی‌های مسدود‌شده ایران»، تاکید کرد که منابع مالی مسدودشده متعلق به ایران است و بازگرداندن آن برای حفظ اعتبار نظام مالی آمریکا و جایگاه جهانی دلار ضروری خواهد بود.
+ترامپ با بیان اینکه «ما پول آن‌ها را گرفته‌ایم، اما این پول متعلق به خودشان است، نه ما»، گفت این دارایی‌ها در مقطعی مسدود شده‌اند و احتمالا باید به ایران بازگردانده شوند. او افزود: «اگر این پول را پس ندهیم، دیگر هیچ کشوری حاضر نخواهد شد به دلار اعتماد کند یا دارایی‌هایش را در نظام مالی آمریکا نگهداری کند.»
+رئیس‌جمهوری آمریکا با اشاره به گفتگوی خود با اسکات بسنت، وزیر خزانه‌داری، اظهار داشت که حتی خودش نیز درباره چرایی بازگرداندن این پول‌ها سوال کرده، اما در نهایت به این نتیجه رسیده که بسیاری از کشورها، حتی کشورهایی که با واشنگتن اختلاف دارند، دارایی‌های خود را در آمریکا نگهداری می‌کنند و مصادره یا بازنگرداندن آن‌ها می‌تواند اعتماد جهانی به دلار را خدشه‌دار کند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246075
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246075_1781720064.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبکه اسرائیلی آی۲۴ نیوز به نقل از یک مقام ارشد آمریکایی گزارش داد متن رسمی یادداشت تفاهم منتشر شده و بر اساس آن، همه درگیری‌ها از جمله در لبنان فورا متوقف می‌شود.
+
+بر اساس این گزارش، این توافق همچنین یک برنامه اقتصادی ۳۰۰ میلیارد دلاری برای جمهوری اسلامی پیش‌بینی می‌کند.
+
+آی۲۴ نیوز گزارش داد طبق متن رسمی یادداشت تفاهم، ذخایر اورانیوم با غنای بالای ایران در داخل کشور و تحت نظارت آژانس بین‌المللی انرژی اتمی رقیق خواهد شد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 15180
+
+<div align="center">
+  <a href="telegram/content/WithYashar_15180_1781720065.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کانالی که ترور هنیه و نصرالله رو دقیق پیشبینی کرده بود، دلار ۱۶۰ تومنی رو هم دو ماه پیش اعلام کرده بود از تاریخ و نحوه حمله ایران به اسرائیل پرده برداشت!!!
+
+
+🚨نمیدونم به کجا وصله ولی از همه چی خبر داره بیا خودت ببین
+👇
+👇
+
+🔴LINK - CHANNEL🔴
+</div>
+
+## FoxNewsTwitter — post 343086
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343086_1781720065.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH LIVE: Pirro announces 21-count drug-trafficking indictment https://twitter.com/i/broadcasts/1dxYllvbXmZJX
+</div>
+
+## pm_afshaa — post 94289
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94289_1781720066.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴صحبت‌های جدید قالیباف که یه سریا میگن رسما با این حرفاش داره میگه من رهبرم!
+
+میگه همه باید برای من تصمیم سازی کنن تا من تصمیم درست رو بگیرم!
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94288
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94288_1781720067.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خلاصه صحبت‌های قالیباف:
+من مثل خامنه‌ای نیستم که جلوی شما بایستم بگم «این کار رو بکنید، اون کار رو نکنید»
+
++ فقط تعداد من هایی که میگه رو بشمارید...
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 342897
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342897_1781720069.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبکه اسرائیلی آی۲۴ نیوز به نقل از یک مقام ارشد آمریکایی گزارش داد متن رسمی یادداشت تفاهم منتشر شده و بر اساس آن، همه درگیری‌ها از جمله در لبنان فورا متوقف می‌شود.
+
+بر اساس این گزارش، این توافق همچنین یک برنامه اقتصادی ۳۰۰ میلیارد دلاری برای جمهوری اسلامی پیش‌بینی می‌کند.
+
+آی۲۴ نیوز گزارش داد طبق متن رسمی یادداشت تفاهم، ذخایر اورانیوم با غنای بالای ایران در داخل کشور و تحت نظارت آژانس بین‌المللی انرژی اتمی رقیق خواهد شد.
+https://iranintl.com/202606174759
+</div>
+
+## FarsiVOA — post 221048
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_221048_1781720069.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گروهی از کشاورزان و شهروندان گرمسار و آرادان روز سه‌شنبه ۲۶ خرداد، در ابتدای جاده بنه‌کوه در اعتراض به کمبود ‌آب شرب و مشکلات تخصیص حقابه حبله‌رود، تنها رودخانه دائمی استان سمنان، تجمع کردند.
+</div>
+
+## FarsiVOA — post 221047
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اختلاف اروپا بر سر چین؛ تعلل در اجماع و بررسی ابزارهای مقابله اقتصادی
+</div>
+
+## FarsiVOA — post 221046
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پرزیدنت ترامپ در یک کنفرانس خبری پس از نشست گروه هفت گفت: آمریکا به جمهوری اسلامی پولی پرداخت نخواهد کرد، پول‌های مصادره شده آزاد خواهد شد به شرط این که رفتارشان درست باشد. برشی از پوشش ویژه با ترجمه همزمان پژواک کیومرثی
+</div>
+
+## alonews — post 128768
+
+<div align="center">
+  <a href="telegram/content/alonews_128768_1781720072.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزارت خارجه ایران : ادامه اشغال جنوب لبنان توسط اسرائیل، یادداشت تفاهم را نقض می‌کند و ما اقدامات لازم را انجام خواهیم داد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128767
+
+<div align="center">
+  <a href="telegram/content/alonews_128767_1781720072.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 منبع آگاه به فارس: پیشنهاد امضای الکترونیکی تفاهم‌نامه ایران و آمریکا پیش از سفر به ژنو مطرح شده است
+
+
+🔴تا این لحظه جمهوری اسلامی موافقت خود را با این پیشنهاد اعلام نکرده است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/27 21:34
 ---
 

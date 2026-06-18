@@ -7,6 +7,218 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/28 15:14
+---
+
+## VahidOOnLine — post 246191
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_246191_1781783068.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️تصاویری که روز چهارشنبه ۲۷ مردادماه برای ایندیپندنت فارسی ارسال شده، لحظاتی از رقص جاویدنام حسین غریب را نشان می‌دهد.
+جاویدنام حسین غریب، شامگاه پنجشنبه ۱۸ دی‌ماه و همزمان با انقلاب ملی ایرانیان، به‌ضرب دو گلوله جنگی (یکی به گردن و دیگری به سینه)، مقابل کلانتری ۱۱ شهرستان شاهرود کشته شد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 15241
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پزشکان نسخه اصل سند امضاشده را منتشر کردند.
+@withyashar
+</div>
+
+## WithYashar — post 15240
+
+<div align="center">
+  <a href="telegram/content/WithYashar_15240_1781783070.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شاهزاده رضا پهلوی :
+40 هزار ایرانی تو عرض دو روز برای یه توافق هسته‌ای یا باز موندن تنگه هرمز جونشون رو از دست ندادن.
+اون‌ها برای آزادی و دموکراسی جونشون رو فدا کردن. اما عجیب اینجاست که تو هیچ‌کدوم از این مذاکرات، اصلاً دیده نشدن و هیچ اسمی ازشون نبوده.
+@withyashar
+</div>
+
+## mwarmonitor — post 11112
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سی‌ان‌ان به نقل از یک منبع اسرائیلی: نتانیاهو معتقد است توافق نهایی شکل نخواهد گرفت و تهران با محدود کردن برنامه هسته‌ای خود موافقت نخواهد کرد. نتانیاهو تلاش می‌کند از طریق رسانه‌های راست‌گرا و اعضای کنگره بر توافق با ایران تأثیر بگذارد.
+
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 343109
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343109_1781783072.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NEW: The U.S.-Iran deal is already having an impact far beyond the negotiating table.
+
+As President Trump formally marked the extension of the ceasefire, oil and gas prices continued falling amid expectations that global energy supplies could stabilize if the agreement holds.
+
+The memorandum launches a 60-day push toward a final deal, with provisions that include reopening key shipping routes, easing sanctions, access to frozen Iranian funds, and renewed negotiations over Iran's nuclear program.
+
+Trump says the clock is now ticking. If talks fail to produce the outcome his administration wants, he warned the U.S. could "go back to bombing."
+
+For now, markets are reacting to the prospect of a wider peace deal — and lower energy prices are one of the first visible results.
+
+@TreyYingst
+</div>
+
+## pm_afshaa — post 94327
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94327_1781783074.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴گروسی، مدیرکل آژانس انرژی اتمی:
+
+وقت اینه که با تیم‌های آمریکایی و ایرانی بشینیم تا گام‌های ملموسی برداریم.
+ما در مذاکراتی که در سوئیس بین واشنگتن و تهران برگزار خواهد شد، شرکت خواهیم کرد.
+گزینه‌های زیادی در رابطه با ذخایر اورانیوم ایران وجود داره. تماس با ایران در پایین ترین سطح خود قرار داره
+اگر تنگه هرمز تا پایان ژوئن باز نشه، اقتصاد جهانی در قرمز خواهد بود.
+
+
+💧Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94326
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94326_1781783075.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شاهزاده رضا پهلوی :40 هزار ایرانی تو عرض دو روز برای یه توافق هسته‌ای یا باز موندن تنگه هرمز جونشون رو از دست ندادن.
+
+اون‌ها برای آزادی و دموکراسی جونشون رو فدا کردن.
+
+اما عجیب اینجاست که تو هیچ‌کدوم از این مذاکرات، اصلاً دیده نشدن و هیچ اسمی ازشون نبوده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5788
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5788_1781783077.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺📢 "پیام دارم برای بچه پاسدار و بسیجی مزدور. توجه کنید، اینا برای توافق با ترامپ، خامنه‌ای رو به هیچ گرفتن، شما که دیگه دوزار نمی‌ارزید.
+
+پیام دریافتی
+
+#بسیجی #ترامپ #توافق #موشعلی
+@DEJradio
+</div>
+
+## FarsiVOA — post 221103
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_221103_1781783078.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل اعلام کرد که نیروهایش در یک منطقه امنیتی با عمیق حدود ۱۰ کیلومتر در داخل جنوب لبنان فعالیت می‌کنند.
+
+ارتش اسرائیل روز پنج‌شنبه اعلام کرد که استقرار این نیروها بنا بر نیازهای عملیاتی تعیین شده است و نیروها همچنان در منطقه عملیاتی تعیین‌شده خود مستقر هستند.
+
+این در حالی است که یکی از مفاد توافق موقت آمریکا و حکومت ایران خواستار توقف فوری عملیات نظامی در لبنان است.
+
+پیشتر وال‌استریت ژورنال گزارش داد که دونالد ترامپ، رئیس‌جمهوری آمریکا، در یک تماس تلفنی با نخست‌وزیر اسرائیل، بنیامین نتانیاهو، درباره لبنان، از او خواست که به «منفجر کردن ساختمان‌ها» پایان دهد.
+
+آقای ترامپ در روزهای اخیر به‌طور فزاینده‌ای در عرصه عمومی از نتانیاهو انتقاد کرده است.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221102
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_221102_1781783078.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مسعود پزشکیان، رئیس دولت جمهوری اسلامی، تصویری از تفاهم‌نامه امضاشده توسط او و دونالد ترامپ، رئیس‌جمهور آمریکا را در شبکه اجتماعی ایکس منتشر کرد.
+
+این سند که سند تفاهم اسلام‌آباد نام گرفته و امضای نواز شریف، نخست‌‌وزیر و میانجی پاکستانی مذاکرات دست‌یابی به تفاهم را بر خود دارد، در حالی منتشر شده که بخش‌های در نظر گرفته شده در متن تفاهم‌نامه برای مکان امضای سند و تاریخ امضا خالی است.
+
+تفاهم‌نامه جمهوری اسلامی و ایالات متحده نخست قرار بود روز جمعه در ژنو سوئیس توسط محمدباقر قالیباف و جی‌دی ونس، مذاکره‌کنندگان ارشد دو کشور امضا شود، اما چهارشنبه شب و به طور ناگهانی به صورت دیجیتال توسط رؤسای جمهور دو کشور امضا شد.
+
+قالیباف و ونس پیشتر در شامگاه یکشنبه این سند تفاهم را امضا کرده بودند.
+
+پزشکیان تفاهم‌نامه تهران و واشنگتن را «یک سند تاریخی» خوانده و مدعی شده که امضای این سند، پیامی از سوی جمهوری اسلامی مبنی بر تحقق «صلح در سایه احترام» است.
+@FarsiVOA
+</div>
+
+## RadioFarda — post 158458
+
+<div align="center">
+  <a href="https://t.me/radiofarda/158458" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📻بشنوید: ساعت ۱۴ با رادیوفردا، ۲۸ خرداد ۱۴۰۵‌
+
+@RadioFarda
+</div>
+
+## RadioFarda — post 158457
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_158457_1781783079.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸 پیت هگست، وزیر دفاع آمریکا، روز پنج‌شنبه ۲۸ خرداد در یک موضع‌گیری درباره تفاهم‌نامه اسلام‌آباد تأکید کرد که ارتش آمریکا قرار است «چماق بزرگ پشت مذاکرات» باشد.
+
+🔸 او همچنین تأکید کرد که هر گونه تغییر در اندازه حضور نظامی آمریکا در خاورمیانه «بسته به شرایط» خواهد بود.
+
+🔸 این نخستین اظهار نظر هگست در پی امضای تفاهم‌نامه اسلام‌آباد میان تهران و واشینگتن است که بامداد پنج‌شنبه توسط رئیس جمهور ایران هم امضا شد و رسمیت یافت. دونالد ترامپ ساعتی پیش از مسعود پزشکیان سند را امضا کرده بود.
+
+🔸 متن تفاهم‌نامه‌ای که دولت آمریکا به امضایش رضایت داد حتی از چند روز پیش از امضا شدن هم انتقادهایی در پی داشت، انتقادهایی که با انتشار متن کامل آن افزایش یافت.
+
+🔸 به نظر می‌رسد که سخنان وزیر دفاع آمریکا هم تا اندازه‌ای پاسخ به همین انتقادها باشد.
+
+🔸 به گفته پیت هگست،‌ آمریکا «از موضع قدرت به توافق با ایران رسید».
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 22878
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22878_1781783080.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 بعد از اینکه توی افغانستان اعتراضات شکل گرفت طالبان دستور داد گوشی های هوشمند تمامی کارمندای دولتی نابود بشه و برای امنیت کشور کسی حق نداره گوشی هوشمند ببره سرکار.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 284262
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻رئیس صندوق بین‌المللی پول: شاهد افت شدید قیمت نفت نخواهیم بود
+
+رئیس صندوق بین‌المللی پول روز پنجشنبه گفت که با از سرگیری حمل و نقل از طریق تنگه هرمز و هم‌زمان پر کردن ذخایر توسط کشورها، احتمالاً قیمت نفت کاهش خواهد یافت اما «شاهد افت شدید قیمت نفت نخواهیم بود.»
+
+کریستالینا جورجیوا گفت: «بازگشت ترافیک دریایی از طریق تنگه هرمز به حالت عادی زمان خواهد برد و با افزایش تحویل نفت، کشورها به دنبال جایگزینی ذخایر کاهش یافته و احتمالاً افزایش آنها نسبت به قبل خواهند بود.»
+
+https://bbc.in/4fNU3nt
+@BBCPersian
+</div>
+
+---
 📅 بروزرسانی: 1405/03/28 15:04
 ---
 

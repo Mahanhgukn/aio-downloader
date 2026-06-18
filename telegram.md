@@ -7,6 +7,137 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/28 22:19
+---
+
+## FoxNewsTwitter — post 343138
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343138_1781808550.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH LIVE: Former President Obama delivers remarks at presidential center opening in Chicago https://twitter.com/i/broadcasts/1nJOLLjlPMzxR
+</div>
+
+## pm_afshaa — post 94352
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94352_1781808551.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+میرین گیگی 10 15 هزار تومن پول سرور میدین!؟
+بیاین از اینجا سرعت بالاش رو بخرین فقط گیگی 3 هزار تومن
+👇
+👇
+👇
+
+
+🚀 @Lex_Server 
+⚡️ @Lex_Server
+</div>
+
+## IranIntlTV — post 343090
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_343090_1781808551.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+۲۴ با فرداد فرحزاد
+@iranintltv
+</div>
+
+## FarsiVOA — post 221137
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺جمهوری اسلامی ۷ دانشجوی معترض شریف را از ادامه تحصیل محروم کرد
+
+◾️جمهوری اسلامی در ادامه سرکوب مخالفان و معترضان و فعالان، هفت تن از دانشجویان معترض دانشگاه صنعتی شریف تهران را به اتهام «انتشار مطلب در فضای مجازی» و «پرونده‌های مرتبط با اعتراضات دی‌ ۱۴۰۴» از حق ادامه تحصیل محروم کرد.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/iran-student-university-protesters-prison-sharif/8162264.html
+</div>
+
+## FarsiVOA — post 221136
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺پرزیدنت ترامپ: همه را در خاورمیانه تشویق می‌کنیم به «پیشبرد مذاکرات» متعهد بمانند
+
+◾️پرزیدنت ترامپ، اعلام کرد که آمریکا انتظار دارد آتش‌بس کامل در همه جبهه‌ها، از جمله لبنان، حزب‌الله، و اسرائیل، برقرار باشد.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/ceasefire-israel-donald-trump-hezbollah-lebanon/8162308.html
+</div>
+
+## DW_Farsi — post 126156
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_126156_1781808552.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 نتانیاهو: اسرائيل از جنوب لبنان خارج نخواهد شد
+
+بنیامین نتانیاهو، نخست‌وزیر اسرائیل در یک سخنرانی تاکید کرد که نیروهای ارتش این کشور از جنوب لبنان خارج نخواهند شد و تا هر زمانی که لازم باشد منطقه امنیتی خود را در آنجا حفظ خواهند کرد.
+
+نتانیاهو این سخنان را در مراسم افتتاح بزرگراهی که از ناصره تا بئرشِبع امتداد دارد و از کرانهٔ باختری عبور می‌کند ایراد کرد، بعد از آنکه دونالد ترامپ، رئیس جمهور امریکا این هفته حملات اسرائیل به لبنان را محکوم کرد و هم‌زمان توافقی را با ایران امضا کرد که پایان جنگ در لبنان یک بند مهم آن است.
+
+نخست‌وزیر اسرائیل گفت: «ما امنیت و رفاه‌مان را در شهرهای شمالی بازسازی می‌کنیم و این نیازمند حفظ منطقه امنیتی در جنوب لبنان است و نیازمند آن است که ما آنجا را ترک نکنیم، تا زمانی که امنیت اسرائیل به آن نیاز دارد.»
+@dw_farsi
+</div>
+
+## Dirty_Kids — post 392522
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392522_1781808553.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+براش صندلی گذاشتن بشینه خسته نشه🥹🌱
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392521
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392521_1781808553.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏از پیرمردی پرسیدم "وفا" یعنی چی؟
+گفت: ما نسل پنجاه و هفتیم، از سگ بپرس...
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 128986
+
+<div align="center">
+  <a href="telegram/content/alonews_128986_1781808553.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: «ایالات متحده به صلح متعهد است، و ما از همه در منطقه خاورمیانه می‌خواهیم که به تعهد خود برای اجازه دادن به روند مذاکرات ما تا به شکلی عالی پیش برود، پایبند بمانند. 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128985
+
+<div align="center">
+  <a href="telegram/content/alonews_128985_1781808554.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کسی خبر داره ازشون؟
+
+
+✅@AloNews
+</div>
+
+---
 📅 بروزرسانی: 1405/03/28 22:09
 ---
 

@@ -7,6 +7,192 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/28 21:57
+---
+
+## WithYashar — post 15274
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آسوشیتدپرس: کاخ سفید توافق با ایران را به کنگره ارسال کرد
+@withyashar
+</div>
+
+## WithYashar — post 15273
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فارس: تیم مذاکره‌کننده ایران تا حصول اطمینان کامل از توقف حملات به لبنان، هرگونه گفت‌وگوی تکمیلی را به حالت تعلیق درآورد
+@withyashar
+</div>
+
+## mwarmonitor — post 11170
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸محمد مرندی عضو تیم مذاکره کننده:
+
+«حکومت ترامپ نباید انتظار انعطاف‌پذیری از ایران بر سر میز مذاکره را داشته باشد. چنین چیزی در کار نخواهد بود. تنها مسیر قابل‌قبول رو به جلو، اجرای کامل، صریح و بدون ابهامِ تمام تعهدات ایالات متحده است. بدون اقدامات نصفه‌نیمه. بدون مذاکرهٔ مجدد. بدون عقب‌نشینی.»
+
+@mwarmonitor
+</div>
+
+## DEJradio — post 5798
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5798_1781807269.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🔸 خبر ۲۱
+پنجشنبه ۲۸ خرداد ۱۴۰۵
+
+#خبر۲۱
+@DEJradio
+</div>
+
+## DW_Farsi — post 126155
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_126155_1781807271.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 ونس: محاصره دریایی ایران برداشته شده است
+
+جی‌دی ونس، معاون رئیس جمهور امریکا می‌گوید نیروی دریایی این کشور بیش از ۱۲ کشتی را برای رسیدن به بنادر ایران از تنگه هرمز عبور داده و به‌عنوان بخشی از توافق برای پایان جنگ، محاصره را برداشته است.
+
+ونس این موضوع را روز پنجشنبه ۱۸ ژوئن در یک نشست خبری در کاخ سفید اعلام کرد و گفت اکنون نفت بیشتری از تنگه هرمز عبور می‌کند.
+
+معاون ترامپ همچنین گفت بیش از ۱۲٫۵ میلیون بشکه نفت چهارشنبه‌شب از این گذرگاه دریایی عبور کرده است و ادامه داد: «بنابراین ما در حال عمل به بخش اولیه توافق از نظر نظامی هستیم.»
+
+او این موضوع را یکی از مزایای فوری توافق دانست و انتقادهایی را که می‌گویند توافق به نفع ایران است، کم‌اهمیت دانست.
+
+روز سه‌شنبه، دو نفتکش ایران را ترک کردند و بدون توقف از محاصرهٔ نظامی آمریکا عبور کردند.
+
+یک وب‌سایت ردیابی کشتی‌های تجاری گزارش داد که این دو کشتی در مجموع ۳٫۸ میلیون بشکه نفت خام ایران را حمل می‌کردند.
+@dw_farsi
+</div>
+
+## IranianMinds — post 22900
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22900_1781807271.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 حمید رسایی :
+
+باید پزشکیان رو اعدام کنیم.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22899
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22899_1781807272.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ:
+
+ایالات متحده متعهد به صلح است و از همه کشورهای منطقه خاورمیانه می‌خواهیم که به تعهد خود برای پیشبرد زیبا و موفق مذاکرات پایبند بمانند.
+
+بازارها عاشق اتفاقاتی هستند که در حال رخ دادن است: قیمت نفت به شدت پایین آمده و سهام‌ها به شدت بالا رفته‌اند.
+
+ما انتظار آتش‌بس کامل در همه جبهه‌ها، از جمله لبنان، حزب‌الله و اسرائیل را داریم.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22898
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️
+⭕️ کانفیگای این ربات تو نت ملی وصله به محض استارت ۱ گیگابایت کانفیگ میده بدون هیچ هزینه ای و رفرالی کانفیگ رو تحویلتون میده با بهترین سرعت و بدون قطعی 
+⭕️ ربات دریافت کانفیگ رایگان | @daeijoonbot 
+⭕️ ربات دریافت کانفیگ رایگان | @daeijoonbot
+</div>
+
+## IranianMinds — post 22897
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️
+⭕️ کانفیگای این ربات تو نت ملی وصله به محض استارت ۱ گیگابایت کانفیگ میده
+بدون هیچ هزینه ای و رفرالی کانفیگ رو تحویلتون میده با بهترین سرعت و بدون قطعی
+
+
+⭕️ ربات دریافت کانفیگ رایگان | @daeijoonbot
+
+⭕️ ربات دریافت کانفیگ رایگان | @daeijoonbot
+</div>
+
+## IranianMinds — post 22896
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22896_1781807272.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 مجتبی خامنه ای:
+
+من برای توافق با آمریکا نظر دیگه ای داشتم ولی چون پزشکیان به همراه سایر اعضای شورای عالی امنیت ملی مسئولیتش رو قبول کردن؛ منم دستورشو صادر کردم. از این لحظه ما مردم منتظر تحقق شروط تفاهم هستیم.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 284294
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻وزارت خارجه سوئیس: جلسه روز جمعه با حضور نمایندگان آمریکا،‌ ایران،‌ پاکستان و قطر برقرار است
+
+وزارت خارجه سوئیس امضای تفاهمنامه میان ایران و آمریکا را یک گام مهم برای کاهش تنش‌ها در منطقه برشمرد و از آن استقبال کرد.
+
+در پیام وزارت خارجه سوئیس که در شبکه ایکس منتشر شده است آمده که جلسه دیدار فردا،‌ جمعه میان نمایندگان آمریکا و ایران و همچنین نمایندگانی از پاکستان و قطر به عنوان کشورهای میانجی همچنان برقرار است تا مذاکرات اولیه درباره نحوه اجرای این توافق را آغاز کنند.
+
+پیشتر مقامات پاکستان از لغو یا به تعویق افتادن این جلسه خبر دادند. معاون رئیس‌جمهور آمریکا هم به خبرنگاران گفته بود که هنوز این دیدار در دستور کار است اما زمان آن مشخص نیست.
+https://bbc.in/4v3LF7r
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 392520
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392520_1781807273.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 رسایی: پزشکیان به دلیل مخالفت با رهبری و در خطر انداختن نظام، باید اعدام بشه. خودم حاضرم طناب دار بندازم دور گردنش.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392519
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392519_1781807273.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+از دوست دختر این مدارک بخوان دست دوست پسرشو نشون میده
+اون وقت هر کی به پست ما میخوره میگه همو فالو نکنیم کسی نفهمه 😂
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 128982
+
+<div align="center">
+  <a href="telegram/content/alonews_128982_1781807275.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فارس : تیم مذاکره‌کننده ایران تا حصول اطمینان کامل از توقف حملات به لبنان، هرگونه گفت‌وگوی تکمیلی را به حالت تعلیق درآورد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/28 21:45
 ---
 

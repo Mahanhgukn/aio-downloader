@@ -7,6 +7,184 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/28 18:54
+---
+
+## VahidOOnLine — post 246234
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246234_1781796249.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ریاست‌جمهوری لبنان اعلام کرد جوزف عون به هیات مذاکره‌کننده این کشور دستور داده است تا در مذاکرات با اسرائیل بر مواضع بیروت مبنی بر برقراری آتش‌بس دائمی، خروج نیروهای اسرائیلی و استقرار ارتش لبنان در مرزهای بین‌المللی پایبند بماند.
+
+ریاست‌جمهوری لبنان افزود عون نشستی ویژه برای بررسی مقدمات دور بعدی مذاکرات لبنان، آمریکا و اسرائیل که قرار است از دوم تا چهارم تیرماه در واشینگتن برگزار شود، تشکیل داده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 343123
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+The TSA could be moving security checks away from the airport.
+
+A new pilot program at Boston's Logan International is trying to get rid of long lines by giving passengers the option to check in and go through security at an off-site location.
+
+@Grady_Trimble examines the trial in an exclusive look for Fox Business.
+</div>
+
+## IranIntlTV — post 343062
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_343062_1781796250.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ریاست‌جمهوری لبنان اعلام کرد جوزف عون به هیات مذاکره‌کننده این کشور دستور داده است تا در مذاکرات با اسرائیل بر مواضع بیروت مبنی بر برقراری آتش‌بس دائمی، خروج نیروهای اسرائیلی و استقرار ارتش لبنان در مرزهای بین‌المللی پایبند بماند.
+
+ریاست‌جمهوری لبنان افزود عون نشستی ویژه برای بررسی مقدمات دور بعدی مذاکرات لبنان، آمریکا و اسرائیل که قرار است از دوم تا چهارم تیرماه در واشینگتن برگزار شود، تشکیل داده است.
+https://iranintl.com/202606188688
+</div>
+
+## FarsiVOA — post 221115
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺پرزیدنت ترامپ درباره نتایج «یادداشت تفاهم»: ایران هرگز نمی‌تواند سلاح هسته‌ای داشته باشد
+
+▪️رئیس جمهوری آمریکا با انتشار پیامی کوتاه به دستاوردهای امضای «یادداشت تفاهم» با جمهوری اسلامی اشاره کرد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/donald-trump-understanding-iran-nuclear-weapons/8162262.html/?nocach=1
+</div>
+
+## FarsiVOA — post 221114
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺حمله پهپادی گسترده اوکراین به پایتخت روسیه؛ پالایشگاه مسکو هدف قرار گرفت
+
+▪️اوکراین روز پنجشنبه ۲۸ خرداد با اجرای یک حمله‌ پهپادی گسترده به مسکو، برای دومین بار طی هفته جاری پالایشگاه نفت پایتخت روسیه را هدف قرار داد. اوکراین اعلام کرد که این اقدام پاسخ به حمله‌ای است که به یک صومعه حدودا هزارساله در شهر کی‌یف آسیب رسانده بود.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/ukraine-hits-moscow-refinery/8162256.html
+</div>
+
+## IranianMinds — post 22884
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22884_1781796250.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 پیش‌خرید بازی "GTA VI" از 4 تیر آغاز خواهد شد.
+
+
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 392503
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392503_1781796251.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یه عرزشی اومد از جمهوری اسلامی طرفداری کنه ولی جوری رید که تو تاریخ ثبت شد😂
+
+تو جام جهانی ۲۰۱۴ که از آرژانتین باختیم، از بس خوب بازی کردیم همه جشن گرفتیم، جوری که آرژانتینی ها فکر کردن ما بردیم.
+ما کلا عادت داریم باختمون رو با برد نشون بدیم.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392502
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏نیاز دارم کصخل باشم، پولدار، بی دغدغه، آیکیو نهایتا ۸۰
+مثل کسایی که روسیه دندون میخونن
+
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 128938
+
+<div align="center">
+  <a href="telegram/content/alonews_128938_1781796252.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پزشکیان: تلاش‌های پاکستان در مسیر دستیابی به توافق پایان جنگ در حافظه ملت ایران ماندگار خواهد شد
+
+
+🔴شهباز شریف: صبر، استقامت و رویکرد مبتنی بر عقلانیت و تدبیر مسئولان و ملت ایران ستودنی است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128937
+
+<div align="center">
+  <a href="telegram/content/alonews_128937_1781796252.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈علی‌هاشم، خبرنگار الجزیره: مسعود پزشکیان شاید تنها رئیس‌جمهور ایران باشد که چندین حیات سیاسی مختلف را در یک دوره تجربه کرده است
+
+
+🔴به قدرت رسیدن پس از جان باختن رئیس‌جمهور قبلی در سقوط هلیکوپتر
+
+
+🔴ترور اسماعیل هنیه در مراسم تحلیف
+
+🔴حمله مستقیم ایران به اسرائیل
+
+🔴سقوط سوریه، ترور نصرالله و حمله به ایران
+
+🔴شعله‌ور شدن اعتراضات
+
+🔴تغییر رهبری در شرایط جنگی
+
+🔴امضای توافق صلح با آمریکا
+
+🔴در دوران پزشکیان، ایران هرگز از حرکت و گذار از یک مرحله به مرحله‌ای دیگر باز نایستاده است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128936
+
+<div align="center">
+  <a href="telegram/content/alonews_128936_1781796252.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / معاون نخست‌وزیر و وزیر خارجه پاکستان: از آنجا که یادداشت تفاهم میان آمریکا و ایران به‌صورت مجازی امضا شده است، مراسم رسمی امضای آن که قرار بود روز جمعه در سوئیس برگزار شود، لغو شده است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128935
+
+<div align="center">
+  <a href="telegram/content/alonews_128935_1781796253.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈یک منبع: بررسی اصلاحیه قیمت‌های ایران خودرو نشان می‌دهد که نرخ نهایی اکثر محصولات این شرکت بدون تغییر باقی مانده و تنها چند خودرو با «کاهش محدود» قیمت مواجه شده‌اند!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/28 18:44
 ---
 

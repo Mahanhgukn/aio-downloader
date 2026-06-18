@@ -7,6 +7,234 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/28 19:36
+---
+
+## VahidOOnLine — post 246240
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_246240_1781798765.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ جی‌دی ونس، معاون رئیس‌جمهوری آمریکا، در نشست خبری خود در کاخ سفید با اشاره به گمانه‌زنی‌ها پیرامون تبادلات مالی و مزایای توافق اخیر تاکید کرد که این تفاهم‌نامه، واشنگتن را در یک موقعیت کاملا برتر قرار داده است.
+
+ونس با بیان اینکه تحت هیچ شرایطی حتی یک سنت از منابع مالی مطرح شده در تفاهم‌نامه، از سوی ایالات متحده تامین نخواهد شد، این توافق را یک بازی برد-برد واقعی برای آمریکا خواند و گفت: «اگر ایرانی‌ها رفتار خود را تغییر ندهند، ساختار نظامی و برنامه هسته‌ای آن‌ها همچنان نابود شده باقی می‌ماند؛ و اگر تغییر رویه دهند، رابطه‌ای نوین و دگرگون‌شده با خاورمیانه خواهند داشت.»
+
+معاون ترامپ تصریح کرد که بهره‌مندی تهران از مزایای این قرارداد منحصرا به پایبندی کامل آن‌ها مشروط شده است، اما در نهایت فارغ از اینکه طرف ایرانی کدام مسیر را انتخاب کند، خروجی این معادله یک پیروزی مطلق برای مردم و رئیس‌جمهوری ایالات متحده خواهد بود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246239
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_246239_1781798768.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد که سه‌شنبه ۲۶ خردادماه بخشی از سقف یکی از اتاق‌های بستری در بیمارستان «امام علی» چابهار فروریخت و موجب تخریب بخشی از فضای داخلی این مرکز درمانی شد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246238
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246238_1781798770.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جی‌دی ونس، معاون رییس‌جمهوری آمریکا، در یک نشست خبری در کاخ سفید گفت بازه ۶۰ روزه تعیین‌شده در یادداشت تفاهم مورد تایید دونالد ترامپ، رییس‌جمهوری آمریکا، و رهبران جمهوری اسلامی از روز پنج‌شنبه آغاز می‌شود.
+
+ونس افزود: «کشورهای عربی حوزه خلیج فارس درباره این توافق می‌گویند که این یک تحول شگرف برای منطقه است، زیرا در هر صورت ما و کل منطقه برنده خواهیم بود. ایران تضعیف شده، برنامه هسته‌ای آن از بین رفته و اقتصادش در وضعیت بسیار دشواری قرار دارد.»
+
+او گفت: «اگر جمهوری اسلامی رفتار خود را تغییر دهد، اتفاقات بزرگی برای ایران و جهان رخ خواهد داد و اگر هم تغییر ندهد، ضرری متوجه ما نخواهد شد. در هر صورت، ما برنده‌ایم و رییس‌جمهوری توافق و مذاکرات خود را دقیقا بر همین مبنا طراحی کرده است.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 15263
+
+<div align="center">
+  <img src="telegram/content/WithYashar_15263_1781798771.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+از ترامپی که امضاش اینهمه بالا پایین داره انتظار ثبات روانی دارید ، موج مکزیکی هم رد کرده نوار قلبه 😂
+@withyashar
+</div>
+
+## mwarmonitor — post 11145
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_11145_1781798772.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+«خب، اول از همه، آن‌ها تعهدات هسته‌ای بسیار ملموسی داده‌اند. آن‌ها متعهد شده‌اند ذخایر به‌شدت غنی‌سازی‌شده‌ای را که در اختیار دارند، نابود کنند. اما موضوع دوم این است که تمام کاری که ما انجام داده‌ایم، لغو محاصره در تنگه هرمز است. ما اساساً وضعیت را به همان حالتی که پیش از درگیری بود، بازگردانده‌ایم. محاصره برداشته شده است؛ ما آن را پس از شروع درگیری اعمال کرده بودیم. تنگه‌ها اکنون باز هستند. این امتیاز جدیدی برای ایرانی‌ها نیست. آن‌ها سال‌های سال، مدت‌ها پیش از آنکه ما اصلاً محاصره‌ای اعمال کنیم، نفت می‌فروختند. ما آن محاصره را تحمیل کردیم، آن‌ها فروش نفت را متوقف کردند، و اکنون ما محاصره را لغو کرده‌ایم تا جریان آزاد انرژی را در سراسر... در سراسر جهان تقویت کنیم.»
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 343133
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌Fox News (Twitter/X)
+
+The framework is now official.
+
+President Trump has signed the Memorandum of Understanding outlining 14 key U.S. negotiating points both America and Iran hope to maintain over the next 60 days.
+
+Among the stated U.S. objectives: ending the war, restoring normal operations through the Strait of Hormuz, and ensuring Iran cannot obtain a nuclear weapon. Read the full 14-point memorandum here:
+
+https://www.foxnews.com/politics/read-it-full-text-us-iran-memorandum-understanding
+</div>
+
+## FoxNewsTwitter — post 343132
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343132_1781798774.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"The Obama deal gave them over $1 billion of American money. This deal gives them $0."
+
+Vice President JD Vance lays out why the Trump administration believes its Iran agreement is fundamentally different from President Obama's 2015 nuclear deal:
+
+"Gulf Coast Coalition loves this deal because they think that it makes Iran weaker. They hated the Obama deal because they thought that it made Iran stronger."
+
+"In 2015, the perspective that we came at as the United States was, you already have a really nice nuclear program. We're going to bribe you with American money in order to stop it."
+
+"Our perspective and where we're coming at, it is we already destroyed your nuclear program."
+</div>
+
+## IranIntlTV — post 343067
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_343067_1781798776.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد که سه‌شنبه ۲۶ خردادماه بخشی از سقف یکی از اتاق‌های بستری در بیمارستان «امام علی» چابهار فروریخت و موجب تخریب بخشی از فضای داخلی این مرکز درمانی شد.
+</div>
+
+## Persian_Trend_Official — post 17479
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17479_1781798778.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرنگار: رئیس جمهور ترامپ دیروز گفت که اگر مذاکرات دور دوم به نتیجه نرسد، شما را سرزنش خواهد کرد. آیا نگران هستید که او شما را به عنوان فرد شکست خورده معرفی کند؟
+
+جی دی ونس: نه، به هیچ وجه. منظورم این است که فکر می‌کنم رئیس جمهور شوخی می‌کرد، همانطور که اغلب این کار را می‌کند.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Dirty_Kids — post 392507
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392507_1781798781.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✅ اپلیکیشن حرفه ای اندروید سایت بین المللی دربی بت
+
+✅اسپانسر لیگ انگلستان
+
+💰اولین سایت جهانی با امکان شارژ و برداشت با کارت بانکی
+
+◻️ برای ورود فیلترشکن روشن کرده روی کانادا یا سنگاپور یا آلمان و ....
+📢
+
+😀Telegram Channel
+👇
+https://t.me/+bcynkEgSW2dlYTc0
+</div>
+
+## Dirty_Kids — post 392506
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392506_1781798781.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😤میخوای جام جهانی پیش بینی کنی؟!
+
+🔹پس نیاز داری به یه سایت بین المللی و معتبر
+🔹
+
+
+⛔دربی بت همون انتخاب  100%
+
+
+💎ویژگی های سایت جهانی Derby Bet:
+
+⬅️امکان شارژ امن با کارت بانکی
+
+⬅️واریز اول دوبل شارژ می شوید(بونوس۱۰۰٪)
+
+⬅️پر اپشن ترین سایت فعال در ایران
+
+⬅️تسویه حساب کمتر از 5 دقیقه
+
+⬅️برگشت بخشی از باخت به صورت هفتگی
+
+⭐دارای لایسنس و مجوز anjuan
+
+
+🚨کد هدیه ثبت نام:GG007
+
+
+⚠️برای دانلود اپلکیشن کلیک کنید
+👉
+
+
+🔔کانال دربی بت :
+👇
+
+✅https://t.me/+bcynkEgSW2dlYTc0
+</div>
+
+## Dirty_Kids — post 392505
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392505_1781798782.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این آقا این سگ‌هارو قانع کرده که بشینن کنارهم و از یک پلن پیروی کنن
+بعد من نمیتونم با دوستام همین کار رو کنم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392504
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392504_1781798783.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تتوی جدید آقای پشت بازو برای وضعیت جدید آمریکا
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 128952
+
+<div align="center">
+  <a href="telegram/content/alonews_128952_1781798784.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ چند روز دیگه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/28 19:28
 ---
 

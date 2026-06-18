@@ -7,6 +7,123 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/28 11:03
+---
+
+## mwarmonitor — post 11101
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_11101_1781768017.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔥پالایشگاه نفت مسکو که بامداد امروز هدف حملات متعدد پهپادی اوکراین قرار گرفت، اکنون در حال سوختن ستونی عظیم از دود است که بر فراز پایتخت روسیه اوج گرفته است. @mwarmonitor
+</div>
+
+## pm_afshaa — post 94316
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_94316_1781768018.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرزاد ملازهی نوجوان 15 ساله بلوچ شامگاه روز گذشته چهارشنبه در نزدیکی بیمارستان ایرانمهر سراوان توسط نیروهای امنیتی سپاه،بدون ایست و هشدار قبلی هدف تیراندازی قرار گرفته و گلوله به ناحیه سر وی اصابت کرده
+
++نیروهای حاضر پس از مجروح شدن این نوجوان، با وجود نزدیکی محل حادثه به بیمارستان ایرانمهر، از انتقال فوری وی به مرکز درمانی جلوگیری کرده و مانع نزدیک شدن شهروندان برای کمک‌رسانی به او شده
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 342973
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روح‌الله رحیم‌پور، روزنامه‌نگار و تحلیلگر سیاسی، در گفت‌وگو با ایران‌اینترنشنال با اشاره به امضای تفاهم‌نامه میان آمریکا و جمهوری اسلامی گفت بخش مهم این توافق به تفاهم‌های پشت‌پرده درباره برنامه موشکی و آینده برنامه هسته‌ای ایران مربوط می‌شود. او همچنین تاکید کرد پرسش اصلی این است که آیا جمهوری اسلامی توان و اراده ایجاد یک تغییر پارادایمی در ساختار خود برای اجرای این توافق‌ها را دارد یا نه.
+@iranintltv
+</div>
+
+## IranIntlTV — post 342972
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342972_1781768019.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهور آمریکا، متن یادداشت تفاهم با جمهوری اسلامی را امضا کرد. هم‌زمان رسانه‌های ایران از امضای این توافق از سوی مسعود پزشکیان نیز خبر دادند. قرار است نمایندگان دو کشور روز جمعه در سوئیس درباره نحوه اجرای توافق گفت‌وگو کنند.
+
+مرتضی کاظمیان، عضو تحریریه ایران‌اینترنشنال، با اشاره به این توافق پس از ۴۷ سال تنش و جنگ ۴۰ روزه، از ابهام‌ها و چالش‌های پیش‌روی اجرای آن در ماه‌های آینده می‌گوید.
+@iranintltv
+</div>
+
+## Persian_Trend_Official — post 17437
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_17437_1781768021.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Moscow 
+👀
+</div>
+
+## alonews — post 128853
+
+<div align="center">
+  <a href="telegram/content/alonews_128853_1781768022.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / گزارشات از پیشروی ارتش اسرائیل به سمت ورودی علی الطاهر در لبنان 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128852
+
+<div align="center">
+  <a href="telegram/content/alonews_128852_1781768022.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وقتی آقازاده‌ها میفهمن بعد توافق قراره پول بیاد به کشور
+
+
+✅ @AloNews
+</div>
+
+## alonews — post 128851
+
+<div align="center">
+  <a href="telegram/content/alonews_128851_1781768023.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / گزارشات از پیشروی ارتش اسرائیل به سمت ورودی علی الطاهر در لبنان
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128850
+
+<div align="center">
+  <a href="telegram/content/alonews_128850_1781768023.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈آکسیوس: رسانه‌های نزدیک به نتانیاهو به دلیل توافق با ایران، حمله به دولت ترامپ را آغاز کردند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128849
+
+<div align="center">
+  <a href="telegram/content/alonews_128849_1781768023.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ناتو: توافق ایران گامی مثبت به سوی ثبات است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/28 10:54
 ---
 

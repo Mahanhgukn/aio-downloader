@@ -7,6 +7,127 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/28 09:44
+---
+
+## VahidOOnLine — post 246139
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_246139_1781763264.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️مهدی طارمی پیراهن خود را به هواداران ایرانی در ورزشگاه لس‌آنجلس تقدیم کرد
+
+♦️مهدی طارمی، مهاجم تیم ملی فوتبال ایران پس از بازی با نیوزیلند در ورزشگاه سوفای لس‌آنجلس، به سوی تماشاگران رفت و پیراهنش را به یکی از هواداران هدیه داد.
+
+در ویدیویی که از این حرکت در شبکه‌های اجتماعی منتشر شده، پرچم ملی شیروخورشیدنشان ایران در کنار این هوادار دیده می‌شود.
+
+بسیاری از هواداران تیم ملی در بازی با نیوزیلند با وجود ممنوعیت‌ اعلام شده از سوی فیفا، پرچم شیروخورشیدنشان را در ورزشگاه سوفا به اهتزاز درآوردند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 15209
+
+<div align="center">
+  <a href="telegram/content/WithYashar_15209_1781763267.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لحظه امضا توسط ترامپ در مراسم شام کاخ ورسای
+@withyashar
+</div>
+
+## WithYashar — post 15208
+
+<div align="center">
+  <img src="telegram/content/WithYashar_15208_1781763270.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امضای تفاهم‌نامه توسط ‌پژشکیان
+
+@withyashar
+</div>
+
+## Shin_Persian — post 7127
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet: Open Source Intel ✓ @Osint613 Wed, 17 Jun 2026 18:14:47 UTC PROS of the MOU • Iran pinky promises not to develop a nuclear weapon. • The Strait of Hormuz reopens, with commercial shipping passing toll free for 60 days. CONS of the MOU…
+</div>
+
+## Shin_Persian — post 7126
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+Open Source Intel ✓ @Osint613
+Wed, 17 Jun 2026 18:14:47 UTC
+
+PROS of the MOU
+
+• Iran pinky promises not to develop a nuclear weapon.
+
+• The Strait of Hormuz reopens, with commercial shipping passing toll free for 60 days.
+
+CONS of the MOU
+
+• Broad sanctions relief for Iran.
+
+• Frozen Iranian assets are unfrozen.
+
+• Hezbollah appears
+
+↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
+
+ترجمه خودکار فارسی
+
+مزایای تفاهم‌نامه (MOU)
+
+• ایران قول شرف می‌دهد که سلاح هسته‌ای تولید نکند.
+
+• تنگه هرمز بازگشایی می‌شود و کشتیرانی تجاری به مدت ۶۰ روز بدون پرداخت حق عبور مرور می‌کند.
+
+معایب تفاهم‌نامه (MOU)
+
+• رفع گسترده تحریم‌ها علیه ایران.
+
+• دارایی‌های مسدود شده ایران آزاد می‌شوند.
+
+• حزب‌الله ظاهر می‌شود
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 221082
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺وال‌استریت ژورنال: ترامپ از نتانیاهو خواست به «منفجر کردن ساختمان‌ها» پایان دهد
+
+▪️وال‌استریت ژورنال گزارش داد که دونالد ترامپ، رئیس‌جمهوری آمریکا، در یک تماس تلفنی با نخست‌وزیر اسرائیل، بنیامین نتانیاهو، درباره لبنان، از او خواست که به «منفجر کردن ساختمان‌ها» پایان دهد.
+
+▪️منابع آگاهی که از این تماس اطلاع داشتند به این روزنامه گفتند که ترامپ در این تماس که اخیراً برقرار شد، گفت: «چرا ساختمان‌ها را منفجر می‌کنی؟ منفجر کردن ساختمان‌ها را متوقف کن.»
+
+▪️یکی از مقام‌های ارشد دولت آمریکا که از تماس‌های ترامپ و نتانیاهو اطلاع داشت گفت این تماس‌ها معمولاً شامل درخواست نخست‌وزیر اسرائیل برای اقدامات نظامی بیشتر بوده و ترامپ از این وضعیت خسته شده است.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/trump-urged-netanyahu-to-stop-blowing-up-buildings/8162214.html
+</div>
+
+## alonews — post 128837
+
+<div align="center">
+  <a href="telegram/content/alonews_128837_1781763271.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تصویری متفاوت از ترامپ و مکرون در ورسای
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/28 09:34
 ---
 

@@ -7,6 +7,115 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/28 06:43
+---
+
+## VahidOOnLine — post 246131
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246131_1781752427.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جی‌دی ونس، معاون رییس‌جمهوری آمریکا، به سی‌بی‌ان نیوز گفت یکی از نقاط قوت اصلی یادداشت تفاهم با ایران این است که بر رفتار متمرکز است، نه بر شعارها و اظهارات. او گفت رهبری جدید ایران بر اساس عملکردش قضاوت خواهد شد.
+او افزود: «یکی از مسائلی که رییس‌جمهوری و کل دولت را بسیار نگران کرده بود، کشتار همه آن معترضان بی‌گناه به دست افرادی بود که تا چند ماه پیش در قدرت بودند.»
+ونس گفت: «آن افراد اکنون دیگر در قدرت نیستند. اما باید ببینیم چه اتفاقی می‌افتد. آیا این رهبران جدید با مردم به شکل متفاوتی رفتار می‌کنند؟ ما قطعا امیدواریم که چنین باشد. اگر هم این‌طور نباشد، با مشاهده عملکرد واقعی آن‌ها می‌توانیم قضاوت کنیم. به همین دلیل است که می‌گویم نکته مثبت این یادداشت تفاهم این است که درباره حرف‌ها نیست، بلکه درباره رفتار آن‌هاست.»
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246130
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246130_1781752428.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+راف چیکونی، رییس کمیته مشترک اطلاعات و امنیت پارلمان استرالیا، از تفاهم‌نامه تهران و واشینگتن استقبال کرد، اما گفت موضوع مردم ایران و مطالبات آنان برای آزادی نباید در حاشیه قرار گیرد و جامعه جهانی نباید نسبت به سرکوب داخلی در ایران بی‌تفاوت بماند.
+راف چیکونی گفت هنوز راه زیادی تا بازگشت کامل ثبات باقی مانده است.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## IranIntlTV — post 342953
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342953_1781752428.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جی‌دی ونس، معاون رییس‌جمهوری آمریکا، به سی‌بی‌ان نیوز گفت یکی از نقاط قوت اصلی یادداشت تفاهم با ایران این است که بر رفتار متمرکز است، نه بر شعارها و اظهارات. او گفت رهبری جدید ایران بر اساس عملکردش قضاوت خواهد شد.
+او افزود: «یکی از مسائلی که رییس‌جمهوری و کل دولت را بسیار نگران کرده بود، کشتار همه آن معترضان بی‌گناه به دست افرادی بود که تا چند ماه پیش در قدرت بودند.»
+ونس گفت: «آن افراد اکنون دیگر در قدرت نیستند. اما باید ببینیم چه اتفاقی می‌افتد. آیا این رهبران جدید با مردم به شکل متفاوتی رفتار می‌کنند؟ ما قطعا امیدواریم که چنین باشد. اگر هم این‌طور نباشد، با مشاهده عملکرد واقعی آن‌ها می‌توانیم قضاوت کنیم. به همین دلیل است که می‌گویم نکته مثبت این یادداشت تفاهم این است که درباره حرف‌ها نیست، بلکه درباره رفتار آن‌هاست.»
+
+https://iranintl.com/202606181595
+</div>
+
+## IranIntlTV — post 342952
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342952_1781752429.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+راف چیکونی، رییس کمیته مشترک اطلاعات و امنیت پارلمان استرالیا، از تفاهم‌نامه تهران و واشینگتن استقبال کرد، اما گفت موضوع مردم ایران و مطالبات آنان برای آزادی نباید در حاشیه قرار گیرد و جامعه جهانی نباید نسبت به سرکوب داخلی در ایران بی‌تفاوت بماند.
+راف چیکونی گفت هنوز راه زیادی تا بازگشت کامل ثبات باقی مانده است.
+
+https://iranintl.com/202606181384
+</div>
+
+## Shin_Persian — post 7125
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_7125_1781752430.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Thu, 18 Jun 2026 03:12:34 UTC
+
+Islamic Regime's president, Masoud Pezeshkian holding the MOU, signed by himself and Trump.
+
+ترجمه خودکار فارسی
+
+مسعود پزشکیان، رئیس‌جمهور رژیم اسلامی، در حالی که یادداشت تفاهم (MOU) امضا شده توسط خودش و ترامپ را در دست دارد.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 7124
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shehbaz Sharif ✓ @CMShehbaz
+Thu, 18 Jun 2026 00:27:27 UTC
+
+I am honoured to announce that the historic ‘Islamabad Memorandum of Understanding’ has been electronically signed today between the United States of America and the Islamic Republic of Iran. The Memorandum has been signed by honourable Presidents of both the countries and also endorsed by me as the mediator. The signing of this agreement at the highest level of the respective governments demonstrates the commitment of both sides to a diplomatic resolution of the conflict. Islamabad MoU shall enter into force with immediate effect and as a first step, Islamic Republic of Iran will instantly reopen the Strait of Hormuz and the United States of America will immediately lift the naval blockade.
+
+I offer my heartfelt congratulations and sincere appreciation to the President of the United States, Donald J. Trump whose steadfast commitment to diplomacy and preference for peaceful resolution have once again helped end a conflict that could have led to devastating consequences for the region and beyond. I also commend the dedication and tireless efforts of the United States negotiating team, including J.D. Vance, Steve Witkoff and Jared Kushner, for their invaluable contributions to this achievement.
+
+I express my profound respect and appreciation to His Eminence Ayatollah Seyyed Mojtaba Hosseini Khamenei, the Supreme Leader of Islamic Republic of Iran and President Masoud Pezeshkian for their wisdom, foresight and statesmanship in embracing the cause of peace. I also wish to recognize the efforts of the Iranian negotiating team, including Mohammad Bagher Ghalibaf, Abbas Araghchi and Eskandar Momeni, whose patience, perseverance and commitment to constructive engagement were instrumental in bringing this agreement to fruition.
+
+I would especially like to acknowledge the sincere efforts and constructive engagement of the leadership of the State of Qatar in helping reach this point. I also highly commend the leadership of the Kingdom of Saudi Arabia, the Republic of Türkiye and the Arab Republic of Egypt for their indispensable role and invaluable contributions in this regard.
+
+I would also like to make special mention of Field Marshal Syed Asim Munir, whose tireless efforts, selfless dedication and instrumental role were critical in facilitating this breakthrough and advancing the cause of peace and regional stability.
+
+May this Memorandum of Understanding serve as an enduring foundation for greater understanding, mutual respect and shared prosperity for the complete region.
+
+@realDonaldTrump
+@JDVance
+@SecRubio
+@SteveWitkoff
+@SEPeaceMissions
+@drpezeshkian
+@mb_ghalibaf
+@araghchi
+
+ترجمه خودکار فارسی در بخش نظرات
+
+𝕏 · @shin_persian
+</div>
+
+---
 📅 بروزرسانی: 1405/03/28 06:33
 ---
 

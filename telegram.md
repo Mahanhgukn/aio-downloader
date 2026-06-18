@@ -7,6 +7,222 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/28 18:05
+---
+
+## VahidOOnLine — post 246227
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246227_1781793303.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال ۱۱ اسرائیل گزارش داد دونالد ترامپ گفته است: «به احتمال زیاد از بنیامین نتانیاهو در انتخابات حمایت خواهم کرد، اما باید ببینم چه کسانی نامزد می‌شوند.»
+
+او افزود: «رابطه خوبی با بی‌بی دارم، اما او باید منطقی‌تر باشد. آماده دیدار با او هستم.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246226
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246226_1781793304.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ «بانک آمریکا» (BofA) اعلام کرد که بازگشایی کامل تنگه هرمز می‌تواند میانگین قیمت نفت خام برنت را در سال ۲۰۲۶ به ۸۲ دلار در هر بشکه کاهش دهد؛ این در حالی است که پیش‌بینی قبلی این بانک ۹۳ دلار بود. طبق این گزارش، نفت برنت در بیشتر روزهای نیمه دوم سال جاری میلادی در محدوده ۷۰ تا ۸۰ دلار معامله خواهد شد.
+
+به دنبال انتشار تفاهم‌نامه ۱۴ بندی میان جمهوری اسلامی ایران و آمریکا که شامل بازگشایی تنگه هرمز، لغو تحریم‌های تهران و بهبود چشم‌انداز عرضه جهانی است، قیمت نفت روز پنج‌شنبه ۲۸ خرداد به پایین‌ترین سطح خود از نخستین روز آغاز جنگ در ایران سقوط کرد. بر اساس این توافق ۶۰ روزه، حمل و نقل دریایی در این شاهراه حیاتی انرژی باید ظرف ۳۰ روز به ظرفیت کامل خود بازگردد.
+
+بانک آمریکا پیش‌بینی خود از وضعیت بازار در سال ۲۰۲۶ را به دلیل تبعات جنگ به کسری ۲.۶ میلیون بشکه‌ای در روز تغییر داد، در حالی که پیش از جنگ انتظار مازاد عرضه وجود داشت. این بانک همچنین انتظار دارد میانگین قیمت نفت برنت در سال ۲۰۲۷ به ۷۰ دلار برسد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 343121
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343121_1781793305.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: Supreme Court unanimously strikes down federal gun ban for 'habitual' marijuana users, the same law that was used to prosecute Hunter Biden
+</div>
+
+## FoxNewsTwitter — post 343120
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343120_1781793305.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"YOU’RE WELCOME!"
+
+President Trump is taking a victory lap, pointing to what he says are major signs of strength across the country: surging stock markets, oil flowing, strong job numbers, and easing costs for consumers.
+
+"OUR COUNTRY IS STRONG, SAFE, AND RESPECTED LIKE NEVER BEFORE."
+</div>
+
+## pm_afshaa — post 94333
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94333_1781793306.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کتک زدن زنان بی دفاع روستای پشموکی کرمان توسط نیروهای مادر عمومی انتظامی جمهوری اسلامی
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 343054
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_343054_1781793309.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری رویترز گزارش داد که پنجشنبه ۲۸ خرداد، اوکراین برای دومین بار در یک هفته گذشته پالایشگاه نفت مسکو را هدف حمله پهپادی قرار داد.
+
+جزییات بیشتر در گفت‌وگو با علی حسن‌پور، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 343053
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_343053_1781793311.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال ۱۱ اسرائیل گزارش داد دونالد ترامپ گفته است: «به احتمال زیاد از بنیامین نتانیاهو در انتخابات حمایت خواهم کرد، اما باید ببینم چه کسانی نامزد می‌شوند.»
+
+او افزود: «رابطه خوبی با بی‌بی دارم، اما او باید منطقی‌تر باشد. آماده دیدار با او هستم.»
+https://iranintl.com/202606187590
+</div>
+
+## Persian_Trend_Official — post 17472
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_17472_1781793312.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گفت‌وگوی تلفنی پزشکیان با شهباز شریف، نخست وزیر پاکستان
+
+پزشکیان: تلاش‌های پاکستان در مسیر دستیابی به توافق پایان جنگ در حافظه ملت ایران ماندگار خواهد شد
+
+شهباز شریف: صبر، استقامت و رویکرد مبتنی بر عقلانیت و تدبیر مسئولان و ملت ایران ستودنی است
+
+رئیس جمهوری اسلامی ایران از تلاش‌های دلسوزانه و نقش‌آفرینی سازنده دولت پاکستان در پیشبرد روند میانجی‌گری و دستیابی به توافق اولیه قدردانی کرد و دو طرف بر تداوم همکاری‌ها برای تثبیت صلح، امنیت و توسعه روابط راهبردی تهران و اسلام‌آباد تأکید کردند.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17471
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17471_1781793312.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لغو سفر شهباز شریف به سوئیس شبکه الجزیره به نقل از تلویزیون پاکستان گزارش داد که سفر برنامه‌ریزی‌شده شهباز شریف، نخست‌وزیر این کشور به سوئیس، بدون اعلام دلیل رسمی لغو شده است. این سفر که قرار بود در دستور کار نخست‌وزیر پاکستان قرار گیرد، به طور ناگهانی و…
+</div>
+
+## RadioFarda — post 158465
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حرکت کشتی‌ها در تنگه هرمز بعد از امضای تفاهم ایران و آمریکا «شتاب گرفته است»
+
+🔸بر اساس اعلام روز پنجشنبه ۲۸ خرداد شرکت اطلاعات دریایی «ویندوارد»، در ساعات پس از امضای یادداشت تفاهم برای پایان دادن به جنگ توسط رؤسای جمهور آمریکا و ایران، نشانه‌هایی از احیای تدریجی تردد کشتی‌ها در تنگه هرمز مشاهده شده است.
+
+🔸خبرگزاری رویترز نیز از عبور سه ابرنفتکش با پرچم عربستان سعودی از این آبراه بعد از امضای تفاهم‌نامه خبر داده است.
+
+🔸میشل ویزه باکمن، تحلیلگر ارشد ویندوارد، در یک نشست آنلاین گفت که بین ساعت ۶ عصر روز ۲۷ خرداد تا ساعت ۲ بعدازظهر به وقت «ساعت هماهنگ جهانی» (UTC) در ۲۸ خرداد، ۱۸ کشتی از تنگه هرمز عبور کرده‌اند؛ رخدادی که او آن را «نشانه‌ای از اعتماد به این توافق» توصیف کرد.
+
+🔸او به‌طور مشخص گفت که این کشتی‌ها شامل یک نفتکش گاز طبیعی مایع (ال‌ان‌جی) با پرچم فرانسه، دو نفتکش با پرچم هنگ‌کنگ، یک کشتی حمل خودرو با پرچم ایتالیا، یک نفتکش تحت مدیریت ژاپن و چندین نفتکش با پرچم عربستان سعودی بوده‌اند.
+
+🔸ده فروند از این کشتی‌ها در مسیر خروج از خلیج فارس بودند و به دلیل جنگی که با حملات هوایی آمریکا و اسرائیل به ایران در ۲۸ فوریه آغاز شده بود، به مدت ۱۰۹ روز در خلیج فارس گرفتار مانده بودند.
+
+🔸ویزه باکمن گفت: «آنچه اکنون اهمیت دارد، کشتی‌هایی هستند که در حال خروج‌ هستند. این روند در ابتدا به‌آرامی آغاز خواهد شد، اما بدون تردید این نشانه بسیار مثبتی است؛ نشانه‌ای اولیه از این‌که اعتماد برای عبور کشتی‌ها در مسیر خروجی در حال شکل‌گیری است.»
+
+🔸او افزود: «در دو هفته نخست ماه ژوئن، تا پیش از آنکه روز یکشنبه خبر این توافق منتشر شود، میانگین عبور و مرور حدود هفت کشتی در روز بود. همچنین حجم کل تردد ثبت‌شده در ماه ژوئن تاکنون از ۱۵۶ موردی که در ماه مه ردیابی کرده بودیم فراتر رفته است؛ بنابراین کاملاً مشخص است که روند حرکت در حال شتاب گرفتن است.»
+
+🔸ویندوارد همچنین عبور کشتی‌های ایرانی از تنگه هرمز و نیز حرکت نفتکش‌ها و کشتی‌های حامل ال‌ان‌جی تحت کنترل ایران را که از جنوب شرق آسیا و از طریق تنگه مالاکا به سمت غرب در حرکت بودند، رصد کرده است؛ کشتی‌هایی که ظاهراً اکنون اطمینان دارند می‌توانند در بنادر ایران بارگیری کنند، زیرا محاصره دریایی بنادر و آب‌های ایران توسط آمریکا لغو شده است.
+
+🔸گزارش کامل را در وب‌سایت رادیوفردا بخوانید.
+
+@RadioFarda
+</div>
+
+## Dirty_Kids — post 392501
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392501_1781793313.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این خیلی حق بود:)
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392500
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392500_1781793313.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نیکی جون گرما رو ول کن بگو راز جوون موندنت چیه🥹🫠🤌
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392498
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بابام همیشه میگفت به آدمای بور اطمینان نکن
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 128929
+
+<div align="center">
+  <a href="telegram/content/alonews_128929_1781793314.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈الجزیره به نقل از یک منبع در دفتر نخست‌وزیری:
+معاون وزارت امور خارجه نماینده پاکستان در نشست سوئیس خواهد بود.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128928
+
+<div align="center">
+  <a href="telegram/content/alonews_128928_1781793314.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ به کانال ۱۱ عبری: آماده دیدار با نتانیاهو هستم
+
+
+🔴او باید منطقی‌تر باشد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/28 17:54
 ---
 

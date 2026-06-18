@@ -7,6 +7,156 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/29 01:44
+---
+
+## WithYashar — post 15288
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کامنت جدیدم زیر پست ترامپ، لاتیش کردم 😂 فقط همین کامنت رو لایک کنید . ترجمه در کانال تلگرام.
+
+https://www.instagram.com/reel/DZvkK0jpILu/?comment_id=18367681780225433
+
+ترجمه : ببین ترامپ،
+
+می‌دونم دیر یا زود این کار رو به سرانجام می‌رسونی، ولی رفیق، این دیگه درست نیست. مردم ایران از این همه انتظار و بلاتکلیفی به مرز دیوانگی رسیده‌اند.
+
+این داستان را تمام کن و کار را یکسره کن.
+
+خیلی از ما در این ماجرا کنار تو هستیم، اما باور کن این آخرین تغییر رژیمی است که حاضر به حمایت از آن هستیم. بعد از این دیگر چنین چیزی تکرار نخواهد شد.
+
+عشقی.
+</div>
+
+## FoxNewsTwitter — post 343149
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343149_1781820898.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+President Trump awards the Medal of Honor to retired Army Maj. Nicholas Dockery during a White House ceremony.
+
+Then-2nd Lt. Dockery earned the nation's highest military honor for his actions during a Taliban ambush in Afghanistan on October 2, 2012. Despite intense enemy fire, he repeatedly risked his life to rescue wounded soldiers and later directed helicopter support as his unit evacuated the wounded.
+
+Dockery is one of three veterans being recognized by President Trump for extraordinary acts of valor.
+</div>
+
+## pm_afshaa — post 94360
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94360_1781820900.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کاتز، وزیر دفاع اسرائیل:
+توانایی انجام عملیات مستقل علیه جمهوری اسلامی رو داریم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94359
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94359_1781820901.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴بیانیه مجتبی خامنه‌ای درباره تفاهم با آمریکا: همون‌طور که می‌دونید، رؤسای جمهور ایران و آمریکا یه تفاهمنامه امضا کردن؛ البته که این ترامپ بود که از روی بدبختی، به شدت دنبال امضای این تفاهمنامه بود. من خودم نظر دیگه‌ای داشتم! ولی بخاطر تعهّدی که پزشکیان از…
+</div>
+
+## FarsiVOA — post 221147
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️دونالد ترامپ: طالبان برای جلب رضایت آمریکا «چاپلوسی» می‌کند؛ تاکید بر بازپس‌گیری تجهیزات نظامی
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 17503
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17503_1781820901.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+درگیری سنگینی بین نیروی‌های حزب‌الله لبنان و ارتش اسرائیل در علی التحریر برقرار است.
+
+حزب‌الله به مواضع اسرائیل راکت شلیک کرده و ارتش اسرائیل نیز ضمن شلیک منور، منطقه را با توپخانه هدف قرار داده است.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17502
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17502_1781820903.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال های نزدیک به حزب‌الله لبنان ادعا میکند که این گروه با استفاده از راکت محل تجمع سربازان اسرائیلی در نزدیکی کفرتبنیت را هدف قرار داده است.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17501
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17501_1781820904.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حزب الله از آغاز سلسله عملیات های عاشورا برای عقب راندن ارتش اسرائیل از جنوب لبنان خبر دارد. 
+👺Phantom 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی.
+</div>
+
+## Dirty_Kids — post 392538
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392538_1781820906.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏چقدر خوبه بجای زدن اسم تازی های عرب پشت ماشین یاد بچه های خودمون هستیم🫡
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 129020
+
+<div align="center">
+  <a href="telegram/content/alonews_129020_1781820906.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خبرنگار: آیا به اسرائیلی‌ها اعتماد دارید؟
+
+
+🔴جی‌دی وانس: من به هیچ‌کس اعتماد ندارم.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129019
+
+<div align="center">
+  <a href="telegram/content/alonews_129019_1781820908.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ارتش اسرائیل (IDF) در یک قدمی شهر مهم و استراتژیک نبطیه
+
+طبق گزارش MTV، تو محور کفر تبنیت درگیری شدید بین ارتش اسرائیل و حزب‌الله جریان داره با سلاح سبک و سنگین و توپخانه. کفر تبنیت هم حدود ۴ کیلومتر با نبطیه فاصله داره.
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/29 01:25
 ---
 

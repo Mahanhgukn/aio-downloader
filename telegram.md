@@ -7,6 +7,189 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/28 10:14
+---
+
+## WithYashar — post 15212
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وال استریت ژورنال: ترامپ در حال از دست دادن تندروهایی است که زمانی از جنگ ایران دفاع می‌کردن
+@withyashar
+الجزیره: موجی از خشم سیاسی واشنگتن را بر سر توافق با ایران فرا گرفته
+</div>
+
+## WithYashar — post 15211
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سناتور بلومنتال: سنا قطعا توافق با ایران را تصویب نمی‌کند
+
+محکومیت دو حزبی برای یک توافق ننگین عجیب نیست که شبیه «تسلیم بی‌قید و شرط» است، نه توسط ایران، آنطور که ترامپ خواسته بود، بلکه توسط آمریکا.
+بیش از ۳۰۰ میلیارد دلار ثروت بادآورده، لغو تحریم‌ها، فروش نامحدود نفت، عدم بازرسی یا تأیید کامل. همه اینها به خاطر وعده‌های مبهم و غیرقابل اجرا در مورد تسلیحات هسته‌ای است که ادعای ایران برای پیروزی در برابر شیطان بزرگ را تقویت می‌کند.
+هر چیزی شبیه به این توافق به محض ورود به سنا از بین خواهد رفت. برای اینکه اثر اجرایی داشته باشد، باید در اینجا تصویب شود.
+@withyashar
+</div>
+
+## WithYashar — post 15210
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بلومبرگ از عبور یک نفتکش و یک کشتی حامل گاز مایع از تنگه هرمز پس از توافق آمریکا و ایران خبر داد.
+@withyashar
+</div>
+
+## pm_afshaa — post 94315
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وال استریت ژورنال: ترامپ در حال از دست دادن تندروهایی است که زمانی از جنگ ایران دفاع می‌کردن
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94314
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴الجزیره: موجی از خشم سیاسی واشنگتن را بر سر توافق با ایران فرا گرفته
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## FarsiVOA — post 221084
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_221084_1781765049.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پس از آنکه تفاهم‌نامه جمهوری اسلامی و ایالات متحده توسط روسای جمهور دو کشور امضا شد، و سخنگوی وزارت خارجه جمهوری اسلامی می‌گوید مراسم امضای تفاهم‌نامه که قرار بود جمعه به میزبانی سوئیس برگزار شود لغو شده، و هنوز زمان دقیق آغاز مذاکرات دو طرف مشخص نیست.
+
+اسماعیل بقایی در یک گفتگوی تلویزیونی اعلام کرد که به این نتیجه رسیدیم بهتر است این تفاهم‌نامه «بدون اینکه نیاز به حضور در جای خاصی باشد»، امضا شود.
+
+او درباره زمان آغاز مذاکرات ۶۰ روزه نیز اعلام کرد که این نشست در سوئیس هنوز در دستور کار است، باید ببینیم که در ساعات آینده طرفین از طریق میانجی‌ها به چه نتیجه‌ای می‌رسند.
+
+پیشتر عباس عراقچی، وزیر امور خارجه جمهوری اسلامی اعلام کرده بود که روز جمعه ۲۹ خرداد و همزمان با امضای رسمی یادداشت تفاهم «پایان جنگ»، مذاکرات با آمریکا برای رسیدن به توافق نهایی آغاز خواهد شد.
+
+بر اساس تفاهم‌نامه تهران و واشنگتن، دو طرف متعهد شدند حداکثر ظرف ۶۰ روز درباره توافق نهایی مذاکره کنند که این مهلت قابل تمدید خواهد بود.
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 17419
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17419_1781765050.mov" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لحظه برخورد دو موشک بالستیک روسی اسکندر-ام در جنوب شرقی کی‌یف..
+
+
+👺Phantom
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17418
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_17418_1781765051.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇷🇺
+🇺🇦حملات موشکی و پهپادی روسیه به کی‌یف و پولتاوا
+
+
+🇷🇺 در جریان حملات شبانه، نیروهای روسیه چندین موشک بالستیک «اسکندر-ام» و پهپادهای جت «باندرول» را علیه اهدافی در استان‌های کی‌یف و پولتاوا به کار گرفتند.
+
+
+☠️ بر اساس گزارش‌ها، ۴ فروند موشک بالستیک اسکندر-ام که از استان بریانسک شلیک شده بودند، اهدافی را در شرق کی‌یف هدف قرار دادند. گفته می‌شود سامانه‌های پدافندی اوکراین موفق به رهگیری یکی از این موشک‌ها شده‌اند.
+🔹 همزمان ۴ فروند دیگر از موشک‌های اسکندر-ام مجهز به کلاهک خوشه‌ای از استان ورونژ به سمت شهر پولتاوا شلیک شدند و تأسیسات «اوکرگازپروم‌بود» و برخی زیرساخت‌های برق در حومه این شهر را هدف قرار دادند.
+🔹 همچنین ۴ پهپاد جت «باندرول» از مناطق مرزی روسیه به پرواز درآمدند که دو فروند آن‌ها به اهدافی در شرق کی‌یف اصابت کردند. سرنوشت سایر پهپادها به‌طور کامل مشخص نشده است.
+
+
+👺Phantom
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17417
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17417_1781765051.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📺فاکس نیوز به نقل از مقام کاخ سفید:
+
+
+🇺🇸 مراسم امضای رسمی تفاهم‌نامه که قرار بود در ژنو انجام شود، پس از امضای آن توسط ترامپ و پزشکیان، لغو شد. این توافق هم اکنون لازم‌الاجرا شده و باید منتظر عملکرد طرفین به مفاد توافق بود.
+
+
+
+👺Phantom
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Dirty_Kids — post 392465
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392465_1781765052.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به نظرتون به حاج مهدی‌ رسولی بگیم تسلیم شدن با زوده؟🤭
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392464
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392464_1781765054.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اثبات «گنده گوزان دو‌ عالم» از سوی مراد عزیزمون!
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392463
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392463_1781765056.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+۳۷ سال خامنه‌ای رهبر بود، ۲ ماه هم بابای من، این جرمه؟
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 128840
+
+<div align="center">
+  <a href="telegram/content/alonews_128840_1781765057.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وال استریت ژورنال: ترامپ در حال از دست دادن تندروهایی است که زمانی از جنگ ایران دفاع می‌کردند
+
+
+🔴بسیاری از محافظه‌کارانی که از رئیس جمهور حمایت می‌کردند، نگرانند که توافق صلح به اندازه کافی برای بازدارندگی ایران کافی نباشد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/28 10:04
 ---
 

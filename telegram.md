@@ -7,6 +7,72 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/28 06:23
+---
+
+## VahidOOnLine — post 246128
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_246128_1781751228.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️تصاویر منتشرشده در شبکه‌های اجتماعی نشان می‌دهد که هم‌زمان با برگزاری مراسم محرم در ایران، مادر جاویدنام مانی صفرپور با در دست داشتن عکس فرزندش، در مقابل یک هیئت عزاداری حضور یافته است. مانی صفرپور، جوان ۱۸ ساله‌ای بود که در جریان اعتراضات، روز پنجشنبه ۱۸ دی‌ماه در محله سلسبیل تهران به ضرب گلوله نیروهای سرکوبگر جمهوری اسلامی کشته شد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## Shin_Persian — post 7123
+
+<div align="center">
+  <a href="telegram/content/Shin_Persian_7123_1781751230.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Thu, 18 Jun 2026 02:46:57 UTC
+
+Last night @ 2348Z, a number of IRGC boats were warned by the US Navy in Persian:
+"Islamic Republic has no control over the Strait [of Hormuz], Abort your mission, Or the USN will target your vessel[s]"
+Via @IliaHashemicom's Telegram Channel
+
+ترجمه خودکار فارسی
+
+دیشب در ساعت ۲۳۴۸ زولو (۰۳:۱۸ به وقت تهران)، تعدادی از قایق‌های سپاه پاسداران انقلاب اسلامی (IRGC) توسط نیروی دریایی ایالات متحده به زبان فارسی هشدار دریافت کردند:
+«جمهوری اسلامی هیچ کنترلی بر تنگه [هرمز] ندارد، ماموریت خود را متوقف کنید، وگرنه نیروی دریایی آمریکا شناور[های] شما را هدف قرار خواهد داد»
+از طریق کانال تلگرام @IliaHashemicom
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 221080
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️دولت بریتانیا می‌گوید کی‌یر استارمر در حاشیه نشست گروه هفت بیش از ۱.۳ میلیارد پوند سرمایه‌گذاری خارجی جذب کرده است؛ سرمایه‌گذاری‌هایی که به گفته دولت بیش از ۱۴۰۰ شغل جدید در حوزه‌های انرژی پاک و هوش مصنوعی ایجاد می‌کند.
+@FarsiVOA
+</div>
+
+## BBCPersian — post 284215
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_284215_1781751231.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌⚽ غنا ۱ - پاناما صفر
+
+🔸تیم فوتبال غنا که با سرمربی‌گری کارلوس کی‌روش به جام جهانی امسال رفته، توانست در نخستین دیدار گروهی خود با یک گل پاناما را شکست دهد.
+
+دو تیم تا اواخر نیمه دوم بدون گل مساوی بودند و بازی تقریبا برابری را به نمایش گذاشته بودند.
+
+با این برد، غنا هم مانند انگلیس سه امتیازی شد و با توجه به شکست کرواسی در رتبه دوم جدول قرار گرفت و می‌تواند امیدوار باشد که تنها با یک تساوی برای انگلیس یا کرواسی دست کم به عنوان یکی از تیم‌های سوم به مرحله بعد صعود کند.
+
+📷Getty Images
+https://bbc.in/4a3ovX8
+
+@BBCPersian
+</div>
+
+---
 📅 بروزرسانی: 1405/03/28 06:14
 ---
 

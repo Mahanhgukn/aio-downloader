@@ -7,6 +7,179 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/28 10:34
+---
+
+## WithYashar — post 15215
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آکسیوس: رسانه‌های نزدیک به نتانیاهو به دلیل توافق با ایران، حمله به دولت ترامپ را آغاز کردند
+
+مجری شبکه ۱۴ اسرائیل: ویتکاف و کوشنر یهودستیز هستند و اسرائیل را فروخته‌اند
+@withyashar
+</div>
+
+## FarsiVOA — post 221085
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_221085_1781766271.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رئیس‌جمهوری اوکراین از برگزاری یک گفت‌وگوی سه‌جانبه با رهبران آمریکا و فرانسه در حاشیه نشست سران گروه هفت خبر داد.
+
+ولودیمیر زلنسکی در کانال تلگرام خود اعلام کرد: «این یک گفت‌وگوی مهم برای هماهنگی بود که می‌تواند تفاوت بزرگی ایجاد کند. ما گفت‌وگوهای خود در نشست گروه هفت را جمع‌بندی کردیم».
+
+او همچنین از دونالد ترامپ، رئیس‌جمهوری ایالات متحده، به خاطر توجهش به اوکراین و تمایلش برای کمک به برقراری صلح، و از امانوئل مکرون، رئیس‌جمهور فرانسه، به خاطر سازمان‌دهی این نشست قدردانی کرد.
+
+زلنسکی ادامه داد: «صلح مورد نیاز است. و ما هر کاری که بتوانیم انجام می‌دهیم تا صلح را نزدیک‌تر کنیم.»
+
+زلنسکی پس از فرانسه وارد بروکسل شد و قرار است با مارک روته، دبیرکل ناتو، و بارت دی وور، نخست‌وزیر بلژیک، دیدار کند.
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 17427
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17427_1781766271.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حملات پهپادی اوکراینی به پالایشگاه نفت مسکو
+Bravo UK 
+❤️
+🇺🇦
+
+
+👺Phantom
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17426
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17426_1781766272.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇦
+🇺🇦فیلمی که لحظه سرنگونی یک پهپاد اوکراینی توسط موشک پدافند هوایی روسیه را درست پیش از پالایشگاه نفت مسکو نشان می‌دهد، که باعث سقوط و انفجار آن روی یک ساختمان مجاور شد.
+
+❤️
+❤️
+
+👺Phantom
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17424
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17424_1781766273.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇦حملات متقابل از سوی پهپادهای اوکراینی که مسکو را مورد حمله قرار دادند.
+👍
+
+چندین پهپاد دیگر به پالایشگاه نفت مسکو حمله کردند که منجر به آتش‌سوزی بزرگی شد، در حالی که چندین آتش‌سوزی دیگر در مناطق اطراف به دلیل فعالیت دفاع هوایی و سقوط بقایای آن در حال سوختن است.
+
+
+👺Phantom
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17422
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17422_1781766273.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فیلمی که نشان می‌دهد ۴ موشک بالستیک روسی اسکندر-ام مجهز به کلاهک‌های خوشه‌ای به تأسیسات اوکرگازپروم‌بود در حومه شمال شرقی شهر پولتاوا اصابت می‌کنند.
+
+داده‌های ناسا FIRMS نشان می‌دهد که پس از این حملات دو آتش‌سوزی بزرگ رخ داده است.
+
+اوکرگازپروم‌بود شاخه ساخت و نصب اوکرترانس‌گاز است و در ساخت، تعمیرات اساسی و نگهداری خطوط لوله اصلی گاز و تأسیسات سیستم انتقال گاز فعالیت دارد.
+
+مختصات: 49.62276, 34.6551
+
+
+👺Phantom
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17421
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17421_1781766274.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پس از سه حمله موشکی بالستیک اسکندر-ام، آتشی در بخش جنوب شرقی کی‌یف مشاهده میشود.
+
+
+👺Phantom
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17420
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17420_1781766275.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک موشک رهگیر پاتریوت دیده می‌شود که در رهگیری موشک بالستیک روسی اسکندر-ام ناکام می‌ماند. اسکندر-ام درست در کنار جایی که موشک رهگیر پاتریوت خود را منفجر می‌کند، برخورد می‌کند.
+
+
+👺Phantom
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Hranews — post 113695
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک زندانی در زندان زاهدان اعدام شد
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– سحرگاه روز چهارشنبه ۲۷ خردادماه، حکم یک زندانی که پیشتر از بابت اتهامات مرتبط با جرائم مواد مخدر به اعدام محکوم شده بود، در زندان زاهدان اجرا شد.
+
+#عبدالله_جلالی
+
+ادامه مطلب
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## alonews — post 128844
+
+<div align="center">
+  <a href="telegram/content/alonews_128844_1781766276.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈آکسیوس: رسانه‌های نزدیک به نتانیاهو به دلیل توافق با ایران، حمله به دولت ترامپ را آغاز کردند
+
+
+🔴 مجری شبکه ۱۴ اسرائیل: ویتکاف و کوشنر یهودستیز هستند و اسرائیل را فروخته‌اند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/28 10:24
 ---
 

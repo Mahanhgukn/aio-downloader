@@ -7,6 +7,24 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/28 04:13
+---
+
+## pm_afshaa — post 94310
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94310_1781743421.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لحظه امضای تفاهم‌نامه بین پزشکیان و ترامپ
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+---
 📅 بروزرسانی: 1405/03/28 04:04
 ---
 

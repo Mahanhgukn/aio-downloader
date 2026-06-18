@@ -7,6 +7,120 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/29 01:25
+---
+
+## VahidOOnLine — post 246287
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_246287_1781819740.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ و مقام‌های جمهوری اسلامی تفاهم‌نامه‌ای را کردند؛ توافقی که هدف آن پایان دادن به ماه‌ها درگیری و آغاز دور تازه‌ای از مذاکرات بر سر پرونده هسته‌ای ایران عنوان شده است. مسعود پزشکیان این سند را در تهران امضا کرد و ترامپ که میهمان امانوئل مکرون بود، در کاخ ورسای در پاریس، امضای خود را پای سند تفاهم گذاشت.
+
+اما نام ورسای برای تاریخ‌دانان یادآور رویدادی دیگر است؛ معاهده مشهور ورسای در سال ۱۹۱۹ که به جنگ جهانی اول پایان داد، اما بسیاری از پژوهشگران آن را یکی از عوامل زمینه‌ساز جنگ جهانی دوم می‌دانند.
+
+اکنون، بیش از یک قرن بعد، همان کاخ بار دیگر میزبان توافقی سرنوشت‌ساز شده است. این‌که تفاهم‌نامه جدید به صلحی پایدار منتهی خواهد شد یا همچون همتای تاریخی خود پیامدهایی پیش‌بینی‌نشده در پی خواهد داشت، پرسشی است که تنها گذر زمان به آن پاسخ خواهد داد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 15287
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزیر دفاع اسرائیل:اسرائیل توانایی انجام عملیات مستقل علیه ایران را دارد و در هر لحظه برای اجرای یک عملیات آبی و سفید در ایران آماده است.
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 343148
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343148_1781819742.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+President Trump awards the Medal of Honor posthumously to Marine Corps Col. John W. Ripley during a White House ceremony, with Ripley's son accepting the award on behalf of his late father.
+
+Then-Capt. Ripley earned the nation's highest military honor for his actions in Vietnam on April 2, 1972, when he helped stop a major North Vietnamese assault by destroying a critical bridge under intense enemy fire.
+
+More than five decades later, his extraordinary heroism is being recognized with the Medal of Honor.
+</div>
+
+## FoxNewsTwitter — post 343147
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343147_1781819745.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+President Trump recounted Marine Corps Col. John W. Ripley’s prayer as he crawled beneath a bridge under heavy enemy fire during a pivotal battle in Vietnam in 1972.
+
+Ripley posthumously received the Medal of Honor for spending hours positioning 500 pounds of explosives beneath the Dong Ha Bridge before destroying it and stopping a major North Vietnamese advance.
+
+His actions are widely credited with helping prevent a breakthrough by enemy forces.
+</div>
+
+## pm_afshaa — post 94358
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94358_1781819747.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴المیادین به نقل از یه منبع آگاه:
+به خاطر اینکه حملات اسرائیل به جنوب لبنان هنوز ادامه داره، هیات مذاکره‌کننده ایران فعلاً قید رفتن به سوئیس برای شروع دور اول مذاکرات 60 روزه رو زده و سفرش رو متوقف کرده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94357
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94357_1781819747.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فارس: با وجود توافق، رئیس ستاد ارتش اسرائیل به ارتش اسرائیل دستور داده تا برای سناریوی حمله به ایران آماده بشن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## Persian_Trend_Official — post 17500
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_17500_1781819748.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حزب الله از آغاز سلسله عملیات های عاشورا برای عقب راندن ارتش اسرائیل از جنوب لبنان خبر دارد.
+
+
+👺Phantom
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی.
+</div>
+
+## alonews — post 129018
+
+<div align="center">
+  <a href="telegram/content/alonews_129018_1781819749.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈در راستای اجرای بند یک توافق، حملات به لبنان ادامه دارد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/29 01:14
 ---
 

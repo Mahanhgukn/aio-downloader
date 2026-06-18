@@ -7,6 +7,135 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/28 23:44
+---
+
+## IranIntlTV — post 343106
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_343106_1781813683.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻فیفا در پایان دور اول جام جهانی ۲۰۲۶، رده‌بندی «قدرت» را منتشر کرد. در این ارزیابی، لیونل مسی پس از هت‌تریک مقابل الجزایر در صدر بخش حمله قرار گرفت.
+
+🔹رامین رضاییان پس از نمایش درخشان مقابل نیوزیلند، صدرنشین بخش خلاقیت شد. درک کورنلیوس، مدافع کانادا، در رتبه نخست بخش دفاع ایستاد.
+
+🔹مسی ۶۰ درصد شوت‌های آرژانتین، تمام ضربات در چارچوب و هر سه گل این تیم را به نام خود ثبت کرد. سه گل آرژانتین از مجموع ۱.۵۸ گل مورد انتظار (xG) به دست آمد که نشان‌دهنده دقت بالای این ستاره در گل‌زنی است.
+
+🔹رامین رضاییان، عامل اصلی پیشروی حملات ایران مقابل نیوزیلند بود. رضاییان ۱۶ پاس پیش‌رونده ارسال کرد و ۱۳ بار خطوط میانی و دفاعی نیوزیلند را شکست.
+
+🔹تاثیر او در یک‌سوم هجومی زمین نیز ادامه داشت؛ جایی که گل نخست تساوی ایران را به ثمر رساند و در گل دوم نیز نقش مستقیم ایفا کرد.
+
+🔹در رتبه دوم این بخش، مایکل اولیسه، وینگر فرانسه، قرار گرفت.
+
+🔹جزییات بیشتر این رده‌بندی را در وب‌سایت بخوانید.
+
+@iranintltvsport
+</div>
+
+## FarsiVOA — post 221140
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️علی جوانمردی: منتقدین تفاهم آمریکا و جمهوری اسلامی!
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 17496
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+المیادین: هئیت مذاکره‌کننده ایرانی سفر برنامه ریزی شده خود به سوئیس را لغو کرد.
+
+به ادعای المیادین و به نقل از منابع، ایران سفر برنامه‌ریزی‌شده هیئت خود به سوئیس برای دور اول مذاکرات آمریکا و ایران را به دلیل عملیات نظامی مداوم اسرائیل در جنوب لبنان به حالت تعلیق درآورد.
+
+منابع گفتند هیئت ایرانی در حال آماده‌سازی برای آغاز مذاکرات بود اما تصمیم به تعویق انداختن سفر گرفت. تهران به آمریکا و میانجی‌ها اطلاع داد که تحولات لبنان مسئله‌ای مرکزی در مذاکرات است و می‌تواند بر ادامه مذاکرات تأثیر بگذارد.
+
+ایران همچنین هشدار داد که عملیات اسرائیل که تا 10 کیلومتر در داخل خاک لبنان گسترش یافته است، نقض ماده اول یادداشت تفاهم آمریکا و ایران و چارچوب توافق گسترده‌تر است که شامل مفادی درباره پایان خصومت‌ها در تمام جبهه‌ها از جمله لبنان می‌شود.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17495
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17495_1781813683.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سازمان کشتیرانی و حمل و نقل دریایی بریتانیا (UKMTO) با صدور اطلاعیه جدیدی اعلام کرد که تنگه هرمز اکنون به روی ترافیک دریایی باز است و عملیات مسدود کردن آن متوقف شده است.
+
+در این اطلاعیه گفته شده که عملیات مین‌روبی در حال انجام است.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 22907
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22907_1781813684.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 مجتبی جی پی تی :
+
+مسئولیت مذاکرات با آمریکا کاملا بر عهده ی پزشکیان است و اون پذیرفته.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22906
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 شریعتمداری:
+
+شهید لاریجانی به دنبال این بود که به حساب گروسی برسد، اما جنگ شد و کشته شد.
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 392533
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392533_1781813684.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بازی خیره‌کننده ال پاچینو در فیلم «...و عدالت برای همه»
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392532
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392532_1781813686.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ای شغال طرقبه=)))))
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 129002
+
+<div align="center">
+  <a href="telegram/content/alonews_129002_1781813686.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 دبیر کمیته ملی کنترل و پیشگیری سرطان وزارت بهداشت درمان و آموزش پزشکی: ابتلا به سرطان در ایران تا سال ۱۴۴۰، دو برابر میانگین جهانی است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/28 23:36
 ---
 

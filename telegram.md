@@ -7,6 +7,234 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/29 02:05
+---
+
+## WithYashar — post 15290
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش های محلی در جنوب لبنان،
+از حملات هوایی سنگین جنگنده های اسرائیلی خبر می‌دهند،آسمان جنوب شرقی لبنان به دلیل شلیک گسترده منور های روشنایی ارتش اسرائیل روشن شده است.🚨
+@withyashar
+</div>
+
+## WithYashar — post 15289
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کامنت جدیدم زیر پست ترامپ، لاتیش کردم 😂 فقط همین کامنت رو لایک کنید . ترجمه در کانال تلگرام. https://www.instagram.com/reel/DZvkK0jpILu/?comment_id=18367681780225433 ترجمه : ببین ترامپ، می‌دونم دیر یا زود این کار رو به سرانجام می‌رسونی، ولی رفیق، این…
+</div>
+
+## FoxNewsTwitter — post 343155
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343155_1781822141.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+FOX NEWS REPORT: Americans are starting to feel relief as the average price of gas fell below $4 for the first time since March after President Trump signed the US-Iran peace deal, FOX News' @BillMelugin_ reports.
+</div>
+
+## FoxNewsTwitter — post 343151
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+President Trump awards the Medal of Honor to three American heroes during a White House ceremony honoring extraordinary acts of valor in Vietnam and Afghanistan.
+
+Retired Marine Maj. James Capers Jr. was recognized for leading his reconnaissance team through multiple enemy engagements in Vietnam in 1967, continuing to command his men despite suffering severe wounds and refusing evacuation until every member of his team was safe.
+
+Marine Corps Col. John W. Ripley was awarded the Medal of Honor posthumously for his actions in Vietnam in 1972. Ripley's son accepted the award on his behalf as the nation recognized his role in halting a major North Vietnamese assault by destroying a key bridge under intense enemy fire.
+
+Retired Army Maj. Nicholas Dockery received the Medal of Honor for his actions during a Taliban ambush in Afghanistan in 2012, repeatedly risking his life to rescue wounded soldiers and direct support for his platoon under heavy enemy...
+
+Перейти на оригинальный пост
+</div>
+
+## FoxNewsTwitter — post 343150
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343150_1781822143.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: Luigi Mangione is dropping plans to use a psychiatric defense in the murder of UnitedHealthcare CEO Brian Thompson, just one day after his attorneys filed paperwork signaling the move.
+</div>
+
+## IranIntlTV — post 343117
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/343117" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی ۲۴ با فرداد فرحزاد: مجتبی خامنه‌ای می‌گوید درباره تفاهم نظری دیگر داشت
+@iranintlTV
+</div>
+
+## IranIntlTV — post 343116
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_343116_1781822144.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمد قائدی، مدرس روابط بین‌الملل، درباره نگرانی‌های امنیتی اسرائیل از توافق‌نامه امضاشده میان ایران و آمریکا گفت: «اگرچه تصمیم نهایی در اختیار دولت آمریکا است، اما اسرائیل در طول این ۶۰ روز ابزارهای متعددی برای اثرگذاری بر فضای سیاسی، رسانه‌ای و تصمیم‌گیری در واشینگتن در اختیار خواهد داشت و از آنها برای جهت دادن به روند مذاکرات استفاده خواهد کرد.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 343115
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_343115_1781822146.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مهدی مصلحی، کارشناس بازار نفت، درباره وضعیت بازار انرژی و عبور کشتی‌ها از تنگه هرمز گفت: «معامله‌گران و شرکت‌های بزرگ انرژی معمولا بیش از آنکه به بیانیه‌های سیاسی توجه کنند، به واقعیت‌های میدانی و شرایط عملیاتی نگاه می‌کنند.»
+
+او افزود: «به همین دلیل، صرف اعلام یک توافق یا تفاهم‌نامه لزوما به معنای بازگشت کامل اعتماد نیست.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 343114
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_343114_1781822147.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+با وجود انتقادها در ایالات متحده به امضای تفاهم‌نامه با جمهوری اسلامی، جی‌دی ونس، معاون رییس‌جمهوری آمریکا، گفت این توافق با برجام تفاوتی اساسی دارد و واشینگتن همچنان اهرم‌های اقتصادی، دیپلماتیک و نظامی خود را در قبال ایران حفظ کرده است.
+
+او افزود انتظار آمریکا این است که حکومت ایران دیگر از بی‌ثباتی و تروریسم منطقه‌ای حمایت مالی نکند.
+
+گزارش امیر گیتی، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## Persian_Trend_Official — post 17508
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_17508_1781822149.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️🇱🇧🇮🇱 تشدید حملات هوایی در جنوب لبنان همزمان با افزایش درگیری‌های زمینی
+
+
+
+🎯گزارش‌های اولیه از منابع میدانی حاکی است همزمان با درگیری‌ها در منطقه «علی التحریر»، جنگنده‌های اسرائیلی بر فراز جنوب لبنان به پرواز درآمده‌اند.
+
+بر اساس این گزارش‌ها، حملات هوایی به مناطق مختلفی از جمله شهر «زبدین» در جنوب لبنان انجام شده است.
+
+همزمان، منابع غیررسمی از افزایش شدت درگیری‌ها میان نیروهای و نیروهای خبر می‌دهند.
+
+تاکنون جزئیات مستقلی درباره میزان خسارات یا اهداف دقیق حملات منتشر نشده است.
+
+افزایش همزمان فعالیت هوایی و درگیری‌های زمینی نشان‌دهنده تشدید سطح تنش در مرزهای شمالی فلسطین اشغالی و جنوب لبنان است؛ وضعیتی که می‌تواند به گسترش دامنه درگیری‌ها در منطقه منجر شود.
+
+
+👺 Phantom
+
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Dirty_Kids — post 392548
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392548_1781822149.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📣آیسان اسلامی به تلگرام پیوست 
+☑️ 😍 
+⭐اگر توم از طرفدارا ایسان اسلامی هستی بیا توی کانال تلگرامش فعالیتش شرو کرده کنارش باش
+🙂 A28 ادرس عضویت کانالش
+💖
+💖 https://t.me/+KZZlpcWXPSU5YjA0 https://t.me/+KZZlpcWXPSU5YjA0
+</div>
+
+## Dirty_Kids — post 392547
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392547_1781822149.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📣آیسان اسلامی به تلگرام پیوست 
+☑️ 😍
+
+
+⭐اگر توم از طرفدارا ایسان اسلامی هستی بیا توی کانال تلگرامش فعالیتش شرو کرده کنارش باش
+🙂
+A28
+ادرس عضویت کانالش
+💖
+💖
+https://t.me/+KZZlpcWXPSU5YjA0
+https://t.me/+KZZlpcWXPSU5YjA0
+</div>
+
+## Dirty_Kids — post 392546
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392546_1781822150.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#بخوابیم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392544
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392544_1781822150.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 لورا لومر خبرنگار نزدیک به ترامپ آمار نهایی جاویدنام نام هارو اعلام کرد: در اعتراضات دی ماه ایران، 100 هزار نفر کشته شدن!
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392543
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392543_1781822150.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لذتی که تو خوردن گوشت هست 🤌🏻🤌🏻
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392539
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+داور بودن یه شغل نیست یه مسئولیته
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 129021
+
+<div align="center">
+  <a href="telegram/content/alonews_129021_1781822152.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈جی‌دی وانس در مورد اسرائیل:
+
+گاهی اوقات مردم رابطه را به اشتباه توصیف می‌کنند و می‌گویند که اسرائیل و ایالات متحده اساساً همیشه همسو هستند.
+
+این اصلاً درست نیست. ما کشورهای متفاوتی هستیم. نیازهای متفاوتی داریم. جغرافیاهای متفاوتی داریم.
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/29 01:44
 ---
 

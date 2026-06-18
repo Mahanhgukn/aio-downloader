@@ -7,6 +7,176 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/28 11:13
+---
+
+## pm_afshaa — post 94317
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_94317_1781768636.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بند اول این توافق بخونید جمهوری اسلامی مجدد تأکید می‌کند که سلاح هسته‌ای تولید یا اشباع نخواهد کرد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5778
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5778_1781768637.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺📢 بر اساس گزارش منابع اختصاصی دژ، دخالت سـ.ـپاه پاسداران در تصمیمات مسعود پزشکیان به حدی رسیده است که احمد وحیدی و مهدی طائب به مسعود پزشکیان اجازه نداده‌اند مصطفی پورمحمدی را به عنوان وزیر اطلاعات معرفی کند.
+
+اسماعیل خطیب ۲۷ اسفند ۱۴۰۴ در جنگ ۴۰ روزه کشته شد و از آن زمان تاکنون وزارت اطلاعات وزیر ندارد.
+
+بر اساس گزارش همین منبع، گزینه اول پزشکیان از همان ابتدا پورمحمدی بود اما در سـ.ـپاه با آن مخالفت شد.
+بعد از جنگ ۴۰ روزه دخالت‌های سـ.ـپاه در تصمیمات و امورات محوله به دولت به شدت افزایش داشت و عملاً پزشکیان با به یک «رئیس دولت» بی‌اختیار تبدیل کرده است.
+
+#جنگ #مصطفی_پورمحمدی #IRGCterrorists
+@DEJradio
+</div>
+
+## DEJradio — post 5777
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5777_1781768638.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺🎤 پشت پرده تفاهم تهران و واشنگتن؛ چه امتیازهایی رد و بدل شده است؟
+
+گفت‌وگو با شهرام خلدی، پژوهشگر مطالعات خاورمیانه
+
+#توافق #جنگ #مذاکرات
+@DEJradio
+</div>
+
+## FarsiVOA — post 221087
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_221087_1781768638.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امانوئل مکرون، رئیس‌جمهور فرانسه از امضای توافق میان آمریکا و جمهوری اسلامی استقبال کرد.
+
+او با انتشار فیلمی از امضای این توافق به دست دونالد ترامپ رئیس‌جمهوری آمریکا در کاخ ورسای، نوشت: «این توافق راه را برای صلحی پایدار هموار می‌کند و امکان بازگشایی تنگه هرمز را فراهم می‌سازد.»
+
+رئیس‌جمهوری فرانسه افزود: «این گامی مهم در مسیر درست برای هم‌میهنان ماست که به‌زودی موجب کاهش قیمت انرژی خواهد شد.»
+
+پیشتر کاخ سفید پیشتر چهارشنبه عصر به وقت واشنگتن اعلام کرد که آقای ترامپ یادداشت تفاهم میان آمریکا و جمهوری اسلامی برای پایان دادن به درگیری‌‌های نظامی را به‌صورت الکترونیکی امضا کرد.
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 17438
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_17438_1781768639.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✌ دوئل علی باقری و سعید جلیلی در شورای عالی امنیت ملی/ صندلی لرزان رئیس دولت سایه
+
+
+▫️این روزها در حالی خبرها بار دیگر حول محور سعید جلیلی می‌چرخد که علی‌رغم همه تکذیبیه‌ها، زمزمه‌ها و شنیده‌ها حکایت از حذف او از مهم‌ترین نهادی دارد که در یک صبح پاییزی به دبیری آن منصوب شده بود، اما چه کسی قرار است بر صندلی رئیس دولت سایه تکیه بزند؟
+
+▫️سال گذشته، زمانی که با حکم مسعود پزشکیان، علی لاریجانی به دبیرخانه شورای عالی امنیت ملی بازگشت تا مسئولیت مذاکرات هسته‌ای را بر عهده بگیرد، طی حکمی علی باقری را به معاونت خود در شعام منصوب کرد. حکمی که روزگاری شنیدن آن عجیب به نظر می‌رسید، اما حقیقتی را از جدایی باقری و جلیلی در دل خود پنهان کرده بود.
+
+▫️با کشته شدن علی لاریجانی، دبیر شورای عالی امنیت ملی، در جنگ رمضان، محمدرضا ذوالقدر جای او را در دبیرخانه شعام گرفت. بررسی‌ها نیز نشان می‌دهد که همکاری سعید جلیلی با این نهاد امنیتی در یک سال گذشته فراز و فرودهایی داشته و بنابر برخی شنیده‌ها، او به جلسات شعام دعوت نمی‌شده است. شاید علت این مسئله نیز تفاوت دیدگاه‌ها و عدم همسویی او با برخی تصمیمات مهم نظام بوده باشد.
+
+▫️به نظر می‌رسد همین عدم همسویی جلیلی با برخی تصمیمات نظام و مخالفت‌هایی که از سوی جریان‌های تندرو شکل گرفته، زمینه حذف او از شعام را فراهم کرده باشد؛ اقدامی که در صورت تحقق، می‌تواند به حضور علی باقری به عنوان نماینده رهبر انقلاب در جایگاه او منجر شود.
+
+
+👺Phantom
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 22846
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22846_1781768640.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+" کسی مثل ما با کسی مثل یزید بیعت نمیکند "
+
+
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 392467
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392467_1781768641.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خواستم بگم:
+مامی شده فرست لیدی
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392466
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392466_1781768642.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سلامتی؛ محرمه مشکیمو درآوردم.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Hranews — post 113696
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انفجار مین در سراوان یک کشته بر جای گذاشت
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– روز چهارشنبه ۲۸ خردادماه، یک مرزبان هنگ مرزی سراوان بر اثر انفجار مین، جان خود را از دست داد.
+
+ادامه مطلب
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## alonews — post 128855
+
+<div align="center">
+  <a href="telegram/content/alonews_128855_1781768642.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈جی‌دی ونس درباره اسرائیل: اسرائیل حق دفاع از خود را دارد. هیچ‌کس نمی‌تواند به دولت دیگری بگوید که اجازه ندارد از مردم خود دفاع کند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128854
+
+<div align="center">
+  <a href="telegram/content/alonews_128854_1781768642.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / نتانیاهو: اسرائیل به بند لبنان در توافق ایران و آمریکا پایبند نیست!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/28 11:03
 ---
 

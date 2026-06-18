@@ -7,6 +7,135 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/28 03:47
+---
+
+## VahidOOnLine — post 246116
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_246116_1781741856.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهوری آمریکا، چهارشنبه ۲۷ خرداد، پیش از ضیافت شامی که به میزبانی امانوئل مکرون، رییس‌جمهوری فرانسه، در کاخ ورسای برگزار شد، یادداشت تفاهم با ایران را امضا کرد.
+در ویدیویی که کاخ سفید منتشر کرده، ترامپ در حال امضای سند فارسی‌زبان دیده می‌شود و پس از امضا به نظر می‌رسد از مارکو روبیو، وزیر خارجه آمریکا، می‌خواهد خودکار را برای طرف مقابل ارسال کند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246115
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_246115_1781741859.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دن اسکاوینو، دستیار رئیس‌جمهوری آمریکا، بامداد پنجشنبه ۲۸ خردادماه تصاویری از لحظه امضای توافق تهران و واشنگتن توسط دونالد ترامپ در کاخ ورسای فرانسه منتشر کرد. این تصاویر نشان می‌دهد ترامپ در جریان مراسمی رسمی، سند توافق را امضا می‌کند.
+
+این مراسم با حضور امانوئل مکرون، رئیس‌جمهوری فرانسه، ژان نوئل بارو، وزیر خارجه فرانسه، بریژیت مکرون و مارکو روبیو، وزیر خارجه آمریکا، برگزار شد. در تصاویر منتشرشده، حاضران پس از امضای توافق ترامپ را تشویق می‌کنند. اسکاوینو در توضیح این تصاویر نوشت که این توافق پیش از ضیافت شام رسمی در کاخ ورسای امضا شد و آن را «لحظه‌ای بسیار مهم در تاریخ» خواند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 15205
+
+<div align="center">
+  <a href="telegram/content/WithYashar_15205_1781741861.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ساعت ۳:۱۹ صبح امروز (کمی پیش) چند قایق متعلق به سپاه پاسدارن درحال اقدامی نامشخص در تنگه هرمز هستند.
+
+ناو آمریکایی در بیسیم به زبان فارسی متنی هشدار آمیز را پخش می‌کند که می‌گوید:
+جمهوری اسلامی کنترلی بر تنگه ندارد، عملیات را متوقف کنید و به بندر باز گردید، وگرنه نیروی دریایی ایالات متحده به کشتی شما حمله خواهد کرد.
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 343105
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343105_1781741863.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Trump boards Air Force One after a major diplomatic breakthrough in France.
+
+As he departed Versailles, the president confirmed he had signed the Iran memorandum of understanding, saying, “It’s signed. We signed it in Versailles. We just signed it.”
+</div>
+
+## FoxNewsTwitter — post 343104
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343104_1781741865.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+The moment President Trump signs the Iran deal at the Palace of Versailles.
+
+The agreement was finalized during a dinner hosted by French President Emmanuel Macron inside the historic palace.
+
+The signing marked a major diplomatic milestone after months of negotiations aimed at ending the conflict between the U.S. and Iran.
+</div>
+
+## IranIntlTV — post 342948
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342948_1781741868.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهوری آمریکا، چهارشنبه ۲۷ خرداد، پیش از ضیافت شامی که به میزبانی امانوئل مکرون، رییس‌جمهوری فرانسه، در کاخ ورسای برگزار شد، یادداشت تفاهم با ایران را امضا کرد.
+در ویدیویی که کاخ سفید منتشر کرده، ترامپ در حال امضای سند فارسی‌زبان دیده می‌شود و پس از امضا به نظر می‌رسد از مارکو روبیو، وزیر خارجه آمریکا، می‌خواهد خودکار را برای طرف مقابل ارسال کند.
+</div>
+
+## Iliaen — post 4492
+
+<div align="center">
+  <a href="telegram/content/Iliaen_4492_1781741871.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ساعت ۰۳:۱۸ صبح پنجشنبه؛ چند قایق متعلق به سپاه پاسدارن درحال اقدامی نامشخص در تنگه هرمز هستند.
+
+ناو آمریکایی در بیسیم به زبان فارسی متنی هشدار آمیز را پخش می‌کند که می‌گوید:
+
+“جمهوری اسلامی کنترلی بر تنگه ندارد، عملیات را متوقف کنید و به بندر باز گردید، وگرنه نیروی دریایی ایالات متحده به کشتی شما حمله خواهد کرد.
+
+@iliaen
+</div>
+
+## FarsiVOA — post 221068
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️دادگاه کیفری استان قم پرستو احمدی و هشت نفر از دست‌اندرکاران و نوازندگان «کنسرت کاروانسرا» را به ۷۴ ضربه شلاق تعزیری، دو سال ممنوع‌الخروجی و دو سال ممنوعیت از فعالیت هنری محکوم کرده است.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221067
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_221067_1781741872.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️لیونل مسی؛ ستاره‌ای که سال‌ها مرزهای ممکن را جابه‌جا کرده است
+
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221066
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺واکنش‌ها در کنگره به یادداشت تفاهم‌با جمهوری اسلامی؛ سناتور کروز: دادن میلیاردها دلار «به دیوانه‌های حکومت دینی» ایده خوبی نیست
+
+▪️چند سناتور جمهوری‌خواه آمریکا نسبت به تفاهم‌نامه منتشر شده میان ایالات متحده و جمهوری اسلامی ایران ابراز تردید و انتقاد کردند و برخی گفته‌اند این سند هنوز توافق نهایی با رژیم ایران محسوب نمی‌شود.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8161984.html
+@FarsiVOA
+</div>
+
+---
 📅 بروزرسانی: 1405/03/28 03:34
 ---
 

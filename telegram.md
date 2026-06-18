@@ -7,6 +7,164 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/28 16:04
+---
+
+## VahidOOnLine — post 246199
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_246199_1781786099.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️در حالیکه ارتش اوکراین در عملیاتی بی‌سابقه با چندصد پهپاد به مسکو، پایتخت روسیه حمله کرد و یکی از پالایشگاه‌های نفت شهر را به آتش کشید، ولودیمیر زلنسکی، تهدید کرد که در صورت ادامه جنگ، پایتخت روسیه را در آتش خواهد سوزاند.
+
+ارتش اوکراین در هفته‌های اخیر حملات به تاسیسات و زیرساخت‌های انرژی روسیه در در غرب و مرکز این کشور دوچندان کرده است.
+
+روسیه می‌گوید بدون پذیرش شرایط مسکو، حاضر به پایان جنگ نیست.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 15249
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آموزش و پرورش: ثبت‌نام برای ترمیم نمرات تا پایان هفته جاری امکان‌پذیر خواهد شد
+@withyashar
+</div>
+
+## WithYashar — post 15248
+
+<div align="center">
+  <a href="telegram/content/WithYashar_15248_1781786101.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+درست خوندم؟ Porngraph?
+</div>
+
+## WithYashar — post 15247
+
+<div align="center">
+  <img src="telegram/content/WithYashar_15247_1781786102.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+درست خوندم؟
+Porngraph?
+</div>
+
+## FoxNewsTwitter — post 343116
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343116_1781786103.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"I'm just glad this kid gets a second chance at life."
+
+An ICE officer reveals what went through his mind when he spotted an unconscious child in a swimming pool before he dove in to save the boy.
+
+Gregory Simmons says he acted on instinct when he saw the 6-year-old in distress at a Pasco County, Florida, pool.
+
+After pulling the child from the water, Simmons immediately began CPR as bystanders looked on.
+
+The child survived thanks to the rapid rescue, with surveillance footage capturing every moment of the dramatic save. | @FoxFriendsFirst @CarleyShimkus
+</div>
+
+## FoxNewsTwitter — post 343112
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+More than 10,000 NYPD officers. Drones overhead. K9 units on the ground. Heavy weapons teams standing by.
+
+That's the security plan for the Knicks' championship parade as New York prepares to celebrate its first NBA title in more than five decades.
+
+Police say it will be the largest deployment ever for a planned event, with lower Manhattan effectively transformed into a massive security zone after unrest and arrests erupted following the Finals win.
+
+The victory parade will bring sweeping street closures across lower Manhattan, while the scale of the security response is already sparking questions about costs, manpower, and how cities handle modern championship celebrations after multiple arrests over the weekend.
+</div>
+
+## IranIntlTV — post 343030
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_343030_1781786104.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند در بهارستان اصفهان با ارسال ویدیویی به ایران اینترنشنال گزارش داد که شامگاه ۲۷ خرداد، نیروهای نظامی و خانواده‌های آنان پس از پایان یک «شب‌نشینی» با طبل‌زنی و رژه در کوچه‌های مسکونی حضور یافتند. به گفته او، صدای بسیار بلند طبل‌ها باعث لرزش شیشه خانه‌ها شده و بدون توجه به شرایط بیماران و ساکنان محله ادامه یافته است.
+</div>
+
+## Iliaen — post 4493
+
+<div align="center">
+  <img src="telegram/content/Iliaen_4493_1781786106.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حدود ۴ سال قبل، یک پست را (در اینستاگرام) منتشر کردم با عنوان “تصمیم ها، قبل از سقوط” و به چند سناریو در شرایط پیشاسقوط اشاره کردم.
+
+در این تصویر، شما اسلاید شماره ۵ را می‌بینید.
+
+لینک کامل مطلب جهت مطالعه:
+https://www.instagram.com/p/Cmw1JVHLHVM
+
+
+@iliaen
+</div>
+
+## FarsiVOA — post 221106
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_221106_1781786106.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل ویدیویی منتشر کرده که به گفته این نهاد، لحظه هدف قرار دادن یک پرتابگر راکت حزب‌الله در جنوب لبنان را نشان می‌دهد.
+
+ارتش اسرائیل اعلام کرد این پرتابگر دقایقی پیش از حمله، راکت‌هایی را به سمت نیروهای اسرائیلی شلیک کرده بود و برای شلیک راکت‌های بیشتر آماده می‌شد.
+
+به گفته ارتش اسرائیل، در جریان این حمله، راکت‌های باقی‌مانده در پرتابگر نیز شلیک شدند و در مناطق باز جنوب لبنان فرود آمدند.
+
+@FarsiVOA
+</div>
+
+## alonews — post 128906
+
+<div align="center">
+  <a href="telegram/content/alonews_128906_1781786107.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزارت امور خارجه قطر: نخست وزیر و وزیر امور خارجه در تماسی با وزیر امور خارجه عربستان سعودی درباره توافق واشنگتن و تهران گفتگو کردند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128904
+
+<div align="center">
+  <a href="telegram/content/alonews_128904_1781786107.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / رئیس جمهور پزشکیان متن اصلی تفاهم‌نامه بین جمهوری اسلامی و آمریکا رو منتشر کرد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128903
+
+<div align="center">
+  <a href="telegram/content/alonews_128903_1781786108.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سی‌ان‌ان‌: نتانیاهو در تلاش است که بر توافق نهایی ایران و آمریکا، از طریق سناتور‌های حامی اسرائیل تأثیر بگذارد و بر ترامپ فشار وارد کند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/28 15:54
 ---
 

@@ -7,6 +7,118 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/28 08:54
+---
+
+## VahidOOnLine — post 246138
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246138_1781760244.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️قیمت نفت در بازارهای جهانی همزمان با امضای «تفاهم‌نامه» پایان جنگ جمهوری اسلامی ایران و آمریکا در تهران و پاریس بیش از دو درصد کاهش یافت و عملا به محدوده قیمت پیش از ۹ اسفند، روز شروع جنگ بازگشت.
+
+قیمت هر بشکه نفت خام برنت دریای شمال برای تحویل در ماه  در آخرین ساعات کاری بازار‌های آسیایی با ۲.۲۹ درصد کاهش به  ۷۷ دلار و ۸۲ سنت رسید. احتمالا در ساعات آینده و با بازگشایی بورس‌های اروپایی، این روند کاهشی با اعتماد به تقویت ذخایر نفتی، ادامه خواهد داشت.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## Persian_Trend_Official — post 17415
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17415_1781760245.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📹 لحظهٔ امضای نسخهٔ فارسی تفاهم‌نامه ایران و آمریکا از سوی ترامپ
+
+
+👺Phantom
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17411
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تصاویر لحظۀ امضای رئیس جمهور ایران پای یادداشت تفاهم نامۀ اسلام‌آباد
+
+
+👺Phantom
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17410
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_17410_1781760247.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ تأیید کرد که با ایران تفاهم‌نامه‌ای را امضا کرده است
+
+🔸پیش از این، اسماعیل بقایی، سخنگوی وزارت امور خارجه ایران، پنجشنبه شب اعلام کرد که این توافق‌نامه از راه دور امضا شده است.
+
+🔸انتظار می‌رفت این توافق‌نامه در 19 ژوئن در ژنو منعقد شود. همانطور که واشنگتن خاطرنشان کرد، کشتیرانی در تنگه هرمز در آن روز به طور کامل از سر گرفته خواهد شد.
+
+🔸طبق این تفاهم‌نامه، طرفین متعهد می‌شوند که به حاکمیت و تمامیت ارضی یکدیگر احترام بگذارند و از دخالت در امور داخلی یکدیگر خودداری کنند.
+
+🔸ایالات متحده آمریکا و متحدان خاورمیانه‌ای آن باید یک برنامه بازسازی حداقل 300 میلیارد دلاری برای ایران تهیه کنند.
+
+🔸واشنگتن متعهد می‌شود که تحریم‌های تهران را در یک بازه زمانی که طرفین در توافق نهایی توافق کرده‌اند، لغو کند.
+
+🔸ایران سلاح هسته‌ای تولید یا به دست نخواهد آورد.
+
+🔸طرفین موضوع مواد هسته‌ای را تحت نظارت آژانس بین‌المللی انرژی اتمی حل و فصل خواهند کرد.
+
+🔸جمهوری اسلامی ایران متعهد می‌شود که به مدت 60 روز از دریافت هزینه برای کشتی‌های عبوری از هرمز صرف نظر کند.
+
+Phantom
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## alonews — post 128827
+
+<div align="center">
+  <a href="telegram/content/alonews_128827_1781760248.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: ممکن است رسیدن به توافق نهایی با ایران بیشتر از ۶۰ روز طول بکشد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128826
+
+<div align="center">
+  <a href="telegram/content/alonews_128826_1781760249.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈شهباز شریف، نخست وزیر پاکستان: توافق تاریخی اسلام‌آباد میان ایران و آمریکا با امضای روسای جمهور لازم‌الاجرا شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128825
+
+<div align="center">
+  <a href="telegram/content/alonews_128825_1781760249.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈واکنش مکرون به امضای تفاهم‌نامه میان ایران و آمریکا : این اقدام راه را برای صلح پایدار هموار کرده، گامی مهم در مسیر درست برای هموطنان ما است و به زودی به کاهش قیمت انرژی منجر خواهد شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/28 08:43
 ---
 

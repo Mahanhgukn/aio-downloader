@@ -7,6 +7,235 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/28 21:45
+---
+
+## VahidOOnLine — post 246260
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246260_1781806550.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بر اساس گزارش‌های رسیده به ایران‌اینترنشنال، شماری از بازداشت‌شدگان اعتراضات انقلاب ملی ۱۴۰۴ در شاهرود با اتهاماتی از جمله «محاربه» و خطر صدور یا اجرای احکام اعدام مواجه هستند.
+
+در این گزارش، از جواد عجم، مرتضی زمانی، فرشید رحمانی، علیرضا ساغری (مربی ورزش‌های رزمی) و همچنین پویا ساغری به‌عنوان افرادی نام برده شده که پرونده‌های آنان نیازمند اطلاع‌رسانی و پیگیری عنوان شده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246259
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246259_1781806550.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ در تروت سوشال نوشت آمریکا متعهد به صلح است و از همه طرف‌ها در خاورمیانه خواست به روند مذاکرات پایبند بمانند.
+او افزود انتظار دارد آتش‌بس کامل در همه جبهه‌ها، از جمله لبنان، حزب‌الله و اسرائیل، برقرار شود.
+
+ترامپ نوشت بازارها از آنچه در حال رخ دادن است استقبال کرده‌اند؛ قیمت نفت به‌شدت کاهش یافته و بازارهای سهام رشد کرده‌اند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## mwarmonitor — post 11169
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_11169_1781806551.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴«ایالات متحده به صلح متعهد است و ما همه را در منطقه خاورمیانه تشویق می‌کنیم تا به تعهد خود پایبند بمانند تا اجازه دهند مذاکرات ما به زیبایی پیش برود. بازارها عاشق اتفاقاتی هستند که دارد می‌افتد؛ قیمت نفت بسیار پایین آمده و ارزش سهام‌ها به شدت بالا رفته است.…
+</div>
+
+## mwarmonitor — post 11168
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_11168_1781806551.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴«ایالات متحده به صلح متعهد است و ما همه را در منطقه خاورمیانه تشویق می‌کنیم تا به تعهد خود پایبند بمانند تا اجازه دهند مذاکرات ما به زیبایی پیش برود. بازارها عاشق اتفاقاتی هستند که دارد می‌افتد؛ قیمت نفت بسیار پایین آمده و ارزش سهام‌ها به شدت بالا رفته است. ما انتظار یک آتش‌بس کامل در تمام جبهه‌ها، از جمله لبنان، حزب‌الله و اسرائیل را داریم. از توجه شما به این موضوع سپاسگزارم!
+
+رئیس‌جمهور دونالد جی. ترامپ
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 343137
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343137_1781806552.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Ukraine launched a major retaliatory drone attack on one of Russia’s largest oil refineries, increasing pressure on the country’s fuel supply.
+
+Zelenskyy says the goal was to push Putin back to the negotiating table, arguing that if Ukraine continues to suffer attacks, Russia will feel the impact too, Jeff Paul reports.
+</div>
+
+## pm_afshaa — post 94351
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+vless://d32fef78-e18e-4f7a-9542-6f72456718af@2.27.22.238:110?encryption=none&security=none&type=tcp#relaxvpn-bot_2063_1781803224-1D%E2%8F%B3
+
+سرعت بالا مخصوص دانلود
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 343087
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_343087_1781806554.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بر اساس گزارش‌های رسیده به ایران‌اینترنشنال، شماری از بازداشت‌شدگان اعتراضات انقلاب ملی ۱۴۰۴ در شاهرود با اتهاماتی از جمله «محاربه» و خطر صدور یا اجرای احکام اعدام مواجه هستند.
+
+در این گزارش، از جواد عجم، مرتضی زمانی، فرشید رحمانی، علیرضا ساغری (مربی ورزش‌های رزمی) و همچنین پویا ساغری به‌عنوان افرادی نام برده شده که پرونده‌های آنان نیازمند اطلاع‌رسانی و پیگیری عنوان شده است.
+https://iranintl.com/202606185867
+</div>
+
+## IranIntlTV — post 343086
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_343086_1781806554.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ در تروت سوشال نوشت آمریکا متعهد به صلح است و از همه طرف‌ها در خاورمیانه خواست به روند مذاکرات پایبند بمانند.
+او افزود انتظار دارد آتش‌بس کامل در همه جبهه‌ها، از جمله لبنان، حزب‌الله و اسرائیل، برقرار شود.
+
+ترامپ نوشت بازارها از آنچه در حال رخ دادن است استقبال کرده‌اند؛ قیمت نفت به‌شدت کاهش یافته و بازارهای سهام رشد کرده‌اند.
+https://iranintl.com/202606186407
+</div>
+
+## DW_Farsi — post 126154
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_126154_1781806555.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 قالیباف: هرآنچه را که با زدن می‌خواستیم بگیریم چندین برابرش را با مذاکره گرفتیم
+
+محمدباقر قالیباف، رئیس تیم مذاکره کننده ایران با امریکا در یک گفت‌وگو به پرسش‌هایی درباره تفاهم انجام شده میان ایران و آمریکا پاسخ داد.
+
+او ابتدا درباره انتقاداتی که به شخص او مطرح شده گفت: «برای من اصلا راحت نبود که با قاتل قاسم سلیمانی بخواهم وارد مذاکره شوم اما وقتی تمام سران نظام یکصدا گفتند فقط تو، حتی من گفتم کس دیگری هم باشد اما گفتند فقط تو من فکر کردم ما باید آنچه را که وظیفه‌مان هست انجام دهیم نه آنچه را که دوست داریم.»
+
+قالیباف پیش‌شرط‌هایی را که پیش از مذاکرات از سوی برخی جریان‌های داخل ایران مطرح شده و حتی در خیابان‌ها به عنوان پیش‌شرط مذاکرات به صورت بنر نصب شده بودند بی‌اساس دانسته و گفت: «دو موضوع اصلی ما که از ابتدابر آن اصرار داشتیم بحث لبنان و بحث پول‌های بلوکه‌شده بود.»
+
+او مدعی شد در پاکستان جی‌دی ونس‌، معاون ترامپ مستقیم درباره لبنان از او پرسیده و او هم با پافشاری و بحث بالاخره این موضوع را در مذاکرات وارد کرده است.
+@dw_farsi
+</div>
+
+## IranianMinds — post 22895
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22895_1781806555.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴زیرنویس صدا‌و‌سیما:
+
+مجتبی در مورد تفاهم‌نامه نظر دیگه‌ای داشت😂
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 392518
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فوری
+معاونت راهبردی پزشکیان پایان دادن به تجمعات است. تجمع کنندگان مخالف مصلحت اندیشی ها هستند و بهداشت روانی جامعه رو برهم زدند. تجمعات باید بعد از تشییع جنازه رهبر برچیده بشه.
+
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392517
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392517_1781806556.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فوری، اولین پیام مجتبی به مناسبت توافق ایران و آمریکا:
+
+ملت پرشور ایران، همون‌طور که مطلع شدین، تفاهم نامه‌ای بین رئیس جمهوران ایران و آمریکا امضا شد.
+مسئولین از سر دلسوزی تلاش‌های زیادی انجام دادن و ترامپ رو مجبور کردن از سر درماندگی با ایران توافق کنه.
+نظر من چیز دیگه بود ولی پزشکیان قبول کرد مسئولیت و عواقب توافق با اون باشه!!!
+از این لحظه ما منتظر عملی شدن شروط گفته شده توسط آمریکا هستیم.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Hranews — post 113709
+
+<div align="center">
+  <img src="telegram/content/Hranews_113709_1781806556.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نمایشِ جنگ و تولید ملت: مطالعه‌ای بر مدیریت دیداری قدرت در خیابان/ #مینا_جوانی
+
+
+📡
+📡
+📡
+📡
+📡– از نخستین شب‌های جنگ تا کنون، خیابان‌های شهرهای ایران به صحنه‌ی اجرای نوعی سیاست نمایشی بدل شدند؛ تجمعاتی، با حمایت حکومت، مملو از نور، پرچم، سرود، موکب که بیش از آن‌که بازتابی طبیعی از وضعیت اجتماعی باشند، تلاشی برای تولیدِ چهره‌ای یکدست و منسجم از «ملتِ حامی جنگ» به نظر می‌رسیدند. در این تجمعات، حکومت تنها در پی سازمان‌دهی حضور سیاسی نیست، فراتر از آن می‌کوشد از خلال مدیریت فضا، تصویر و عاطفه، روایت مطلوب خود از جامعه را مرئی کند. خیابان در شب، به بستری برای بازسازی نمادین مشروعیت تبدیل شد؛ جایی که قدرت تلاش می‌کند نه فقط افکار عمومی، بلکه «فرمِ رویت‌پذیرِ جامعه» را نیز کنترل کند.
+
+اما هم‌زمان، در فاصله‌ای نه‌چندان دور از این صحنه‌های نورانی، جنگ واقعیتی دیگر را نیز در شهر گسترش می‌داد؛ واقعیتی متشکل از تخریب، ترس، اضطراب، سوگواری، فقر و مرگ. در حالی که دوربین‌ها بر پرچم‌ها و شعارها متمرکز بودند، بسیاری از قربانیان جنگ در سکوت و بی‌تصویری رها می‌شدند؛ کسانی که نه بخشی از قاب‌های تلویزیونی و رسانه‌ای بودند و نه در روایت رسمی جایی داشتند. شکاف میان این دو تصویر، جنگ به‌مثابه تجربه‌ای ویرانگر و جنگ به‌مثابه نمایشِ همبستگی، نشان می‌دهد که چگونه سیاست در وضعیت بحران، بیش از پیش به مدیریتِ تصویر و حذفِ واقعیت‌های مزاحم وابسته می‌شود.
+
+ادامه مطلب
+لینک به مطلب در وبسایت خط صلح
+
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## alonews — post 128981
+
+<div align="center">
+  <a href="telegram/content/alonews_128981_1781806557.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈آسوشیتدپرس: کاخ سفید توافق با ایران را به کنگره ارسال کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128980
+
+<div align="center">
+  <a href="telegram/content/alonews_128980_1781806557.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: «ایالات متحده به صلح متعهد است، و ما از همه در منطقه خاورمیانه می‌خواهیم که به تعهد خود برای اجازه دادن به روند مذاکرات ما تا به شکلی عالی پیش برود، پایبند بمانند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128979
+
+<div align="center">
+  <a href="telegram/content/alonews_128979_1781806557.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: انتظار داریم میان اسرائیل و حزب‌الله هم آتش‌بس کامل برقرار شود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/28 21:37
 ---
 

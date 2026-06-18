@@ -7,6 +7,190 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/28 15:04
+---
+
+## mwarmonitor — post 11111
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_11111_1781782481.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 تصویر نکبت‌بار ثبت‌شده اوج حقارت و دست‌بوسی قدرت را به نمایش می‌گذارد؛ جایی که این زنازاده نطفه شیطان، محمد محبی، مثل یک پادو دست دراز می‌کند تا عکس مهسا امینی را از رو دیوار بردارد، مچاله کند و به سطل آشغال بیندازد. چقدر حیوان و جیره‌خوارید که فکر کردید یه توافق با یه کله‌زرد امضا کردید و تموم شد همه چی؟ این خشم فروخورده دی‌ماه هر روز در سینه این ملت خسته انباشته میشه و بهمن مخربی خواهد شد که تمام کاخ‌های پوشالی‌تان را ویران می‌کند. خودفروختگی امروز شما، سوخت فرداست؛ مادر تک‌تک شما را به عزاتون خواهیم نشاند و این بار، در دادگاه خشم این مردم، هیچ‌کدومتون قسر در نخواهید رفت.
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 94325
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94325_1781782482.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شاهزاده رضا پهلوی :من همیشه و تو هر شرایط سیاسی، از تیم ملی‌مون حمایت کردم؛ چون تیم ملی خودمونه، حالا چه تو المپیک باشه چه هر جای دیگه.
+
+اما این اولین باره که می‌تونم بهتون بگم احساسات خیلی متناقضی نسبت به این موضوع وجود داره، حتی میشه گفت یه جور دودستگی یا تردید جدی به وجود اومده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94321
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94321_1781782485.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴اوکراین دیشب با حملات پهپادی به پالایشگاه نفت مسکو، همچین صحنه‌ای رو خلق کرد :
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94320
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پیت هگست وزیر جنگ آمریکا: به جمهوری اسلامی اعتماد نداریم و درصورت رفتار خارج از بندهای تفاهم، جنگ رو آغاز میکنیم
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94319
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94319_1781782487.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴قالیباف: خود امام زمان میاد و انتقام رهبر شهیدمون رو میگیره، ما که کاره‌ای نیستیم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## FarsiVOA — post 221101
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_221101_1781782488.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وب‌سایت سیتنا اعلام کرد که هنوز حدود ۶۸ درصد از کاربران ایرانی فعال در اینستاگرام به این شبکه اجتماعی بازنگشته‌اند.
+
+این رسانه که به طور تخصصی اخبار حوزه فناوری اطلاعات را پوشش می‌دهد، با بررسی ترافیک اینترنت بین‌الملل اعلام کرد که تاکنون این ترافیک به سطح پیش از قطع بازنگشته است.
+
+سیتنا همچنین کاهش تعداد کاربران ایرانی شبکه ایکس را حدود سه درصد اعلام و یادآور شد «این تفاوت نشان می‌دهد محدودیت‌های فعلی بیشتر پلتفرم‌های تصویر و ویدئومحور را تحت تأثیر قرار داده است.»
+
+جمهوری اسلامی از نهم اسفند ۱۴۰۴ تا ‍پنجم خرداد ۱۴۰۵، اینترنت بین‌المللی را به صورت سراسری قطع کرد.
+
+علیرغم فیلتر بودن اینستاگرام در ایران از سال ۱۴۰۱، بسیاری از کسب‌وکارها فعالیت‌های خود را به این پلتفرم منتقل کرده و اتحادیه کسب‌و‌کارهای مجازی، تعداد فروشگاه‌های اینستاگرامی ایرانی را حدود «یک میلیون فروشگاه» برآورد کرده بود. ۶۰ درصد این تعداد را زنان مدیریت می‌کردند.
+@FarsiVOA
+</div>
+
+## DW_Farsi — post 126140
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_126140_1781782489.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 سرنوشت سیاسی نتانیاهو در سایه توافق ایران و آمریکا
+
+با گذشت چهار ماه جنگ و آتش‌بس و مذاکره، نتیجه به دست آمده از رویارویی آمریکا با ایران برای بنیامین نتانیاهو ، نخست‌وزیر اسرائیل ناامیدکننده به نظر می‌رسد. نتانیاهو اکنون تحت فشار شدید داخلی قرار دارد. انتخابات در اسرائیل به زودی برگزار می‌شود و او به هر قیمتی می‌خواهد در آن پیروز شود.
+
+امضای تفاهم‌نامه آمریکا و ایران در شرایطی صورت می‌گیرد که نتانیاهو به شهروندان اسرائیل، وعده یک پیروزی فراگیر بر جمهوری اسلامی را داده بود و در آغاز جنگ ، اهدافی حداکثری از جمله از بین بردن تهدید هسته‌ای و موشکی ایران و همچنین تضعیف پایدار و شاید حتی سرنگونی رهبری حکومت ایران را مطرح کرده بود.
+
+به گزارش خبرگزاری آلمان (dpa) اما اکنون، نزدیک به چهار ماه بعد، ارزیابی‌ها ناامیدکننده است. به عقیده بسیاری از منتقدان، اهداف بلندپروازانه او در جنگ محقق نشده‌اند. دنی سیترینوویچ، کارشناس شناخته‌شده مسائل ایران، حتی از "شکست اسرائیل در مقابل ایران" سخن می‌گوید.
+
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 17462
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال رسمی پرشین ترند pinned «https://youtube.com/live/3RR2b-cdXqU?feature=share»
+</div>
+
+## Persian_Trend_Official — post 17461
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://youtube.com/live/3RR2b-cdXqU?feature=share
+</div>
+
+## IranianMinds — post 22876
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 سی ان ان : بنیامین نتانیاهو داره تلاش می‌کنه با کمک چهره‌های رسانه‌ای راست‌گرا و سناتورهای طرفدار اسرائیل، روی توافق نهایی آمریکا و ایران تاثیر بگذاره و به پرزیدنت ترامپ فشار بیاره. اون از طریق افرادی مثل «مارک لوین» انتقادها رو علیه این توافق شدیدتر…
+</div>
+
+## IranianMinds — post 22875
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22875_1781782489.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 لحظه امضای تفاهم نامه توافق آمریکا و جمهوری اسلامی توسط ترامپ در کاخ ورسای @IranianMinds
+</div>
+
+## IranianMinds — post 22874
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22874_1781782490.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 لحظه امضای تفاهم نامه توافق آمریکا و جمهوری اسلامی توسط ترامپ در کاخ ورسای
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 392484
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392484_1781782492.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این چی بود شبکه پویا پخش کرده؟؟؟
+شستشوی مغزی از برنامه کودک شروع کردن:)))))
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 128896
+
+<div align="center">
+  <a href="telegram/content/alonews_128896_1781782495.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈امارات متحده عربی با تصویب قانونی جدید، حداقل سن مجاز برای فعالیت در شبکه‌های اجتماعی را به ۱۵ سال افزایش داد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128895
+
+<div align="center">
+  <a href="telegram/content/alonews_128895_1781782496.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈بقایی: بازگشایی تنگه هرمز صراحتاً بر عهده ایران است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/28 14:54
 ---
 

@@ -7,6 +7,166 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/28 14:54
+---
+
+## VahidOOnLine — post 246190
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_246190_1781781850.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ساسان حیدری معروف به «ساسی» در ورزشگاه لس‌آنجلس تماشاگر بازی ایران و نیوزیلند بود
+
+♦️ساسان حیدری با اسم هنری «ساسی»، خواننده سرشناس موسیقی رپ و پاپ ایران، ویدیویی از حضور خود در ورزشگاه سوفای لس‌آنجلس در جریان دیدار تیم ملی ایران و نیوزیلند را منتشر کرد.
+ایران پس از تساوی ۲-۲ با نیوزیلند روز ۳۱ خرداد در ورزشگاه اینگلوود لس‌آنجلس به مصاف بلژیک می‌رود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 343108
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343108_1781781851.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+For the first time in months, the national average gas price has fallen below $4 per gallon after topping $4.51 just a month ago, according to AAA.
+
+Drivers in states like Georgia, Virginia, Kentucky, Missouri, and Minnesota are seeing even lower prices.
+
+At the same time, oil is heading lower as additional supply hits the market. While the trend is welcome news for consumers, prices remain significantly higher than they were this time last year.
+
+The price changes come as President Trump says Americans should expect to see gas and oil get even cheaper thanks to the administration’s new deal with Iran.
+</div>
+
+## IranIntlTV — post 343016
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_343016_1781781852.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کارزار مردمی ایران‌اینترنشنال برای کشف حقیقت درباره ابعاد سرکوب اعتراضات دی‌ماه، به اطلاعات تازه‌ای از وقایع نورآباد ممسنی دست یافته است. بر اساس اطلاعات رسیده به این کارزار، شمار زیادی از شهروندانی که در جریان اعتراضات این شهر مجروح شده بودند، همچنان آثار زخم‌ها و جراحت‌های ناشی از آن سرکوب را بر بدن خود دارند.
+
+جزییات بیشتر با فرنوش فرجی، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## DW_Farsi — post 126139
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_126139_1781781854.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 مذاکرات مقدماتی ایران و آمریکا در اقامتگاه کوهستانی در سوئیس
+
+وزارت امور خارجه سوئیس اعلام کرد که گفت‌و‌گو‌ها میان آمریکا و ایران طبق برنامه روز جمعه ۱۹ ژوئن (۲۹ خرداد) در اقامتگاه کوهستانی بورگن‌اشتوک (Bürgenstock) در سوئیس برگزار خواهد شد. این اقامتگاه لوکس پنج ستاره در نزدیکی دریاچه لوسرن قرار دارد.
+
+بنا بر اعلام این وزارتخانه در حال حاضر، برنامه همچنان این است که آمریکا و ایران به همراه میانجی‌گران، پاکستان و قطر و دیگر کشور‌های درگیر، فردا [جمعه] در بورگن‌اشتوک برای مذاکرات اولیه درباره اجرای توافق دیدار کنند.
+
+این وزارتخانه به در پاسخ به تماس خبرگزاری رویترز گفت که تا کنون جزییات و اطلاعات بیشتری در مورد این دیدار در دسترس نیست.
+
+تفاهم‌نامه ایران و آمریکا که به امضای رؤسای جمهور دو کشور رسیده، فاز اول محسوب می‌شود و با تحقق آن اکنون مرحله دوم شروع است؛ بازه‌ای زمانی بالغ بر ۶۰ روز که طرفین قصد دارند در طی آن به توافقی نهایی دست یابند.
+
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 17460
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17460_1781781854.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت امور خارجه چین: چین و ایران شرکای استراتژیک جامعی هستند.
+
+چین برای تحکیم و ارتقای اعتماد متقابل سیاسی، تعمیق همکاری های سودمند متقابل در امور مختلف، و ادامه پیشبرد مشارکت استراتژیک جامع چین و ایران تلاش خواهد کرد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 22873
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22873_1781781856.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 پزشکیان در مورد توافق :
+
+این یه سند تاریخی و پیامی از ایرانی مقتدره.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22872
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22872_1781781857.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خامنه ای سال سال 1397 : اگر روزی بخواهیم با آمریکا مذاکره کنیم هم با دولت ترامپ هرگز مذاکره نمیکنیم !
+
++ در نهایت توسط دولت ترامپ ترور و شد حکومتش هم با همین دولت مذاکره کرد
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 284253
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🖌لوئیس باروچو, سرویس جهانی بی‌بی‌سی:
+
+🔻پس از هفته‌ها مذاکره، آمریکا و ایران به توافقی اولیه رسیده‌اند، اما توجه‌ها از همین الان به چالش‌های بزرگی معطوف شده که بر سر راه پایان جنگ قرار دارد.
+
+در حالی که قرار بود این تفاهم‌نامه روز جمعه به صورت رسمی در سوئیس امضا شود، پیش از موعد مقرر و به صورت غیرحضوری، به امضای دونالد ترامپ، رئیس‌جمهور آمریکا، و مسعود پزشکیان، رئیس‌جمهور ایران، رسید. این تفاهم‌نامه راه را برای دستیابی به «توافق نهایی» ظرف «حداکثر ۶۰ روز، با امکان تمدید در صورت توافق دو طرف» هموار می‌کند.
+
+این توافق شامل تعهد به آغاز روند رفع محاصره دریایی آمریکا، ازسرگیری کشتیرانی از مسیر تنگه هرمز و مذاکره برای لغو «همه انواع تحریم‌ها» علیه ایران است. این سند همچنین ایجاد صندوقی با حداقل ۳۰۰ میلیارد دلار برای بازسازی و توسعه اقتصادی ایران را پیش‌بینی می‌کند و در کنار آن، تهران بار دیگر متعهد شده است که به دنبال توسعه سلاح هسته‌ای نخواهد رفت.
+
+📸GettyImages/ EPA/Shutterstock/ AFP via Getty Images/ Satellite image (c) 2026 Vantor
+
+https://bbc.in/3Q8vsiT
+@BBCPersian
+</div>
+
+## alonews — post 128894
+
+<div align="center">
+  <a href="telegram/content/alonews_128894_1781781858.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈مدنی‌زاده، وزیر اقتصاد مملکت: قرار نیست توافق با آمریکا، اقتصاد ایران رو به شرایط کاملا عادی برگردونه.
+
+
+🔴حتی اگر جنگ هم نمی‌شد، با چند صد هزار میلیارد تومان کسری بودجه روبه‌رو بودیم؛ الان شرایط سخت‌تر هم شده.
+
+
+🔴دولت چهاردهم بعد از جنگ ۱۰۰ هزار میلیارد تومان از بانک مرکزی گرفته و آثار تورمی اون در ماه‌های آینده نمایان می‌شه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128893
+
+<div align="center">
+  <a href="telegram/content/alonews_128893_1781781858.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سخنگوی وزارت صمت: ر اعلام قیمت از سوی شرکت ایران‌خودرو، نسبت به آنچه که توسط سازمان حمایت محاسبه شده، اختلافی وجود دارد و ایران‌خودرو رقم بیشتری را اعلام کرده است که آن را هم اصلاح می‌کند و اصلاح‌شده آن را قریب‌الوقوع و امروز به بورس اعلام خواهد کرد.
+
+
+🔴دیروز چهارشنبه شرکت ایران‌خودرو بین ۳۰ تا ۵۰ درصد قیمت محصولاتش را گران کرد. این خودروساز از پارسال تاکنون ۴ بار قیمت محصولاتش را افزایش داده است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/28 14:44
 ---
 

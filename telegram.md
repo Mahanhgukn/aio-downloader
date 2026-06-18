@@ -7,6 +7,79 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/28 23:55
+---
+
+## mwarmonitor — post 11175
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_11175_1781814356.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸برنامه طنز و شبانه «جیمی کیمل لایو!» از شبکه ABC 🔹«ما آیت‌الله را کشتیم و یک آیت‌الله جوان‌تر و تندروتر را جایگزین او کردیم. ما هیچ کاری برای معترضان در ایران انجام ندادیم. ما تحریم‌هایی را که قبل از شروع جنگ علیه ایران وضع شده بود، لغو کردیم. ما به آتش‌بسی…
+</div>
+
+## FoxNewsTwitter — post 343141
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343141_1781814356.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+A Ukrainian drone strike sends the roof of a Moscow oil refinery's storage tank flying through the air — apparently still intact despite the massive explosion.
+
+Mayor Sergei Sobyanin says Ukrainian drones reached the southeast Moscow site during what he called a "massive attack."
+
+Zelenskyy called the refinery strike "fully justified," saying Ukraine is targeting facilities that help fuel Russia's war machine.
+</div>
+
+## IranianMinds — post 22908
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22908_1781814358.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 اکانت وزارت جنگ آمریکا اومد این پستو گذاشته و نوشته : هیچ تردیدی نیست. هیچ رحمی نیست. قدرت کشنده غالب.
+
+مردم هم اومدن بهش کامیونیتی نوت زدن که به جای این به دشمن ۳۰۰ میلیارد دلار دادن.
+
+@IranianMinds
+</div>
+
+## alonews — post 129004
+
+<div align="center">
+  <a href="telegram/content/alonews_129004_1781814358.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈اداره دریانوردی بریتانیا: تنگه هرمز اکنون باز است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129003
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مردی در یک شرکت بود که همیشه پشت صحنه همه تصمیم‌ها را می‌گرفت، اما هیچ‌وقت نامش در میان نبود.
+هر پروژه‌ای که شروع می‌شد، یکی از کارمندان را جلو می‌انداخت و می‌گفت: «این ایده خودش بود.»
+وقتی کار خوب پیش می‌رفت، آرام‌آرام خودش را صاحب اصلی فکر معرفی می‌کرد.
+اما اگر مشکلی پیش می‌آمد، همان فرد را مقصر نشان می‌داد.
+همه تصور می‌کردند او فقط یک ناظر بی‌طرف است.
+درحالی‌که نخ تمام ماجراها در دست خودش بود.
+سال‌ها این بازی را ادامه داد و همیشه چهره‌ای پاک و منطقی از خود ساخت.
+تا اینکه یک روز چند نفر از همان قربانی‌ها کنار هم نشستند.
+رد همه تصمیم‌ها را دنبال کردند و فهمیدند فرمان از کجا صادر می‌شده است.
+حقیقت که آشکار شد، دیگر کسی حاضر نشد سپر بلای او باشد.
+آن روز برای اولین بار مجبور شد خودش جلو بایستد.
+و تازه فهمید روسفیدیِ واقعی با پنهان شدن پشت دیگران به دست نمی‌آید.
+
+[@AloTweet]
+</div>
+
+---
 📅 بروزرسانی: 1405/03/28 23:44
 ---
 

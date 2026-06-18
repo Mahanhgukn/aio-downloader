@@ -7,6 +7,258 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/28 12:51
+---
+
+## VahidOOnLine — post 246155
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_246155_1781774481.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روز گذشته، تفاهم‌نامه آمریکا و جمهوری اسلامی به مهم‌ترین موضوع سیاسی و امنیتی منطقه تبدیل شد. متنی که فقط درباره توقف جنگ نیست، بلکه مسیر امتیازها، کاهش فشارها و مذاکرات بعدی را هم مشخص می‌کند.
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 15228
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزیر امور خارجه اسرائیل : روابط با مسئول سیاست خارجی اتحادیه اروپا را قطع خواهیم کرد.
+@withyashar
+</div>
+
+## mwarmonitor — post 11107
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📌این گزارش از روزنامه Maariv می‌گوید:
+
+🔸مقامات اسرائیلی نگران هستند که فشارهای رئیس‌جمهور دونالد ترامپ بر نخست‌وزیر بنیامین نتانیاهو برای عقب‌نشینی از جنوب لبنان تنها به تفاهم‌نامه آمریکا–ایران (MoU) محدود نماند و در مرحله مذاکرات نهایی حتی تشدید شود.
+
+🔸طبق این گزارش، این فشار ممکن است از تأخیر در ارسال تسلیحات فراتر برود و حتی به اقداماتی نزدیک شود که شبیه یک تحریم تسلیحاتی غیررسمی علیه اسرائیل تلقی شود.
+
+
+@mwarmonitor
+</div>
+
+## kianmeli1 — post 88062
+
+<div align="center">
+  <a href="telegram/content/kianmeli1_88062_1781774484.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: اگر به بمباران ایران ادامه می دادیم، کشتی‌ها دیگر نمی‌توانستند تردد کنند
+
+ذخایر نفت ما هم حدود ۴ هفته دیگر تمام می‌شد. ذخایر جهان واقعاً تمام می‌شد.
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 88061
+
+<div align="center">
+  <a href="telegram/content/kianmeli1_88061_1781774486.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مسکو، پایتخت روسیه پس از حملات امروز اوکراین
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 88060
+
+<div align="center">
+  <a href="telegram/content/kianmeli1_88060_1781774487.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴حمله پهپادی اوکراین به پالایشگاه مسکو
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 342989
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342989_1781774489.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمد اسحاق‌دار، وزیر خارجه پاکستان، پنجشنبه ۲۸ خرداد با انتشار تصویری اعلام کرد محمد شهباز شریف، نخست‌وزیر پاکستان، به عنوان میانجی، یادداشت تفاهم میان جمهوری اسلامی و آمریکا موسوم به «یادداشت تفاهم صلح اسلام‌آباد» را امضا کرده است.
+
+این یادداشت تفاهم شامگاه چهارشنبه به امضای دونالد ترامپ، رییس‌جمهوری آمریکا، و مسعود پزشکیان، رییس دولت جمهوری اسلامی، نیز رسیده است.
+https://iranintl.com/202606184792
+</div>
+
+## IranIntlTV — post 342988
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342988_1781774489.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اختلال در خدمات چند بانک در ایران ادامه دارد و مشکلات گسترده‌ای در زندگی روزمره مردم ایجاد کرده است. شهروندان در پیام‌هایی به ایران‌اینترنشنال از ناتوانی در دسترسی به حساب‌ها و برداشت پول‌های خود خبر می‌دهند.
+
+جزییات بیشتر با لیلا سعادتی، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 342987
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342987_1781774492.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند با ارسال ویدیویی به ایران اینترنشنال گفت که ساعت ۱۱:۳۰ شامگاه ۲۷ خرداد، آلودگی صوتی شدید ناشی از صدای بلندگوها و طبل‌زنی در یکی از کوچه‌های تهران موجب سلب آرامش ساکنان شد. به گفته او، این صداها که در جریان ماه محرم از سوی گروه‌های حکومتی و یا عزاداران مذهبی ایجاد می‌شود، مانع خواب اهالی شده و برای ساکنان ایجاد مزاحمت کرده است.
+</div>
+
+## ManotoTV — post 106137
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_106137_1781774495.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روز گذشته، تفاهم‌نامه آمریکا و جمهوری اسلامی به مهم‌ترین موضوع سیاسی و امنیتی منطقه تبدیل شد. متنی که فقط درباره توقف جنگ نیست، بلکه مسیر امتیازها، کاهش فشارها و مذاکرات بعدی را هم مشخص می‌کند.
+</div>
+
+## Persian_Trend_Official — post 17451
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17451_1781774497.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شهباز شریف، نخست‌وزیر پاکستان به‌عنوان میانجی، سند تفاهم موسوم به یادداشت تفاهم اسلام‌آباد میان ایران و آمریکا را در اسلام‌آباد امضا کرد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17450
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+العربیه: نخستین دور از مذاکرات فنی مستقیم واشینگتن و تهران فردا در زوریخ سوئیس برگزار می‌شود.
+
+به گفته منابع این مذاکرات فنی میان ایران و آمریکا شامل جنبه‌های حقوقی و قانونی مربوط به رفع تحریم‌ها علیه ایران خواهد بود. منابع العربیه خاطرنشان کردند گفت‌وگوهای فنی ایران و آمریکا پرونده دارایی‌ها و وجوه مسدودشده ایران در قطر و همچنین پرونده هسته‌ای ایران را در بر می‌گیرد.
+
+قرار است در نشست‌های مذاکراتی غیرعلنی و اعلام‌نشده، پرونده‌های مرتبط با لبنان و حزب‌الله نیز مورد بحث و بررسی قرار گیرد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## RadioFarda — post 158454
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دیپلمات آمریکایی: تفاهم حاصل شد، اما آینده جمهوری اسلامی روشن نیست
+
+🔸پس از ۱۱۰ روز جنگ و درگیری، دونالد ترامپ، رئیس‌جمهور آمریکا، و مسعود پزشکیان، رئیس‌جمهور ایران، یک یادداشت تفاهم ۱۴ بندی امضا کردند که چارچوبی برای پایان دادن به خصومت‌ها، بازگشایی تنگه هرمز، رفع محدودیت‌های کلیدی بر صادرات نفت ایران و تضمین جلوگیری از دستیابی تهران به سلاح هسته‌ای توصیف شده است.
+
+🔸این توافق که ۲۷ خرداد امضا شد، قرار است پلی برای رسیدن به یک توافق گسترده‌تر باشد که طی ۶۰ روز آینده دربارهٔ آن مذاکره خواهد شد. حامیان این تفاهم آن را پیشرفتی مهم در یکی از پرتنش‌ترین رویارویی‌های جهان می‌دانند. منتقدان اما تردید دارند که رهبران حکومت ایران بتوانند یا بخواهند تعهدات مندرج در این سند را اجرا کنند.
+
+🔸لینکلن بلومفیلد، معاون پیشین وزیر خارجه آمریکا و فرستادهٔ ویژهٔ ریاست‌جمهوری در دولت جورج دبلیو بوش، در گفت‌وگو با رادیو اروپای آزاد/رادیو آزادی دربارهٔ اهمیت دیپلماتیک این تفاهم، پیامدهای آن برای امنیت دریایی، آیندهٔ نیروهای نیابتی جمهوری اسلامی در منطقه و چشم‌انداز دستیابی به صلحی پایدار صحبت کرده است.
+
+🔸او می‌گوید باور ندارد که مقامات جمهوری اسلامی واقعاً بتوانند با تبدیل شدن به یک کشور عادی و صلح‌طلب و کنار گذاشتن سیاست‌های کنونی خود موافقت کنند. او همچنین تأکید می‌کند جنبش انقلابی در ایران دوباره اوج خواهد گرفت، زیرا این حکومت توانایی ادارهٔ کشور را ندارد.
+
+🔸گزارش کامل را در وب‌سایت رادیو فردا می‌توانید بخوانید.
+
+@RadioFarda
+</div>
+
+## Hranews — post 113698
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارشی از بازداشت کومار حسین‌زاده در بوکان
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– کومار حسین‌زاده، شهروند اهل بوکان، توسط ماموران اداره اطلاعات در این شهرستان بازداشت و به مکان نامعلومی منتقل شد.
+
+#کومار_حسین‌زاده
+
+ادامه مطلب
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## manototv — post 106137
+
+<div align="center">
+  <a href="telegram/content/manototv_106137_1781774500.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روز گذشته، تفاهم‌نامه آمریکا و جمهوری اسلامی به مهم‌ترین موضوع سیاسی و امنیتی منطقه تبدیل شد. متنی که فقط درباره توقف جنگ نیست، بلکه مسیر امتیازها، کاهش فشارها و مذاکرات بعدی را هم مشخص می‌کند.
+</div>
+
+## alonews — post 128875
+
+<div align="center">
+  <a href="telegram/content/alonews_128875_1781774501.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈دانش آموزها دایرکت سوراخ کردن که اینو بزاریم، ماهم گذاشتیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128874
+
+<div align="center">
+  <a href="telegram/content/alonews_128874_1781774502.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈آژانس بین‌المللی انرژی اتمی اعلام کرد:
+در حال حاضر، سطح تماس‌ها و ارتباطات با ایران در پایین‌ترین حد خود قرار دارد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128873
+
+<div align="center">
+  <a href="telegram/content/alonews_128873_1781774502.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈به گزارش بلومبرگ، هنگ‌کنگ در راستای تلاش‌های پکن برای بین‌المللی کردن یوان و جذب سرمایه‌های خارجی، آماده راه‌اندازی معاملات آتی (Futures) اوراق قرضه دولتی چین می‌شود. این اقدام گام مهمی برای تقویت جایگاه پول ملی چین در بازارهای مالی جهان و تسهیل ورود سرمایه‌گذاران بین‌المللی به بازار بدهی این کشور محسوب می‌شود.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128872
+
+<div align="center">
+  <a href="telegram/content/alonews_128872_1781774503.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈قالیباف: انتقام آقا رو، امام زمان میگیره
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128871
+
+<div align="center">
+  <a href="telegram/content/alonews_128871_1781774503.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈شهباز شریف نخست وزیر پاکستان به عنوان میانجی، یادداشت تفاهم اسلام‌آباد را امضا کرد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/28 12:34
 ---
 

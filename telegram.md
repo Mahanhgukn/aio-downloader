@@ -7,6 +7,262 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/28 17:44
+---
+
+## VahidOOnLine — post 246224
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246224_1781792045.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ در تروث سوشال نوشت نفت در حال جریان است، جمهوری اسلامی هرگز به سلاح هسته‌ای دست نمی‌یابد و جهان امن خواهد بود.
+او افزود بازارهای سهام در حال رشد هستند، اشتغال در سطحی بی‌سابقه قرار دارد و قیمت‌ها در حال کاهش‌اند، آمریکا بیش از هر زمان دیگری قدرتمند، امن و مورد احترام است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246223
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246223_1781792046.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمد مخبر، مشاور مجتبی خامنه‌ای، در واکنش به تفاهم‌نامه جمهوری اسلامی و آمریکا در شبکه ایکس نوشت که باید از «مولفه‌های قدرت» با تمام توان و تحت هدایت‌های «رهبری» هوشیارانه مراقبت شود.
+
+مخبر نوشت حفاظت از این مولفه‌ها برای تثبیت دستاوردهای حاصل‌شده ضروری است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 15257
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایرنا: ایران به پاکستان اطلاع داده است دیگر نیازی به برگزاری جلسه حضوری در سوئیس نیست.
+@withyashar
+</div>
+
+## WithYashar — post 15256
+
+<div align="center">
+  <img src="telegram/content/WithYashar_15256_1781792046.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ در تروث : نفت در حال جریان است، ایران هرگز نباید سلاح هسته‌ای داشته باشد (جهان امن‌تر خواهد بود!)، بازارهای بورس با قدرت در حال رشدند، اشتغال به رکورد رسیده، و قیمت‌ها در حال کاهش‌اند (امکان خرید بیشتر شده!). کشور ما قوی، امن و محترم‌تر از هر زمان دیگری است. “خواهش می‌کنم!
+@withyashar
+</div>
+
+## WithYashar — post 15255
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تلویزیون پاکستان:
+سفر برنامه‌ریزی شده نخست وزیر شهباز شریف به سوئیس بدون ذکر دلیل لغو شد.
+@withyashar
+</div>
+
+## mwarmonitor — post 11121
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_11121_1781792047.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نفت در جریان است، ایران هرگز نمی‌تواند سلاح هسته‌ای داشته باشد (جهان امن خواهد بود!)، بازارهای بورس در حال اوج گرفتن هستند، آمار مشاغل در بالاترین حد بی‌سابقه است و قیمت‌ها در حال کاهش هستند (قدرت خرید!). کشور ما قوی، امن و محترم‌تر از هر زمان دیگری است. «خواهش می‌کنم!» (قابلی نداشت!) -
+
+رئیس‌جمهور دونالد جی ترامپ (DJT)
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 343119
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343119_1781792047.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH LIVE: New York Knicks fans flood 'Canyon of Heroes' for NBA title parade https://twitter.com/i/broadcasts/1yKAPPBEbonxb
+</div>
+
+## VahidOnline — post 76481
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76481_1781792048.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایرنا: به پاکستان گفته شده "نیازی به برگزاری نشست حضوری در سوئیس نیست"
+
+ننوشتند کی گفته:
+منابع دیپلماتیک پاکستان گفتند که سفر برنامه ریزی شده شهباز شریف نخست وزیر این کشور به سوئیس لغو شده است.
+این منابع مدعی شدند که از آنجایی که یادداشت تفاهم اسلام‌آباد از سوی رئیس جمهوری اسلامی ایران و رئیس دولت ایالات متحده به امضا رسیده است، به طرف پاکستانی اعلام شد ‌که اکنون نیازی به برگزاری نشست حضوری در سوئیس نیست.
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 76480
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پست ترامپ ترجمه ماشین:
+«نفت در جریان است، ایران هرگز نمی‌تواند سلاح هسته‌ای داشته باشد، جهان امن خواهد بود! بازارهای سهام غرش‌کنان پیش می‌روند، مشاغل در سطح رکورد هستند، و قیمت‌ها در حال کاهش‌اند؛ مقرون‌به‌صرفه شدن! کشور ما مثل هیچ‌وقتِ دیگر قدرتمند، امن و محترم است. «خواهش می‌کنم!» رئیس‌جمهور دی‌جی‌تی»
+realDonaldTrump
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 343049
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_343049_1781792049.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ در تروث سوشال نوشت نفت در حال جریان است، جمهوری اسلامی هرگز به سلاح هسته‌ای دست نمی‌یابد و جهان امن خواهد بود.
+او افزود بازارهای سهام در حال رشد هستند، اشتغال در سطحی بی‌سابقه قرار دارد و قیمت‌ها در حال کاهش‌اند، آمریکا بیش از هر زمان دیگری قدرتمند، امن و مورد احترام است.
+https://iranintl.com/202606182464
+</div>
+
+## IranIntlTV — post 343048
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_343048_1781792049.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند با ارسال پیامی صوتی به ایران اینترنشنال، از توافق میان آمریکا و جمهوری اسلامی انتقاد کرد و گفت که عملکرد نتانیاهو از ترامپ بهتر بود.
+</div>
+
+## IranIntlTV — post 343047
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_343047_1781792051.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمد مخبر، مشاور مجتبی خامنه‌ای، در واکنش به تفاهم‌نامه جمهوری اسلامی و آمریکا در شبکه ایکس نوشت که باید از «مولفه‌های قدرت» با تمام توان و تحت هدایت‌های «رهبری» هوشیارانه مراقبت شود.
+
+مخبر نوشت حفاظت از این مولفه‌ها برای تثبیت دستاوردهای حاصل‌شده ضروری است.
+https://iranintl.com/202606185281
+</div>
+
+## IranIntlTV — post 343046
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_343046_1781792052.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آمریکا و جمهوری‌اسلامی پس از ماه‌ها مذاکره و دو جنگ، تفاهم‌نامه‌ای را امضا کردند که انتقادهای بسیاری را متوجه دونالد ترامپ کرده است.
+@iranintltv
+</div>
+
+## FarsiVOA — post 221112
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_221112_1781792054.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل اعلام کرد در حمله‌ای به مرکز نوار غزه، احمد ابو‌هین، فرمانده هسته تک‌تیراندازی شاخه نظامی حماس، و محمود ولید جبر ابو‌هین، یکی دیگر از اعضای این شاخه، کشته شدند.
+
+ارتش اسرائیل می‌گوید این دو نفر در حمله هفتم اکتبر به خاک اسرائیل مشارکت داشته‌اند و در هفته‌های اخیر نیز در حال برنامه‌ریزی برای حملات جدید علیه نیروهای اسرائیلی بودند.
+
+به گفته ارتش اسرائیل، نیروهای این کشور به عملیات خود در نوار غزه برای مقابله با آنچه «تهدیدهای فوری» می‌خواند، ادامه خواهند داد.
+
+@FarsiVOA
+</div>
+
+## DW_Farsi — post 126144
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_126144_1781792054.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 انجمن آلمان-اسرائيل: توافق ایران و آمریکا؛ برگه عبور برای سیاست تهاجمی تهران
+
+فولکر بک، مدیر انجمن آلمان-اسرائیل در یک بیانیه مطبوعاتی موضع این نهاد در قبال توافق امضاشده میان ایران و آمریکا را اعلام کرد.
+
+بک نوشته هرآنکسی که به تاثیرات کوتاه مدت این توافق خوشبین است، سیاست امنیتی درازمدت را فراموش کرده است.
+
+او تصریح کرده که این توافق هیچگونه پایه‌ای برای صلح فراهم نمی‌کند و برعکس "برگه عبوری برای سیاست تهاجمی رژیم ملاهاست".
+
+مدیر انجمن آلمان-اسرائيل نوشته بر پایه این توافق سیاست تهاجمی ایران با میلیاردها دلار پول تشویق می‌شود و پرسش‌های اساسی امنیتی، برنامه موشکی، شبکه ترور و تسلیحات اتمی ایران بدون پاسخ می‌مانند. به گفته او در عوض تهران تا تنش بعدی، زمان، پول و فضایی برای بازی سیاسی می‌خرد.
+
+بک نارسایی‌های اصلی این تفاهم‌نامه را بدین ترتیب شرح می‌دهد:
+
+- دفاع اسرائیل از خود به طور غیرمستقیم مشروعیتش را از دست می‌دهد و بدین ترتیب امنیت کشور یهودی و دموکراتیک به خطر می‌افتد.
+
+- حل مسأله تهدید هسته‌ای به تعویق می‌افتد.
+@dw_farsi
+</div>
+
+## BBCPersian — post 284280
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻قطر: توافق آمریکا و ایران «پایه‌ای محکم» برای دور بعدی مذاکرات است
+
+قطر اعلام کرده است که تفاهمنامه آمریکا و ایران می‌تواند «پایه‌ای محکم» برای دور بعدی مذاکرات میان دو طرف باشد.
+
+وزارت خارجه قطر در اظهاراتی گفته است این توافق می‌تواند به پیشبرد گفت‌وگوها و کاهش تنش‌ها در منطقه کمک کند.
+
+این موضع‌گیری در حالی است که تلاش‌های دیپلماتیک برای تثبیت روند گفت‌وگو میان تهران و واشنگتن همچنان ادامه دارد.
+
+قطر در سال‌های اخیر نقش میانجی‌گرانه‌ای در برخی پرونده‌های منطقه‌ای ایفا کرده و بارها بر ضرورت رفع تخاصم از طریق دیپلماسی تاکید کرده است.
+
+https://bbc.in/4fNU3nt
+@BBCPersian
+</div>
+
+## alonews — post 128925
+
+<div align="center">
+  <a href="telegram/content/alonews_128925_1781792055.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: نفت در حال جریان است ، ایران هرگز نمی تواند سلاح هسته ای داشته باشد (جهان در امان خواهد بود!), بازار سهام در حال رشد است ، شغل در رکورد است ، و قیمت ها در حال کاهش است (قیمت مناسب!).
+
+
+🔴کشور ما قوی ، امن و محترم است مثل هیچ وقت پیش. خوش اومدی!‌‌
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128924
+
+<div align="center">
+  <a href="telegram/content/alonews_128924_1781792056.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ایرنا: ایران به پاکستان اطلاع داده است دیگر نیازی به برگزاری جلسه حضوری در سوئیس نیست.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128923
+
+<div align="center">
+  <a href="telegram/content/alonews_128923_1781792056.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تلویزیون پاکستان: سفر برنامه‌ریزی شده نخست وزیر شهباز شریف به سوئیس بدون ذکر دلیل لغو شد. 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128922
+
+<div align="center">
+  <a href="telegram/content/alonews_128922_1781792056.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رویترز تأیید کرد که محاصره دریایی ایالات متحده بعد از ۱۰۰ روز لغو شده و کشتی‌ها بدون دردسر از تنگه هرمز عبور کردن.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/28 17:25
 ---
 

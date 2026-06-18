@@ -7,6 +7,334 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/29 00:45
+---
+
+## VahidOOnLine — post 246283
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246283_1781817345.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مسعود پزشکیان، رییس دولت، خطاب به مجتبی خامنه‌ای نوشت: «صدور اجازه شما برای آغاز مذاکره، اسباب خرسندی و رضایت همه خدمتگزاران ملت ایران است.»
+
+او افزود: «خود را متعهد به توجه حداکثری نسبت به دغدغه‌های شما، حراست از حقوق ملت ایران و جبهه مقاومت می‌دانیم.»
+
+پزشکیان ادامه داد: «با توجه حداکثری تیم مذاکره‌کننده نسبت به جزییات مذاکره، پیروزی بزرگ حاصل خواهد شد.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246282
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246282_1781817345.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️خبرگزاری آسوشیتدپرس گزارش داد استیو ویتکاف، فرستاده دونالد ترامپ، پنجشنبه‌شب در نشستی غیرعلنی با قانون‌گذاران آمریکایی اعلام کرده است تهران از آژانس بین‌المللی انرژی اتمی برای بازرسی از تاسیسات هسته‌ای خود دعوت خواهد کرد و روند شناسایی محل نگهداری مواد غنی‌شده را آغاز می‌کند.
+
+بر اساس این گزارش، ویتکاف به رهبران کنگره و اعضای کمیته‌های امنیت ملی گفته است تفاهم‌نامه میان آمریکا و ایران هیچ توافق جانبی نداشته است. با این حال، تهران و آژانس بین‌المللی انرژی اتمی نامه‌ای جداگانه تنظیم کرده‌اند که در آن دعوت از بازرسان آژانس و ادامه همکاری‌های نظارتی مطرح شده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 15282
+
+
+
+
+## WithYashar — post 15281
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این پست جنجالی را از دست ندید، کلیک کنید و کارهای اداریش را انجام بدهید. حتماً تا انتها ببینید.
+
+https://www.instagram.com/reel/DZvdCMHxeYT/?igsh=MW50eDUzOWQ0MnFzYw==
+
+اتاق جنگ با یاشار : Bagher.exe
+</div>
+
+## FoxNewsTwitter — post 343144
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343144_1781817346.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+“The stock market just hit a new all-time high... 401(k)s just hit a new all-time high and oil is dropping like a rock.”
+
+President Trump highlighted some economic wins during a White House Medal of Honor ceremony, where he is honoring three distinguished combat veterans for their service and sacrifice.
+
+“Other than that, it’s another day in paradise,” Trump added.
+</div>
+
+## FoxNewsTwitter — post 343143
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343143_1781817347.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+New York City showed out as the Knicks celebrated their first NBA title in 53 years.
+
+Fans chanted “Let’s go Knicks” from atop sanitation trucks, cruised through the city in Knicks-themed cars, and even climbed scaffolding to get a glimpse of the festivities as viewing areas filled up early.
+
+Officials estimate more than a million fans decked in their orange and blue packed Lower Manhattan to celebrate with the team.
+</div>
+
+## FoxNewsTwitter — post 343142
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343142_1781817347.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH LIVE: President Trump awards Medal of Honor to three combat veterans https://twitter.com/i/broadcasts/1RKjppWgpgNJw
+</div>
+
+## pm_afshaa — post 94356
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وزارت خارجه آمریکا در بیانیه ای اضطراری از شهروندان خود خواسته تا اطلاع ثانوی به هیچ وجه به روسیه سفر نکنن
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5802
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ اتحادیهٔ اروپا: اکنون وقت صحبت دربارهٔ لغو تحریم‌های جمهوری اسلامی نیست
+
+اتحادیهٔ اروپا اعلام کرد هنوز شرایطی که بشود در مورد لغو تحریم‌های جمهوری اسلامی سخن گفت، ایجاد ‌نشده است.
+کایا کالاس، مسئول سیاست خارجی اتحادیهٔ اروپا اعلام کرد «بررسی» لغو تحریم‌های اتحادیهٔ اروپا علیه جمهوری اسلامی تنها پس از دستیابی به یک توافق جامع هسته‌ای با تهران امکان‌پذیر است.
+کالاس روز پنج‌شنبه پیش از نشست سران کشورهای عضو اتحادیهٔ اروپا گفت کشورهای عضو در زمان مناسب درباره لغو احتمالی تحریم‌ها گفت‌وگو می‌کنند، اما اکنون شرایط لازم برای چنین تصمیمی فراهم نیست.
+اتحادیه اروپا در حال حاضر بیش از ۷۰۰ فرد و نهاد جمهوری اسلامی را تحت تحریم قرار داده است.
+این محدودیت‌ها مسدود شدن دارایی‌ و ممنوعیت سفر افراد را دربرمی‌گیرد.
+مقام‌های جمهوری اسلامی امیدوارند تفاهمنامهٔ اخیر با آمریکا زمینهٔ کاهش فشارهای اقتصادی و لغو بخشی از تحریم‌های بین‌المللی را فراهم کند.
+اتحادیهٔ اروپا در سال پیشین سپاه پاسداران انقلاب اسلامی را نیز در سیاههٔ سازمان‌های تروریستی قرار داد.
+
+#اتحادیه_اروپا #تحریم
+@DEJradio
+</div>
+
+## VahidOnline — post 76498
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76498_1781817348.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری آسوشیتدپرس گزارش داد استیو ویتکاف، فرستاده دونالد ترامپ، پنجشنبه‌شب در نشستی غیرعلنی با قانون‌گذاران آمریکایی اعلام کرده است تهران از آژانس بین‌المللی انرژی اتمی برای بازرسی از تاسیسات هسته‌ای خود دعوت خواهد کرد و روند شناسایی محل نگهداری مواد غنی‌شده را آغاز می‌کند.
+
+بر اساس این گزارش، ویتکاف به رهبران کنگره و اعضای کمیته‌های امنیت ملی گفته است تفاهم‌نامه میان آمریکا و ایران هیچ توافق جانبی نداشته است. با این حال، تهران و آژانس بین‌المللی انرژی اتمی نامه‌ای جداگانه تنظیم کرده‌اند که در آن دعوت از بازرسان آژانس و ادامه همکاری‌های نظارتی مطرح شده است.
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 76497
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76497_1781817348.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کایا کالاس، مسئول سیاست خارجه اتحادیه اروپا، گفت هنوز برای بحث درباره لغو تحریم‌های اتحادیه اروپا علیه ایران زود است و این موضوع پس از دستیابی به یک توافق هسته‌ای با ایران بررسی خواهد شد.
+
+او پیش از نشست رهبران کشورهای عضو اتحادیه اروپا به خبرنگاران گفت: «زمانی که شرایط فراهم شود، کشورهای عضو درباره مناسب بودن لغو تحریم‌ها گفت‌وگو خواهند کرد، اما هنوز به آن مرحله نرسیده‌ایم.»
+
+اتحادیه اروپا در حال حاضر مجموعه‌ای از تحریم‌های چندجانبه علیه بیش از ۷۰۰ فرد و نهاد در ایران اعمال کرده است که شامل ممنوعیت سفر و مسدود شدن دارایی‌ها می‌شود.
+@VahidHeadline
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 343112
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_343112_1781817349.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻تیم فوتبال سوئیس در دومین دیدار خود در جام جهانی ۲۰۲۶، در استادیوم سوفای لس آنجلس بوسنی و هرزگوین را با نتیجه ۴ بر یک شکست داشت. هر ۵ گل بازی در ۲۰ دقیقه پایانی بازی به ثمر رسیدند.
+
+🔹جوهان مانزامبی در دقایق ۷۴ و ۹۰، روبن وارگاس در دقیقه ۸۴ و گرانیت ژاکا در دقیقه ۷+۹۰ از روی نقطه پنالتی برای سوئیس و ماهمیچ در دقیقه ۳+۹۰ برای بوسنی و هرزگوین، گل زدند.
+
+🔹بوسنی پس از گل اول بازی، ۱۰ نفره شد. محرموویچ، بازیکن بوسنی با خطا روی امبولو، ستاره ۲۰ ساله سوئیس، اخراج شد.
+
+🔹سوئیس با این برد ۴ امتیازی شد و به صدر گروه ‌‌B مسابقات رفت.
+
+🔹دیگر دیدار این گروه را کانادا و قطر در بامداد جمعه برگزار می‌کنند.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 343110
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_343110_1781817349.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مسعود پزشکیان، رییس دولت، خطاب به مجتبی خامنه‌ای نوشت: «صدور اجازه شما برای آغاز مذاکره، اسباب خرسندی و رضایت همه خدمتگزاران ملت ایران است.»
+
+او افزود: «خود را متعهد به توجه حداکثری نسبت به دغدغه‌های شما، حراست از حقوق ملت ایران و جبهه مقاومت می‌دانیم.»
+
+پزشکیان ادامه داد: «با توجه حداکثری تیم مذاکره‌کننده نسبت به جزییات مذاکره، پیروزی بزرگ حاصل خواهد شد.»
+https://iranintl.com/202606182076
+</div>
+
+## FarsiVOA — post 221144
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️پرزیدنت ترامپ: تحویل سیصد میلیارد دلار به جمهوری اسلامی «خبر جعلی» است
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221143
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺اسرائیل می‌گوید حزب‌الله در دو ماه گذشته با نقض آتش‌بس ۱۹ اسرائیلی را کشته است
+
+▪️حساب «اسرائیل به فارسی» در شبکه اجتماعی ایکس روز پنجشنبه ۲۸ خرداد اعلام کرد گروه تروریستی حزب‌الله از زمان اعلام آتش‌بس در ۱۶ آوریل (۲۷ فروردین)، با شلیک صدها موشک، راکت و پهپاد، ضمن نقض آتش‌بس، ۱۹ اسرائیلی را کشته است.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/israel-says-19-israelis-have-been-killed-by-hezbollah-in-ceasfire-violations-over-the-last-two-months/8162347.html
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 17499
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال رسمی پرشین ترند pinned «https://youtube.com/live/FWPJB2_Gwwc?feature=share»
+</div>
+
+## Persian_Trend_Official — post 17498
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://youtube.com/live/FWPJB2_Gwwc?feature=share
+</div>
+
+## BBCPersian — post 284301
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻شریعتمداری: تنگه هرمز قابل مذاکره نیست
+
+🔻حسین شریعتمداری، مدیرمسئول روزنامه کیهان، در واکنش به امضای تفاهمنامه پایان جنگ میان ایران و آمریکا، به مسعود پزشکیان سه توصیه کرده و گفته است:
+
+▪️تنگه هرمز قابل مذاکره نیست
+▪️غرامت باید پرداخت شود
+▪️آمریکا باید منطقه را ترک کند
+
+آقای شریعتمداری که اظهارات او اغلب از زاویه اصولگرایان تندرو مورد ارزیابی قرار می‌گیرد، در این گفت‌وگوی تلویزیونی همچنین خواسته که نمایندگان ایران درباره برنامه هسته‌ای کوتاه نیایند و مواضع آنها در حمایت از «محور مقاومت» و به ویژه حزب الله لبنان باشد.
+
+https://bbc.in/4erCt6o
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 392537
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392537_1781817350.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هیچ کس جز مانوک خدابخشیان حقیقت رو بهتون نگفت .❤️
+
+تمام افرادی که در مقابل ترامپ ایستادن خیانتکاران به ایران و ایرانی هستند .۴۷ سال دو آستری ها رژیم رو نگه داشتن و الان هم همینکارو دارن میکنند (با نقاب دموکراتیک ) ولی اینبار دونالد زبل در کاخ سفیده و نتایاهو نخست وزیر اسراییل .😎
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392536
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392536_1781817351.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فیلم وایرال شده از یه توریست که به هندوستان رفته و یه مشت ادم هول ریختن دورش دارن دست مالیش میکنن و باهاش عکس میندازن
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 129014
+
+<div align="center">
+  <a href="telegram/content/alonews_129014_1781817353.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رئیس جمهور ترامپ: مدال افتخار کنگره رو میخواستم به خودم بدم، اما بهم گفتن که نمیتونم و چیزی پیدا نکردم که واقعا ارزشش رو داشته باشم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129013
+
+<div align="center">
+  <a href="telegram/content/alonews_129013_1781817356.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رئیس جمهور ترامپ:
+پيت هگست ، اون اخيرا چند تا پيروزي خوب داشته اون قراره خيلي بيشتر از اين داشته باشه‌‌
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129012
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: بازار سهام به تازگی به بالاترین حد خود در تمام دوران رسیده است. حساب‌های 401K نیز به بالاترین حد خود رسیده‌اند.
+
+
+🔴و قیمت نفت مثل سنگی سقوط می‌کند. به جز این، روز دیگری در بهشت است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129011
+
+<div align="center">
+  <a href="telegram/content/alonews_129011_1781817358.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پس نتیجه میگیریم با جابجایی کلمات در اسم محصول میشه قیمت رو ۲ برابر کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129010
+
+<div align="center">
+  <a href="telegram/content/alonews_129010_1781817358.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حمله عظیم پهپادی اوکراین برای دومین بار طی ۲۴ساعت گذشته
+
+
+🔴 تا کنون در این موج بیش از ۳۰۰ پهپاد شلیک شده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/29 00:24
 ---
 

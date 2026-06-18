@@ -7,6 +7,90 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/29 02:44
+---
+
+## VahidOOnLine — post 246293
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️پیت هگست، وزیر جنگ آمریکا، در پاسخ به پرسشی درباره تغییر آرایش نیروهای آمریکایی در خاورمیانه گفت هرگونه تغییر در حضور نظامی آمریکا به عملکرد ایران و تحقق معیارهای تعیین‌شده بستگی دارد. او تاکید کرد که رویکرد دولت آمریکا بر پایه «راستی‌آزمایی» است و «هیچ اعتماد و هیچ امتیاز رایگانی» در کار نخواهد بود.
+
+هگست با اشاره به توافق احتمالی با تهران گفت این توافق مانند توافق هسته‌ای دوران باراک اوباما نیست و همه مراحل آن بر اساس راستی‌آزمایی پیش خواهد رفت. او افزود ایران در نتیجه حملات اخیر آمریکا به‌شدت از نظر نظامی تضعیف شده و محاصره دریایی نیز فشار بیشتری بر تهران وارد کرده است.
+
+وزیر جنگ آمریکا همچنین گفت واشینگتن در روزهای گذشته آماده انجام حملات مجدد بوده و در صورت لزوم این عملیات را از سر خواهد گرفت. او تاکید کرد: «موضع ما موضع قدرت است. ایران هر فرصتی را خواهد داشت تا بر سر میز مذاکره به توافقی که باید تن دهد دست پیدا کند، اما اگر این کار را نکند، وزارت جنگ آماده اقدام خواهد بود.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 15292
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دلار داره آرامش قبل طوفان رو تجربه میکنه و ممکنه بزودی حرکت بزرگش رو آغاز کنه رفقایی که نمیدونن دلار میریزه یا رشد میکنه عضو این کانال تحلیل بشن بهتون میگه: https://t.me/+hLt81qXCGTQzOWQ0 https://t.me/+hLt81qXCGTQzOWQ0 لامصب اطلاعات رانتی داره
+</div>
+
+## WithYashar — post 15291
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دلار داره آرامش قبل طوفان رو تجربه میکنه و ممکنه بزودی حرکت بزرگش رو آغاز کنه
+رفقایی که نمیدونن دلار میریزه یا رشد میکنه عضو این کانال تحلیل بشن بهتون میگه:
+
+https://t.me/+hLt81qXCGTQzOWQ0
+https://t.me/+hLt81qXCGTQzOWQ0
+
+لامصب اطلاعات رانتی داره
+</div>
+
+## FoxNewsTwitter — post 343157
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343157_1781824467.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Beach chair 🤝 motorized skateboard
+
+This is apparently a winning combination on the roadways of Hawaii.
+
+Incredible video out of Maui shows the laid-back rider patiently waiting at a red light before rolling off in the homemade chair.
+</div>
+
+## FoxNewsTwitter — post 343156
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343156_1781824469.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH LIVE: Senator Bernie Sanders, Mayor Zohran Mamdani host Brooklyn rally https://twitter.com/i/broadcasts/1NxarrmaXMnKj
+</div>
+
+## Persian_Trend_Official — post 17513
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فیلم‌ها موشک هدایت‌شونده ضدتانک ۹M133-1 کورنت-ای احتمالی را نشان می‌دهند که توسط مبارزان حزب‌الله شلیک شده و خودرویی از نیروهای دفاعی اسرائیل را که به سمت علی الطاهر در جنوب لبنان پیش می‌رود، هدف قرار می‌دهد.
+</div>
+
+## IranianMinds — post 22910
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22910_1781824469.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ:
+
+من عاشق مردمی هستم که طرفدار من هستند.
+
+@IranianMinds
+</div>
+
+---
 📅 بروزرسانی: 1405/03/29 02:34
 ---
 

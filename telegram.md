@@ -7,6 +7,87 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/28 04:43
+---
+
+## FoxNewsTwitter — post 343106
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343106_1781745231.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+A curious shark turns an ordinary surf session into a tense standoff off the California coast.
+
+Drone footage shows the shark tracking a surfer from below the surface, circling near his board as the unaware surfer floats in open water.
+
+After spotting the danger, the drone operator used his drone to warn the surfer, who quickly paddled for shore.
+
+The shark eventually peeled away, but not before creating a moment that left even the person filming it on edge.
+</div>
+
+## VahidOnline — post 76474
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76474_1781745234.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+درستش کردم
+MahvashJebeli
+
+📡 @VahidOnline
+</div>
+
+## FarsiVOA — post 221075
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_221075_1781745234.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️جشن ۲۵۰ سالگی استقلال آمریکا در مراکش
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221074
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_221074_1781745236.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️انتقادها از غیبت ترودو در تورنتو؛ حال‌وهوای شهر میزبان جام جهانی
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221073
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺پاکستان می‌گوید در پی امضای تفاهم‌نامه، جمهوری اسلامی باید «تنگه هرمز» را فورا باز کند
+
+▪️شهباز شریف، نخست‌وزیر پاکستان در بیانیه‌ای که در شبکه‌های اجتماعی منتشر کرد گفت امضای تفاهم‌نامه پایان درگیری‌ها میان آمریکا و جمهوری اسلامی، به این معنا است که جمهوری اسلامی تنگه هرمز را فوراً بازگشایی خواهد کرد و محاصره دریایی بنادر ایران از سوی آمریکا نیز بلافاصله پایان می‌یابد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8162199.html
+@FarsiVOA
+</div>
+
+## BBCPersian — post 284209
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻ساعتی بعد از تایید امضای تفاهمنامه میان ایران و آمریکا از سوی دونالد ترامپ و مسعود پزشکیان، کاخ‌سفید ویدیو لحظه امضاء کردن آقای ترامپ را که به نظر می‌رسد بر سر میز ضیافت شام در کاخ ورسای صورت گرفته را منتشر کرد.
+
+در این ویدیو امانوئل مکرون هم کنار آقای ترامپ دیده می‌شود و او برگه‌ای که مارکو روبیو، وزیرخارجه به او داده را امضاء می‌کند.
+
+خبرگزاری دولتی ایران - ایرنا - هم دقایقی بعد عکسی از مسعود پزشکیان منتشر کرد که در آن رئیس جمهور ایران برگه امضاء شده تفاهمنامه را مقابل دوربین گرفته است و امضای دونالد ترامپ هم در یک طرف آن دیده می‌شود.
+
+برای خواندن متن کامل این تفاهمنامه به وبسایت ما سر بزنید یا در آلبومی که برایتان همینجا منتشر کردیم مراجعه کنید.
+
+@BBCPersian
+</div>
+
+---
 📅 بروزرسانی: 1405/03/28 04:33
 ---
 

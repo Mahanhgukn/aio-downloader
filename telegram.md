@@ -7,6 +7,55 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/29 01:14
+---
+
+## WithYashar — post 15286
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزیر دارایی اسرائیل، بزالئل سموتریچ:
+
+غزه در ویرانه باقی خواهد ماند. در نهایت، مهاجرت رخ خواهد داد، زیرا در دهه‌های آینده چیزی برای جستجو در آنجا وجود نخواهد داشت.
+@withyashar
+</div>
+
+## WithYashar — post 15285
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: پیت هگست قراره خیلی پیروزی های دیگه بدست بیاره پسر خوبیه
+من فقط مردمی رو دوس دارم که طرفدار من باشن
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 343146
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343146_1781819063.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+President Trump awards the Medal of Honor to retired Marine Maj. James Capers Jr. for extraordinary heroism during a four-day reconnaissance mission in Vietnam.
+
+Despite suffering multiple severe wounds and massive blood loss after his team was ambushed, Capers continued leading his men, directing fire, and guiding the patrol to an extraction site. He refused evacuation until every member of his team was safely aboard the helicopter.
+</div>
+
+## FarsiVOA — post 221146
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺پیام منتسب به مجتبی خامنه‌ای؛ رهبر جدید جمهوری اسلامی از قبول مسئولیت تفاهم‌ با آمریکا شانه خالی کرد
+
+▪️حساب کاربری منتسب به مجتبی خامنه‌ای، رهبر جدید جمهوری اسلامی، روز پنج‌شنبه در پیامی مسئولیت تفاهم اخیر جمهوری اسلامی با آمریکا برای پایان درگیری‌ها را به گردن مسعود پزشکیان، رئيس دولت حکومت ایران انداخت.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8162354.html
+@FarsiVOA
+</div>
+
+---
 📅 بروزرسانی: 1405/03/29 01:05
 ---
 

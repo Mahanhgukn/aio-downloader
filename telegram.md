@@ -7,6 +7,62 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/28 09:14
+---
+
+## pm_afshaa — post 94313
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👌
+💕
+</div>
+
+## pm_afshaa — post 94312
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👌
+💕
+</div>
+
+## alonews — post 128833
+
+<div align="center">
+  <a href="telegram/content/alonews_128833_1781761445.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ارتش اسرائیل: کشته شدن یک سرباز اسرائیلی در جنوب لبنان
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128832
+
+<div align="center">
+  <a href="telegram/content/alonews_128832_1781761446.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈الجزیره: موجی از خشم سیاسی واشنگتن را بر سر توافق با ایران فرا گرفته است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128831
+
+<div align="center">
+  <a href="telegram/content/alonews_128831_1781761446.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 سخنگوی وزارت خارجه: مذاکرات جمعه ایران و آمریکا در سوئیس قطعی نیست
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/28 09:04
 ---
 

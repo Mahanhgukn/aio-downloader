@@ -7,6 +7,333 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/28 20:41
+---
+
+## VahidOOnLine — post 246251
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_246251_1781802714.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد که گروهی از متقاضیان ویزای پیوست، صبح ۲۸ خرداد جلوی کنسولگری آلمان در تهران تجمع کردند. حاضران در این تجمع به طولانی شدن روند رسیدگی به پرونده‌های ویزا اعتراض داشتند و اعلام کردند که برخی متقاضیان حدود دو سال در انتظار دریافت پاسخ مانده‌اند.
+
+ویزای پیوست آلمان به اعضای خانواده فردی که به‌طور قانونی در آلمان زندگی می‌کند، اجازه می‌دهد به او بپیوندند تا در آن کشور اقامت داشته باشند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246250
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246250_1781802716.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ در تروث سوشال نوشت هیچ پرداخت ۳۰۰ میلیارد دلاری از سوی آمریکا به جمهوری اسلامی وجود ندارد. این خبر جعلی است.
+او افزود تنها نتیجه این تفاهم‌نامه برای آمریکا موفقیت، کاهش قیمت نفت و پیروزی است. به بازار سهام نگاه کنید؛ این ادعاها تبلیغات دموکرات‌هاست.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246249
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246249_1781802716.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ مسعود پزشکیان، رئیس‌جمهوری اسلامی ایران، و شهباز شریف، نخست‌وزیر پاکستان، روز پنجشنبه ۲۸ خرداد در جریان یک تماس تلفنی، امضای تفاهم‌نامه موقت صلح میان ایران و آمریکا را به یکدیگر تبریک گفتند.
+
+بر اساس بیانیه دفتر نخست‌وزیری پاکستان، شهباز شریف در این گفتگو، امضای این توافق تاریخی را به «رئیس‌جمهور، رهبری و ملت ایران» تبریک گفت و تاکید کرد: «این توافق عطف، نه تنها به بازگشت صلح به منطقه کمک می‌کند، بلکه مسیری طولانی را برای بازسازی ایران و تقویت بیش از پیش روابط تهران و اسلام‌آباد هموار خواهد کرد.»
+
+پزشکیان نیز متقابلا از نخست‌وزیر و فیلد مارشال عاصم منیر، فرمانده ارتش پاکستان، بابت ایفا کردن نقش بسیار حیاتی و کلیدی در هدایت فرآیند میانجی‌گری که منجر به موفقیت این توافق شد، تشکر کرد. رئیس‌جمهوری اسلامی خاطرنشان کرد: «ایران تلاش‌های مثبت و سازنده پاکستان و حمایت‌های این کشور برادر را در این دوران سخت همواره به یاد خواهد داشت.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 15266
+
+<div align="center">
+  <img src="telegram/content/WithYashar_15266_1781802717.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امروز نیروهای ایالات متحده، بنا بر دستور رئیس‌جمهور، محاصره تمامی رفت‌وآمدهای دریایی به بنادر و مناطق ساحلی ایران و از آن‌ها را لغو کردند.
+نیروهای آمریکایی دیگر مانع تردد کشتی‌ها به مقصد بنادر ایران یا خروج از آن‌ها در خلیج فارس و دریای عمان نمی‌شوند. تمامی اقدامات نظامی آمریکا برای اجرای این محاصره متوقف شده است.
+ناوهای جنگی ما همچنان در منطقه حضور خواهند داشت تا اطمینان حاصل شود که همه مفاد این توافق به‌طور کامل رعایت و اجرا می‌شود و از قدرت و اعتبار کامل برخوردار است.
+@withyashar
+</div>
+
+## pm_afshaa — post 94345
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وزیر دفاع اسرائیل، اسرائیل کاتس:اسرائیل در هر لحظه برای عملیات در ایران آماده است - حتی بدون پشتیبانی آمریکا
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94344
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94344_1781802718.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+vless://3d8b5191-7ff5-4fac-ac6e-1d6bedefff4e@sub.ashii.ir:8080?security=none&allowInsecure=0&encryption=none&type=httpupgrade#PMTV NEWS 🦁☀️ سرور سرعت بالا متصل مخصوص دانلود 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94343
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+vless://3d8b5191-7ff5-4fac-ac6e-1d6bedefff4e@sub.ashii.ir:8080?security=none&allowInsecure=0&encryption=none&type=httpupgrade#PMTV NEWS 🦁☀️
+
+سرور سرعت بالا متصل مخصوص دانلود
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94341
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/proxy?server=103.161.35.23&port=443&secret=3XnnAQIAAQAH8AMDhuJMOt0
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94340
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/proxy?server=subobdoa.co.uk.&port=443&secret=7vDusL2a3E_UqTmU7jsqIWtjZG4ueWVrdGFuZXQuY29t
+
+پروکسی سرعت بالا متصل
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94339
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پروکسی سرعت بالا متصل
+
+https://t.me/proxy?server=167.233.148.123&port=8443&secret=dd79e344818749bd7ac519130220c25d09
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## VahidOnline — post 76488
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76488_1781802718.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اعلام رسمی رفع محاصره دریایی از سوی فرماندهی مرکزی ایالات متحده
+
+پست سنتکام، ترجمه ماشین:
+امروز، نیروهای آمریکا مطابق دستور رئیس‌جمهور، محاصره‌ی همه‌ی رفت‌وآمدهای دریایی به مقصد بنادر و مناطق ساحلی ایران و از مبدأ آن‌ها را رفع کردند.
+
+نیروهای آمریکایی مانع عبور کشتی‌ها به سوی بنادر ایران در خلیج فارس و خلیج عمان، یا خروج از آن‌ها، نمی‌شوند.
+همه‌ی تلاش‌های نظامی آمریکا برای اجرای محاصره متوقف شده است.
+
+کشتی‌های بزرگ نیروی دریایی ما در منطقه‌ی کلی باقی خواهند ماند تا اطمینان حاصل شود که همه‌ی جنبه‌های توافق رعایت، اجرا و به‌طور کامل لازم‌الاجرا و مؤثر باقی می‌ماند.
+CENTCOM
+البته سنتکام ننوشته خلیج «فارس»
+📡 @VahidOnline
+</div>
+
+## kianmeli1 — post 88070
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏🔴سنتکام اعلام کرد، نیروهای آمریکایی محاصره اعمال‌شده بر تمامی ترددهای دریایی ورودی و خروجی به بنادر و مناطق ساحلی ایران را لغو کرده‌اند
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 343076
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_343076_1781802719.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پس از ۴۰ روز جنگ و ماه‌ها تنش میان آمریکا و جمهوری اسلامی، توافق میان دو کشور با امضای از راه دور دونالد ترامپ، مسعود پزشکیان و شهباز شریف رسمیت یافت.
+
+مقام‌های جمهوری اسلامی و آمریکا قرار است روز جمعه در سوئیس دیدار کنند.
+
+گزارش احمد صمدی، خبرنگار ایران‌اینترنشنال، از آخرین تحولات و آماده‌سازی محل برگزاری دیدار مقام‌های ایران و آمریکا در بورگن‌اشتوک سوئیس
+@iranintltv
+</div>
+
+## IranIntlTV — post 343075
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_343075_1781802721.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد که گروهی از متقاضیان ویزای پیوست، صبح ۲۸ خرداد جلوی کنسولگری آلمان در تهران تجمع کردند. حاضران در این تجمع به طولانی شدن روند رسیدگی به پرونده‌های ویزا اعتراض داشتند و اعلام کردند که برخی متقاضیان حدود دو سال در انتظار دریافت پاسخ مانده‌اند.
+
+ویزای پیوست آلمان به اعضای خانواده فردی که به‌طور قانونی در آلمان زندگی می‌کند، اجازه می‌دهد به او بپیوندند تا در آن کشور اقامت داشته باشند.
+</div>
+
+## IranIntlTV — post 343074
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_343074_1781802723.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ در تروث سوشال نوشت هیچ پرداخت ۳۰۰ میلیارد دلاری از سوی آمریکا به جمهوری اسلامی وجود ندارد. این خبر جعلی است.
+او افزود تنها نتیجه این تفاهم‌نامه برای آمریکا موفقیت، کاهش قیمت نفت و پیروزی است. به بازار سهام نگاه کنید؛ این ادعاها تبلیغات دموکرات‌هاست.
+https://iranintl.com/202606180359
+</div>
+
+## DW_Farsi — post 126153
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_126153_1781802723.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 پاپ از توافق میان ایران و آمریکا استقبال کرد
+
+پاپ لئو چهاردهم، رهبر کاتولیک‌های جهان در پستی در شبکه اجتماعی ایکس از توافق امضاشده میان ایران و آمریکا استقبال کرد.
+
+او این توافق را "نتیجه دلگرم‌کننده تلاش‌های صبورانه در مسیر گفت‌وگو و مذاکره" دانست و از کشورهایی که این کار را ممکن کردند، قدردانی کرد.
+
+پاپ در پایان نوشت: «امیدوارم این توافق بتواند به تقویت اعتماد متقابل، امنیت و ثبات در خاورمیانه کمک کند و مسیرهای گفت‌وگو و همکاری میان ملت‌ها را گسترش دهد.
+
+پاپ لئو چهاردهم که زاده امریکاست پس از آنکه ترامپ تهدید کرد "تمدن ایران را نابود خواهد کرد" این سخنان را محکوم کرد. پاپ این تهدید را "کاملا غیرقابل قبول" خواند و از کاتولیک‌ها خواست تا رهبران سیاسی را به "تلاش برای صلح" ترغیب کنند.
+
+پس از این سخنان پاپ، ترامپ در پستی طولانی در شبکه اجتماعی خود، تروث سوشال، به پاپ حمله کرد و او را "در برابر جرم ضعیف و در سیاست خارجی بسیار بد" توصیف کرد.
+
+ترامپ نوشت: «من پاپی نمی‌خواهم که فکر می‌کند اشکالی ندارد اگر ایران سلاح هسته‌ای داشته باشد.»
+@dw_farsi
+</div>
+
+## RadioFarda — post 158475
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸کارگروه بازداشت‌های خودسرانه سازمان ملل متحد، بازداشت رضا خندان را ناقض حقوق بین‌الملل دانست و خواستار آزادی فوری او شد. 🔸این کارگروه اعلام کرد آقای خندان، طراح گرافیک و فعال حقوق بشر ۶۰ ساله، از آذر ۱۴۰۳ به دلیل اتهاماتی مرتبط با فعالیت‌های مسالمت‌آمیز…
+</div>
+
+## RadioFarda — post 158474
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_158474_1781802724.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸کارگروه بازداشت‌های خودسرانه سازمان ملل متحد، بازداشت رضا خندان را ناقض حقوق بین‌الملل دانست و خواستار آزادی فوری او شد.
+
+🔸این کارگروه اعلام کرد آقای خندان، طراح گرافیک و فعال حقوق بشر ۶۰ ساله، از آذر ۱۴۰۳ به دلیل اتهاماتی مرتبط با فعالیت‌های مسالمت‌آمیز خود در حمایت از حقوق زنان به‌طور خودسرانه بازداشت شده است.
+
+🔸در این بیانیه آمده است که بازداشت رضا خندان فاقد مبنای قانونی بوده و مستقیماً به فعالیت‌های حقوق بشری او ارتباط دارد. کارگروه سازمان ملل همچنین اعلام کرد که او پس از بازداشت از دسترسی به وکیل محروم بوده است.
+
+🔸کارگروه بازداشت‌های خودسرانه سازمان ملل در عین حال ابراز نگرانی کرد که پرونده رضا خندان نشان‌دهنده رویه‌ای گسترده از بازداشت‌های خودسرانه در ایران است.
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 22885
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22885_1781802725.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴معاون رئیس‌جمهور، جی‌دی‌ونس درباره ایران:
+
+من می‌گویم دوره ۶۰ روزه رسمأ امروز آغاز شده است.
+پس بله، توافق دیروز شروع شد، ما امروز ساعت ۶۰ روزه را آغاز
+خواهیم نمود.
+
+@IranianMinds
+</div>
+
+## alonews — post 128969
+
+<div align="center">
+  <a href="telegram/content/alonews_128969_1781802727.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ونس: تعداد نیرو‌های آمریکا در خاورمیانه را به سطح پیش از درگیری باز می‌گردانیم
+
+
+🔴 برنامه ما این است که به سوئیس برویم؛ دقیقاً نمی‌دانم چه زمانی
+
+
+🔴 درباره تأمین مالی صندوق ۳۰۰ میلیارد دلاری، تمایل زیادی در جهان عرب و خارج از آن وجود دارد که درگیر سرمایه‌گذاری در ایران شوند
+
+
+🔴 در سه ماه گذشته، دو سوم تسلیحاتی که از اسرائیل محافظت کرده‌اند، با پول مردم آمریکا تأمین شده‌اند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128968
+
+<div align="center">
+  <a href="telegram/content/alonews_128968_1781802727.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزارت خزانه داری آمریکا تحریم های جدیدی را علیه حزب الله اعمال کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128967
+
+<div align="center">
+  <a href="telegram/content/alonews_128967_1781802727.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / سنتکام : امروز، نیروهای آمریکایی بر اساس دستور رئیس‌جمهور، محاصره دریایی تمام ترددهای دریایی ورودی و خروجی به بنادر و مناطق ساحلی ایران را لغو کردند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128966
+
+<div align="center">
+  <a href="telegram/content/alonews_128966_1781802728.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 نرخ دیه سال ۱۴۰۵ اعلام شد!
+
+
+🔴رئیس قوه قضائیه با صدور بخشنامه‌ای، مبلغ دیه کامل در ماه‌های غیرحرام را برای سال ۱۴۰۵ تعیین کرد.
+
+
+🔴بر اساس این بخشنامه که در اجرای ماده ۵۴۹ قانون مجازات اسلامی مصوب سال ۱۳۹۲ و پس از انجام بررسی‌های لازم صادر شده است، مبلغ دیه کامل از ابتدای سال ۱۴۰۵ در ماه‌های غیرحرام، ۲۱ میلیارد ریال تعیین شده است.
+
+
+🔴این بخشنامه از سوی رئیس قوه قضائیه به مراجع قضایی سراسر کشور ابلاغ شده و از ابتدای سال ۱۴۰۵ ملاک محاسبه دیه خواهد بود.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/28 20:26
 ---
 

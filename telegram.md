@@ -7,6 +7,133 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/29 03:27
+---
+
+## VahidOOnLine — post 246298
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246298_1781827076.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️محمدباقر قالیباف، رئیس مجلس شورای اسلامی، در واکنش به پیام اخیر مجتبی خامنه‌ای، رهبر جمهوری اسلامی، درباره تفاهم‌نامه میان تهران و واشینگتن گفت این پیام روشن کرد که با نهایی شدن یادداشت تفاهم، جمهوری اسلامی در آغاز «راهی سخت و پرپیچ‌وخم» قرار گرفته و باید برای تحقق شروط تعیین‌شده و پیگیری تعهدات آمریکا تلاش کند.
+
+قالیباف در پیامی خطاب به رهبر جمهوری اسلامی نوشت پیام او درباره روند مذاکرات و تفاهم‌نامه اخیر، دست مقام‌های جمهوری اسلامی را برای پیگیری تعهدات آمریکا «پرتر» کرده است. او تاکید کرد جمهوری اسلامی اجازه نخواهد داد طرف مقابل با «بدعهدی و زورگویی» حقوق مردم ایران و جبهه مقاومت را مخدوش کند. رئیس مجلس جمهوری اسلامی همچنین مذاکره را «یکی از میدان‌های مبارزه» توصیف کرد و گفت اگر طرف مقابل به دنبال زیاده‌خواهی باشد، جمهوری اسلامی در پاسخ به آن تردیدی نخواهد داشت و «دستش روی ماشه» خواهد ماند.
+
+مجتبی خامنه‌ای پیش‌تر در پیامی درباره تفاهم‌نامه میان تهران و واشینگتن اعلام کرده بود که شخصا با امضای این تفاهم‌نامه موافق نبوده، اما با «تعهد و قبول مسئولیت شخصی» مسعود پزشکیان اجازه امضای آن را صادر کرده است. او همچنین تاکید کرده بود از این پس منتظر تحقق شروط وعده‌داده‌شده در تفاهم‌نامه خواهد بود و مذاکرات حضوری پیش‌رو در سوئیس به معنای پذیرش دیدگاه‌های آمریکا نیست.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246297
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️حمزه صفوی تحلیلگر و پسر یحیی رحیم صفوی مشاور و دستیار ارشد رهبر جمهوری اسلامی در برنامه اینترنتی «آزاد» درباره اینکه چرا برنامه ساخت سلاح هسته‌ای محقق نشده، گفت: «مشکل اصلی در برتری اطلاعاتی طرف مقابل است، نه در نداشتن بمب اتم. برنامه هسته‌ای.» او افزود: ایران یکی از گران‌ترین فعالیت‌های هسته‌ای دنیا بوده که نه از آن برق تولید شده، نه سلاح و نه مشروعیت. باید به محدودیت قدرت خودمان توجه داشته باشیم و بین توافق جامع و داشتن سلاح هسته‌ای یک مسیر را انتخاب کنیم. او همچنین گفت که همه اسناد بین‌المللی به این نکته اشاره دارند که ایران در مسیر سلاح هسته‌ای حرکت کرده است. رحیم صفوی گفت: کره شمالی بدون اینکه کسی بفهمد برنامه سلاح هسته‌ای را پیش برد اما هر دو سایت هسته‌ای ما، فوردو و نطنز، لو رفت
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 343158
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343158_1781827077.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+“The founders fell terribly short of the Declaration’s promise.”
+
+Former President Barack Obama took aim at America’s founders during the opening of his presidential center, arguing they left slavery intact and limited political rights despite laying the groundwork for the nation.
+
+The remarks come just days before the United States marks its 250th anniversary, as Obama urged Americans to continue the work of building a “more perfect” union.
+</div>
+
+## IranIntlTV — post 343127
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_343127_1781827078.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شهباز شریف، نخست‌وزیر پاکستان، به‌عنوان میانجی یادداشت تفاهم اسلام‌آباد میان جمهوری اسلامی و آمریکا را امضا کرد. بر اساس این تفاهم‌نامه، مذاکرات مستقیم تهران و واشینگتن ادامه خواهد یافت و این گفت‌وگوها از روز جمعه در سوئیس آغاز می‌شود.
+
+گزارش جواد همدانی، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## Persian_Trend_Official — post 17516
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17516_1781827080.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبتون بخیر 🌌
+United States Air Force
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 22913
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22913_1781827082.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ:
+حزب الله باید خلع سلاح شود
+
+وقتی پرسیده شد که آیا حزب‌الله تحت توافق فعلی تسلیحات خود را کنار می‌گذارد، ترامپ پاسخ داد که این گروه «باید تسلیحات خود را کنار بگذارد.»
+
+منبع: کانال ۱۴ اسرائیل
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22912
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22912_1781827083.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📣آیسان اسلامی به تلگرام پیوست😍
+
+
+⭐اگر توم از طرفدارا ایسان اسلامی هستی بیا توی کانال تلگرامش فعالیتش شرو کرده کنارش باش
+🙂
+
+ادرس عضویت کانالش
+👇e28
+👇
+https://t.me/+QMjHLL65ocsxYzRk
+https://t.me/+QMjHLL65ocsxYzRk
+</div>
+
+## BBCPersian — post 284303
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌🖊فاریا مسعود، ریچل کلان و جاناتان جوزفس
+خبرنگاران اقتصادی
+
+🔻ایران و آمریکا بیش از سه ماه پس از آغاز بر سر چارچوب توافقی به تفاهم رسیده‌اند که قرار است درگیری‌ها را برای دوره‌ای طولانی‌تر متوقف کند.
+
+بحران خاورمیانه قیمت جهانی نفت را به‌شدت بالا برد، چون این درگیری عملا یکی از آبراه‌های اصلی جهان برای انتقال نفت، گاز طبیعی مایع و دیگر کالاهای ضروری را بست و عرضه جهانی را محدود کرد.
+
+اما کارشناسان هشدار می‌دهند بازگشت تردد کشتی‌ها در تنگه هرمز به روال عادی زمان‌بر خواهد بود و پیامدهای جنگ ممکن است تا ماه‌ها بر اقتصاد جهانی اثر بگذارد.
+
+متن کامل خبر را از لینک زیر بخوانید:
+
+📷BBC/ GettyImages/ Reuters/ Anadolu via Getty Images/ AFP via Getty Images/ Universal Images Group via Getty Images
+
+https://bbc.in/4oz9Rwx
+
+@BBCPersian
+</div>
+
+---
 📅 بروزرسانی: 1405/03/29 03:06
 ---
 

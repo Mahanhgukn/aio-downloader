@@ -7,6 +7,197 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/29 12:15
+---
+
+## WithYashar — post 15304
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هم اکنون منابع لبنانی می‌گویند:
+ستون‌های زرهی اسرائیلی در حال پیشروی به سمت نبطیه، پایتخت حزب‌الله در جنوب لبنان هستند و درگیری‌ها سنگینی گزارش می‌شود
+@withyashar
+</div>
+
+## IranIntlTV — post 343176
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/343176" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی اخبار بامدادی | جمعه ۲۹ خرداد
+@iranintlTV
+</div>
+
+## IranIntlTV — post 343175
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_343175_1781858712.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻کوینتن تیمبر، هافبک تیم ملی هلند، روز پنجشنبه در پی برخورد با یکی از هم‌تیمی‌هایش در تمرین، دچار ضربه مغزی خفیف شد. با تایید کادر پزشکی، این بازیکن دیدار روز شنبه تیم ملی کشورش مقابل سوئد را از دست داد.
+
+🔹این هافبک ۲۵ ساله در اولین بازی لاله‌های نارنجی مقابل ژاپن، به عنوان بازیکن تعویضی در دقیقه ۷۰ وارد زمین شد. تیمبر تاکنون ۱۲ بازی ملی برای هلند انجام داده و یک گل به ثمر رسانده است. هلندی‌ها پس از تساوی ۲-۲ مقابل ژاپن، در رتبه سوم گروه F قرار دارند.
+
+@iranintltvsport
+</div>
+
+## Persian_Trend_Official — post 17530
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_17530_1781858713.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حملات هوایی اسرائیل در سراسر جنوب و شرق لبنان متوقف نشده است.
+
+تا کنون بیش از ۵۰ حمله انجام شده است.
+
+
+👺Phantom
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17529
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17529_1781858713.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حملات هوایی و حملات پهپادی اسرائیل در چند ساعت گذشته شهرها و شهرک‌های متعددی در شرق و جنوب لبنان را هدف قرار داده‌اند.
+
+
+👺Phantom
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 22932
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22932_1781858715.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 جی‌دی ونس سفر به سوئیس را لغو کرد؛ مذاکرات آمریکا و ایران لغو شد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22930
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22930_1781858716.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 حملات شدید اسرائیل به جنوب لبنان
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22929
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22929_1781858717.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مردمی که بعد از اعلام آتش بس ترامپ برگشته بودن جنوب لبنان با حملات امروز اسرائیل دوباره فرار کردن.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22928
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22928_1781858720.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 کاتز ، وزیر جنگ اسرائیل :
+
+ما هم‌اکنون بیش از ۶۰ درصد غزه را در کنترل داریم و همه‌اش را نابود کرده‌ایم.
+
+هم روی زمین و هم زیر زمین کاملاً نابود شده. این تفاوت رویکردی است که ما معرفی کردیم.
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 392559
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392559_1781858722.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+توی عزاداری محرم، یه پسره آیدی اینستاگرامشو روی طبل نوشته، تا اگه دختری از طبل زدنش خوشش اومد، بهش دایرکت بده😂
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392558
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392558_1781858723.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 چین رسما اعلام کرد ساخت مجتبی 6 ماه زمان می‌بره و باید 3 ماه دیگه برای رونماییش صبر کنین.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392554
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392554_1781858724.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 جام جهانی امسال، به عنوان بهترین جام جهانی تاریخ لقب گرفت 
+🍒
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 129079
+
+<div align="center">
+  <a href="telegram/content/alonews_129079_1781858725.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کاتس درباره درگیری‌ها تو سوریه و حزب‌الله : ما اونجا داریم می‌جنگیم 
+🔴ما به جولانی نیازی نداریم 
+🔴 جولانی، همون تروریست کت‌وشلواری، لازم نیست بیاد و به ما کمک کنه 
+🔴 ما سوریه رو خوب می‌شناسیم اون قرار نیست تو لبنان به ما کمک کنه 
+🔴بهتره تو سوریه بمونه، تو…
+</div>
+
+## alonews — post 129078
+
+<div align="center">
+  <a href="telegram/content/alonews_129078_1781858725.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / هم اکنون منابع لبنانی می‌گویند:
+ستون‌های زرهی اسرائیلی در حال پیشروی به سمت نبطیه، پایتخت حزب‌الله در جنوب لبنان هستند و درگیری‌ها سنگینی گزارش می‌شود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129077
+
+<div align="center">
+  <a href="telegram/content/alonews_129077_1781858725.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈شهباز شریف: از طرف ملت پاکستان در مراسم تشییع رهبر سابق ایران شرکت خواهم کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/29 12:04
 ---
 

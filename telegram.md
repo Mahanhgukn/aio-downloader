@@ -7,6 +7,84 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/30 02:05
+---
+
+## VahidOOnLine — post 246447
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_246447_1781908529.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️پس از انتشار پیامی منسوب به مجتبی خامنه‌ای مبنی بر اینکه توافق با آمریکا به اصرار مسعود پزشکیان صورت گرفته است و او «نظر دیگری» داشته، محمدعلی بخشی، مداح حکومتی در جمع حامیان جمهوری اسلامی در شهرری گفت: «آقای رئیس‌جمهور اگر شروط رهبری محقق نشود، ما می‌دانیم و تیغ و حلقوم شما. پدرت را درمی‌آوریم».
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 15371
+
+<div align="center">
+  <img src="telegram/content/WithYashar_15371_1781908531.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حرکت ۱۰ نفتکش ایرانی به نام های؛ دیونا، قهرمان، سونیا، دورنا، آمبر، خندان، برف، هدی، استارلا و دریا عمیق به طرف چین
+@withyashar
+</div>
+
+## FarsiVOA — post 221248
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_221248_1781908532.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️دور تازە تحریم‌های آمریکا علیه عوامل حزب‌الله لبنان
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221247
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_221247_1781908533.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️سوت تاریخی زنان در بزرگ‌ترین صحنه فوتبال مردان؛ گفت‌وگو با محمدرضا فغانی داور بین‌المللی
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221246
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_221246_1781908535.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️بازی دوم تیم‌ها در مرحله گروهی؛ گفت‌وگو با مهرداد بحری کارشناس فوتبال
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 17626
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17626_1781908536.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبتون بخیر 🌃
+F-18 Super Hornet
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 22979
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴یک کاربر خارجی که میگه تمام عباراتی که امریکا در این تفاهم‌نامه به کار برده فقط بازی با کلمات هست و در واقع فرستادن طرف به دنبال نخود سیاه هست و پزشکیانو خنگ‌ترین سیاست‌مدار معرفی کرده.
+
+@IranianMinds
+</div>
+
+---
 📅 بروزرسانی: 1405/03/30 01:55
 ---
 

@@ -7,6 +7,294 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/29 23:26
+---
+
+## VahidOOnLine — post 246430
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246430_1781899006.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محسن رضایی، مشاور نظامی مجتبی خامنه‌ای، به صداوسیمای جمهوری اسلامی گفت که تنگه هرمز و «اقتدار» منطقه‌ای جمهوری اسلامی نباید تضعیف شود.
+
+او افزود که آمریکا به عنوان «مجرم شکست‌خورده» در جنگ شناخته شد و «به خطای دشمن خیلی شدیدتر از آنچه بوده پاسخ می‌دهیم.»
+
+محسن رضایی ادامه داد: «ما در نیروهای مسلح به خطای دشمن، خیلی شدیدتر از آنچه بوده پاسخ می‌دهیم.»
+
+فرمانده اسبق سپاه پاسداران اضافه کرد: «جنگ باید به صورتی تمام شود که جمهوری اسلامی تا ۵۰ سال آینده بازدارندگی داشته باشد.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 15355
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جی‌دی ونس، معاون ترامپ:
+کسانی که مردم ایران رو سرکوب کردن، دیگه در قدرت نیستن!
+@withyashar
+</div>
+
+## WithYashar — post 15354
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت امور خارجه آمریکا: روبیو به جوزف عون‌ رئیس جمهور لبنان تأکید کرد که ضروری است حزب‌الله خلع سلاح شود و دولت کنترل خود را گسترش دهد
+@withyashar
+</div>
+
+## WithYashar — post 15353
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سناتور آمریکایی تد کروز: دادن میلیاردها دلار به حکومت ایران که شعار مرگ بر آمریکا سر می‌دهد، ایده بدی است
+@withyashar
+</div>
+
+## mwarmonitor — post 11237
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_11237_1781899006.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+«برابر. من می‌گم برابر.
+و حالا ما یک توافق داریم که دیشب امضا شد و ۶۰ روز فرصت هست تا به یک توافق نهایی برسیم، در غیر این صورت کارهایی انجام خواهیم داد که آن‌ها را خوشحال نخواهد کرد. اما من فکر نمی‌کنم کار به آنجا بکشد، فکر می‌کنم که نتیجه بسیار خوبی خواهد داشت. به یاد داشته باشید اگر ما این کار را انجام دهیم، دیگر نفت به آن سرعت از تنگه جریان پیدا نخواهد کرد، چون کسانی که کشتی‌های میلیارد دلاری دارند، دوست ندارند موشک‌ها از بالای سرشان پرواز کنند یا دریا پر از مین باشد.
+و این شگفت‌انگیز خواهد بود. آنچه که اکنون در حال رخ دادن است، به خاطر این است که ما قوی‌ترین اقتصادی را داریم که تا به حال داشته‌ایم. ما ۱۹.۲ تریلیون دلار سرمایه داریم که دارد وارد کشورمان می‌شود.»
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 343177
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343177_1781899007.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+President Trump unveils the new Air Force One alongside members of the Air Force at Joint Base Andrews https://twitter.com/i/broadcasts/1nxeLLmXgrqJX
+</div>
+
+## pm_afshaa — post 94421
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94421_1781899008.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴یک مداح حکومتی: آقای رییس‌جمهور اگه شروط مجتبی خامنه‌ای محقق نشه، سرتو میبریم و پدرتو درمیاریم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94420
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94420_1781899009.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: حمله به ایران بدون اعزام نیروی زمینی نتیجه قطعی نداره چون رهبران در پناهگاه‌های زیرزمینی می‌مانند.
+
+در صورت جنگ هم تنگه هرمز بسته و حمل‌ونقل نفت برای ماه‌ها مختل میشه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94419
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94419_1781899010.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: مجتبی خامنه‌ای با پدرش متفاوته و اون به نوعی شجاعه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94418
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94418_1781899010.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴جی‌دی ونس، معاون ترامپ:
+کسانی که مردم ایران رو سرکوب کردن، دیگه در قدرت نیستن!
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 343279
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_343279_1781899011.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻فدراسیون فوتبال الجزایر به‌صورت رسمی از داوری بازی این تیم مقابل آرژانتین در جام جهانی ۲۰۲۶ به فیفا شکایت کرد.
+
+🔹این فدراسیون مدعی شده لیونل مسی و مک‌آلیستر به‌دلیل خطای خشن با کف استوک و آرنج، باید از زمین مسابقه اخراج می‌شدند.
+
+🔹قضاوت این بازی برعهده سیمون مارسینیاک لهستانی، داور فینال جام جهانی ۲۰۲۲ بود. الجزایر در این بازی با سه گل شکست خورد.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 343278
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_343278_1781899011.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محسن رضایی، مشاور نظامی مجتبی خامنه‌ای، به صداوسیمای جمهوری اسلامی گفت که تنگه هرمز و «اقتدار» منطقه‌ای جمهوری اسلامی نباید تضعیف شود.
+
+او افزود که آمریکا به عنوان «مجرم شکست‌خورده» در جنگ شناخته شد و «به خطای دشمن خیلی شدیدتر از آنچه بوده پاسخ می‌دهیم.»
+
+محسن رضایی ادامه داد: «ما در نیروهای مسلح به خطای دشمن، خیلی شدیدتر از آنچه بوده پاسخ می‌دهیم.»
+
+فرمانده اسبق سپاه پاسداران اضافه کرد: «جنگ باید به صورتی تمام شود که جمهوری اسلامی تا ۵۰ سال آینده بازدارندگی داشته باشد.»
+https://iranintl.com/202606195767
+</div>
+
+## Persian_Trend_Official — post 17617
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دقایقی دیگه لایو داریم
+</div>
+
+## Persian_Trend_Official — post 17616
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+باراک اوباما در مورد توافق با ایران: توافقی وجود داشت که در آن ایران موافقت کرده بود سلاح هسته‌ای تولید نکند.
+
+این دولت از آن خارج شد که باعث شد ایران در آن زمان ظرفیت هسته‌ای بیشتری توسعه دهد. ما اکنون در یک جنگ شرکت کرده‌ایم، میلیاردها و میلیاردها دلار هزینه کرده‌ایم، فشار زیادی بر ارتش خود وارد کرده‌ایم، افراد زیادی جان خود را از دست داده‌اند و به نظر می‌رسد که به جایی که قبل از شروع جنگ بودیم برگشته‌ایم، البته شاید کمی بدتر.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17615
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_17615_1781899012.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انفجار بمب کنار جاده ای علیه نیروهای اسرائیلی که تلاش داشتند به منطقه علی الطاهر نفوذ کنند. یک تانک مرکاوا و یک بولدوزر نظامی هدف قرار گرفتند.
+یک خودروی زرهی دیگر هم به دلیل انفجار آتش گرفت.
+سپس یک پهپاد ابابیل FPV به محل رسید و نیروهای پشتیبان را هدف قرار داد.
+
+
+
+👺Phantom
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## RadioFarda — post 158523
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کارشناسان سازمان ملل: توافق تهران و واشینگتن وضعیت حقوق بشر در ایران را نادیده گرفته است
+
+🔸بیش از ده نفر از کارشناسان کارگروه‌ها و گزارشگران ویژه سازمان ملل متحد روز جمعه در بیانیه‌ای در عین استقبال از تفاهمنامه اخیر میان ایران و آمریکا، هشدار دادند که هر توافقی که به وضعیت حقوق بشر در ایران نپردازد، ناقص خواهد بود.
+
+🔸این کارشناسان در بیانیه خود گفتند: «این تفاهم‌نامه تقریباً به‌طور کامل بر خروج نظامی، بازگشایی تنگه هرمز، تعهدات هسته‌ای، کاهش تحریم‌ها و اختصاص ۳۰۰ میلیارد دلار بودجه بازسازی تمرکز دارد. مردم ایران که از تجاوز نظامی خارجی و سرکوب داخلی به‌شدت رنج برده‌اند، در این چارچوب به‌سختی دیده می‌شوند.»
+
+🔸آنها گفتند که از زمان آغاز جنگ در اسفند گذشته «مقامات ایرانی به شدت علیه مخالفان اقدام کرده‌اند. هزاران نفر بازداشت شده‌اند و بنا به گزارش‌ها بسیاری از آنها شکنجه، ناپدیدسازی قهری، یا مجبور به اعتراف در مقابل دوربین شدند یا در معرض اعدام‌های ساختگی قرار گرفتند.
+
+🔸امضاکنندگان این بیانیه با اعلام اینکه از زمان شروع جنگ، «حداقل ۱۵۶ نفر» اعدام شده‌اند، نوشتند: «دست‌کم ۴۲ نفر به اتهامات جاسوسی و مرتبط با امنیت ملی اعدام شده‌اند. بسیاری از آنها پس از مراحلی که طبق گزارش‌ها در آنها اعترافات تحت شکنجه گرفته شده و از دسترسی به وکیل محروم شده‌اند.»
+
+🔸در این بیانیه یادآوری شده که مقام‌های جمهوری اسلامی همچنین «دارایی‌های حداقل ۱۵۰۰ شهروند، از جمله صدها ایرانی ساکن خارج از کشور، را به عنوان ابزاری برای مجازات و سرکوب فراملی توقیف کرده‌اند. بهائیان، کردها و بلوچ‌های ایرانی به ویژه در معرض خطر بوده‌اند.»
+
+🔸مای ساتو، گزارشگر ویژه حقوق بشر در امور ایران، که یکی از امضاگنندگان این بیانیه است، همزمان در شبکه ایکس اعلام کرد که حقوق بشر در متن توافق ایران و آمریکا «نادیده گرفته شده است».
+
+🔸گزارش کامل را در وب‌سایت رادیوفردا بخوانید.
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 22973
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ درباره مجتبی خامنه‌ای:
+
+من یه آیت الله رو کشتم و متأسفانه اون یکی آیت الله دیگر رو آزار دادم.
+من اونو ندیدم ولی مردم ازش صحبت میکردن ولی اون شجاعت خاصی داره چون به شدت مجروح شده بود...
+
+مجری اکسیوس:
+ترامپ این چه تغییر رژیمیه که‌ انجام دادی . الان خامنه‌ای جونیور (جوان) اومد
+
+ترامپ: ببین دیگه شما نمیفهمید خامنه‌ای جونیور با پدرش متفاوته اونا افراد متفاوتی هستن...
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 392605
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392605_1781899013.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فستیوال محرم تا اینجای کار:
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392604
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392604_1781899014.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این نمایش کت‌شلواری زلاتان و تیری هانری(آنری) معرکه‌س.
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 129246
+
+<div align="center">
+  <a href="telegram/content/alonews_129246_1781899016.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: کشتی‌ها دارند از تنگه هرمز خارج می‌شوند و نفت صادر می‌شود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129245
+
+<div align="center">
+  <a href="telegram/content/alonews_129245_1781899016.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رئیس اتحادیه املاک: نرخ مجاز افزایش اجاره ۲۷ درصد است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/29 23:15
 ---
 

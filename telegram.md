@@ -7,6 +7,224 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/29 21:55
+---
+
+## VahidOOnLine — post 246420
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246420_1781893547.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یخیئل لایتر، سفیر اسرائیل در آمریکا، اعلام کرد که اسرائیل همچنان به آتش‌بس فوری در لبنان به‌طور قاطع پایبند است.
+
+لایتر افزود: «اگر حزب‌الله به توافق پایبند بماند و اقدامات خصمانه خود را متوقف کند، با آرامش مواجه خواهد شد».
+
+او در شبکه ایکس نوشت که اسرائیل پیش از ظهر جمعه، تمام عملیات تهاجمی را متوقف کرد؛ ادعاهای حزب‌الله و جمهوری اسلامی بر خلاف این موضوع، دروغ‌های آشکار است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## pm_afshaa — post 94414
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94414_1781893548.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نعیم قاسم، دبیر کل حزب‌الله لبنان:
+تا زمانی که توان ایستادگی داریم، چرا باید تسلیم بشیم؟ اسلحه‌ های ما برای درگیری و مبارزه با نیروهای اسرائیلیه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 343262
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_343262_1781893549.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+با توجه به امضاء تفاهم موقت، قالیباف چقدر توانایی به مقصد رساندن این تفاهم به یک توافق جامع را دارد؟
+@iranintltv
+</div>
+
+## FarsiVOA — post 221220
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_221220_1781893551.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علی رستمی، محیط‌بان، ویدیویی از حضور هزاران فلامینگو را در تالاب بین‌المللی میانکاله را منتشر کرده است. این تصاویر روز ۲۷ خرداد ثبت شده است.
+
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 17605
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17605_1781893552.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: اگر ما به آنها حمله نمی‌کردیم، آنها سلاح هسته‌ای داشتند.
+
+آنها از آن علیه اسرائیل استفاده می‌کردند. شما هم از آن در عربستان سعودی استفاده می‌کردید.
+
+پس از آغاز جنگ تقریباً بلافاصله موشک‌ها به سمت این پنج کشور دیگر [قطر، امارات، کویت، بحرین] شلیک شدند.
+
+من گفتم، چرا او این کار را می‌کند؟ و می‌دانید این چه نتیجه‌ای داشت؟
+
+این باعث شد آن پنج کشور مستقیماً به دامان من بیایند.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Dirty_Kids — post 392599
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392599_1781893555.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وقتی عروس و دوماد جفتشون اطلاعاتی هستن.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392598
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392598_1781893557.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+۱۹۹۸ توسکانا/ایتالیا
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 129218
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ درباره رسانه‌های داخلی جمهوری اسلامی ایران: اگر به ایران نگاه کنید، آن‌ها ۴۷ سال است که این کارها را انجام می‌دهند.
+
+
+🔴آن‌ها شما و همه دیگران را تحقیر کرده‌اند، تمام رسانه‌ها و همه چیز.
+
+
+🔴آن‌ها در برخورد با مطبوعات بسیار خوب عمل می‌کنند. آن‌ها رسانه‌ای جعلی(فیک) و عالی دارند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129217
+
+<div align="center">
+  <a href="telegram/content/alonews_129217_1781893558.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 ترامپ به اکسیوس: اگر دونالد ترامپ نبود، اسرائیل کاملاً نابود می‌شد.
+
+
+🔴ما کسانی هستیم که اسلحه‌ها را داریم. ما کسانی هستیم که کل توافق را داریم. ما کسانی هستیم که بمب‌افکن‌های بی-۲ و غیره را داریم.
+
+
+🔴رابطه با نتانیاهو... خوب است، اما باید او را کمی عاقل‌تر نگه داریم.
+
+🔴 سوال: آیا می‌توانید از حمله اسرائیل به لبنان جلوگیری کنید؟
+
+
+🔴 ترامپ: بله، من می‌توانم. آن‌ها برای من احترام زیادی قائل هستند و همان‌طور که من می‌گویم عمل می‌کنند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129216
+
+<div align="center">
+  <a href="telegram/content/alonews_129216_1781893562.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 ترامپ درباره شی: او مردی قوی است. او بازی نمی‌کند. او نمی‌نشیند و نمی‌گوید: «آها، چه روز زیبایی. به خورشید نگاه کنید.»
+
+
+🔴هیچ‌کدام از آن چیزها وجود ندارد. همه چیز جدی و کاری است که من دوست دارم. فکر می‌کنم عالی است.
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129215
+
+<div align="center">
+  <a href="telegram/content/alonews_129215_1781893564.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 ترامپ: اگر ما آنها را نمی زدیم، آنها یک سلاح هسته ای داشتند.
+
+
+🔴آنها از آن برای اسرائیل استفاده می کردند. شما از آن در عربستان سعودی نیز استفاده می کردید.
+
+
+🔴تقریباً بلافاصله موشک ها به سمت این پنج کشور دیگر (قطر، امارات، کویت، بحرین) پرواز کردند.
+
+
+🔴گفتم چرا این کار را می کند؟
+
+
+🔴و میدونی چیکار کرد؟
+
+
+🔴این پنج کشور را به دامان من آورد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129214
+
+<div align="center">
+  <a href="telegram/content/alonews_129214_1781893567.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 پرزیدنت ترامپ مجدداً از شی تشکر کرد: شی در کل ماجرای ایران دخالت نکرد. می‌توانست دخالت کند. می‌توانست یک کشتی نفتی را که توسط ۱۲ ناوشکن احاطه شده بود بفرستد و ببیند آیا می‌تواند راهی برای شکستن محاصره پیدا کند یا خیر.
+
+
+🔴اما رئیس‌جمهور شی، از او پرسیدم و گفتم: «واقعاً ممنون می‌شوم اگر دخالت نکنید.» و او عالی بود. دخالت نکرد.
+
+
+🔴و فکر می‌کنم اگر شخص دیگری این را می‌گفت، فکر نمی‌کنم کسی حتی از او چنین درخواستی می‌کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129213
+
+<div align="center">
+  <a href="telegram/content/alonews_129213_1781893570.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 ترامپ: ایرانی ها، مردم بسیار باهوشی هستند. آنها نوعی نابغه ابتدایی هستند، اما باهوش هستند.
+
+
+🔴آنها اسرائیل را منفجر می کردند.
+
+
+🔴اگر من نبودم، امروز اسرائیل وجود نداشت
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/29 21:44
 ---
 

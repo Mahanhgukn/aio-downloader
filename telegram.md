@@ -7,6 +7,20 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/29 03:34
+---
+
+## FarsiVOA — post 221153
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_221153_1781827490.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️حال‌وهوای هواداران سوئیس و بوسنی و هرزگوین در اطراف ورزشگاه سوفای لس‌آنجلس؛ گزارش آرمیتا آزاد
+@FarsiVOA
+</div>
+
+---
 📅 بروزرسانی: 1405/03/29 03:27
 ---
 

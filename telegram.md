@@ -7,6 +7,78 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/30 01:15
+---
+
+## FoxNewsTwitter — post 343181
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Team USA is through to the knockout stage.
+
+The United States secured its place in the next round of the World Cup with a 2-0 victory over Australia in Seattle on Friday, improving to 2-0 through its first two matches of the tournament.
+
+The Americans have now clinched advancement with a game still left to play in the group stage.
+
+It's the first time since the inaugural World Cup in 1930 that the United States has won back-to-back World Cup games.
+</div>
+
+## IranIntlTV — post 343297
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_343297_1781905519.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ گفت: «ایران ۶۰ روز فرصت دارد به یک آتش‌بس پایدار برسد. اگر به توافق نرسند، اقداماتی انجام خواهیم داد که قطعاً از آن خوششان نخواهد آمد.»
+
+او افزود: «حتی در صورت امضای توافق، بازگشت کامل نفتکش‌ها به تنگه هرمز زمان‌بر خواهد بود، زیرا شرکت‌های کشتیرانی تا رفع خطرهای امنیتی برای عبور از این مسیر تردید خواهند داشت.»
+@iranintltv
+</div>
+
+## FarsiVOA — post 221241
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️سازمان حقوق بشر ایران از اجرای حکم اعدام دست‌کم ۱۰ زندانی در زندان قزل‌حصار کرج طی روزهای ۲۳ و ۲۵ خرداد ۱۴۰۵ خبر داده است؛ احکامی که به گفته این گزارش، شامل پرونده‌های قتل و مواد مخدر و در برخی موارد بدون اطلاع قبلی خانواده‌ها اجرا شده‌اند.
+@FarsiVOA
+</div>
+
+## IranianMinds — post 22978
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22978_1781905521.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴یک مداح، پزشکیانو تهدید کرد. @IranianMinds
+</div>
+
+## Dirty_Kids — post 392611
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392611_1781905521.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایشون "رالف لینکلن" ، نسل یازدهم "آبراهام لینکلن" هست. چه شباهتی!
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392610
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392610_1781905523.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آدم وقتی اینا رو می‌بینه و می‌شنوه خجالت می‌کشه به فوتبال ایران بگه «فوتبال حرفه‌ای»، واقعاً احساس مسخره‌ایه.
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/03/30 01:05
 ---
 

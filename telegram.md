@@ -7,6 +7,127 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/29 19:35
+---
+
+## VahidOOnLine — post 246404
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_246404_1781885115.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد دوستان و بستگان جاویدنام علی روزبهانی به یاد او به توزیع غذا بین شهروندان پرداختند. علی روزبهانی از جمله جوانانی بود که از نخستین روزهای اعتراضات دی‌ماه ۱۴۰۴ در خیابان‌ها حاضر شد و به گفته نزدیکانش، حضوری فعال در کنار دیگر شهروندان داشت. او ابتدا در بازار و چند نقطه دیگر تهران حاضر شد و سرانجام ۱۸ دی به تهرانپارس رفت و گلوله خورد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## mwarmonitor — post 11223
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 نعیم قاسم: آن‌ها تلاش کردند با وارد کردن فشار بر سوریه، این کشور از سمت شرق وارد عمل شود تا همراه با «اسرائیل» از شمال، یک حرکت گازانبری ایجاد کنند.
+
+🔸این طرح شامل بستن تمام گذرگاه‌ها برای جلوگیری از رسیدن سلاح، فناوری و هر چیزی است که بتواند مقاومت را تقویت کند.
+
+🔸همچنین این طرح شامل اعمال یک محاصره مالیِ کامل و تحریک ارتش علیه مقاومت است.
+
+🔸آن‌ها بر ایجاد فتنهٔ سنی–شیعه با عنوانِ «حفاظت از جایگاه نخست‌وزیر» و با استناد به تصمیم‌هایی که او علیه مقاومت خواهد گرفت، کار کردند.
+
+@mwarmonitor
+</div>
+
+## DEJradio — post 5829
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5829_1781885118.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨📢 ارفاق ترامپ به ملاها؛ حرکت ۱۰ نفت‌کش جمهوری اسلامی به سمت چین
+
+بعد از تفاهم آمریکا و جمهوری اسلامی، طی ۵ روز ۱۰ نفت‌کش ۱۸ میلیون بشکه نفت به ارزش ۱.۴ میلیارد دلار از خلیج فارس خارج کرده و به سمت چین بردند.
+
+دو نفت‌کش از این شمار با موقعیت‌یاب خاموش در طول محاصره آمریکا از خلیج فارس خارج و خط محاصره عبور کردند.
+
+#مذاکرات #توافق
+@DEJradio
+</div>
+
+## IranIntlTV — post 343241
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_343241_1781885119.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد دوستان و بستگان جاویدنام علی روزبهانی به یاد او به توزیع غذا بین شهروندان پرداختند. علی روزبهانی از جمله جوانانی بود که از نخستین روزهای اعتراضات دی‌ماه ۱۴۰۴ در خیابان‌ها حاضر شد و به گفته نزدیکانش، حضوری فعال در کنار دیگر شهروندان داشت. او ابتدا در بازار و چند نقطه دیگر تهران حاضر شد و سرانجام ۱۸ دی به تهرانپارس رفت و گلوله خورد.
+</div>
+
+## IranIntlTV — post 343240
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_343240_1781885122.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻تیم فوتبال سوئیس شب گذشته در دومین مسابقه خود در جام جهانی ۲۰۲۶، بوسنی و هرزگوین را با نتیجه ۴ بر یک شکست داد.
+
+🔹گزارش علیرضا مدیری، خبرنگار ایران اینترنشنال از استادیوم سوفای لس آنجلس و گفتگو با هواداران دو تیم
+
+@iranintltvsport
+</div>
+
+## FarsiVOA — post 221202
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بریتانیا هشدار «خودداری از سفرهای غیرضروری» به امارات، قطر و کویت را لغو کرد
+</div>
+
+## Persian_Trend_Official — post 17595
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨سنتکام:
+بیش از ۲۰ کشتی روز گذشته با امنیت از مسیر تعیین‌شده در تنگه هرمز عبور کردند
+
+از کشتی‌ها می‌خواهیم دستورالعمل‌های مرکز اطلاعات دریایی مشترک را رعایت کنند
+</div>
+
+## IranianMinds — post 22962
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مارکو روبیو:
+
+حکومت ایران حامی تروریست در جهان است.
+
+@IranianMinds
+</div>
+
+## alonews — post 129175
+
+<div align="center">
+  <a href="telegram/content/alonews_129175_1781885124.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فوری / هلند: برای تضمین آزادی کشتیرانی ناو جنگی به تنگه هرمز اعزام خواهیم کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129174
+
+<div align="center">
+  <a href="telegram/content/alonews_129174_1781885124.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈امانوئل مکرون: برای مشارکت در اجرای توافق بین آمریکا و ایران آمادگی داریم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/29 19:25
 ---
 

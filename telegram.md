@@ -7,6 +7,217 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/30 00:07
+---
+
+## VahidOOnLine — post 246438
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246438_1781901427.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ابراهیم عزیزی، رییس کمیسیون امنیت ملی مجلس، در شبکه ایکس نوشت: «متعهد نبودن آمریکا به بند نخست تفاهم‌نامه نشان می‌دهد اراده‌ای برای جلب اعتماد ما ندارد.»
+
+او افزود: «ادامه وضعیت ما با آمریکا هزینه سنگینی خواهد داشت و نخستین آن، پاسخی هوشمندانه و بازدارنده به نقض تعهدات تفاهم‌نامه خواهد بود.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246437
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246437_1781901427.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ابراهیم عزیزی، رییس کمیسیون امنیت ملی مجلس، در شبکه ایکس نوشت: «متعهد نبودن آمریکا به بند نخست تفاهم‌نامه نشان می‌دهد اراده‌ای برای جلب اعتماد ما ندارد.»
+
+او افزود: «ادامه وضعیت ما با آمریکا هزینه سنگینی خواهد داشت و نخستین آن، پاسخی هوشمندانه و بازدارنده به نقض تعهدات تفاهم‌نامه خواهد بود.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246436
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246436_1781901428.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ابراهیم عزیزی، رییس کمیسیون امنیت ملی مجلس، در شبکه ایکس نوشت: «متعهد نبودن آمریکا به بند نخست تفاهم‌نامه نشان می‌دهد اراده‌ای برای جلب اعتماد ما ندارد.»
+
+او افزود: «ادامه وضعیت ما با آمریکا هزینه سنگینی خواهد داشت و نخستین آن، پاسخی هوشمندانه و بازدارنده به نقض تعهدات تفاهم‌نامه خواهد بود.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246435
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246435_1781901428.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس‌جمهوری ایالات متحده، روز جمعه در جریان رونمایی از هواپیمای «بوئینگ ۷۴۷» اهدایی قطر که به ناوگان «ایر فورس وان» ملحق شده است، اعلام کرد که در سال ۲۰۲۶ برنامه‌های سفر متعددی از جمله به کشورهای ترکیه و چین دارد. ترامپ با اشاره به اینکه شی جین‌پینگ، رئیس‌جمهوری چین، در ماه سپتامبر به واشنگتن سفر خواهد کرد، افزود که او نیز شخصا برای شرکت در یک نشست بزرگ راهی چین خواهد شد؛ سفری که در کنار بازدید او از ترکیه، بخشی از برنامه‌های دیپلماتیک فشرده کاخ سفید در سال جاری میلادی به شمار می‌رود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 15364
+
+<div align="center">
+  <a href="telegram/content/WithYashar_15364_1781901429.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: «ما رابطه خوبی با اسرائیل داریم بی بی نتانیاهو یک نخست‌وزیر جنگجو است.
+باید به همین عنوان از او قدردانی شود. باید به او اعتبار بدهند.»
+@withyashar
+</div>
+
+## WithYashar — post 15363
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ درباره حمله دوباره به ایران:
+به یاد داشته باشید، اگر این کار را انجام دهیم، ناگهان نفت به سرعت از تنگه خارج نخواهد شد.
+افرادی که مالک کشتی‌های میلیارد دلاری هستند، دوست ندارند موشک‌ها بالای سرشان پرواز کنند
+@withyashar
+</div>
+
+## mwarmonitor — post 11238
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 سوالی دارید دایرکت جواب میدم
+</div>
+
+## pm_afshaa — post 94424
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94424_1781901431.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴دونالد ترامپ:
+روابط ما با اسرائیل بسیار قدرتمنده؛ بی‌بی نتانیاهو یک جنگجوست و باید به عنوان چنین فردی شناخته بشه و باید به اون اعتبار داد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94423
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94423_1781901431.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🟢فراخوان تجمع مسالمت‌آمیز یازدهمی‌ها و دوازدهمی‌ها برای فردا :
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 343290
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_343290_1781901432.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تنها دو روز پس از امضای تفاهم‌نامه میان آمریکا و ایران، نشست برنامه‌ریزی‌شده دو طرف در سوئیس لغو شد. هم‌زمان، پاکستان از برگزاری نشست میانجی‌های پرونده تهران و واشینگتن در قاهره خبر داد. سخنگوی وزارت خارجه جمهوری اسلامی گفت با امضای دیجیتالی، این نشست فوریت خود را از دست داد.
+@iranintltv
+</div>
+
+## IranIntlTV — post 343287
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_343287_1781901433.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ابراهیم عزیزی، رییس کمیسیون امنیت ملی مجلس، در شبکه ایکس نوشت: «متعهد نبودن آمریکا به بند نخست تفاهم‌نامه نشان می‌دهد اراده‌ای برای جلب اعتماد ما ندارد.»
+
+او افزود: «ادامه وضعیت ما با آمریکا هزینه سنگینی خواهد داشت و نخستین آن، پاسخی هوشمندانه و بازدارنده به نقض تعهدات تفاهم‌نامه خواهد بود.»
+https://iranintl.com/202606195207
+</div>
+
+## IranIntlTV — post 343286
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_343286_1781901434.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مئیر جاودانفر، تحلیل‌گر امور اسرائیل، گفت: «همکاری نزدیک با واشینگتن ضروری است، اما وابسته کردن کامل راهبرد امنیتی اسرائیل در قبال جمهوری اسلامی به تصمیمات شخص دونالد ترامپ، ریسک بزرگی است.»
+
+او افزود: «آثار این ریسک امروز در پرونده لبنان بیش از هر زمان دیگری دیده می‌شود.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 343285
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_343285_1781901435.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شاهد علوی، عضو تحریریه ایران‌اینترنشنال، درباره بیانیه کارشناسان حقوق بشر سازمان ملل در انتقاد از نادیده گرفتن حقوق بشر در تفاهم‌نامه جمهوری اسلامی و آمریکا گفت: «طرفی که متهم به نقض حقوق بشر، اعدام‌های سیاسی و سرکوب گسترده شهروندان است، اکنون به‌عنوان یکی از امضاکنندگان این تفاهم سیاسی شناخته می‌شود.»
+
+او افزود: «حتی اگر موضوع حقوق بشر به‌صورت لفظی در متن توافق گنجانده می‌شد، بدون سازوکارهای اجرایی و نظارتی مستقل، تاثیر چندانی نداشت.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 343284
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_343284_1781901437.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+منشه امیر، کارشناس خاورمیانه، گفت: «مواضع دونالد ترامپ نارضایتی قابل توجهی را در اسرائیل ایجاد کرده است. آنچه برای بسیاری در اسرائیل نگران‌کننده است این است که ترامپ پیش‌تر قطع ارتباط جمهوری اسلامی با نیروهای نیابتی‌اش را از اهداف اصلی آمریکا عنوان کرده بود.»
+
+او افزود: «با این حال، در هفته‌های اخیر دست‌کم دو بار عملا رابطه جمهوری اسلامی و حزب‌الله را به رسمیت شناخته و برای پذیرش آتش‌بس، اسرائیل را تحت فشار قرار داده است.»
+@iranintltv
+</div>
+
+## FarsiVOA — post 221238
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رئيس‌جمهوری آمریکا، در مصاحبه‌ای با آکسیوس گفت پاکستانی‌ها «ایرانی‌ها (مقامات رژیم) را می‌شناختند و به ما در رسیدن به توافق کمک کردند.»
+
+آقای ترامپ در این مصاحبه گفت که پاکستانی‌ها از او خواهش کردند که از ادامه وارد کردن ضربات بیشتر به جمهوری اسلامی خودداری کند. آقای ترامپ گفت ما قوی‌ترین ارتش جهان را داریم و هیچ کشور دیگری نمی‌توانست مانند آمریکا محاصره دریایی علیه جمهوری اسلامی را اجرا کند.
+
+آقای ترامپ همچنین گفت به نظر او تفاهم‌نامه امضا شده با جمهوری اسلامی مانند «تسلیم‌شدن کامل» جمهوری اسلامی است. رئیس‌جمهوری آمریکا به نابودی نیروی دریایی جمهوری اسلامی، نیروی هوایی، و پدافند هوایی و همچنین کشتن علی خامنه‌ای اشاره کرد که از او به عنوان «آیت‌الله» یاد کرد.
+بیشتر بخوانید:
+https://ir.voanews.com/a/trump-calls-iran-shift-regime-change/8162716.html
+@FarsiVOA
+</div>
+
+## Dirty_Kids — post 392607
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392607_1781901439.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😂😂😂😂
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392606
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392606_1781901440.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هیچی این شاهکار نمیشه :)))))
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/03/29 23:56
 ---
 

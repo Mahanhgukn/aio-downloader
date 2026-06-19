@@ -7,6 +7,196 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/29 12:24
+---
+
+## VahidOOnLine — post 246357
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️وزیر اقتصاد دولت رئیسی: اوایل دولت پیشین توافق با آمریکا نزدیک بود که «قضیه مهسا» پیش آمد، منتفی کردند
+
+♦️احسان خاندوزی، وزیر اقتصاد دولت ابراهیم رئیسی روز پنجشنبه ۲۸ خردادماه به خبرگزاری فارس گفت که «توافق ایران و آمریکا در دولت پیشین خیلی نزدیک شده بود، اما ماجرای جان‌باختن مهسا امینی باعث شد مذاکرات کنار گذاشته شود».
+
+خاندوزی افزود: «دستگاه امنیتی اسرائیل کاملا منفعت دارد که توافق ایران و آمریکا اتفاق نیفتد.»
+
+مهسا امینی، دختر ۲۲ ساله اهل سقز، شهریورماه ۱۴۰۱ در بازداشتگاه گشت ارشاد تهران جان خود را از دست داد. مرگ او باعث  اعتراضات سراسری در ایران شد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 15305
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کاتز وزیر دفاع اسرائیل: هیچ کس نمی تواند به ما بگوید چه کار کنیم و ما آن را ثابت کرده ایم. @withyashar
+</div>
+
+## FoxNewsTwitter — post 343161
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343161_1781859298.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH LIVE: SpaceX conducts Falcon 9 launch of the NROL-179 mission
+https://twitter.com/i/broadcasts/1oKMvvpYeRNGQ
+</div>
+
+## mamlekate — post 103742
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 لغو ناگهانی سفر جی‌دی‌ ونس به سوئیس برای ادامه مذاکرات با جمهوری اسلامی
+
+قرار بود پس از امضاء تفاهم‌نامه میان دونالد ترامپ رئیس جمهوری آمریکا و مسعود پزشکیان رئیس دولت جمهوری اسلامی، جی‌دی ونس معاون ترامپ برای امضاء رسمی این سند و دیدار با مقامات جمهوری اسلامی به سوئیس سفر کند، اما برنامه‌ در آخرین دقایق به طور ناگهانی لغو شد.
+
+
+📝 سوئیس از برگزار نشدن مذاکرات برنامه‌ریزی شده آمریکا و جمهوری اسلامی خبر داد
+
+وزارت خارجه سوئیس اعلام کرد مذاکراتی که قرار بود جمعه میان آمریکا و جمهوری اسلامی در اقامتگاه کوهستانی برگن‌اشتوک برگزار شود، انجام نخواهد شد.
+
+@mamlekate
+
+@mamlekate
+</div>
+
+## mamlekate — post 103741
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 تفاهم‌نامه ایران و آمریکا چه شباهت‌ها و تفاوت‌هایی با برجام دارد؟
+
+
+@mamlekate
+</div>
+
+## FarsiVOA — post 221173
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_221173_1781859299.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل زیرساخت‌های حزب‌الله را در منطقه بقاع هدف قرار داد؛
+
+ارتش اسرائيل در تداوم عملیات علیه حزب‌الله لبنان، اعلام کرد که «زیرساخت‌های تروریستی» این سازمان را در منطقه بقاع هدف قرار داده است. این حمله در واکنش به نقض‌های مکرر توافق آتش‌بس میان اسرائیل و لبنان از سوی حزب‌الله انجام شد.
+
+بامداد جمعه ۲۹ خردادماه، نیز ارتش اسرائيل زیرساخت‌های حزب‌الله در چندین منطقه جنوب لبنان هدف قرار داده بود. خبرگزاری ملی لبنان اعلام کرد که این حملات منجر به کشته شدن دست‌کم ۱۶ نفر در سراسر «منطقه نبطیه» در جنوب این کشور شد.
+
+آمریکا و اسرائیل و برخی کشورهای دیگر، حزب‌الله لبنان را در فهرست گروه‌های تروریستی قرار داده‌اند.
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 17537
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17537_1781859301.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وضعیت نبطیه
+
+از شروع عملیات عاشورا توسط حزب الله از بامداد امروز تلفات هم سمت حزب‌الله هم اسراییل بسیار بالا گزارش شده.
+
+
+👺Phantom
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17534
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17534_1781859302.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزیر دفاع اسرائیل، یسرائیل کاتز: می‌دانید چه چیزی واقعاً جهادگرایان را آزار می‌دهد؟ شاید وقتی شخصاً آنها را می‌کشید، برایشان دردناک باشد، اما آنها به این موضوع اهمیت زیادی نمی‌دهند.
+
+آنچه واقعاً آنها را آزار می‌دهد این است که سرزمینی را از آنها می‌گیرید و خانه‌هایشان را ویران می‌کنید و این کاری است که ما انجام دادیم.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17533
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17533_1781859305.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزیر دفاع اسرائیل، یسرائیل کاتز: ما در آنجا می‌جنگیم. ما به الجولانی نیازی نداریم. الجولانی، تروریست کت و شلواری، نیازی به آمدن و کمک به ما ندارد.
+
+ما سوریه را به خوبی می‌شناسیم. او قرار نیست در لبنان به ما کمک کند. او باید در سوریه بماند، در کار ما دخالت نکند و ما را مجبور به دخالت در کار خودش نکند.
+
+در لبنان، 200 هزار نفر از ساکنانی که در منطقه امنیتی زندگی می‌کردند، برنمی‌گردند. حتی یک نفر از آنها هم برنمی‌گردد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17532
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_17532_1781859307.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به نظر می‌رسد تلاش جدید نیروهای دفاعی اسرائیل برای تصرف تپه استراتژیک علی الطاهر شکست خورده است و نیروهای پیشروی شده توسط حزب‌الله دفع شده‌اند.
+
+این تپه یکی از پایگاه‌های اصلی حزب‌الله است و بر شهر نبطیه مشرف است. این منطقه شامل پناهگاه‌ها و تونل‌های عمیق متعددی است و توسط تپه‌های دیگری که تحت کنترل حزب‌الله هستند احاطه شده است.
+
+نیروهای دفاعی اسرائیل قبلاً در اوایل این هفته و هفته گذشته نتوانستند آن را تصرف کنند. این بار حداقل ۴ کشته و ۱۷ زخمی در تلاش برای تصرف آن متحمل شدند.
+</div>
+
+## Persian_Trend_Official — post 17531
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17531_1781859308.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یسرائیل کاتز، وزیر دفاع اسرائیل: هیچ‌کس نمی‌تواند به ما بگوید چه کار کنیم، و ما این را ثابت کرده‌ایم.
+
+تمام خط اول روستاهای لبنان ویران شده است. ما در حال ویران کردن تمام خانه‌ها هستیم. ساکنان دیگر هرگز آنها را در مقابل چشمان خود نخواهند دید.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## alonews — post 129081
+
+<div align="center">
+  <a href="telegram/content/alonews_129081_1781859310.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈لاوروف: خطر رویارویی مستقیم ناتو و روسیه به‌سرعت می‌تواند هسته‌ای شود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129080
+
+<div align="center">
+  <a href="telegram/content/alonews_129080_1781859310.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ارتش دفاعی اسرائیل اعلام کرد که فرمانده یک گردان زرهی و سه سرباز دیگر در جنوب لبنان در اثر اصابت پهپاد حزب‌الله یا موشک ضدتانک به تانکشان در روستای کفر تبنیت کشته شدند.
+
+
+🔴 انفجاری که منجر به کشته شدن هر چهار عضو خدمه شد، کمی پس از نیمه‌شب رخ داد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/29 12:15
 ---
 

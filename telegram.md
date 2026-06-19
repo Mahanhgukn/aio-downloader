@@ -7,6 +7,213 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/29 21:14
+---
+
+## VahidOOnLine — post 246417
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246417_1781891062.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سعید خطیب‌زاده، معاون وزیر خارجه جمهوری اسلامی به الجزیره گفت: «آمریکا باید اطمینان حاصل کند که اسرائیل به مفاد تفاهم‌نامه میان تهران و واشینگتن پایبند است و ما آماده‌ایم گام‌به‌گام پیش برویم، اگر طرف مقابل نیز همین میزان جدیت را نشان دهد.»
+
+خطیب‌زاده همچنین گفت جمهوری اسلامی به دنبال «صلح در همه جبهه‌ها از جمله غزه» است و اضافه کرد که لبنان به دلیل ارتباط مستقیم با این درگیری‌ها در این تفاهم‌نامه گنجانده شده است.
+
+او ادامه داد: «بدون پایان اشغال و پایبندی اسرائیل به قوانین بین‌المللی، هیچ صلح و ثباتی در لبنان و منطقه وجود نخواهد داشت.»
+
+معاون وزیر خارجه جمهوری اسلامی در خصوص تنگه هرمز نیز گفت که تهران به ارائه خدمات کشتیرانی در هماهنگی با عمان و مطابق قوانین بین‌المللی ادامه خواهد داد و تهران در دوره ۶۰ روزه توافق، هزینه عبور دریافت نخواهد کرد، اما پس از آن سازوکار جدیدی برای مدیریت این آبراه معرفی خواهد شد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246416
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ویدیویی از دونالد ترامپ، رئیس‌جمهوری ایالات متحده، در جریان اهدای «مدال افتخار» به یک نظامی منتشر شده که نحوه بستن این مدال با واکنش‌های گسترده درشبکه‌های اجتماعی همراه شده است.
+در این تصاویر، ترامپ در بستن و قرار دادن مدال دچار مشکل می‌شود و این لحظه توجه کاربران را جلب کرده است. برخی کاربران این صحنه را مورد انتقاد و تمسخر قرار داده‌اند.
+مدال افتخار یکی از بالاترین نشان‌های نظامی در ایالات متحده است که به نیروهای نظامی به‌دلیل شجاعت برجسته اعطا می‌شود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## mwarmonitor — post 11231
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رئیس‌جمهور ترامپ به شبکه NBC News گفت که روز جمعه با مقام‌های اسرائیلی گفت‌وگو کرده و از آن‌ها خواسته است آتش‌بس با حزب‌الله برقرار شود. او گفت: «بعضی وقت‌ها فقط باید آرام شد و از عقلتان استفاده کنید.» ترامپ از تأیید این‌که آیا مستقیماً با نخست‌وزیر بنیامین نتانیاهو صحبت کرده یا نه، خودداری کرد.
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 343174
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343174_1781891063.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"There are no limits."
+
+In his first interview after signing the memorandum of understanding at Versailles, President Trump says America's power in the region remains unlimited.
+
+The comments come as tensions in the region flare up once again.
+
+A Hezbollah attack in northern Israel killed four Israeli soldiers, triggering Israeli strikes inside Lebanon and raising new questions about whether the ceasefire tied to the agreement can hold, @LucasFoxNews reports.
+</div>
+
+## IranIntlTV — post 343256
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_343256_1781891065.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سعید خطیب‌زاده، معاون وزیر خارجه جمهوری اسلامی به الجزیره گفت: «آمریکا باید اطمینان حاصل کند که اسرائیل به مفاد تفاهم‌نامه میان تهران و واشینگتن پایبند است و ما آماده‌ایم گام‌به‌گام پیش برویم، اگر طرف مقابل نیز همین میزان جدیت را نشان دهد.»
+
+خطیب‌زاده همچنین گفت جمهوری اسلامی به دنبال «صلح در همه جبهه‌ها از جمله غزه» است و اضافه کرد که لبنان به دلیل ارتباط مستقیم با این درگیری‌ها در این تفاهم‌نامه گنجانده شده است.
+
+او ادامه داد: «بدون پایان اشغال و پایبندی اسرائیل به قوانین بین‌المللی، هیچ صلح و ثباتی در لبنان و منطقه وجود نخواهد داشت.»
+
+معاون وزیر خارجه جمهوری اسلامی در خصوص تنگه هرمز نیز گفت که تهران به ارائه خدمات کشتیرانی در هماهنگی با عمان و مطابق قوانین بین‌المللی ادامه خواهد داد و تهران در دوره ۶۰ روزه توافق، هزینه عبور دریافت نخواهد کرد، اما پس از آن سازوکار جدیدی برای مدیریت این آبراه معرفی خواهد شد.
+https://iranintl.com/202606197004
+</div>
+
+## Persian_Trend_Official — post 17601
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17601_1781891066.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇦 لحظه حمله پهپاد صیاد-۲ حزب‌الله به یکی از مواضع ارتش اسرائیل در شمال این کشور
+
+👺Phantom
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## BBCPersian — post 284422
+
+<div align="center">
+  <a href="telegram/content/BBCPersian_284422_1781891066.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻پارلمان نروژ پنجشنبه صحنه اقدامی کم‌سابقه بود.
+
+نمایندگان این کشور، به رهبری مسعود قره‌خانی، رئیس پارلمان، در حمایت از تیم ملی فوتبال این کشور در جام جهانی ۲۰۲۶ دیروز تشویق «پاروزنی وایکینگی» را در صحن علنی مجلس اجرا کردند.
+
+قره‌خانی با چکش ریاست ضرب گرفت و نمایندگان با هماهنگی کامل دست‌هایشان را که مشت کرده بودند به جلو حرکت می‌دادند و کلمه «رو» (پارو) را تکرار می‌کردند. این حرکت از سنت پارو زدن در کشتی‌های وایکینگ‌ها که اجداد باستانی نروژی‌ها هستند الهام گرفته شده و به یکی از تشویق‌های پرطرفدار هواداران این کشور در رقابت‌های فوتبال جام جهانی ۲۰۲۶ تبدیل شده است.
+
+پیروزی ۴–۱ نروژ مقابل عراق در نخستین دیدار این گروه موجی از شور و هیجان در سراسر کشور برانگیخت و ویدئوهای هواداران نروژی که حرکت پاروزنی وایکینگ‌ها را در خیابان‌های ماساچوست آمریکا، فضاهای عمومی و حتی روی پله‌برقی اجرا می‌کنند، در شبکه‌های اجتماعی دست‌به‌دست می‌شود.
+
+📸Reuters/Brian Snyder, Icon Sportswire via Getty Images
+🎥Reuters, Halvor Viste Berg, SNTV
+
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 392596
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فقط شیعه میتونه بچه‌شو کفن‌ بپوشونه ببره مراسم شیرخوارگان حسینی.
+شیعه مذهب نیست. بیماری روانیست...
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392595
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392595_1781891068.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خدایی کچلا رو اینقد اذیت نکنین
+گناه دارین!
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392594
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏این همه مسجد و حسینه و امامزاده و مصلی وجود داره، چرا راه مردم رو می‌بندن و تو میدون‌ها مراسم می‌ذارن؟!
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 129205
+
+<div align="center">
+  <a href="telegram/content/alonews_129205_1781891070.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈جی دی ونس درباره تنگه هرمز: آنچه ایالات متحده توانسته با موفقیت انجام دهد – و به همین دلیل است که قیمت‌ها شروع به کاهش کرده‌اند – خارج کردن مقدار زیادی نفت از خلیج فارس با محافظت از کشتی‌هایی بوده است که در حال حرکت بودند.
+
+
+🔴در بلندمدت، ما نمی‌خواهیم حضور نظامی داشته باشیم که از تمام این کشتی‌های در حال حرکت محافظت کند.
+
+
+🔴ما فقط می‌خواهیم ایرانیان مانند یک کشور عادی رفتار کنند و از شلیک به آن کشتی‌ها دست بردارند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129204
+
+<div align="center">
+  <a href="telegram/content/alonews_129204_1781891072.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ به ان‌بی‌سی گفت: من همیشه با نتانیاهو خوب رفتار کرده‌ام، او فقط باید گاهی اوقات آرام باشد و از عقلش استفاده کند.
+
+
+🔴 من امروز با طرف اسرائیلی صحبت کردم و از آنها خواستم آتش‌بس با حزب‌الله را تأیید کنند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129203
+
+<div align="center">
+  <a href="telegram/content/alonews_129203_1781891073.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 پیشنهاد جی‌دی ونس به تهران: گزینه الف این است که شما همچنان مانند یک رژیم تروریستی رفتار کنید، در این صورت شما به طور حرفه‌ای هیچ چیز دریافت نمی‌کنید.
+
+
+🔴گزینه ب این است که مانند یک رژیم عادی رفتار کنید، و ایالات متحده در واقع، برای مثال، به قطر یا امارات اجازه خواهد داد اگر این خواسته آن‌ها بود که در کشور شما سرمایه‌گذاری کنند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129202
+
+<div align="center">
+  <a href="telegram/content/alonews_129202_1781891075.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 جی دی ونس درباره اسرائیل: من همواره از تصمیم ترامپ برای پایان دادن به توافق هسته‌ای با ایران دفاع کرده‌ام و اغلب با استدلالی مواجه می‌شوم که می‌گوید: «اسرائیل فکر نمی‌کند این کار خوب است، پس بد است.»
+
+
+🔴واکنش من این است: نظرات اسرائیل اهمیت دارند، اما در اصل مستقل هستند.
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/29 21:04
 ---
 

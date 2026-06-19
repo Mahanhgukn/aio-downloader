@@ -7,6 +7,223 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/29 18:55
+---
+
+## VahidOOnLine — post 246401
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246401_1781882757.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ یک مقام ارشد آمریکایی روز جمعه ۲۹ خرداد اعلام کرد که در پی تشدید درگیری‌ها در لبنان، که شانس تبدیلِ تفاهم‌نامه موقت پایان جنگ با ایران به یک صلح پایدار در خاورمیانه را به خطر انداخته بود، اسرائیل و حزب‌الله بر سر برقرار آتش‌بس توافق کردند.
+
+هم‌زمان با اوج‌گیری درگیری‌ها در لبنان، مذاکرات برنامه‌ریزی‌شده میان ایران و آمریکا که قرار بود روز جمعه در سوئیس برگزار شود، لغو شد. این رویداد ابهامات جدیدی را درباره زمان‌بندی مذاکرات حیاتیِ مربوط به بازگشایی کامل تنگه هرمز به روی کشتیرانی جهانی ایجاد کرده است.
+
+این مقام ارشد آمریکایی اندکی پیش از ساعت ۴ بعدازظهر به وقت لبنان (۱۳:۰۰ به وقت گرینویچ) اعلام کرد که آتش‌بس از همین ساعت اجرایی می‌شود. او به شرط فاش نشدن نامش به خبرنگاران گفت: «برداشت ما این است که پس از تبادل آتش سنگین در ساعات اولیه امروز، اسرائیل و حزب‌الله اکنون در وضعیت آتش‌بس هستند.» او همچنین افزود که مذاکره‌کنندگان آمریکایی و قطری با کمک ایران این توافق را نهایی کرده‌اند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 15343
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آسوشیتدپرس: ایران به امریکا اطلاع داده است اگر اسرائیل ادامه دهد. همه چیز متوقف می‌شود
+@withyashar
+</div>
+
+## mwarmonitor — post 11221
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 در این آشفته‌بازار که هر گوشه از نظامش را بچسبی، عده‌ای با تکیه بر شغل اجدادی و خانوادگی‌شان مشغول رانت‌خواری و چپاول هستند، ظهور پدیده‌هایی مثل ژیلا صادقی دیگر یک اتفاق نیست، بلکه یک کارکرد است؛ نوعی خدمات‌رسانی دوقابلیتی در صداوسیمای جمهوری اسلامی که در آن، هنر با وقاحت و تملق پیوند می‌خورد. این حرکات مشمئزکننده و غلت زدن در لجن‌زار چاپلوسی، چیزی جز ذات عریان کاسه‌لیسی و دستمال‌کشی او را به نمایش نمی‌گذارد. او با حقارت تمام و در اوج خفت و خواری، شرف خود را حراج می‌کند تا شاید چند صباحی بیشتر به زندگی انگل‌وارش در این ویترینِ پوسیده ادامه دهد.
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 343171
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343171_1781882759.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+From discovering Ella Langley on the road... to meeting her backstage.
+
+The viral German soccer fan behind one of the internet's favorite American road trips finally got his full-circle moment after weeks of sharing videos from across the country.
+
+Millions watched as Freddy and his friends traveled across the U.S. for the World Cup, experiencing American food, culture, and unexpectedly becoming huge Ella Langley fans along the way.
+
+Their videos caught the attention of listeners, radio stations, and eventually Langley herself.
+</div>
+
+## Persian_Trend_Official — post 17591
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+منابع محلی حملات پرتعداد توپخانه‌ای ارتش اسرائیل به سمت نبطیه و روستاهای نزدیک آن را گزارش میدهند.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17590
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17590_1781882760.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرنگار: چه کسی در جنگ ایران پیروز شد؟
+
+کریسترسون، نخست وزیر سوئد: هنوز برای گفتن این خیلی زود است.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17589
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17589_1781882762.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به گزارش CNN، با استناد به کتاب تغییر رژیم نوشته مگی هابرمن از نیویورک تایمز و جاناتان سوان، ترامپ در ابتدا تمایلی به درگیر شدن در جنگ علیه ایران به نمایندگی از اسرائیل نداشت و در اوایل دوره دوم ریاست جمهوری خود به یکی از منتقدان اسرائیل گفته بود که نمی‌خواهد در جنگی با ایران که توسط بنیامین نتانیاهو، نخست وزیر، هدایت می‌شود، شرکت کند.
+
+این کتاب، دیدگاه‌های ترامپ در مورد نتانیاهو را متغیر توصیف می‌کند و می‌افزاید که او به طور خصوصی رهبر اسرائیل را به یکی دیگر از مشاورانش کلاهبردار توصیف کرده است. اصطلاحی که نویسندگان آن را یکی از شدیدترین توهین‌ها در واژگان ترامپ می‌دانند.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17588
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت بهداشت لبنان اعلام کرد که در پی حملات هوایی گسترده نیروی هوایی اسرائیل به جنوب لبنان در روز های اخیر، دست کم 47 لبنانی کشته و 97 لبنانی زخمی شده‌اند.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## RadioFarda — post 158511
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_158511_1781882763.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸اسماعیل بقائی، سخنگوی وزارت خارجه ایران، روز جمعه دعوت جمهوری اسلامی از بازرسان آژانس بین‌المللی انرژی اتمی برای حضور در ایران و انجام بازرسی از تاسیسات هسته‌ای را رد کرد.
+
+🔸او گفت: «بازرسی از تاسیساتی که دسترسی آژانس به آنها به‌دلیل حملات نظامی متوقف گردید، منوط به روند مذاکرات و نتیجه آن خواهد بود.»
+
+🔸پیشتر جی‌دی ونس، معاون رئیس جمهور آمریکا پس از اعلام توافق اخیر در گفت‌وگو با شبکه ان‌بی‌سی گفته بود که بر اساس تفاهم‌نامه میان واشینگتن و تهران، بازرسان آژانس بین‌المللی انرژی اتمی «قطعاً» به ایران بازخواهند گشت.
+
+🔸اسماعیل بقائی همچنین گفت در حال برنامه‌ریزی برای برگزاری یک نشست طی روزهای آینده هستیم.
+
+🔸نشست بین نمایندگان ایران و ایالات متحده که قرار بود جمعه در سوئیس برگزار شود، لغو شد.
+
+🔸سخنگوی وزارت خارجه جمهوری اسلامی اعلام کرد: «با توجه به اینکه امضای متن یادداشت تفاهم در بامداد ۲۸ خرداد به صورت دیجیتالی انجام شد، برگزاری نشست مزبور در سوئیس فوریت ندارد.»
+
+🔸او همچنین گزارش‌ها درباره بسته شدن تنگه هرمز را «بی‌اساس» دانست و گفت کشتیرانی در این مسیر در حال انجام است.
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 22956
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وضعیت هیئت های محرم :
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22955
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22955_1781882764.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽ #امریکا Vs #استرالیا 
+🏆
+🔥
+
+
+⏰ شروع ساعت  20:30
+
+
+🔥20% شرط هدیه ویژه شارژ ارزهای دیجیتال
+
+💳امکان شارژ با درگاه پرداخت
+
+🎲 آپشن های متنوع با ضرایب بالا
+
+🎁 10 درصد فری بت به ازای هر بار شارژ
+
+⭐️ برداشت زیر 15 دقیقه دلاری
+
+
+🔥   همراه با درگاه‌ #ریالی
+
+1️⃣
+2️⃣
+3️⃣
+4️⃣   
+1️⃣
+2️⃣
+3️⃣
+4️⃣
+
+⛔در صورت فیلتر بودن از طریق VPN غیر از سرور انگلیس ( سرور 
+🇺🇸 
+🇩🇪 
+🇨🇦
+🇫🇮
+🇹🇷
+👇
+👇 )
+
+
+🇪🇺 https://trentivo6402.bar
+
+
+✅کانال تلگرامی #رومابت 29
+👇
+
+🔵 @Romabet_official
+</div>
+
+## IranianMinds — post 22954
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 از همین الان مجدد به طور رسمی بین حزب الله و اسرائیل آتش بس برقرار شد. @IranianMinds
+</div>
+
+## alonews — post 129165
+
+<div align="center">
+  <a href="telegram/content/alonews_129165_1781882765.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ستاد فرماندهی مرکزی آمریکا:
+جنگنده‌های اف-۱۶ به گشت‌زنی‌های خود در خاورمیانه ادامه می‌دهند و آماده مداخله هستند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/29 18:45
 ---
 

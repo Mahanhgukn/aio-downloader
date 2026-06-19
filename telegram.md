@@ -7,6 +7,320 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/29 16:44
+---
+
+## VahidOOnLine — post 246380
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246380_1781874882.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+احمد علم‌الهدی، امام جمعه مشهد گفت: «ما در خط فوران خون امام شهید خود با دشمن آمریکایی می‌جنگیم و مبارزه می‌کنیم و ما به هیچ قیمت و مصلحت اندیشی شعار مرگ بر آمریکا را از زبان نخواهیم انداخت و این مبارزه ادامه دارد.»
+
+او ادامه داد: «باید مشخص شود تکلیف خونخواهی رهبر ما چه می‌شود؟»
+
+علم‌الهدی افزود: «اگر همه خسارت‌ها قابل جبران باشد، هیچ سرمایه‌ای بالاتر از از دست دادن امام شهید ما نیست، پس برادران و خواهران انتقام به جای خود باقی است، جنگ تمام شد اما مبارزه تمام نشده است.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246379
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246379_1781874883.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری تسنیم، وابسته به سپاه پاسداران، خواستار ادامه بسته ماندن تنگه هرمز تا زمان توقف حملات اسرائیل و عقب‌نشینی کامل این کشور از خاک لبنان شد.
+
+این رسانه همچنین خواستار لغو همه مذاکرات آتی شد و نوشت ادامه حملات اسرائیل به لبنان و باقی ماندن نیروهای اسرائیلی در جنوب لبنان، به معنای نقض بند نخست تفاهم‌نامه میان جمهوری اسلامی و آمریکا است.
+
+این خبرگزاری افزود اگر جمهوری اسلامی پیش از اجرای تعهدات آمریکا و توقف حملات اسرائیل، تنگه هرمز را باز کند، بخشی از اهرم‌های فشار خود را از دست خواهد داد.
+
+تسنیم همچنین گزارش‌های منتشرشده درباره باز بودن تنگه هرمز را «غیرقابل قبول» خواند و نوشت این موضوع با وعده‌های مقام‌های دولتی و تیم مذاکره‌کننده جمهوری اسلامی همخوانی ندارد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246378
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246378_1781874884.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ دونالد ترامپ، رئیس‌جمهوری آمریکا، روز جمعه ۲۹ خرداد در پیامی کوتاه در شبکه اجتماعی تروث سوشال نوشت: «ما از روی استیصال دیدار نکردیم، ایران کرد. کار آن‌ها تمام است! ما این ۶۰ روز را بازی خواهیم کرد [روند آن را طی می‌کنیم]. آن‌ها هیچ پولی دریافت نمی‌کنند، حتی ده سنت!»
+
+این پیام به نظر می‌رسد واکنشی به پیام روز گذشته مجتبی خامنه‌ای، رهبر جدید جمهوری اسلامی باشد که گفته بود: «در مسیر رسیدن به این مرحله [امضای تفاهم‌نامه]، مسئولین امر، از سر دلسوزی و با حُسن نظر، تلاش‌های زیادی را به‌عمل آوردند و البته این رئیس‌جمهور آمریکا بود که از روی استیصال، از انواع اهرم‌ها برای این امر استفاده می‌کرد.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246377
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_246377_1781874884.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند در ویدیوی ارسالی خود به ایران اینترنشنال، ضمن اشاره به گرانی مواد غذایی و مشکل بیکاری، از عملکرد دونالد ترامپ در برابر جمهوری اسلامی انتقاد کرد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 15332
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+باراک راوید از آکسیوس: یک مقام ارشد آمریکایی به من می‌گوید
+
+اسرائیل و حزب‌الله بر سر آتش‌بس مجدد در لبنان از ساعت ۴ بعد از ظهر امروز به وقت محلی توافق کرده‌اند. این توافق جدید با میانجیگری آمریکا و قطر و پس از مذاکرات با اسرائیل و ایران حاصل شده است.
+@withyashar
+</div>
+
+## WithYashar — post 15331
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش ها مبنی بر آتش‌بس بین اسرائیل و حزب‌الله هم اکنون به اجرا درآمده است
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 343168
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌Fox News (Twitter/X)
+
+Harry Styles is one of the biggest musicians in the world, and he’s slated to put on a 30-show residency in Madison Square Garden starting this summer.
+
+Many fans are now asking who will perform at Harry Styles’ MSG residency?
+
+Our sponsor Kalshi’s prediction market shows:
+
+— Elton John: 22%
+— Paul McCartney: 22%
+— Louis Tomlinson: 16%
+
+https://www.foxnews.com/entertainment/olivia-wilde-breaks-silence-harry-styles-fans-brutal-reaction-10-year-age-gap-romance
+</div>
+
+## pm_afshaa — post 94394
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94394_1781874886.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رویترز به نقل از یک مقام آمریکایی: اسرائیل و حزب‌الله بر سر آتش‌بس از ساعت 4 بعدازظهر به وقت محلی توافق کردن. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5826
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5826_1781874887.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺📢 بازنشسته نیروهای مسلح هستم، با ماهی ۱۴ میلیون تومان حقوق...
+
+#نیروهای_مسلح #تورم
+@DEJradio
+</div>
+
+## IranIntlTV — post 343207
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_343207_1781874887.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+احمد علم‌الهدی، امام جمعه مشهد گفت: «ما در خط فوران خون امام شهید خود با دشمن آمریکایی می‌جنگیم و مبارزه می‌کنیم و ما به هیچ قیمت و مصلحت اندیشی شعار مرگ بر آمریکا را از زبان نخواهیم انداخت و این مبارزه ادامه دارد.»
+
+او ادامه داد: «باید مشخص شود تکلیف خونخواهی رهبر ما چه می‌شود؟»
+
+علم‌الهدی افزود: «اگر همه خسارت‌ها قابل جبران باشد، هیچ سرمایه‌ای بالاتر از از دست دادن امام شهید ما نیست، پس برادران و خواهران انتقام به جای خود باقی است، جنگ تمام شد اما مبارزه تمام نشده است.»
+https://iranintl.com/202606194978
+</div>
+
+## IranIntlTV — post 343206
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_343206_1781874888.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری تسنیم، وابسته به سپاه پاسداران، خواستار ادامه بسته ماندن تنگه هرمز تا زمان توقف حملات اسرائیل و عقب‌نشینی کامل این کشور از خاک لبنان شد.
+
+این رسانه همچنین خواستار لغو همه مذاکرات آتی شد و نوشت ادامه حملات اسرائیل به لبنان و باقی ماندن نیروهای اسرائیلی در جنوب لبنان، به معنای نقض بند نخست تفاهم‌نامه میان جمهوری اسلامی و آمریکا است.
+
+این خبرگزاری افزود اگر جمهوری اسلامی پیش از اجرای تعهدات آمریکا و توقف حملات اسرائیل، تنگه هرمز را باز کند، بخشی از اهرم‌های فشار خود را از دست خواهد داد.
+
+تسنیم همچنین گزارش‌های منتشرشده درباره باز بودن تنگه هرمز را «غیرقابل قبول» خواند و نوشت این موضوع با وعده‌های مقام‌های دولتی و تیم مذاکره‌کننده جمهوری اسلامی همخوانی ندارد.
+https://iranintl.com/202606191942
+</div>
+
+## IranIntlTV — post 343205
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_343205_1781874888.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آیین خاکسپاری مرجان ساتراپی، فیلمساز و هنرمند ایرانی، امروز جمعه در گورستان پرلاشز پاریس با حضور مقام‌های سیاسی و چهره‌های فرهنگی و هنری بین‌المللی برگزار می‌شود. شرکت‌کنندگان در این مراسم یاد این هنرمند و حامی جنبش «زن، زندگی، آزادی» را گرامی می‌دارند.
+
+گزارش ساجده شریفی، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 343204
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_343204_1781874890.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در پی کشته شدن چهار سرباز اسرائیلی، بنیامین نتانیاهو اعلام کرد اسرائیل هیچ حمله‌ای علیه نیروها و خاک خود را تحمل نخواهد کرد و حزب‌الله بهای بسیار سنگینی خواهد پرداخت. هم‌زمان، ارتش اسرائیل از حمله به بیش از ۸۰ هدف در جنوب لبنان خبر داد.
+
+جزییات بیشتر با می فرحات، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## Persian_Trend_Official — post 17576
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17576_1781874891.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تانکر ترکز: ایران در 5 روز گذشته 18 میلیون بشکه نفت به ارزش 1.4 میلیارد دلار از خلیج فارس خارج کرده.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17575
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک مقام ارشد اسرائیلی در مصاحبه با کانال 13: ما در حال حاضر در آتش‌بس هستیم اگر حزب‌الله به ما حمله نکند، برای ما زمان جنگ نیست.
+
+نیروهای ارتش اسرائیل در جنوب لبنان باقی می‌مانند و ما آزادی عمل داریم تا علیه تهدیدات نوظهور و تهدیدهایی که نیروها و قلمرو ما را تهدید می‌کند، اقدام کنیم.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17574
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17574_1781874892.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آتش بس در جنوب لبنان! به گزارش رویترز، اسرائیل و حزب‌الله بر سر آتش‌بس توافق کرده‌اند که قرار است امروز از ساعت 4 بعد از ظهر به وقت محلی آغاز شود. یک مقام آمریکایی گفت: حزب‌الله و اسرائیل بر سر آتش‌بس توافق کرده‌اند و افزود که مذاکره‌کنندگانی از ایالات متحده…
+</div>
+
+## Persian_Trend_Official — post 17573
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_17573_1781874892.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آتش بس در جنوب لبنان!
+
+به گزارش رویترز، اسرائیل و حزب‌الله بر سر آتش‌بس توافق کرده‌اند که قرار است امروز از ساعت 4 بعد از ظهر به وقت محلی آغاز شود.
+
+یک مقام آمریکایی گفت: حزب‌الله و اسرائیل بر سر آتش‌بس توافق کرده‌اند و افزود که مذاکره‌کنندگانی از ایالات متحده و قطر با حمایت ایران به این توافق کمک کردند.
+
+این مقام همچنین گفت: ما می‌دانیم که پس از تبادل آتش در اوایل امروز، اسرائیل و حزب‌الله اکنون در آتش‌بس هستند.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## RadioFarda — post 158505
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_158505_1781874893.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸بنیامین نتانیاهو، نخست‌وزیر اسرائیل، روز جمعه بار دیگر گفت که نیروهای اسرائیلی «تا هر زمان که لازم باشد» در لبنان باقی خواهند ماند و وعده داد که حزب‌اللهِ مورد حمایت ایران برای حملاتش «بهای بسیار سنگینی» خواهد پرداخت.
+
+🔸او روز پنجشنبه، ساعاتی بعد از امضای تفاهم‌نامه پایان دادن به جنگ توسط ایران و آمریکا، نیز بر ادامه حضور ارتش اسرائیل در مناطقی از جنوب لبنان تأکید کرده بود.
+
+🔸نتانیاهو در بیانیه روز جمعه که پس از اعلام کشته شدن چهار سرباز اسرائیلی در لبنان از سوی ارتش منتشر شد، گفت: «اسرائیل حمله به سربازان یا قلمرو خود را تحمل نخواهد کرد و بابت این حملات بهای بسیار سنگینی از حزب‌الله خواهد گرفت.»
+
+🔸او افزود: «اسرائیل تا هر زمان که برای حفاظت از جوامع شمالی لازم باشد، در منطقه امنیتی جنوب لبنان باقی خواهد ماند.»
+
+🔸یسرائیل کاتز، وزیر دفاع، نیز گفته بود که ارتش در لبنان خواهد ماند و افزود که به هر حمله‌ای «با نیروی قابل توجه» پاسخ خواهد داد.
+
+🔸لبنان اعلام کرده بر اثر حملات اسرائیل در سراسر این کشور ۱۸ نفر کشته شده‌اند.
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 22949
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 از همین الان مجدد به طور رسمی بین حزب الله و اسرائیل آتش بس برقرار شد. @IranianMinds
+</div>
+
+## IranianMinds — post 22948
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 مقام ارشد آمریکایی به رویترز: اسرائیل و حزب‌الله توافق کردند که مجدد آتش‌بس از ساعت ۴ بعدازظهر روز جمعه به وقت محلی برقرار شود. @IranianMinds
+</div>
+
+## IranianMinds — post 22947
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22947_1781874893.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پست جدید ترامپ.
+
+@IranianMinds
+</div>
+
+## Hranews — post 113722
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سه شهروند توسط نیروهای امنیتی در زاهدان بازداشت شدند
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– شامگاه روز چهارشنبه ۲۷ خردادماه، سه شهروند به نام‌های فرزاد ظریف‌دل، اقبال شاهوزهی و مهدی دهمرده، در زاهدان توسط نیروهای امنیتی بازداشت و به مکان نامعلومی منتقل شده‌اند.
+
+ادامه مطلب
+
+#فرزاد_ظریف‌دل #اقبال_شاهوزهی #مهدی_دهمرده
+
+↘️
+@hranews_bot تماس ✉️ -  @Hranews  کانال هرانا 🆑
+</div>
+
+## alonews — post 129142
+
+<div align="center">
+  <a href="telegram/content/alonews_129142_1781874894.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / خبرنگار المیادین در جنوب لبنان: همزمان با اجرایی شدن آتش‌بس ، حملهٔ هوایی اسرائیل به النبطیه صورت گرفت.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/29 16:35
 ---
 

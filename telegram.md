@@ -7,6 +7,163 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/29 20:14
+---
+
+## VahidOOnLine — post 246409
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246409_1781887463.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تد کروز، سناتور جمهوری‌خواه، در شبکه ایکس نوشت: «برای من فرقی نمی‌کند ۳۰۰ میلیارد دلار از کجا می‌آید. دادن میلیاردها دلار به حکومت ایران که شعار مرگ بر آمریکا سر می‌دهد، ایده بدی است.»
+
+او افزود: «در توافق با تهران، میلیاردها دلار به دیوانه‌هایی ندهید که می‌خواهند ما را بکشند.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## pm_afshaa — post 94405
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94405_1781887464.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴واشنگتن پست: سازمان‌های اطلاعاتی آمریکا به ترامپ هشدار دادن نتانیاهو سعی در به‌هم زدن توافق با ایران داره.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94404
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94404_1781887465.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴آخوند علم‌الهدی:
+خون‌خواهی رهبرمون با کشتن یک سگ فاسق محقق نمیشه. صدها از این سگ‌ها رو بکشن، یک تار موی علی خامنه‌ای هم نمیشه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5830
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5830_1781887466.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️
+🔺 فریاد «نه به جمهوری اسلامی» در بزرگ‌ترین صحنه فوتبال جهان
+
+گزارش: ایمان صفتی
+
+#فوتبال #جام_جهانی
+@DEJradio
+</div>
+
+## VahidOnline — post 76522
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76522_1781887466.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نعیم قاسم، دبیرکل حزب‌الله لبنان، گفت: «تا زمانی که توان ایستادگی داریم، چرا باید تسلیم شویم؟.»
+او تحویل سلاح‌های حزب‌الله را رد کرد و افزود این سلاح‌ها برای مقابله با اسرائیل هستند.
+نعیم قاسم همچنین گفت که ما تصمیمی «به سبک کربلا» گرفتیم و این تصمیم همچنان به قوت خود باقی است.
+دبیرکل حزب‌الله لبنان ادامه داد: «ما وحدت نیروهای مقاومت را حفظ کرده‌ایم و وحدت جنبش امل، حزب‌الله و سایر نیروها همچنان در کنار ما برقرار است.»
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 343248
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_343248_1781887467.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻تیم ملی فوتبال کانادا در یک بازی یک طرفه با شش گل تیم ملی قطر را شکست داد؛ نمایشی که موجی از هیجان و شادی را در بین کانادایی‌ها به دنبال داشت.
+
+🔹گفت‌وگوی مزدک میرزایی با محمد تقوی و مهسا مرتضوی در هت‌تریک
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 343247
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_343247_1781887469.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تد کروز، سناتور جمهوری‌خواه، در شبکه ایکس نوشت: «برای من فرقی نمی‌کند ۳۰۰ میلیارد دلار از کجا می‌آید. دادن میلیاردها دلار به حکومت ایران که شعار مرگ بر آمریکا سر می‌دهد، ایده بدی است.»
+
+او افزود: «در توافق با تهران، میلیاردها دلار به دیوانه‌هایی ندهید که می‌خواهند ما را بکشند.»
+https://iranintl.com/202606198306
+</div>
+
+## IranianMinds — post 22964
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22964_1781887470.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 خبرگزاری فارس :
+
+قالیباف مجلسو تعطیل کرده انگار اصلا نمیخواد بازش کنه چون بخاطر توافق همه ی نماینده ها میخوان ازش شکایت کنن
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 392591
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392591_1781887471.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴محمد انجوی‌نژاد، مداح حکومتی:
+
+پیام مجتبی خامنه‌ای درباره تفاهم با آمریکا تلخ بود
+آقا رو غریب و پیر زیر آوار بمباران رها کردید، این یکی رو دیگه نمی‌گذاریم...
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392590
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392590_1781887473.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 مملکت پر از سورپرایزه؛ 8 تا دختر اسنپ گرفتن و این شکلی خودشونو تو 206 جا دادن:
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 129183
+
+<div align="center">
+  <a href="telegram/content/alonews_129183_1781887474.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ولادمیر زلنسکی: من به لوکاشنکو یک هفته مهلت می‌دهم تا تجهیزات نظامی را از مرز اوکراین که برای تنظیم آتش توپخانه علیه جمعیت اوکراینی استفاده می‌شود، پس بگیرد.
+
+
+🔴در غیر این صورت، ما خودمان این کار را انجام خواهیم داد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/29 20:04
 ---
 

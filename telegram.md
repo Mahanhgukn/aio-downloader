@@ -7,6 +7,167 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/29 20:54
+---
+
+## pm_afshaa — post 94409
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94409_1781889892.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ان‌بی‌سی: تماس تلفنی ترامپ و نتانیاهو درمورد لبنان 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94408
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94408_1781889893.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ان‌بی‌سی: تماس تلفنی ترامپ و نتانیاهو درمورد لبنان
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 343255
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_343255_1781889894.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رویترز به نقل از یک مقام آمریکایی گزارش داد اسرائیل و حزب‌الله لبنان بر سر برقراری آتش‌بس به توافق رسیده‌اند. این خبر در حالی منتشر می‌شود که درگیری‌ها و حملات متقابل دو طرف در روزهای اخیر شدت گرفته است.
+
+گزارش اردوان روزبه، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 343254
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_343254_1781889896.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ از نتایج جنگ با جمهوری اسلامی دفاع کرد و گفت این حکومت بخش عمده توان هوایی، دریایی و پدافندی خود را از دست داده است.
+هم‌زمان، انتقادها در آمریکا از جنگ و توافق با ایران افزایش یافته است.
+
+گزارش مریم رحمتی، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## FarsiVOA — post 221212
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺اختصاصی؛ بازداشت سه عضو یک خانواده در کامیاران توسط نیروهای رژیم ایران
+
+▪️منابع صدای آمریکا می‌گویند نیروهای اطلاعاتی جمهوری اسلامی صبح ۱۶ خرداد به منزل کژال رحمانی در شهر کامیاران استان کردستان یورش برده‌اند و او را بدون هیچ توضیحی بازداشت کرده‌اند.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/iran-arrest-three-members-of-family-kamyaran/8162642.html/?nocach=1
+</div>
+
+## Persian_Trend_Official — post 17598
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17598_1781889900.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📰 به گزارش واشنگتن پست :
+
+
+👹
+🫥 اطلاعات آمریکا به دولت ترامپ هشدار داده است که اسرائیل احتمالاً تلاش‌های صلح بین آمریکا و ایران را تضعیف خواهد کرد, در حالی که فشار بر دولت نتانیاهو برای ادامه تهاجم به لبنان افزایش یافته است.
+
+
+👺Phantom
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Dirty_Kids — post 392593
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392593_1781889900.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وضعیت دستشویی‌ خوابگاه علوم پزشکی اصفهان:
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392592
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392592_1781889901.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وای چ فیلمی بود😳
+از زاویه به جنگ جهانی پرداخت که اصلا فکر‌
+نکرده بودم
+مخصوصا که بر اساس داستان واقعی هست، اصلا پشمی واسم نموند
+اندرو اسکات بی نظیر بود
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 129197
+
+<div align="center">
+  <a href="telegram/content/alonews_129197_1781889901.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 روزنامه اسرائیل هیوم به ترامپ: می‌توانستی بزرگترین رئیس جمهور تاریخ آمریکا باشی اما رفوزه شدی
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129196
+
+<div align="center">
+  <a href="telegram/content/alonews_129196_1781889901.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تماس تلفنی ترامپ و نتانیاهو
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129195
+
+<div align="center">
+  <a href="telegram/content/alonews_129195_1781889902.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈شبکه NBC: در تماس تلفنی میان ترامپ و نتانیاهو، ترامپ بر توقف حملات اسرائیل به لبنان تاکید کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129193
+
+<div align="center">
+  <a href="telegram/content/alonews_129193_1781889902.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 ان‌بی‌سی: ترامپ اوایل امروز با اسرائیل صحبت کرد و از مقامات اسرائیلی خواست که آتش‌بس با حزب‌الله را بپذیرند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/29 20:44
 ---
 

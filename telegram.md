@@ -7,6 +7,114 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/29 20:44
+---
+
+## VahidOOnLine — post 246415
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246415_1781889258.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+واشینگتن‌پست به نقل از مقام‌های فعلی و سابق آمریکا گزارش داد که سازمان‌های اطلاعاتی ایالات متحده به دولت آمریکا هشدار داده‌اند بنیامین نتانیاهو، نخست‌وزیر اسرائیل، احتمالا اقداماتی انجام خواهد داد که می‌تواند تلاش‌های دولت آمریکا برای رسیدن به یک توافق صلح پایدار با تهران را مختل کند.
+
+به گفته این منابع، نتانیاهو تحت فشار سیاسی قرار دارد تا عملیات نظامی در لبنان را ادامه دهد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## pm_afshaa — post 94407
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نعیم قاسم با آتش بس با اسرائیل مخالفت کرد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 343253
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_343253_1781889259.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+واشینگتن‌پست به نقل از مقام‌های فعلی و سابق آمریکا گزارش داد که سازمان‌های اطلاعاتی ایالات متحده به دولت آمریکا هشدار داده‌اند بنیامین نتانیاهو، نخست‌وزیر اسرائیل، احتمالا اقداماتی انجام خواهد داد که می‌تواند تلاش‌های دولت آمریکا برای رسیدن به یک توافق صلح پایدار با تهران را مختل کند.
+
+به گفته این منابع، نتانیاهو تحت فشار سیاسی قرار دارد تا عملیات نظامی در لبنان را ادامه دهد.
+https://iranintl.com/202606193192
+</div>
+
+## IranIntlTV — post 343252
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_343252_1781889259.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻بلافاصله پس از نمایش ضعیف تیم ملی فوتبال برابر نیوزیلند و ناکامی در نتیجه‌گیری برابر یکی از ضعیف‌ترین تیم‌های جام، بهانه‌جویی واهی درباره ریکاوری و بازیابی آمادگی فردی بازیکنان از سوی کادر فنی تیم ملی آغاز شده است.
+
+🔹گفت‌وگوی مزدک میرزایی با محمد تقوی، رضا محدث و علیرضا مدیری در هت‌تریک
+
+@iranintltvsport
+</div>
+
+## FarsiVOA — post 221211
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺محافظه‌کاری فنی و ملاحظات سیاسی؛ قلعه‌نویی در آزمون جام جهانی
+
+▪️پس از ۲۸ سال بار دیگر یک سرمربی ایرانی در جام جهانی روی نیمکت تیم فوتبال ایران نشسته است؛ اتفاقی که در شرایطی عادی می‌توانست نشانه‌ای از رشد مربیان داخلی و افزایش اعتماد به دانش فنی فوتبال ایران تلقی شود. اما نخستین نمایش ایران در جام جهانی ۲۰۲۶ تحت هدایت امیر قلعه‌نویی، سرمربی ایرانی، به جای تقویت چنین روایتی، بار دیگر مجموعه‌ای از پرسش‌های قدیمی را درباره شیوه انتخاب سرمربی، ترکیب تیم ملی، و نفوذ ملاحظات سیاسی در فوتبال ایران زنده کرده است.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/was-azmoun-dropped-for-politics-/8162628.html/?nocach=1
+</div>
+
+## Persian_Trend_Official — post 17597
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تصاویر از حملات اوکراین به مخازن پالایشگاه نفت کاپوتنه موسکو مهار آتش از کنترل خارج شده کم‌کم‌باید منتظر اورشنیک ها باشیم. 
+👺Phantom 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## RadioFarda — post 158513
+
+<div align="center">
+  <a href="https://t.me/radiofarda/158513" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📻بشنوید: ایستگاه ۱۹ با رادیوفردا، ۲۹ خرداد ۱۴۰۵
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 22966
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 نعیم قاسم با آتش بس با اسرائیل مخالفت کرد
+
+@IranianMinds
+</div>
+
+## alonews — post 129192
+
+<div align="center">
+  <a href="telegram/content/alonews_129192_1781889262.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حمله پهپادی نیروی هوایی اسرائیل علیه یک موتورسیکلت (حزب الله) در حال عبور از جاده‌ای بین زبدین و حروف، غرب النبطیه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/29 20:36
 ---
 

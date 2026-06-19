@@ -7,6 +7,277 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/29 23:36
+---
+
+## VahidOOnLine — post 246431
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_246431_1781899570.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایران‌اینترنشنال در پی راه‌اندازی کارزار کشف حقیقت برای پیدا کردن ابعاد جنایت جمهوری اسلامی در نورآباد ممسنی و هویت جاویدنامان این شهر در جریان انقلاب ملی ایرانیان، به اطلاعاتی درباره مجروحان اعتراضات این شهر دست یافته است؛ کسانی که از ترس بازداشت، هنور درمان نشده‌اند.
+فرنوش فرجی، عضو تحریریه ایران‌اینترنشنال گزارش می‌دهد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 15357
+
+<div align="center">
+  <img src="telegram/content/WithYashar_15357_1781899573.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ در پایگاه نیروی هوایی اندروز از یک هواپیمای موقت جدید ریاست‌جمهوری رونمایی کرد؛ یک جت لوکس که توسط قطر اهدا و عبارت «ایالات متحده آمریکا» بر روی آن درج شده است.
+@withyashar
+</div>
+
+## WithYashar — post 15356
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: حدود ۷۰۰ کشتی از تنگه هرمز عبور می‌کنند
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 343178
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343178_1781899574.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+President Trump steps off the new Air Force One and is immediately greeted by service members at Joint Base Andrews.
+</div>
+
+## IranIntlTV — post 343280
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_343280_1781899577.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایران‌اینترنشنال در پی راه‌اندازی کارزار کشف حقیقت برای پیدا کردن ابعاد جنایت جمهوری اسلامی در نورآباد ممسنی و هویت جاویدنامان این شهر در جریان انقلاب ملی ایرانیان، به اطلاعاتی درباره مجروحان اعتراضات این شهر دست یافته است؛ کسانی که از ترس بازداشت، هنور درمان نشده‌اند.
+فرنوش فرجی، عضو تحریریه ایران‌اینترنشنال گزارش می‌دهد.
+</div>
+
+## Persian_Trend_Official — post 17622
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://youtube.com/live/S_GCQu5zgZA?feature=share
+</div>
+
+## Persian_Trend_Official — post 17621
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17621_1781899581.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ در مورد ایران: اگر الان به آنها حمله می‌کردم، اگر قرار نبود نیروی نظامی وارد کنیم، احتمالاً همان افراد به اعماق غارها می‌رفتند. به آنها غارهای گرانیتی می‌گویند. آنها بسیار قدرتمند هستند.
+
+آنها به اعماق می‌روند، و وقتی ما متوقف شویم، آنها بالا می‌آیند، و احتمالاً همان رهبران خواهند بود. ما الان تنگه هرمز را کاملاً بسته داشتیم.
+
+همه جای آن مین‌گذاری می‌شد و موشک‌هایی بر فراز کشتی‌های میلیارد دلاری پرواز می‌کردند. آن کشتی‌ها هرگز حرکت نمی‌کردند. ما برای ماه‌ها نفت نداشتیم.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17620
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17620_1781899584.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرنگار: این تغییر رژیم چگونه است؟ شما خامنه‌ای پسر را در ایران دارید.
+
+ترامپ: خامنه‌ای پسر با پدرش فرق دارد. آنها آدم‌های متفاوتی هستند.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17619
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17619_1781899587.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ درباره مجتبی خامنه‌ ای: من آیت‌الله را کشتم و متأسفانه به آیت‌الله دیگر هم آسیب رساندم.
+
+من او را ملاقات نکردم. با او صحبت نکردم، اما مردم درباره او صحبت می‌کردند. اما او شجاعت خاصی دارد زیرا به شدت مجروح شده بود.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17618
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17618_1781899590.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: من از رئیس‌جمهور چین خواهش کردم و گفتم واقعاً ممنون می‌شوم خودتان را درگیر ماجرای ایران نکنید.
+
+او می‌توانست وارد این موضوع شود. او می‌توانست یک نفت‌کش بزرگ را به همراه دوازده ناوشکن به منطقه بفرستد تا ببیند آیا می‌تواند با درگیری، راه خود را از میان محاصره باز کند یا نه.
+
+اهمیت محاصره‌ای که انجام دادیم دقیقاً به اندازهٔ تمام بمباران‌هایی بود که انجام دادیم.
+
+من از رئیس‌جمهور شی خواهش کردم و گفتم: «واقعاً ممنون می‌شوم اگر خودتان را درگیر این ماجرا نکنید.» و او فوق‌العاده عمل کرد و وارد این قضیه نشد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 22975
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22975_1781899593.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ:
+می‌خوام از چین تشکر کنم. من از شی خواستم که وارد ماجرای ایران نشه؛ اونم گفت نمی‌شه و واقعاً هم نشد. حرکت خیلی خوبی بود.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22974
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22974_1781899595.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ:
+ایران ۶۰ روز وقت داره که به یه توافق برسه. اگه نرسه، ما یه کارایی می‌کنیم که اصلاً خوششون نمیاد. البته فکر نمی‌کنم کار به اونجا بکشه. ولی اگه بکشه، اون‌وقت دیگه نفت از اون تنگه (هرمز) راحت جریان پیدا نمی‌کنه.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 284430
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻پس از آغاز آتش‌بس دو نفر در جنوب لبنان در حملات هوایی اسرائیل کشته شدند
+
+🔻رسانه‌های دولتی لبنان می‌گویند که دو نفر پس از اجرای توافق آتش‌بس در حمله پهپادی اسرائیل به جنوب لبنان کشته شدند.
+
+گزارش‌ها حاکی است که اسرائیل اندکی پس از اعلام توافق آتش‌بس میان آمریکا و حزب‌الله، بیش از ۱۰ حمله هوایی به مناطق جنوب لبنان انجام داده است.
+
+یک مقام ارشد آمریکایی تایید کرده است که دو طرف با اجرای توافق آتش‌بس موافقت کرده‌اند.
+
+روزنامه اسرائیلی یدیعوت آحارونوت به نقل از منابعی در دولت گزارش داده است که اسرائیل اعلام کرده که این آتش‌بس تا زمانی که حزب‌الله به آن پایبند باشد، برقرار خواهد ماند. با این حال، ارتش اسرائیل همچنان در جنوب لبنان حضور نظامی خود را حفظ خواهد کرد.
+
+https://bbc.in/4voMgBx
+@BBCPersian
+</div>
+
+## BBCPersian — post 284429
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻عون: آتش‌بس جامع شرط پیشرفت مذاکرات لبنان و اسرائیل است
+
+🔻جوزف عون، رئیس‌جمهوری لبنان، در گفت‌وگوی تلفنی با مارکو روبیو، وزیر خارجه آمریکا، تاکید کرد که برای پیشرفت مذاکرات با اسرائیل، برقراری یک آتش‌بس جامع ضروری است.
+
+بر اساس بیانیه ریاست‌جمهوری لبنان، آقای عون ضمن قدردانی از حمایت‌های آمریکا، بر «لزوم توقف حملات اسرائیل به خاک لبنان از طریق دستیابی به یک آتش‌بس فراگیر» تاکید کرد.
+
+در این بیانیه آمده است که لبنان دستیابی به آتش‌بس جامع را «پایه‌ای اساسی برای پیشبرد مذاکرات لبنان، آمریکا و اسرائیل» می‌داند.
+
+این مذاکرات قرار است هفته آینده در واشنگتن برگزار شود.
+
+https://bbc.in/4vmsLJT
+@BBCPersian
+</div>
+
+## alonews — post 129251
+
+<div align="center">
+  <a href="telegram/content/alonews_129251_1781899597.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: ما سفرهای زیادی انجام می‌دهیم. به ترکیه خواهیم رفت.
+
+
+🔴در مقطعی، برای یک کنفرانس بزرگ به چین باز خواهیم گشت
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129250
+
+<div align="center">
+  <a href="telegram/content/alonews_129250_1781899599.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈شورای اروپا: آماده حمایت از اجرای توافق ایران و آمریکا هستیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129249
+
+<div align="center">
+  <a href="telegram/content/alonews_129249_1781899600.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: اگر با ایران به توافق نرسیم، کارهایی خواهیم کرد که آنها را خوشحال نکند، اما فکر نمی‌کنم این کار را بکنیم.
+
+
+🔴 توافق هسته‌ای ۲۰۱۵ با ایران یک فاجعه بود
+
+
+🔴 من با رهبر جدید ایران صحبت نکرده‌ام، اما او شجاعت خاصی دارد.
+
+
+🔴 من از موضع قدرت مذاکره کردم چون نیروی دریایی و هوایی ایران نابود شده است.
+
+
+🔴 کشتی‌ها به طور بی‌سابقه‌ای در حال عبور از تنگه هرمز هستند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129248
+
+<div align="center">
+  <a href="telegram/content/alonews_129248_1781899600.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: حدود ۷۰۰ کشتی از تنگه هرمز عبور می‌کنند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129247
+
+<div align="center">
+  <a href="telegram/content/alonews_129247_1781899600.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 ترامپ از هدیه قطر رونمایی کرد!
+
+
+🔴ترامپ در پایگاه نیروی هوایی اندروز از یک هواپیمای موقت جدید ریاست‌جمهوری رونمایی کرد؛ یک جت لوکس که توسط قطر اهدا و عبارت «ایالات متحده آمریکا» بر روی آن درج شده است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/29 23:26
 ---
 

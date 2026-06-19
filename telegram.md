@@ -7,6 +7,144 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/29 13:24
+---
+
+## WithYashar — post 15313
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مشاور هیئت مذاکره‌کننده ایرانی، مرندی:
+نظام ترامپ به توافق پایبند نیست. و ایران در این شرایط یادداشت تفاهم را اجرا نخواهد کرد. اقتصاد آمریکا در معرض فروپاشی است و اسرائیل مجازات خواهد شد.
+@withyashar
+</div>
+
+## pm_afshaa — post 94380
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94380_1781862871.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وزیر امور خارجه پاکستان: علت آغاز نشدن مذاکرات سوئیس به دغدغه مقامات ایرانی به مراسم ماه محرم مربوط میشه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94379
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94379_1781862871.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کانال 12 اسرائیل: در واکنش به نقض‌های مکرر از سوی حزب‌الله، ارتش اسرائیل بیش از 80 هدف رو در جنوب لبنان هدف قرار داد و ده‌ها نیروی حزب‌الله رو از بین برد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 343184
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_343184_1781862872.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لغو مذاکرات روز جمعه تهران و واشینگتن در بورگن‌اشتوک، ابهام‌هایی را درباره مرحله بعدی گفت‌وگوها ایجاد کرده است. وب‌سایت اکسیوس به نقل از یک مقام آمریکایی گزارش داد مواضع جمهوری اسلامی درباره آنچه نقض آتش‌بس در لبنان از سوی اسرائیل خوانده شده، ممکن است از دلایل برگزار نشدن این مذاکرات باشد.
+
+احمد صمدی و مهران عباسیان، خبرنگاران ایران‌اینترنشنال، از بورگن‌اشتوک گزارش می‌دهند
+@iranintltv
+</div>
+
+## Persian_Trend_Official — post 17544
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17544_1781862874.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حملات هوایی اسرائیل در سراسر جنوب و شرق لبنان متوقف نشده است. تا کنون بیش از ۵۰ حمله انجام شده است. 
+👺Phantom 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Dirty_Kids — post 392561
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 پس از بمباران بیش از ۶۰ نقطه در جنوب لبنان در صبح امروز، کاتز وزیر دفاع اسرائیل اعلام کرد: ما آنها را مثل غزه نابود خواهیم کرد! به هیچکدام آواره‌های آنها (حداقل ۲۰۰ هزار نفر روستایی‌های شیعه هم‌مرز با اسرائیل و دست‌کم ۲۵۰ هزار آواره دیگر) اجازه نمی‌دهیم…
+</div>
+
+## Dirty_Kids — post 392560
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392560_1781862875.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 پس از بمباران بیش از ۶۰ نقطه در جنوب لبنان در صبح امروز، کاتز وزیر دفاع اسرائیل اعلام کرد:
+ما آنها را مثل غزه نابود خواهیم کرد!
+به هیچکدام آواره‌های آنها (حداقل ۲۰۰ هزار نفر روستایی‌های شیعه هم‌مرز با اسرائیل و دست‌کم ۲۵۰ هزار آواره دیگر) اجازه نمی‌دهیم برگردند.
+
+هیچکس نمی‌تواند به ما بگوید چکار کنیم یا نکنیم!
+
+ما به سوریه و جولانی که یک تروریست سابق است و اکنون کت و شلوار پوشیده نیازی نداریم.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Hranews — post 113716
+
+<div align="center">
+  <img src="telegram/content/Hranews_113716_1781862876.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مناسب سازی معابر و فضاهای شهری، حمل‌ونقل عمومی و ساختمان‌ها یکی از مهمترین مشکلات افراد دارای معلولیت در تهران محسوب می شود. به گفته افرادی که از ویلچر استفاده می‌کنند، خروج از خانه در مواقع اضطراری، به دلیل وجود پله‌ها، نبود رمپ، قطعی برق در هنگام استفاده از آسانسورها زندگی آنها را مشکل‌ساز کرده و حتی جان این شهروندان را به خطر انداخته است.
+
+کیانوش ذاکرحقیقی، استاد گروه شهرسازی دانشگاه آزاد واحد تهران جنوب در این خصوص به عصرایران گفت: مسئله فقط مربوط به افراد دارای معلولیت نیست، تهران حتی برای کودک، سالمند و در برخی موارد حتی برای عابر پیاده عادی هم مناسب نیست. وی همچنین تاکید کرد که تقریباً در هیچ‌ کدام از پارک‌های شهری امکانات مناسب برای کودکان دارای معلولیت یا کم‌توان وجود ندارد. حتی برای کودکان اوتیستیک نیز فضاهای شهری مناسب‌سازی نشده و محیط‌ها برای آن‌ها امن و پذیرنده نیست.
+
+↘️
+@hranews_bot تماس ✉️ -  @Hranews  کانال هرانا 🆑
+</div>
+
+## alonews — post 129106
+
+<div align="center">
+  <a href="telegram/content/alonews_129106_1781862877.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزیر امور خارجه پاکستان: هیچ مانعی برای شروع مذاکرات سوئیس وجود ندارد/دلیل تأخیر در مذاکرات سوئیس مربوط به مشغول بودن مقامات ایرانی با آیین‌های ماه محرم است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129105
+
+<div align="center">
+  <a href="telegram/content/alonews_129105_1781862877.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 سخنگوی ارتش اسرائیل: دقایقی پیش زیرساخت‌هایی متعلق به حزب‌الله را در منطقه بقاع را هدف قرار دادیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129104
+
+<div align="center">
+  <a href="telegram/content/alonews_129104_1781862877.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ارتش اسرائیل: بیش از ۸۰ نقطه تو لُبنان هدف قرار دادیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/29 13:14
 ---
 

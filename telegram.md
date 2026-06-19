@@ -7,6 +7,195 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/29 23:05
+---
+
+## VahidOOnLine — post 246429
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246429_1781897709.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهوری آمریکا، در گفت‌وگو با اکسیوس درباره رهبر جمهوری اسلامی گفت: «مجتبی خامنه‌ای به‌شدت آسیب دیده است. من هرگز او را ملاقات نکرده‌ام، اما او نوعی شجاعت دارد.»
+
+ترامپ افزود: «خامنه‌ای جوان‌تر با پدرش تفاوت دارد. همچنین افرادی را می‌بینیم که در مقایسه با دو گروه قبلی، که هر دو را می‌شناختم، بسیار کمتر رادیکال هستند.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 15346
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روزنامه اسرائیل هیوم به ترامپ: می‌توانستی بزرگترین رئیس جمهور تاریخ آمریکا باشی اما رفوزه شدی
+@withyashar
+</div>
+
+## WithYashar — post 15345
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رهبر حزب الله، نعیم قاسم با آتش بس با اسرائیل مخالفت کرد
+@withyashar
+</div>
+
+## WithYashar — post 15344
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+واشنگتن پست: سازمان اطلاعات آمریکا اعلام کرده که اسرائیل به طور فعال در تلاش است تا یادداشت تفاهم ایران و آمریکا را بر هم بزند.
+@withyashar
+</div>
+
+## IranIntlTV — post 343277
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_343277_1781897710.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهوری آمریکا، در گفت‌وگو با اکسیوس درباره رهبر جمهوری اسلامی گفت: «مجتبی خامنه‌ای به‌شدت آسیب دیده است. من هرگز او را ملاقات نکرده‌ام، اما او نوعی شجاعت دارد.»
+
+ترامپ افزود: «خامنه‌ای جوان‌تر با پدرش تفاوت دارد. همچنین افرادی را می‌بینیم که در مقایسه با دو گروه قبلی، که هر دو را می‌شناختم، بسیار کمتر رادیکال هستند.»
+https://iranintl.com/202606194599
+</div>
+
+## FarsiVOA — post 221234
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️چالش‌های اتحادیه اروپا در نشست سران در بروکسل؛ اختلاف بر سر تامین مالی، اوکراین و چین
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221233
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺دیدگاه | جدال جمهوری اسلامی بر سر تنگه هرمز به کشورهای اروپایی رسید
+
+▪️با امضای یادداشت تفاهم ایالات متحده و جمهوری اسلامی، برداشت رژیم ایران از چگونگی بازگشایی تنگه هرمز، با دیدگاه کشورهای منطقه و اتحادیه اروپا، در تعارض قرار گرفته است. جمهوری اسلامی اصرار دارد که بگوید، تفاهم به دست آمده، فقط برای ۶۰ روز، کشتیرانی آزاد بدون اخذ عوارض در تنگه هرمز کفایت می‌کند. اما بعد از آن با استناد به بند ۵ یادداشت تفاهم امضا شده، «با رایزنی با کشورهای عربی اطراف تنگه هرمز، به ویژه پادشاهی عمان، و رعایت قوانین بین‌المللی، می‌تواند تحت عنوان ارائه خدمات دریايی، بر عبور ومرور کشتی‌ها در این تنگه، عوارض ببندد.»
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/opinion-iran-s-strait-of-hormuz-dispute-reaches-europe/8162617.html
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 17613
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_17613_1781897710.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ در مصاحبه با شبکه NBC نیوز گفت که اوایل امروز با مقامات اسرائیلی صحبت کرده و از آنها خواسته است که با آتش بس با حزب الله موافقت کنند.
+
+ترامپ در مورد این توافق گفت: این یک نکته مثبت است و افزود: این کمی شبیه تزیین کیک است.
+
+او از پاسخ به این سوال که آیا مستقیماً با نخست وزیر اسرائیل، نتانیاهو، صحبت کرده است یا خیر، خودداری کرد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17612
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به گفته منابع عبری، مارکو روبیو، وزیر امور خارجه ایالات متحده و بنیامین نتانیاهو، نخست وزیر اسرائیل به زودی تماس تلفنی خواهند داشت.
+
+بنابر گزارش‌ها، این تماس تلفنی بر لبنان متمرکز خواهد بود.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17611
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17611_1781897711.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+زلنسکی: من به الکساندر لوکاشنکو، رئیس جمهور بلاروس یک هفته فرصت می‌دهم تا تجهیزات نظامی را که برای تنظیم آتش توپخانه علیه مردم اوکراین استفاده می‌شود، از مرز اوکراین خارج کند.
+
+زیرا در حال حاضر، غیرنظامیان ما هر روز می‌میرند، کودکان زخمی می‌شوند. اگر او این کار را نکند، ما این کار را خواهیم کرد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17610
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_17610_1781897712.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دریاسالار برد کوپر، فرمانده سنتکام: من به 15000 زن و مرد یونیفرم‌ پوشمان که در دو ماه گذشته از محاصره حمایت کردند، بسیار افتخار می‌کنم.
+
+فداکاری و حرفه‌ای‌گری آنها هر روز به طور کامل به نمایش گذاشته شد و اجرای دقیق تحریم‌ها را تضمین کرد و در عین حال از جریان کمک‌های بشردوستانه نیز پشتیبانی نمود.
+
+هیچ ماموریتی برای جنگجویان ما که قدرتمندترین ارتش جهان را تشکیل می‌دهند، بزرگ نیست.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 22972
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22972_1781897713.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴۹ فروند هواپیمای سوخت‌رسان نیروی هوایی آمریکا به همراه جنگنده‌ها، در حال حاضر در منطقه خلیج‌فارس و تنگه هرمز فعال هستند.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 284428
+
+<div align="center">
+  <a href="telegram/content/BBCPersian_284428_1781897713.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻آخرین خبرهای مهم روز جمعه ۲۹ خرداد ۱۴۰۵
+@BBCPersian
+</div>
+
+## alonews — post 129242
+
+<div align="center">
+  <a href="telegram/content/alonews_129242_1781897715.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈زلنسکی: اگر لوکاشنکو می‌گوید که نمی‌خواهد به این جنگ کشیده شود، باید حداقل با مردم خودش صادق باشد.
+
+
+🔴زیرا او کسی نیست که بتواند به جنگ کشیده شود. کشوری است که او در آن زندگی می‌کند که می‌تواند توسط روسیه به جنگ کشیده شود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129241
+
+<div align="center">
+  <a href="telegram/content/alonews_129241_1781897717.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پرزیدنت ترامپ با انتشار نظرسنجی ای نوشت: توافقی بسیار محبوب، به جز برایِ فیک نیوز ها و شریک آنها، دوموکرات ها!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/29 22:55
 ---
 

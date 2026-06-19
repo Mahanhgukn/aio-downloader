@@ -7,6 +7,186 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/29 09:14
+---
+
+## IranIntlTV — post 343149
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_343149_1781847846.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مهرداد قاسمفر، روزنامه‌نگار و تحلیل‌گر مسائل ایران، گفت توافق خارجی جمهوری اسلامی باعث شده است شکاف میان «کارتل‌های حاضر» در ساختار قدرت بیش از پیش عمیق شود.
+@iranintltv
+</div>
+
+## FarsiVOA — post 221164
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_221164_1781847848.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت خارجه سوئیس با انتشار بیانیه‌ای اعلام کرد مذاکراتی که قرار بود روز جمعه میان ایالات متحده و ایران در اقامتگاه کوهستانی بورگن‌اشتوک در سوئیس برگزار شود، انجام نخواهد شد.
+
+این اعلام پس از آن صورت گرفت که کاخ سفید پنج‌شنبه اعلام کرد که جی‌دی ونس، معاون رئیس‌جمهوری آمریکا، سفر خود به سوئیس را که قرار بود برای رهبری دور جدید مذاکرات با جمهوری اسلامی درباره برنامه هسته‌ای آن انجام شود، به تعویق انداخته است.
+
+پیشتر شبکه المیادین، یک شبکه نزدیک به حزب‌الله، گزارش داد که جمهوری اسلامی اعزام هیئت مذاکره‌کننده خود به سوئیس را به دلیل ادامه عملیات نظامی اسرائیل در لبنان به تعویق انداخته است.
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 17526
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17526_1781847849.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت امور خارجه سوئیس اعلام کرد که مذاکرات آمریکا و ایران که قرار بود روز جمعه برگزار شود، برگزار نخواهد شد.
+
+رسانه‌های غربی این خبر را به نقل از وزارت امور خارجه سوئیس گزارش دادند. پیش از این امروز، کاخ سفید اعلام کرد که جی دی ونس، معاون رئیس جمهور آمریکا، پرواز خود به سوئیس برای امضای تفاهم‌نامه با ایران را لغو کرده است. با این حال، واشنگتن ابراز امیدواری کرد که مذاکرات فنی با تهران در اسرع وقت آغاز شود.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17525
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_17525_1781847850.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ در مورد ایران: تنها راهی که می‌توانم سخت‌تر شوم این است که دو یا سه هفته دیگر به آنجا بروم و به بمباران وحشتناک آنها ادامه دهم، درست است؟
+
+اما این به چه چیزی منجر می‌شود؟ تنگه هرمز باز نخواهد شد. ما ماه‌ها نفت نخواهیم داشت. تا زمانی که بمب می‌اندازید، آن تنگه به طور خودکار بسته است.
+
+این همان چیزی است که می‌تواند باعث رکود جهانی شود.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17524
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17524_1781847850.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرنگار: در آغاز مناقشه ایران، شما در مورد اینکه فقط تسلیم بی‌قید و شرط می‌خواهید صحبت کردید. این تفاهم‌نامه به نظر تسلیم بی‌قید و شرط نمی‌رسد.
+
+ترامپ: احتمالاً تسلیم بی‌قید و شرط است. من هم همینطور فکر می‌کنم.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17523
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17523_1781847852.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ در مورد ایران: ما با اختلاف قدرتمندترین ارتش جهان را داریم. چه کس دیگری می‌توانست چنین محاصره‌ای انجام دهد؟
+
+من یک محاصره دریایی انجام دادم که حتی یک کشتی هم نتوانست از آن عبور کند. برخی تلاش کردند. آنها خیلی دوام نیاوردند.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17522
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17522_1781847854.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرنگار اکسیوس: شما نه تنها در مورد اعمال قدرت، بلکه در مورد محدودیت‌های قدرت خود در نتیجه درگیری با ایران چه آموخته‌اید؟
+
+ترامپ: هیچ محدودیتی وجود ندارد. من هنوز این درس را نیاموخته‌ام. می‌دانم که وجود دارد، اما می‌دانید، هیچ محدودیتی وجود ندارد. ما آنها را کاملاً از نظر نظامی شکست دادیم.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## alonews — post 129035
+
+<div align="center">
+  <a href="telegram/content/alonews_129035_1781847856.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزیر امنیت داخلی اسرائیل خطاب به معاون ترامپ: هر کس به ما پشت کند زیان خواهد دید
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129034
+
+<div align="center">
+  <a href="telegram/content/alonews_129034_1781847856.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈اکسیوس: در مورد نه تنها اعمال قدرت، بلکه محدودیت‌های قدرت خود به عنوان نتیجه از درگیری ایران چه آموخته‌اید؟
+
+
+🔴ترامپ: هیچ محدودیتی وجود ندارد. من هنوز آن درس را نیاموخته‌ام. می‌دانم که وجود دارند، اما می‌دانید، هیچ محدودیتی وجود ندارد. ما آن‌ها را کاملاً از نظر نظامی شکست دادیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129033
+
+<div align="center">
+  <a href="telegram/content/alonews_129033_1781847858.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خبرنگار: در آغاز درگیری ایران، شما صحبت کردید که فقط تسلیم بی‌قید و شرط را می‌خواهید. تفاهم‌نامه شبیه تسلیم بی‌قید و شرط به نظر نمی‌رسد.
+
+
+🔴ترامپ: واقعاً احتمالاً تسلیم بی‌قید و شرط است. من اینطور فکر می‌کنم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129032
+
+<div align="center">
+  <a href="telegram/content/alonews_129032_1781847860.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ درباره ایران:
+ما قدرتمندترین ارتش جهان را داریم، به مراتب. چه کسی دیگر می‌توانست چنین محاصره‌ای را انجام دهد؟
+
+
+🔴من یک محاصره دریایی انجام دادم که هیچ کشتی‌ای نتوانست از آن عبور کند. برخی تلاش کردند. خیلی طولانی نبود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129031
+
+<div align="center">
+  <a href="telegram/content/alonews_129031_1781847862.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈لارنس نورمن، خبرنگار وال استریت ژورنال: اگر مذاکرات، بعد از چندین بار امضای یک یادداشت تفاهم، باز هم لغو شده، واقعاً این سوال وجود دارد که آیا این آدم‌ها اصلاً می‌توانند به یک توافق نهایی و کامل برسند یا نه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/29 09:04
 ---
 

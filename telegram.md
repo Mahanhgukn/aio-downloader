@@ -7,6 +7,148 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/29 18:26
+---
+
+## pm_afshaa — post 94401
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94401_1781880984.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴محمدمنان رییسی، نماینده مجلس: خوش‌انصاف‌ها مجلس رو باز کنید، رهبرم تنها مونده. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94400
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94400_1781880985.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴محمدمنان رییسی، نماینده مجلس:
+خوش‌انصاف‌ها مجلس رو باز کنید، رهبرم تنها مونده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## Iliaen — post 4502
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پس خبر برقراری آتش‌بس در لبنان از ساعت ۴ عصر و بازگشت دوباره تنگه هرمز به وضعیت تفاهم، سخنگوی وزارت خارجه جمهوری اسلامی، تمام تنش‌های امروز را تکذیب کرد و گفت هیچ مشکلی جهت تردد وجود ندارد.
+
+به عبارت دیگر نه خانی آمده ، نه خانی رفته است!
+
+این در صورتی است که براساس گزارش از یک منبع در سیریک، یک ملوان کشتی در نزدیک تنگه هرمز و اسناد مرتبط به پیام سپاه، این تنش در ساعات ۱۳:۴۰ الی ۱۴:۱۵ امروز جمعه درجهت برقراری آتش‌بس در لبنان ادامه داشت و سپس با دخالت قطر و ایالات متحده، تصمیم بر حل و فصل موضوع بدون رسانه‌ای شدن شد.
+
+@iliaen
+</div>
+
+## DW_Farsi — post 126188
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶تمدید یک ساله تحریم‌های روسیه توسط اتحادیه اروپا
+
+یک سخنگوی آنتونیو کوستا، رئیس شورای اروپا، اعلام کرد رهبران کشورهای عضو اتحادیه اروپا شامگاه پنج‌شنبه ۱۸ ژوئن (۲۸ خرداد) در نشستی در بروکسل بر سر تمدید یک ساله تحریم‌ها علیه روسیه موافقت کردند.
+
+اتحادیه اروپا از زمان آغاز حمله نظامی روسیه به اوکراین در سال ۲۰۲۲، اقدامات تنبیهی گسترده‌ای را علیه مسکو اعمال کرده است. این تحریم‌ها به ویژه درآمدهای روسیه از طریق فروش جهانی نفت و سوخت‌های فسیلی، صنعت تسلیحات این کشور و مؤسسات مالی را هدف قرار می‌دهد.
+
+بنا بر گزارش‌ها، متن قانونی تمدید یک ساله تحریم‌ها علیه روسیه در هفته‌های آینده به تصویب شورای وزیران اتحادیه اروپا برسد، هر چند این اقدام بیشتر جنبه تشریفاتی دارد. رهبران اتحادیه اروپا در بیانیه پایانی نشست خود تأکید کرده‌اند که این اتحادیه مصمم است "فشار بر روسیه را همچنان افزایش دهد و اقتصاد جنگی این کشور را بیش از پیش تضعیف کند تا روسیه به جنگ تهاجمی خود پایان داده و به طور جدی وارد مذاکرات صلح شود".
+
+@dw_farsi
+</div>
+
+## IranianMinds — post 22953
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22953_1781880986.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴این دیگه چیه؟ شیر هست؟ واجبی بهش زدن؟
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 284402
+
+<div align="center">
+  <a href="telegram/content/BBCPersian_284402_1781880989.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مسکو دیروز ۲۸ خرداد (۱۸ ژوئن) هدف بزرگ‌ترین حمله هوایی اوکراین، از زمان آغاز جنگ تا کنون قرار گرفت.
+ بر اثر این حمله پالایشگاه نفت مسکو آتش گرفت و ستون‌های عظیم دود به آسمان بلند شد.
+ 
+وزارت دفاع روسیه اعلام کرد که در طول ۲۴ ساعت، تقریباً هزار پهپاد و چهار موشک کروز اوکراین را در سراسر این کشور رهگیری و منهدم کرده است.
+ مقامات اوکراین هم گفتند این حمله پاسخی به حمله روسیه به یک صومعه تاریخی در کی‌یف بود که ۱۵ ژوئن صورت گرفته بود.
+ 
+ساکنان جنوب ‌شرق مسکو به بی‌بی‌سی گفتند که در پی انفجار پالایشگاه، بارانی ریز، لکه‌های «سیاه و ناخوشایند» روی لباس‌هایشان برجای گذاشته است، در صورتی که مقامات مسکو بارش هرگونه «باران نفتی» را رد کردند.
+  
+سرگی لاوروف وزیر خارجه روسیه در واکنش به این حمله گفت که حملات تلافی‌حویانه به اوکراین «در مقیاسی گسترده» انجام خواهد شد و افزود که «مدت‌هاست قانع شده که حرف به‌تنهایی کافی نیست».
+
+@bbcpersian
+</div>
+
+## Dirty_Kids — post 392581
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392581_1781880992.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏امام حسین همه‌ی جنـــــده‌هاشو فرا خوانده:))
+
+قبلاً تو هیئت هاشون شیر میبردن الان پلنگ میبرن
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392580
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392580_1781880992.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏یه چیزی گفت که تا ابد می‌تونم بشینم گریه کنم براش.
+پ.ن: اکانت حورس سایبریه.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392579
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392579_1781880993.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بیچاره هی پاش رو نگاه می‌کرد باورش نمی‌شد چی داره میبینه.
+
+(بهترین بازیکن کانادا)
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 129161
+
+<div align="center">
+  <a href="telegram/content/alonews_129161_1781880993.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈محمدمنان رییسی، نماینده مجلس:
+خوش‌انصاف‌ها(منظورش قالیباف) مجلس رو باز کنید، رهبرم تنها مونده.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/29 18:15
 ---
 

@@ -7,6 +7,123 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/29 12:04
+---
+
+## WithYashar — post 15303
+
+<div align="center">
+  <a href="telegram/content/WithYashar_15303_1781858078.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کاتز وزیر دفاع اسرائیل: هیچ کس نمی تواند به ما بگوید چه کار کنیم و ما آن را ثابت کرده ایم.
+@withyashar
+</div>
+
+## IranIntlTV — post 343174
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/343174" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی برنامه با کامبیز حسینی؛ آیا «کودتای خزنده قالیباف» پیروز می‌شود؟
+@iranintlTV
+</div>
+
+## IranianMinds — post 22927
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22927_1781858080.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 کاتز ، وزیر جنگ اسرائیل :
+
+ما از هیچ‌ منطقه امنیتی خارج‌ نخواهیم شد ، بلکه پیشروی نیز خواهیم‌ کرد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22926
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22926_1781858082.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 کاتز ، وزیر جنگ اسرائیل :
+
+یادتان هست عملیات‌های قبلی را؟ می‌رفتند داخل و سریع برمی‌گشتند بیرون.
+
+ما میرویم داخل، نابود می‌کنیم و دیگر خارج نمی‌شویم.
+همین کاری است که الان در لبنان داریم انجام می‌دهیم.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22925
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22925_1781858084.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 کاتز ، وزیر جنگ اسرائیل :
+
+میدونید چه چیزی این جهادی ها و تروریست هارو خیلی‌ اذیت میکنه ؟
+
+اینکه بیایم خانه و زندگیشان را نابود کنیم ! دقیقا همینکاری که ما داریم انجام میدیم.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22924
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22924_1781858085.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 کاتز ، وزیر‌ جنگ اسرائیل :
+
+ما هیچ‌ نیازی به جولانی رئیس جمهور سوریه یک تروریست کت و شلواری نداریم ، بهتره تو کار ما دخالت نکنه و تو کشور خودش بمونه
+
+و اگرنه ما میایم و توی کار های اونا دخالت میکنیم!
+
+@IranianMinds
+</div>
+
+## alonews — post 129076
+
+<div align="center">
+  <a href="telegram/content/alonews_129076_1781858087.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کاتز وزیر دفاع اسرائیل: هیچ کس نمی تواند به ما بگوید چه کار کنیم و ما آن را ثابت کرده ایم. 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129075
+
+<div align="center">
+  <a href="telegram/content/alonews_129075_1781858087.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حرکت گسترده مهاجرت از شهرستان‌های صور و بنت جبیل به سمت صیدا و بیروت
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129074
+
+<div align="center">
+  <a href="telegram/content/alonews_129074_1781858088.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کاتز وزیر دفاع اسرائیل: هیچ کس نمی تواند به ما بگوید چه کار کنیم و ما آن را ثابت کرده ایم.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/29 11:54
 ---
 

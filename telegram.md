@@ -7,6 +7,95 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/29 15:44
+---
+
+## VahidOOnLine — post 246370
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246370_1781871279.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️وزیر امور خارجه ایتالیا روز جمعه اعلام کرد در واکنش به گزارش‌ها درباره اظهارات دونالد ترامپ، رئیس‌جمهوری آمریکا، سفر برنامه‌ریزی‌شده خود به ایالات متحده را لغو می‌کند.
+
+آنتونیو تایانی که قرار بود روزهای ۲۱ و ۲۲ ژوئن به آمریکا سفر کند، در شبکه اکس نوشت: «سخنان شدیدا توهین‌آمیز رئیس‌جمهوری ترامپ… به همه مردم ایتالیا اهانت می‌کند.»
+
+جورجا ملونی، نخست‌وزیر ایتالیا، نیز در گفت‌وگو با شبکه ایتالیایی «لا۷» گفت از اظهارات ترامپ «شوکه» شده است.
+
+بر اساس متن پیاده‌شده‌ای که این شبکه منتشر کرده، ترامپ درباره دیدار خود با ملونی در نشست گروه هفت گفته بود: «ملونی آن‌قدر می‌خواست با من عکس بگیرد که فقط از روی دلسوزی با او موافقت کردم.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246369
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_246369_1781871280.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد ایرانیان مقیم هامبورگ روز ۲۹ خرداد با در دست داشتن پرچم شیروخورشید، یاد سحر خدایاری، معروف به «دختر آبی»، را گرامی داشتند. سحر خدایاری، هوادار ۲۹ ساله تیم استقلال، ۲۱ اسفند ۱۳۹۷ هنگام تلاش برای ورود به استادیوم آزادی بازداشت و تا ۲۹ اسفند در زندان قرچک ورامین نگهداری شد. او پس از آزادی و در پی انتقال پرونده‌اش به دادگاه انقلاب و صدور حکم ۶ ماه حبس، روز ۱۱ شهریور ۱۳۹۸ مقابل این دادگاه در تهران خودسوزی کرد و یک هفته بعد، در ۱۸ شهریور، بر اثر شدت سوختگی جان باخت.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## mwarmonitor — post 11209
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 خبرنگار الجزیره: حمله هوایی اسرائیل به اطراف النبطیه در جنوب لبنان
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 343164
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343164_1781871282.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Granted DACA "Dreamer" status by the Obama administration in 2014, now charged in an alleged terror plot.
+
+Federal investigators say one of five suspects, and the "ringleader," accused of planning attacks using explosive-equipped drones near the White House with the goal of forcing evacuations and creating chaos is an illegal immigrant from Mexico.
+
+Newly surfaced screenshots reportedly show maps, drone placements, and sniper positioning around the White House. | @davidspunt
+</div>
+
+## Persian_Trend_Official — post 17569
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_17569_1781871283.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به گزارش CNN، ایالات متحده به ایران l اطلاع داده است که اسرائیل حملات خود را در لبنان بیشتر تشدید نخواهد کرد.
+
+یک منبع گفت: حزب‌الله آتش‌بس را نقض کرد. اسرائیل موافقت کرده است که آتش‌بس ادامه یابد، که این موضوع به ایرانی‌ها اطلاع داده شده است، و این به عهده حزب‌الله است که آن را متوقف کند.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## BBCPersian — post 284366
+
+<div align="center">
+  <a href="telegram/content/BBCPersian_284366_1781871284.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻جمعیت بسیاری از هواداران تیم‌های فوتبال مکزیک و کره جنوبی در این جام جهانی دوشادوش هم جشن گرفته‌اند و ویدیو‌های این شادی و پایکوبی از آغاز مسابقات در شبکه‌های اجتماعی پربازدید شده‌اند.
+
+نکته برجسته این ویدئوها، رفاقت غیرمنتظره میان هواداران این دو تیم است که با جام جهانی ۲۰۱۸ شروع شد اما حالا به اقتصاد و فرهنگ هم رسیده است..
+
+
+مسابقه تیم‌های دو کشور جمعه با برد یک بر صفر مکزیک پایان یافت اما آتش این رفاقت تازه گل انداخته است.
+@BBCPersian
+</div>
+
+---
 📅 بروزرسانی: 1405/03/29 15:34
 ---
 

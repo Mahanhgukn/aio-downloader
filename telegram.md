@@ -7,6 +7,137 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/30 00:55
+---
+
+## VahidOOnLine — post 246443
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246443_1781904349.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ در مصاحبه با «اکسیوس» گفت که خامنه‌ای جوان (مجتبی) با خامنه‌ای پدر متفاوت است و افزود که در ایران نوعی «تغییر رژیم» رخ داده، چرا که افراد متفاوتی روی کار آمده‌اند. رئیس‌جمهوری آمریکا با اشاره به گروه جدید حاکم در ایران گفت: «ما با افرادی روبه‌رو هستیم که نسبت به دو گروه قبلی، بسیار کمتر تندرو هستند.» او در ادامه این گفتگو با دفاع از عملکرد دولتش، اعلام کرد که برخلاف باراک اوباما، او به توان پدافندی و نیروی هوایی ایران آسیب جدی وارد کرده و علاوه بر قاسم سلیمانی، رهبران ارشد دیگری را نیز هدف قرار داده است. ترامپ افزود: «من آیت‌الله را کشتم و متاسفانه به آن یکی آیت‌الله آسیب جدی زدم. من او را ندیدم و با او صحبت نکردم، اما مردم از او صحبت می‌کردند. با این حال او شجاعت خاصی دارد چون به‌شدت مجروح شده بود.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 343180
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343180_1781904350.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"This will be a flyover on July 4th I think I can say the likes of which we've never seen before."
+
+President Trump says America's 250th anniversary celebration on July 4th will feature a massive military flyover over the U.S. Capitol and White House, led by the newly refurbished Air Force One.
+
+Trump said the event will include F-22s, F-35s and other military aircraft, adding that military pilots are "all fighting to do it."
+
+"We're gonna have a lot of planes flying over the Capitol and over the White House," Trump said.
+</div>
+
+## FoxNewsTwitter — post 343179
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: U.S. men's soccer team advances to next round of the World Cup.
+</div>
+
+## Shin_Persian — post 7139
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_7139_1781904352.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔁 Quoting above tweet:
+Canadian OSINT ✓ @Canadian_OSINT
+Fri, 19 Jun 2026 20:36:17 UTC
+
+2 more tankers spotted.. another from the UK RCH254 (20-46083) pretty sure this tail number was operating in the region last week as well..
+
+16-46021 did not land at PSAB
+
+57-1479 is departing Tel Aviv.
+
+Boeing KC-46A Pegasus 2x
+
+RCH238 - 16-46021
+RCH254 - 20-46083
+
+Boeing KC-135R Stratotanker 1x
+
+NA - 57-1479
+
+ترجمه خودکار فارسی
+
+۲ تانکر سوخت‌رسان دیگر رویت شدند.. یکی دیگر از بریتانیا RCH254 (20-46083) کاملاً مطمئنم که این شماره دم هفته گذشته نیز در منطقه در حال عملیات بود..
+
+۱۶-۴۶۰۲۱ در پایگاه هوایی شاهزاده سلطان (PSAB) فرود نیامد.
+
+۵۷-۱۴۷۹ در حال ترک تل‌آویو است.
+
+بوئینگ KC-46A Pegasus ۲ فروند
+
+RCH238 - 16-46021
+RCH254 - 20-46083
+
+بوئینگ KC-135R Stratotanker ۱ فروند
+
+NA - 57-1479
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 7137
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+Canadian OSINT ✓ @Canadian_OSINT
+Fri, 19 Jun 2026 20:13:06 UTC
+
+10 tankers and an E-3B are operating over the ME right now. 16-46021 is landing at PSAB after a trip from Prestwick. Almost positive that tail number was in the ME before though..?
+
+58-0059 is pictured in the 2nd photo over the UAE but not highlighted.
+
+Boeing KC-46A Pegasus 1x
+
+↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
+
+ترجمه خودکار فارسی
+
+در حال حاضر ۱۰ تانکر سوخت‌رسان و یک فروند E-3B در منطقه خاورمیانه در حال عملیات هستند. هواپیمای ۱۶-۴۶۰۲۱ پس از پروازی از پرستویک (Prestwick) در حال فرود در پایگاه هوایی شاهزاده سلطان (PSAB) است. تقریباً مطمئنم که این شماره دم قبلاً هم در خاورمیانه بوده است..؟
+
+هواپیمای ۵۸-۰۰۵۹ در عکس دوم بر فراز امارات متحده عربی دیده می‌شود اما هایلایت نشده است.
+
+Boeing KC-46A Pegasus 1x
+
+𝕏 · @shin_persian
+</div>
+
+## BBCPersian — post 284432
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻واکنش‌ها به پیام منتسب به مجتبی خامنه‌ای به برخی هیئت‌های عزاداری نزدیک به جریان‌های تندرو نیز کشیده شده است.
+
+پیشتر در این پیام رهبر جمهوری اسلامی ایران آمده بود که نظرش درباره توافق با آمریکا «چیز دیگری بوده ولی پس از آن‌که مسعود پزشکیان مسئولیت آن را پذیرفت، اجازه امضای آن را داده است.»
+
+در این ویدئو محمدعلی بخشی، یک مداح در شهرری تهران می‌گوید: «آقای رئیس‌جمهور اگر شروط رهبری محقق نشه، ما می‌دانیم و تیغ و حلقوم شما. پدرت رو درمیاریم!»
+
+آقای پزشکیان در باره پیام منتسب به خامنه‌ای گفت که او به عنوان رئیس جمهور و رئیس شورای امنیت ملی به همراه سایر اعضای آن شورا «خود را متعهد به توجه حداکثری نسبت به دغدغه‌های معظم‌له و حراست از حقوق ملت ایران و جبهه مقاومت» می‌دانند.
+
+محمدباقر قالیباف، رئیس مجلس و همچنین رئیس هیئت ایران در مذاکرات با آمریکا، هم در واکنش به این پیام در شبکه اجتماعی ایکس نوشت که از سوی رهبر موظف به پیگیری تحقق شروط و بندهای تفاهم‌ شده و «گوش به فرمان» اوست.
+
+@BBCPersian
+</div>
+
+---
 📅 بروزرسانی: 1405/03/30 00:45
 ---
 

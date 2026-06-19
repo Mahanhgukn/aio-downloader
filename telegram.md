@@ -7,6 +7,110 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/30 00:24
+---
+
+## VahidOOnLine — post 246440
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246440_1781902493.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ابراهیم رضایی، سخنگوی کمیسیون امنیت ملی مجلس، در بوشهر در گفت‌وگو با خبرنگاران رسانه‌های ایران گفت: «جنگ پایان نیافته است و به تعهدات آمریکا اعتمادی ندارم.»
+
+او افزود: «آن‌ها دو بار در میانه مذاکرات به ما حمله کردند.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246439
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_246439_1781902493.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ با اشاره به تحولات بازار انرژی و ترافیک بی‌سابقه نفتکش‌ها در تنگه هرمز، اعلام کرد که اوضاع بسیار خوب پیش می‌رود. رئیس جمهوری آمریکا روز جمعه در مراسم رونمایی از هواپیمای «بوئینگ ۷۴۷» اهدایی قطر، با تمرکز بر این تحولات گفت: «کشتی‌ها به شکلی از تنگه هرمز سرازیر شده‌اند که در واقع هیچ‌کس تا به حال نظیرش را ندیده است. تعدادشان خیلی زیاد بود، حدود ۷۰۰ کشتی، و نفت در همه جا هست.» ترامپ در ادامه با پیش‌بینی تغییرات قیمت در بازار جهانی افزود: «شما شاهد خواهید بود که قیمت نفت آن‌قدر پایین می‌آید که امیدوارم شرکت‌ها از این بابت خوشحال باشند.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 15366
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+میرم لایو اینستاگرام 💥🚨۵ دقیقه دیگه نتیف های اینستاگرام رو روشن کنید و اگه ندارید فالو کنید instagram.com/yashar
+</div>
+
+## IranIntlTV — post 343293
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_343293_1781902496.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ابراهیم رضایی، سخنگوی کمیسیون امنیت ملی مجلس، در بوشهر در گفت‌وگو با خبرنگاران رسانه‌های ایران گفت: «جنگ پایان نیافته است و به تعهدات آمریکا اعتمادی ندارم.»
+
+او افزود: «آن‌ها دو بار در میانه مذاکرات به ما حمله کردند.»
+https://iranintl.com/202606194068
+</div>
+
+## FarsiVOA — post 221239
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺پنتاگون حضور نظامی آمریکا در اروپا را در یک دوره شش ماه بررسی می‌کند
+
+▪️پیت هگست، وزیر جنگ آمریکا، روز پنجشنبه ۲۸ خرداد، در جریان جلسه وزرای دفاع ناتو در مقر این سازمان در بروکسل اعلام کرد که بررسی حضور نیروهای نظامی آمریکایی در اروپا را آغاز کرده است و به شدت از متحدان آمریکا در ناتو انتقاد کرد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/iran-europe-us-hegseth-war-pentagon-nato-defense/8162717.html
+@FarsiVOA
+</div>
+
+## Dirty_Kids — post 392609
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392609_1781902497.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+طبق گزارشات منتشر شده؛ قراره مجتبی خامنه‌ای بصورت هولوگرامی نماز میت پدرشو بخونه
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392608
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392608_1781902498.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این تجمع تو نیویورک چرا همه چیش انقد عجیبه، یه نفر اون وسط جوراب یه دخترو درآورده و پاهاشو تا حلقش می‌کنه دهنش :))
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 129261
+
+<div align="center">
+  <a href="telegram/content/alonews_129261_1781902500.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈برنی مورنو، سناتور آمریکایی: لغو تحریم نفت ایران به نفع آمریکاست چون چین پول بیشتری می‌پردازد
+
+
+🔴 «ما اکنون به آنها اجازه می‌دهیم که نفت خود را بفروشند. این چه فایده‌ای دارد؟ این به نفع آمریکایی‌ها خواهد بود. این باعث کاهش قیمت نفت می‌شود.
+
+
+🔴 و چین را مجبور به پرداخت هزینه بیشتر برای نفت می‌کند! و همچنین متوجه می‌شود چه کسانی نفت چین را می‌خرند. بنابراین ما را در موقعیت عالی، یک مذاکره عالی قرار می‌دهد و در نهایت، من به رئیس‌جمهور ترامپ اعتماد دارم که تصمیمات درست را می‌گیرد.»
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/30 00:14
 ---
 

@@ -7,6 +7,242 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/29 16:35
+---
+
+## VahidOOnLine — post 246376
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246376_1781874309.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهوری آمریکا، در واکنش به اظهارات برخی اعضای حزب دموکرات آمریکا که گفتند جنگ اخیر جمهوری اسلامی را تقویت کرده است، این دیدگاه را رد کرد.
+
+او در پیامی در تروت سوشال نوشت جنگ جمهوری اسلامی را تضعیف کرده است و این کشور دیگر نیروی هوایی، نیروی دریایی، پدافند هوایی، رادار یا تقریبا هیچ‌چیز دیگری ندارد.
+
+ترامپ با انتقاد از کسانی که می‌گویند جمهوری اسلامی اکنون نسبت به چهار ماه پیش در وضعیت بهتری قرار دارد، نوشت: «باور می‌کنید بتوان چنین حرفی زد؟ بعضی افراد چقدر می‌توانند احمق باشند؟»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 15330
+
+<div align="center">
+  <img src="telegram/content/WithYashar_15330_1781874310.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رویترز به نقل از یک مقام آمریکایی ادعا کرد:
+«حزب‌الله و اسرائیل با آتش‌بس موافقت کرده‌اند» و افزود که مذاکره‌کنندگان از آمریکا و قطر با حمایت ایران به توافق کمک کردند.
+@withyashar
+</div>
+
+## mwarmonitor — post 11214
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رویترز به نقل از یک مقام آمریکایی: اسرائیل و حزب‌الله بر سر آتش‌بس از ساعت ۴ بعدازظهر به وقت محلی توافق کرده‌اند. @mwarmonitor
+</div>
+
+## mwarmonitor — post 11213
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_11213_1781874311.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ما از روی ناچاری و استیصال دیدار نکردیم، ایران این کار را کرد. کار آن‌ها تمامه! ما این ۶۰ روز را تا آخر بازی می‌کنیم . آن‌ها هیچ پولی دریافت نخواهند کرد، حتی ده سنت!
+
+جنگ، ایران را تضعیف کرده است! آن‌ها دیگر نه نیروی هوایی دارند، نه نیروی دریایی، نه تجهیزات ضدهوایی، نه رادار و نه عملاً هیچ چیز دیگری؛ و با این حال دموکرات‌های احمق (Dumocrats) می‌گویند اوضاع ایران اکنون بهتر از چهار ماه پیش است. می‌توانید تصور کنید که چطور چنین حرف مفتی می‌زنند؟؟؟ برخی افراد چقدر می‌توانند احمق باشند؟؟؟
+
+رئیس‌جمهور دونالد جی ترامپ
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 11212
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رویترز به نقل از یک مقام آمریکایی: اسرائیل و حزب‌الله بر سر آتش‌بس از ساعت ۴ بعدازظهر به وقت محلی توافق کرده‌اند.
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 343167
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343167_1781874312.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+“There’s no real satisfaction in getting a medal when I've lost so much.”
+
+Major James Capers Jr. shares his complex emotions about receiving the Medal of Honor from President Trump.
+
+He reflects on fallen comrades and personal tragedies, including the loss of his son and wife, expressing that no award can replace what he's lost. | @foxandfriends @ainsleyearhardt
+</div>
+
+## FoxNewsTwitter — post 343166
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343166_1781874315.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+“How stupid can some people be???”
+
+President Trump is pushing back on Democrats for criticizing his new Iran deal and saying the Islamic Republic is better off now than it was before the war.
+</div>
+
+## pm_afshaa — post 94393
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94393_1781874315.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رویترز به نقل از یک مقام آمریکایی:
+اسرائیل و حزب‌الله بر سر آتش‌بس از ساعت 4 بعدازظهر به وقت محلی توافق کردن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## kianmeli1 — post 88087
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_88087_1781874316.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ:
+
+ما از روی ناامیدی ملاقات نکردیم، این کار ایران بود. آنها تمام شده‌اند! ما ۶۰ روز بازیابی خواهیم کرد. آنها نه پولی دریافت خواهند کرد و نه حتی یک سنت
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 88086
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴باراک راوید: یک مقام ارشد آمریکایی به من می‌گوید
+
+اسرائیل و حزب‌الله بر سر آتش‌بس مجدد در لبنان از ساعت ۴ بعد از ظهر به وقت محلی توافق کرده‌اند. این توافق جدید با میانجیگری آمریکا و قطر و پس از مذاکرات با اسرائیل و ایران حاصل شده است.
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 343203
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_343203_1781874316.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند در ویدیوی ارسالی خود به ایران اینترنشنال، ضمن اشاره به گرانی مواد غذایی و مشکل بیکاری، از عملکرد دونالد ترامپ در برابر جمهوری اسلامی انتقاد کرد.
+</div>
+
+## IranIntlTV — post 343202
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_343202_1781874320.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهوری آمریکا، در واکنش به اظهارات برخی اعضای حزب دموکرات آمریکا که گفتند جنگ اخیر جمهوری اسلامی را تقویت کرده است، این دیدگاه را رد کرد.
+
+او در پیامی در تروت سوشال نوشت جنگ جمهوری اسلامی را تضعیف کرده است و این کشور دیگر نیروی هوایی، نیروی دریایی، پدافند هوایی، رادار یا تقریبا هیچ‌چیز دیگری ندارد.
+
+ترامپ با انتقاد از کسانی که می‌گویند جمهوری اسلامی اکنون نسبت به چهار ماه پیش در وضعیت بهتری قرار دارد، نوشت: «باور می‌کنید بتوان چنین حرفی زد؟ بعضی افراد چقدر می‌توانند احمق باشند؟»
+https://iranintl.com/202606198507
+</div>
+
+## FarsiVOA — post 221190
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نیروهای امنیتی، زنان بلوچ معترض روستای پشموکی شهرستان فاریاب را در مقابل چشمان مردان روستا مورد ضرب و شتم شدید قرار داده‌اند. جزئیات بیشتر در گزارش حمیده آرمیده
+</div>
+
+## Persian_Trend_Official — post 17572
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_17572_1781874321.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ در تروث سوشال: ما از روی ناچاری ملاقات نکردیم، ایران این کار را کرد. کار آنها تمام است!
+
+ما این 60 روز را به پایان خواهیم رساند. آنها هیچ پولی دریافت نمی‌کنند، حتی ده سنت!
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17571
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17571_1781874321.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ در تروث سوشال: جنگ ایران را ضعیف کرده است!
+
+دیگر نیروی هوایی، نیروی دریایی، تجهیزات ضد هوایی، رادار یا عملاً هر چیز دیگری ندارد، و با این حال دوموکرات ها می گویند که ایران اکنون نسبت به چهار ماه پیش وضعیت بهتری دارد. آیا می توانید تصور کنید که با آن کنار بیایید؟ بعضیا چقدر میتونن احمق باشن؟؟؟
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## RadioFarda — post 158504
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸ویدئویی که هاجر نادری، مادر متین پرویزی، در صفحۀ شخصی خود منتشر کرده است او را در کنار آرامگاه پسرش نشان می‌دهد که می‌گوید «من به پسرم فقط یاحسین و تشنگی را یاد ندادم، به او یاد دادم که جلوی حرف زور بایستد»
+
+🔸خانم نادری در ادامه با شرح کشته شدن فرزندش در اعتراضات ۱۸ دی‌ماه می‌گوید امسال محرم برای فرزندان میهن که «ناجوانمردانه کشته شدند» عزاداری خواهد کرد و ادامه می‌دهد که «می‌دانم امام حسین هم برای این جوانان عزاداری خواهد کرد»
+
+🔸متین پرویزی ۱۸ دی‌ماه سال گذشته در سبزه‌میدان زنجان با شلیک گلوله جنگی نیروهای حکومتی به سرش کشته شد.
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 22946
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 مقام ارشد آمریکایی به رویترز:
+
+اسرائیل و حزب‌الله توافق کردند که مجدد آتش‌بس از ساعت ۴ بعدازظهر روز جمعه به وقت محلی برقرار شود.
+
+@IranianMinds
+</div>
+
+## alonews — post 129141
+
+<div align="center">
+  <a href="telegram/content/alonews_129141_1781874322.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / رویترز به نقل از مقام آمریکایی : اسرائیل و حزب‌الله توافق کردن که از ساعت ۴ عصر جمعه به وقت محلی، آتش‌بس برقرار بشه 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129140
+
+<div align="center">
+  <a href="telegram/content/alonews_129140_1781874322.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / رویترز به نقل از مقام آمریکایی :
+اسرائیل و حزب‌الله توافق کردن که از ساعت ۴ عصر جمعه به وقت محلی، آتش‌بس برقرار بشه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/29 16:25
 ---
 

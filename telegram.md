@@ -7,6 +7,170 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/29 22:46
+---
+
+## mwarmonitor — post 11236
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_11236_1781896598.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✈️The new Air Force One 🇺🇸
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 343176
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343176_1781896599.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: Two passenger trains have collided near Bedford, England, about an hour north of London, leaving multiple people seriously injured.
+
+One passenger told the BBC the impact felt like a "bomb explosion" as emergency crews rushed to the scene.
+
+Live images show a massive response with firefighters, paramedics, and police surrounding the crash site.
+
+Authorities have not yet said what caused the collision as rescue efforts continue. | @AmericaRpts @SandraSmithFox
+</div>
+
+## Shin_Persian — post 7136
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_7136_1781896600.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Eye OSINT ✓ @AlexiaNoel94927
+Fri, 19 Jun 2026 18:34:35 UTC
+
+🇺🇸8 United States Air Force Tanker airplanes are currently flying in the middle east.👀
+
+ترجمه خودکار فارسی
+
+🇺🇸 ۸ فروند هواپیمای سوخت‌رسان نیروی هوایی ایالات متحده (USAF) در حال حاضر در خاورمیانه در حال پرواز هستند.👀
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 221231
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺بلاتکلیفی و محرومیت از درمان یک شهروند بهائی در زندان دولت‌آباد اصفهان؛ فشار جمهوری اسلامی بر اقلیت‌ها ادامه دارد
+
+▪️منابع حقوق بشری روز جمعه ۲۹ خرداد نسبت به وضعیت سلامت فریده عبدی‌یزدی، شهروند بهائی ۶۲ ساله اهل شاهین‌شهر و محبوس در زندان دولت‌آباد اصفهان، ابراز نگرانی کردند.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/iran-minority-bahaie-prison-arrest/8162700.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221230
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺طالبان مدعی حمله به مراکز داعش در ایالت‌های بلوچستان و خیبر پختونخوا شد؛ پاکستان: تبلیغات است
+
+▪️وزارت دفاع حکومت طالبان مدعی شده است که در یک عملیات هوایی، مراکز وابسته به گروه داعش را در ایالت‌های بلوچستان و خیبر پختونخوا در پاکستان هدف قرار داده است؛ ادعایی که پاکستان آن را «نادرست و تبلیغاتی» خوانده است.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/taliban-claims-strikes-inside-pakistan/8162680.html
+@FarsiVOA
+</div>
+
+## RadioFarda — post 158519
+
+<div align="center">
+  <a href="telegram/content/RadioFarda_158519_1781896601.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸ویدئویی در شبکه‌های اجتماعی منتشر شده که مادر مانی صفرپور، جوان کشته‌شده در اعتراضات دی‌ماه، را در حال سوگواری برای فرزندش در کنار یک دستۀ عزاداری نشان می‌دهد.
+
+🔸مانی صفر‌پور، جوان ۱۸ سالۀ لاهیجانی، ۱۸ دی‌ماه ۱۴۰۴ با شلیک نیروهای حکومتی در محلۀ سلسبیل تهران کشته شد.
+
+@RadioFarda
+</div>
+
+## alonews — post 129236
+
+<div align="center">
+  <a href="telegram/content/alonews_129236_1781896603.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 پرزیدنت ترامپ: من اعداد نظرسنجی عالی دارم.
+
+
+🔴من هر نامزدی که دارند را با ۲۵ امتیاز شکست می‌دهم
+﻿
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129235
+
+<div align="center">
+  <a href="telegram/content/alonews_129235_1781896605.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزارت امور خارجه ایالات متحده می‌گوید که «گفت و گوهایی» درباره برگزاری مذاکرات با ایران در واشنگتن دی‌سی از ۲۳ تا ۲۵ ژوئن داشته است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129234
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ : تجهیزات دفاعی و این چیزها رو داشتن
+
+
+🔴ولی هفته قبل نمی‌تونستن ببینن، یه شب ۲۵ تا کشتی داشتیم، یه شب ۲۲ تا، یه شب ۱۹ تا
+
+
+🔴 یه شب ۲۱ تا هر شب همین‌طور… همه اینا. برای همین مردم می‌گفتن : این نفت از کجا میاد؟ کسی خبر نداشت
+
+
+🔴ما ساعت ۱ نصف شب حرکت می‌کردیم، همه‌جا چراغ خاموش. و نیروی دریایی‌مون هم فقط نفت می اورد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129233
+
+<div align="center">
+  <a href="telegram/content/alonews_129233_1781896606.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ درباره بایدن: مردی داشتیم که نمی‌توانست از یک پله هواپیما بالا برود و من نمی‌خواهم در این مورد صحبت کنم، زیرا اگر کمی لنگ بزنم، خواهند گفت: «آها، این فاجعه است.»
+
+
+🔴خوب، ممکن است اتفاق بیفتد.
+
+
+🔴اما نمی‌توانید هر بار که روی صحنه می‌روید لنگ بزنید
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129232
+
+<div align="center">
+  <a href="telegram/content/alonews_129232_1781896607.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزارت امور خارجه آمریکا: روبیو به جوزف عون تأکید کرد که ضروری است حزب‌الله خلع سلاح شود و دولت کنترل خود را گسترش دهد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/29 22:36
 ---
 

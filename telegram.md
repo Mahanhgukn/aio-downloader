@@ -7,6 +7,110 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/29 20:25
+---
+
+## mwarmonitor — post 11229
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_11229_1781888116.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 «یک ناوگان بزرگ از بمب‌افکن‌های سنگین نیروی هوایی آمریکا همچنان به‌صورت پیش‌موضعی در انگلستان مستقر است تا از عملیات احتمالی علیه ایران پشتیبانی کند. امروز ۱۳ فروند بمب‌افکن استراتژیک B-1 و ۵ فروند B-52 در پایگاه هوایی RAF Fairford پارک شده‌اند.»
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 343173
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343173_1781888117.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+A massive wave crashes over the rooftop of an oceanfront condo in Hawaii, ripping shingles away as water surges across the building.
+
+The wave slammed into the Keauhou-Kona Surf and Racquet Condominium complex in Keauhou, sending debris flying through the air as residents watched the powerful swell roll through.
+
+It's not the first time the property has taken a hit. The same complex was battered by enormous waves in 2022 during a major swell event linked to Hurricane Darby.
+</div>
+
+## pm_afshaa — post 94406
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94406_1781888118.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کاخ سفید: ایران تموم شده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## FarsiVOA — post 221210
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شادی کانادایی‌ها در جشن اولین برد تاریخ کانادا در جام جهانی
+</div>
+
+## FarsiVOA — post 221209
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک جت خصوصی شرکت نت‌جتز شامگاه چهارشنبه پس از تغییر مسیر اضطراری، در بزرگراهی نزدیک شهر لاریدو در ایالت تگزاس سقوط کرد.
+
+در این سانحه یک نفر جان باخت و پنج نفر دیگر زخمی شدند. این حادثه هیچ تلفاتی در میان افراد حاضر در محل بر جای نگذاشته است.
+
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221208
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_221208_1781888119.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ماهیت ۳۰۰ میلیارد دلاری که در تفاهم‌نامه میان آمریکا و جمهوری اسلامی آمده چیست؟ گفتگو با رضا غیبی
+</div>
+
+## FarsiVOA — post 221207
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در حالی که آمریکا برای جشن ۲۵۰ سالگی خود در ۴ جولای پیش رو آماده می‌شود، باغ گیاه‌شناسی ایالات متحده در واشینگتن، این مناسبت تاریخی را با نمایش گل‌آرایی خیره‌کننده‌ای که شامل گل رسمی هر ایالت و قلمرو است، گرامی می‌دارد.
+</div>
+
+## IranianMinds — post 22965
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22965_1781888120.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴بدون توضیح.
+
+@IranianMinds
+</div>
+
+## alonews — post 129184
+
+<div align="center">
+  <a href="telegram/content/alonews_129184_1781888121.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خبرنگار وال استریت ژورنال: یک هواپیمای ایر فورس دو سوخت‌گیری شده در فرودگاه مریلند روی باند فرودگاه بود. میزها در یک تفرجگاه مجلل سوئیس چیده شده بودند. تدارکات آماده بود. مطبوعات در راه بودند.
+
+
+🔴اما مذاکرات هسته‌ای مورد انتظار بین ایالات متحده و ایران روز جمعه برگزار نشد، که یک شکست زودهنگام برای مرحله بعدی مذاکرات هسته‌ای بود.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/29 20:14
 ---
 

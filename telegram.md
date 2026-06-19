@@ -7,6 +7,67 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/30 00:45
+---
+
+## pm_afshaa — post 94426
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94426_1781903727.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ویدیویی وایرال‌شده از یک کاربر خارجی که میگه پزشکیان یکی از احمق‌ترین سیاستمدارایی‌ هست که دیده؛ تمام عباراتی که آمریکا در این تفاهم‌نامه به کار برده، صرفاً بازی با کلمات بوده و وعده‌های مطرح‌شده عملا چیزی جز دنبال نخودسیاه فرستادن طرف مقابل نیست.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 343295
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_343295_1781903730.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻تیم ملی فوتبال آمریکا در دومین دیدار خود در جام جهانی ۲۰۲۶ که در استادیوم سیاتل برگزار شد، استرالیا را با نتیجه ۲ بر صفر شکست داد و با ۶ امتیاز به مرحله یک شانزدهم نهایی مسابقات صعود کرد.
+
+🔹کمرون برجس (گل به خودی) در دقیقه ۱۱ و الکس فریمن در دقیقه ۴۳ گل‌های بازی را به ثمر رساندند.
+
+🔹نکته اینکه نخستین گل آمریکا در این جام که به پاراگوئه زده شد هم، گل به خودی بود.
+
+🔹آمریکا در بازی نخست خود در گروه D جام جهانی، پاراگوئه را با نتیجه ۴ بر یک شکست داده بود.
+
+🔹ترکیه و پاراگوئه بامداد شنبه، دیگر بازی این گروه را برگزار می‌کنند.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 343294
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_343294_1781903731.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در حاشیه مراسم خاکسپاری مرجان ساتراپی، فیلمساز و هنرمند ایرانی، در گورستان پرلاشز پاریس، سرور کسمایی، نویسنده و مترجم، به ساجده شریفی، خبرنگار ایران‌اینترنشنال، گفت: «مرجان ساتراپی، مانند عباس کیارستمی، توانست با آثارش توجه جهان را به ایران جلب کند.»
+
+او افزود: «ساتراپی با تمرکز بر زندگی و با زبانی ساده و انسانی، به قلب مخاطبان در سراسر جهان راه یافت و تصویری متفاوت از روایت جمهوری اسلامی از ایران ارائه کرد.»
+@iranintltv
+</div>
+
+## alonews — post 129263
+
+<div align="center">
+  <a href="telegram/content/alonews_129263_1781903734.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈هم اکنون درگیری‌های سنگین بین نیروهای اسرائیل و حزب‌الله تو لُبنان
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/30 00:35
 ---
 

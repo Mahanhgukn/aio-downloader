@@ -7,6 +7,224 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/29 14:24
+---
+
+## mwarmonitor — post 11202
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_11202_1781866483.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨گزارش شده است که سپاه پاسداران انقلاب اسلامی به کشتی‌ها در تنگه هرمز اعلام کرده است تنگه هرمز بسته است @mwarmonitor
+</div>
+
+## mwarmonitor — post 11201
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_11201_1781866483.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨گزارش شده است که سپاه پاسداران انقلاب اسلامی به کشتی‌ها در تنگه هرمز اعلام کرده است تنگه هرمز بسته است
+
+@mwarmonitor
+</div>
+
+## kianmeli1 — post 88085
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هم‌اکنون سپاه در بیسیم کانال ۱۶ دریایی.
+
+متن صدا:
+
+“از آنجا که خروج اسرائیل از لبنان و لغو کامل محاصره دریایی و خروج نیروهای تروریستی آمریکایی از خلیج فارس و منطقه از جمله شرایط اصلی توافق بین ایران و ایالات متحده است. تنگه هرمز تا زمان تحقق این دو شرط بسته خواهد ماند، به همه کشتی‌ها دستور داده شده برای امنیت و سلامت خود به تنگه هرمز نزدیک نشود، هر شناوری که از این دستور سرپیچی کند مورد هدف قرار خواهد گرفت.”
+</div>
+
+## kianmeli1 — post 88084
+
+<div align="center">
+  <a href="telegram/content/kianmeli1_88084_1781866484.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴اکسیوس: آیا می‌توانید اسرائیل را از حمله به لبنان کنترل کنید؟
+
+ترامپ: بله. آنها احترام زیادی برای من قائل هستند و همان کاری را انجام می‌دهند که من می‌گویم
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 88083
+
+<div align="center">
+  <a href="telegram/content/kianmeli1_88083_1781866486.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 جنوب لبنان در حال تخلیه
+
+لبنان زیر شدیدترین حملات است
+https://t.me/kianmeli1
+</div>
+
+## FarsiVOA — post 221179
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_221179_1781866488.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سی‌ان‌ان به نقل از یک دیپلمات مطلع گزارش داد که حکومت ایران خواستار دریافت تضمین‌هایی شده مبنی بر اینکه پیش از ورود به مذاکرات با ایالات متحده در سوئیس، درگیری در لبنان پایان یابد.
+
+این دیپلمات افزود مذاکراتی که قرار بود جمعه برگزار شود و سپس لغو شد، اکنون «در پی حملات اسرائیل در لبنان، به‌طور موقت به تعویق افتاده است.»
+
+این منبع آگاه گفت که «میانجی‌گران در حال حاضر در تلاش هستند تا این مسئله را حل‌وفصل کنند.»
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221178
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_221178_1781866489.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بر اساس اعلام وزارت بهداشت عمومی لبنان، دست‌کم ۱۸ نفر در حملات شبانه اسرائیل به ۱۱ شهر و روستای مختلف در جنوب لبنان کشته و ۳۳ نفر نیز زخمی شده‌اند. این وزارتخانه اعلام کرد که احتمال دارد شمار قربانیان افزایش یابد و حملات ادامه‌دار مانع از آن می‌شود که نیروهای امدادی به قربانیان دسترسی پیدا کنند.
+
+بر اساس اعلام وزارت بهداشت و خبرگزاری دولتی لبنان، یکی از حملات اسرائیل به یک ساختمان مسکونی در الدویر دست‌کم سه نفر را کشته است. پیشتر خبرگزاری ملی لبنان اعلام کرده بود که این حملات منجر به کشته شدن دست‌کم ۱۶ نفر در سراسر «منطقه نبطیه» در جنوب این کشور شد.
+
+در نقطه‌ای دیگر، ارتش اسرائیل اعلام کرد که چهار سرباز اسرائیلی شب گذشته در جنوب لبنان کشته شدند. این حمله زمانی روی داد که یک تانک ارتش اسرائیل اندکی پس از نیمه‌شب به وقت محلی، هدف یک «شیء مشکوک» قرار گرفت.
+
+مقام‌های اسرائیلی گفتند که در میان کشته‌شدگان یک سرهنگ دوم نیز حضور داشت. یک مقام ارتش اسرائیل گفت: «در پی این حادثه، ارتش اسرائیل شمار زیادی از زیرساخت‌های حزب‌الله را در نبطیه و مناطق دیگر هدف قرار داد.»
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 17556
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17556_1781866490.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حالا میزاشتید ما 48 ساعت اتاق جنگ نداشته باشیم 😄
+</div>
+
+## Persian_Trend_Official — post 17555
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17555_1781866490.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حالا میزاشتید ما 48 ساعت اتاق جنگ نداشته باشیم 😄
+</div>
+
+## Persian_Trend_Official — post 17554
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17554_1781866491.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمد مرندی: رژیم ترامپ به تعهداتش عمل نمی‌کند. ایران تحت این شرایط تفاهم‌نامه را اجرا نخواهد کرد. رژیم صهیونیستی به شدت مجازات خواهد شد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17553
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سربسته عرض کنم خدمتتون تا منحل شدن جمهوری اسلامی فعلی جنگ ادامه دارد ! این خط ———————- این نشان ||||||||||||| الیاس فرخ
+</div>
+
+## Persian_Trend_Official — post 17552
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_17552_1781866491.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نتانیاهو: اسرائیل حملات به سربازان یا خاک ما را تحمل نخواهد کرد و بهای بسیار سنگینی را از حزب‌الله برای چنین حملاتی دریافت خواهد کرد.
+
+ارتش اسرائیل برای خنثی کردن هرگونه تهدیدی علیه نیروها و خاک ما اقدام خواهد کرد.
+
+همانطور که من به صراحت، از جمله دیروز، اعلام کرده‌ام: اسرائیل تا زمانی که لازم باشد در منطقه امنیتی جنوب لبنان باقی خواهد ماند تا از جوامع شمال اسرائیل محافظت کند.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Dirty_Kids — post 392570
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392570_1781866492.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 یکی از مدارس دخترونه مملکت کلاس آنلاین داشتن که چند تا پسر اتک زدن به کلاسشون و این شاهکارو خلق کردن:
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392569
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392569_1781866494.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 اثرات توافق داره معلوم میشه؛ دیشب صداوسیما سر بازی قطر-کانادا، برای اولین بار بعد از انقلاب، صحنه لب گرفتن دو نفرو پخش کرد.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Hranews — post 113718
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارشی از بازداشت محمود قنبری‌راد در تهران
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– محمود قنبری‌راد، شهروند ساکن تهران در اردیبهشت سال جاری توسط نیروهای امنیتی در این شهر بازداشت شده و اکنون در زندان تهران بزرگ نگهداری می‌شود. وی با اتهامات اجماع و تبانی علیه امنیت ملی، جمع‌آوری اطلاعات طبقه‌بندی‌شده و ارائه این اطلاعات به اسرائیل مواجه شده است.
+
+ادامه مطلب
+
+#محمود_قنبری‌راد
+
+↘️
+@hranews_bot تماس ✉️ -  @Hranews  کانال هرانا 🆑
+</div>
+
+## alonews — post 129118
+
+<div align="center">
+  <a href="telegram/content/alonews_129118_1781866495.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / گزارش‌های اولیه حاکی از بسته شدن تنگه هرمز و شلیک گلوله‌های هشدار به سمت کشتی‌ها پس از حملات اسرائیل به لبنان
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129117
+
+<div align="center">
+  <a href="telegram/content/alonews_129117_1781866495.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈اکسیوس: آیا می‌توانید اسرائیل را از حمله به لبنان کنترل کنید؟
+
+
+🔴ترامپ: بله. آنها احترام زیادی برای من قائل هستند و همان کاری را انجام می‌دهند که من می‌گویم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/29 14:14
 ---
 

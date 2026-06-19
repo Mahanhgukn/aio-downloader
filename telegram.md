@@ -7,6 +7,205 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/29 14:55
+---
+
+## VahidOOnLine — post 246367
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_246367_1781868327.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️روسیه از حمله پهپادی به تاسیسات انرژی مرتبط با ارتش اوکراین خبر داد
+
+♦️وزارت دفاع روسیه روز جمعه ۲۹ خردادماه با انتشار تصاویری اعلام کرد، ارتش این کشور یک تاسیسات انرژی راهبردی مرتبط با نیروهای مسلح اوکراین را در منطقه خارکیف هدف قرار داده‌ است.
+
+بر اساس بیانیه وزارت دفاع روسیه، این حمله با استفاده از پهپادهایی به اسم «گران» انجام شده و تاسیسات مورد نظر نقش مهمی در پشتیبانی از فعالیت‌های نظامی اوکراین داشته است.
+مسکو جزئیات بیشتری درباره میزان خسارات یا موقعیت دقیق این مرکز منتشر نکرده است.
+
+از زمان آغاز جنگ اوکراین، زیرساخت‌های انرژی به یکی از اهداف اصلی حملات دو طرف تبدیل شده‌اند. روسیه بارها تاسیسات برق، سوخت و انرژی اوکراین را هدف قرار داده و کی‌یف نیز حملات متقابلی را علیه زیرساخت‌های انرژی و نظامی روسیه انجام داده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## pm_afshaa — post 94386
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎙️مجری: میتونی کاری کنی اسرائیل به لُبنان حمله نکنه؟
+
+ترامپ: آره، میتونم، اونا بهم خیلی احترام میذارن و هر چی من بگم انجام میدن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94385
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94385_1781868330.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: من و بی‌بی نتانیاهو خیلی خوب با هم کار کردیم؛ ولی خودش هم بهت میگه، ما اوناییم که اسلحه داریم، ما اوناییم که همه‌چی دستمونه؛ ما اوناییم که بمب‌افکن‌های B-2 داریم و اگه دونالد ترامپ نبود، اسرائیل کاملاً له شده بود، این یه رابطه‌ست.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94384
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94384_1781868330.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴واکنش نتانیاهو به کشته شدن سربازان اسرائیلی: ما حمله به سربازانمان رو تحمل نخواهیم کرد و کاری خواهیم کرد که حزب‌الله بهای بسیار سنگینی بپردازه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5819
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5819_1781868331.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🛩️
+🔥 بمباران مواضع حـ.ـزب‌الله توسط جنگنده‌های اسرائیل
+
+بر اساس گزارش منابع منطقه‌ای ده‌ها مخفیگاه، انبار سلاح و ستاد فرماندهی وابسته به گروه تروریستی حـ.ـزب‌الله توسط جنگنده‌های اسرائیل بمباران شد.
+
+عباس عراقچی گفته بود هرگونه حمله اسرائیل به لبنان نقض تفاهم جمهوری اسلامی ایران و آمریکا محسوب می‌شود.
+گزارش شد بیش از ۲۰ نقطه در لبنان هدف حمله قرار گرفتند و تعدادی از تروریست‌ها کشته و زخمی شدند.
+
+#حزب_الله_لبنان #اسرائیل #آتشبس
+@DEJradio
+</div>
+
+## FarsiVOA — post 221181
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_221181_1781868333.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت خارجه ژاپن اعلام کرد آخرین کشتی مرتبط با این کشور که طی ماههای گذشته به خاطر انسداد تنگه هرمز در خلیج فارس گرفتار شده بود، از طریق هماهنگی با جمهوری اسلامی از تنگه عبور کرده و به سمت ژاپن در حال حرکت است.
+
+این کشتی در واقع یک نفتکش متعلق به شرکت «کیوئِی» و حامل سه خدمه ژاپنی است که با پرچم لیبریا در حال حرکت است.
+
+طبق توافق ایران و آمریکا، انسداد تنگه هرمز توسط سپاه پاسداران و محاصره دریایی جمهوری اسلامی لغو شده است.
+
+سانائه تاکایچی، نخست‌وزیر ژاپن، در همین زمینه گفت پس از امضای اخیر یادداشت تفاهم میان ایالات متحده و ایران، دولت ژاپن به تلاش‌های دیپلماتیک خود ادامه خواهد داد تا اطمینان حاصل شود که تردد آزاد و ایمن کشتی‌ها در تنگه هرمز هرچه سریع‌تر از سر گرفته می‌شود.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221180
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_221180_1781868334.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نخست‌وزیر اسرائیل با اشاره به کشته شدن سربازان اسرائیلی در حملات اخیر حزب‌الله اعلام کرد: «اسرائیل حمله به سربازان یا به خاک خود را تحمل نخواهد کرد و بهای بسیار سنگینی از حزب‌الله بابت این حملات خواهد گرفت.»
+
+بنیامین نتانیاهو روز جمعه در شبکه اجتماعی ایکس نوشت: «ارتش اسرائیل برای خنثی‌سازی هر تهدیدی علیه نیروهای ما و خاک ما اقدام خواهد کرد.»
+
+او افزود: «همان‌طور که به‌طور قاطع و روشن، از جمله دیروز، تأکید کردم: اسرائیل تا زمانی که لازم باشد برای حفاظت از شهرک‌های شمالی در منطقه امنیتی در جنوب لبنان باقی خواهد ماند.»
+
+پیشتر ارتش اسرائیل اعلام کرد که چهار سرباز اسرائیلی شب گذشته در جنوب لبنان کشته شدند.
+
+یک مقام ارتش اسرائیل گفت: «در پی این حادثه، ارتش اسرائیل شمار زیادی از زیرساخت‌های حزب‌الله را در نبطیه و مناطق دیگر هدف قرار داد.»
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 17563
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نخست‌وزیر پاکستان اعلام کرد، رئیس‌جمهور ایران دعوت او برای سفر رسمی به پاکستان را پذیرفته است.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17562
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17562_1781868335.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شهر نبطیه در جنوب لبنان در حال تخلیه است.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 22940
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22940_1781868337.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مرندی:
+
+ترامپ به تعهداتش عمل نمی‌کند،
+اسرائیل به شدت مجازات خواهد شد.
+
+@IranianMinds
+</div>
+
+## alonews — post 129125
+
+<div align="center">
+  <a href="telegram/content/alonews_129125_1781868338.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خبرنگار العربیه در سوئیس: مذاکرات بین آمریکا و ایران ظرف چند روز آینده آغاز می شود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129124
+
+<div align="center">
+  <a href="telegram/content/alonews_129124_1781868338.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈گزارش صداوسیما از آخرین وضعیت تنگه هرمز
+
+
+🔴 تردد کشتی های تجاری در بنادر ایران از سر گرفته شده
+
+
+🔴 در روزهای آینده نفت‌کش های ایران به سمت بازارهای جهانی حرکت خواهند کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129123
+
+<div align="center">
+  <a href="telegram/content/alonews_129123_1781868341.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈شهر نبطیه در جنوب لبنان در حال تخلیه شدن است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/29 14:44
 ---
 

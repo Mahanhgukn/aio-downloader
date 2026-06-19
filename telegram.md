@@ -7,6 +7,133 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/29 23:56
+---
+
+## VahidOOnLine — post 246434
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246434_1781900810.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ در مراسم دیدار با نیروی هوایی این کشور، درباره روابط آمریکا و اسرائیل گفت: «روابط ما با اسرائیل بسیار قدرتمند است و بی‌بی نتانیاهو یک جنگجو است و باید به عنوان چنین فردی شناخته شود. باید به او اعتبار بدهند چون واقعا این کار را انجام داد. ما واقعا بسیار خوب در کنار اسرائیل جنگیدیم.»
+
+او پیش‌تر به دلیل حملات اسرائیل به جنوب لبنان، انتقاداتی متوجه نتانیاهو کرده بود.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 15362
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قفلی جدید ترامپ برای هزارمین بار : ایران ۶۰ روز فرصت داره توافق کنه.
+@withyashar
+</div>
+
+## pm_afshaa — post 94422
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_94422_1781900811.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسرائیل شهرک النبطیه در جنوب لبنان رو با بمب‌های فسفری هدف قرار داد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 343283
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_343283_1781900811.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+میعاد ملکی، مقام پیشین وزارت خزانه‌داری آمریکا، درباره تعلیق نشست ایران و آمریکا گفت: «هیچ‌کدام از دو طرف انگیزه فوری برای حرکت به سمت توافق نهایی ندارند.»
+
+او افزود: «تهران و واشینگتن در شرایط کنونی از وضعیت موقت موجود منافعی به دست آورده‌اند و احتمالا ترجیح می‌دهند مدتی از این فضای تنفس استفاده کنند.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 343282
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_343282_1781900814.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ در مراسم دیدار با نیروی هوایی این کشور، درباره روابط آمریکا و اسرائیل گفت: «روابط ما با اسرائیل بسیار قدرتمند است و بی‌بی نتانیاهو یک جنگجو است و باید به عنوان چنین فردی شناخته شود. باید به او اعتبار بدهند چون واقعا این کار را انجام داد. ما واقعا بسیار خوب در کنار اسرائیل جنگیدیم.»
+
+او پیش‌تر به دلیل حملات اسرائیل به جنوب لبنان، انتقاداتی متوجه نتانیاهو کرده بود.
+https://iranintl.com/202606192689
+</div>
+
+## FarsiVOA — post 221236
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_221236_1781900814.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️دونالد ترامپ، رئیس جمهوری آمریکا، در مراسم رونمایی از هواپیمای جدید ریاست جمهوری گفت: من تاکنون ۸ جنگ را در جهان تمام کرده‌ام. جنگ اوکراین و روسیه را هم به زودی تمام می‌کنم. او در بخش دیگری از سخناش گفت بعد از امضای تفاهم‌نامه با جمهوری اسلامی، حدود ۷۰۰ نفتکش در حال عبور از تنگه هرمز هستند.
+@FarsiVOA
+</div>
+
+## RadioFarda — post 158524
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸مراسم خاکسپاری مرجان ساتراپی، نویسنده، هنرمند و فیلمساز ایرانی، روز ۲۹ خرداد در پاریس برگزار شد.
+
+🔸ساتراپی، خالق رمان گرافیکی مشهور «پرسپولیس»، در میان ادای احترام هنرمندان و دوستدارانش در گورستان پرلاشز به خاک سپرده شد.
+
+🔸«پرسپولیس» بعدها به یک فیلم پویانمایی موفق تبدیل شد که جایزه جشنواره کن را به دست آورد.
+
+@RadioFarda
+</div>
+
+## alonews — post 129257
+
+<div align="center">
+  <a href="telegram/content/alonews_129257_1781900815.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ درباره حمله دوباره به ایران:
+به یاد داشته باشید، اگر این کار را انجام دهیم، ناگهان نفت به سرعت از تنگه خارج نخواهد شد.
+
+
+🔴افرادی که مالک کشتی‌های میلیارد دلاری هستند، دوست ندارند موشک‌ها بالای سرشان پرواز کنند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129256
+
+<div align="center">
+  <a href="telegram/content/alonews_129256_1781900815.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 ترامپ: پیت هگستث یک فرد ذاتاً بااستعداد است. او نمی‌داند چگونه ببازد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129255
+
+<div align="center">
+  <a href="telegram/content/alonews_129255_1781900817.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رئیس کمیسیون امنیت ملی: ایران به نقض تفاهمنامه پاسخی بازدارنده خواهد داد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/29 23:46
 ---
 

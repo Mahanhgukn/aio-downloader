@@ -7,6 +7,86 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/30 09:14
+---
+
+## pm_afshaa — post 94431
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴جی دی ونس: خروج اسرائیل از لبنان بخشی از مذاکرات با ایران نیست
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 343319
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_343319_1781934246.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فاطمه سپهری، زندانی سیاسی ۶۱ ساله که در زندان وکیل‌آباد مشهد دست به اعتصاب غذا و دارو زده است، در تماس تلفنی با پوران ناظمی، زندانی سیاسی، گفت حال روحی مناسبی ندارد. پوران ناظمی با انتشار این فایل صوتی، خواستار رسیدگی فوری مسئولان قضایی و امنیتی به مطالبات قانونی فاطمه سپهری شده است.
+
+پگاه بنی‌هاشمی، پژوهش‌گر ارشد حقوق، گفت مسئولیت جان سپهری بر عهده رییس زندان و قوه قضاییه است.
+@iranintltv
+</div>
+
+## BBCPersian — post 284465
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻بازتاب پیام منتسب به مجتبی خامنه‌ای در روزنامه‌های تهران
+
+روزنامه‌های صبح تهران در شماره امروز، شنبه ۳۰ خرداد ۱۴۰۵، به‌طور گسترده به پیام منتسب به مجتبی خامنه‌ای پرداخته‌اند؛ پیامی که در آن آمده است نظر او درباره توافق با آمریکا «چیز دیگری بوده، اما پس از آن‌که مسعود پزشکیان مسئولیت آن را پذیرفت، اجازه امضای آن را داده است.»
+
+این پیام در صفحه اول و سرمقاله بسیاری از روزنامه‌ها بازتاب یافته و جناح‌های مختلف سیاسی نیز متناسب با گرایش خود به آن واکنش نشان داده‌اند.
+
+📲در لینک زیر بخوانید🔽
+
+https://bbc.in/4fXrWCo
+@BBCPersian
+</div>
+
+## alonews — post 129278
+
+<div align="center">
+  <a href="telegram/content/alonews_129278_1781934247.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / آکسیوس: عباس عراقچی، وزیر امور خارجه ایران، در حال برنامه‌ ریزی برای سفر به سوئیس است و این تصمیم هنوز قطعی نیست
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129277
+
+<div align="center">
+  <a href="telegram/content/alonews_129277_1781934247.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈قائم‌پناه: دارایی‌های بلوکه‌شده ایران به صورت کامل و تدریجی آزاد می‌شود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129276
+
+<div align="center">
+  <a href="telegram/content/alonews_129276_1781934248.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈به گزارش رویترز، در نتیجه لغو تحریم‌های ایران، سپاه پاسداران آماده است تا از نظر دسترسی به صندوق بازسازی بالقوه ۳۰۰ میلیارد دلاری، «برد بزرگی» کسب کند، ضمن اینکه از محل معافیت از تحریم‌های فروش نفت نیز درآمد کسب خواهد کرد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/30 09:04
 ---
 

@@ -7,6 +7,69 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/30 04:15
+---
+
+## VahidOOnLine — post 246457
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246457_1781916312.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️خبرنگار اکسیوس به نقل از یک منبع آگاه، روز شنبه اعلام کرد: «عباس عراقچی، وزیر امور خارجه جمهوری اسلامی ایران، در حال برنامه‌ریزی برای سفر به سوئیس در روز شنبه است. هرچند این برنامه همچون گذشته ممکن است تغییر کند.» این خبرنگار به نقل از منبعی در یکی از کشورهای میانجی فاش کرد که عراقچی روز جمعه به چند تن از همتایان خود گفته است: «موضوع آتش‌بس در لبنان برای ایران یک مسئله حیاتی است و حکم برد یا باخت (تعیین‌کننده سرنوشت) را برای مذاکرات ایران و آمریکا دارد.» خبرنگار اکسیوس همچنین به نقل از یک منبع دوم از میان کشورهای واسط افزود: «ایرانی‌ها صراحتا تأکید کرده‌اند که می‌خواهند پیش از سفر به سوئیس، شاهد برقراری و تثبیت کامل آتش‌بس باشند.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 343186
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343186_1781916312.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"My friend is bleeding everywhere."
+
+Newly released 911 audio captures the frantic moments after Austin Metcalf was fatally stabbed during a high school track meet in Frisco, Texas.
+
+The recordings reveal the chaos that unfolded as bystanders and first responders rushed to help the 17-year-old following the attack.
+
+The release comes days after Karmelo Anthony was convicted in Metcalf's murder and sentenced to 35 years in prison.
+</div>
+
+## IranianMinds — post 22985
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 تصویری از پرتاب بمب های فسفری بر روی مواضع حزب الله توسط ارتش اسرائیل
+
+به دلیل این حملات، مذاکرات روز جمعه ایران و آمریکا در سوئیس فعلا متوقف شده است.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22984
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22984_1781916314.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📣آیسان اسلامی به تلگرام پیوست😍
+
+
+⭐اگر توم از طرفدارا ایسان اسلامی هستی بیا توی کانال تلگرامش فعالیتش شرو کرده کنارش باش
+🙂
+
+ادرس عضویت کانالش
+👇e29
+👇
+https://t.me/+QMjHLL65ocsxYzRk
+https://t.me/+QMjHLL65ocsxYzRk
+</div>
+
+---
 📅 بروزرسانی: 1405/03/30 04:05
 ---
 

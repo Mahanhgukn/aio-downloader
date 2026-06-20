@@ -7,6 +7,31 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/30 03:35
+---
+
+## FarsiVOA — post 221258
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️اثر جنگ خاورمیانه بر بازار خودروهای برقی اروپا
+@FarsiVOA
+</div>
+
+## IranianMinds — post 22982
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22982_1781913948.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴اکانت کاخ سفید با ریپست کردن توئیت ترامپ نوشت:
+
+ایران تمام شد.
+
+@IranianMinds
+</div>
+
+---
 📅 بروزرسانی: 1405/03/30 03:25
 ---
 

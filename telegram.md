@@ -7,6 +7,120 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/30 09:04
+---
+
+## VahidOOnLine — post 246471
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246471_1781933658.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️وزارت بهداشت لبنان صبح شنبه ۳۰ خردادماه اعلام کرد در جریان بمباران منطقه عربصالیم در جنوب این کشور، دست‌کم پنج نفر کشته شدند.
+اسرائیل در حالی بار دیگر این منطقه را هدف قرار داده است که در نخستین ساعات شامگاه جمعه به وقت محلی، گزارش‌ها حاکی از برقراری آتش‌بس اسرائیل با حزب‌الله بود.
+اسماعیل بقایی، سخنگوی وزارت امور خارجه جمهوری اسلامی عصر جمعه و با صدور بیانیه‌ای، تلویحا ادامه جنگ در جنوب لبنان را عامل «موکول شدن» مذاکرات تهران و واشنگتن در ژنو توصیف کرد.
+شیخ نعیم قاسم، دبیر کل حزب الله لبنان روز گذشته و در یکی از نخستین پیام‌های تلویزیونی از زمان آتش‌بس ۱۹ فروردین‌ماه اعلام کرد تا زمان ادامه حضور اسرائیل در خاک لبنان، حملات به نیروهای این کشور ادامه خواهد داشت.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## pm_afshaa — post 94430
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴هاآرتص: نتانیاهو وارد «روزهای پایانی سیاسی» شده و این وضعیت می‌تواند برای اسرائیل خطرناک باشد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 343318
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_343318_1781933659.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هوشنگ حسن‌یاری، کارشناس خاورمیانه و امور نظامی، گفت هر یک از بندهای تفاهم‌نامه میان آمریکا و جمهوری اسلامی با ابهام‌ها و پرسش‌های متعددی روبه‌رو است و به همین دلیل، احتمالا ۶۰ روز برای به نتیجه رسیدن مذاکرات میان دو طرف، زمان کافی نخواهد بود.
+@iranintltv
+</div>
+
+## Persian_Trend_Official — post 17629
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17629_1781933660.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آقای رئیس‌جمهور اگر شروط رهبری محقق نشه، ما می‌دانیم و تیغ و حلقوم شما!
+
+
+
+👺Phantom
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## BBCPersian — post 284456
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🖊کریستین جیونز و مت مورفی
+بی‌بی‌سی وریفای
+
+🔻بنا بر آمارهای رسمی، از زمان آغاز جنگ آمریکا و اسرائیل با ایران، که اکنون توافقی برای پایان دادن به آن حاصل شده، هزاران نفر در سراسر خاورمیانه کشته شده‌اند.
+
+بر اساس گزارش‌های رسمی در ایران و لبنان، از ۲۸ فوریه تاکنون بیش از ۷۳۰۰ نفر در این دو کشور جان باخته‌اند. در میان کشته‌شدگان صدها کودک و ده‌ها نفر از کارکنان بخش درمان دیده می‌شوند. همچنین ده‌ها نفر دیگر نیز در نقاط مختلف منطقه کشته شده‌اند.
+
+با این حال، برخی تحلیلگران معتقدند این آمارها تقریبا به طور قطع کمتر از تعداد واقعی کشته‌هاست. کارشناسانی که با بی‌بی‌سی وریفای (بخش راستی‌آزمایی بی‌بی‌سی) گفت‌وگو کرده‌اند می‌گویند محدودیت‌های اینترنتی، رسانه‌ای و دولتی، در کنار غیرقابل‌اعتماد بودن برخی آمارها به دلیل حضور گروه‌های مسلح در بعضی مناطق، روند ثبت و گزارش تلفات را با مشکل روبه‌رو کرده است.
+
+متن کامل خبر را از لینک زیر بخوانید:
+
+‌https://bbc.in/43QFt7t
+📷GettyImages/ Reuters/ Anadolu via Getty Images/ AFP via Getty Images
+
+@BBCPersian
+</div>
+
+## alonews — post 129275
+
+<div align="center">
+  <a href="telegram/content/alonews_129275_1781933661.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ونس: بین ترامپ و نتانیاهو درباره چگونگی دقیق پایان دادن به جنگ با ایران، اختلاف نظر‌هایی وجود دارد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129274
+
+<div align="center">
+  <a href="telegram/content/alonews_129274_1781933662.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری/ ونس: خروج اسرائیل از لبنان بخشی از مذاکرات با ایران نیست
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129273
+
+<div align="center">
+  <a href="telegram/content/alonews_129273_1781933662.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈منابع خبری صبح امروز از حمله هوایی اسرائیل به یک ساختمان مسکونی در مرکز شهر غزه خبر دادند که در این حمله ۳نفر کشته شدند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/30 08:54
 ---
 

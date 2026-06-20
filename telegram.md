@@ -7,6 +7,107 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/30 10:05
+---
+
+## Persian_Trend_Official — post 17636
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17636_1781937309.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+☣️نظرسنجی کانال 12اسراییل
+چه نمره‌ای در مدیریت کمپین مقابل ایران و توافق امضا شده می‌دهید؟
+
+ترامپ:
+✅ ۲۵٪ خوب
+❌ ۶۸٪ بد
+⏺️ ۷٪ نمی‌دانم
+
+نتانیاهو:
+✅ ۳۷٪ خوب
+❌ ۵۶٪ بد
+⏺️ ۷٪ نمی‌دانم
+
+
+
+👺Phantom
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17635
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_17635_1781937310.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📰 نشریه فارن افرز:
+«ایران در جنگ پیروز شد اما ممکن است صلح را ببازد»
+
+
+👺Phantom
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 22987
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22987_1781937311.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حملات هوایی صبح امروز اسرائیل به جنوب لبنان:
+
+خبرنگار الجزیره:
+۴ حملهٔ هوایی شهر النبطیه و شهرک النبطیه الفوقا در جنوب لبنان رو هدف قرار داد.
+
+
+@IranianMinds
+</div>
+
+## alonews — post 129292
+
+<div align="center">
+  <a href="telegram/content/alonews_129292_1781937312.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈الجزیره: ۴ حمله جدید اسرائیل به جنوب لبنان
+
+
+🔴 ۴ حمله هوایی به شهر النبطیه و شهرک النبطیه الفوقا در جنوب لبنان صورت گرفت.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129291
+
+<div align="center">
+  <a href="telegram/content/alonews_129291_1781937312.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ در مورد جنگ اوکراین: وقتی جنگ اوکراین شروع شد، پوتین صدها تانک داشت که در حال حرکت به سمت یک بزرگراه بودند. یک بزرگراه بتنی، بسیار خوب، محکم مثل سنگ، درست به سمت کی‌یف.
+
+
+🔴او می‌توانست در سه ساعت آنجا باشد، با سرعت ۵۱ مایل در ساعت که حدود حداکثر سرعت برای یک تانک است. آن خط بزرگ تانک‌ها را به یاد دارید؟
+
+
+🔴و آن‌ها ژنرالی داشتند که احتمالاً دیگر در میان ما نیست. او تصمیم گرفت به جای رفتن مستقیم به سمت کی‌یف و پایان دادن به جنگ در روز اول، از طریق زمین‌های کشاورزی و از میان گل و لای عبور کند.
+
+
+🔴و چند روز قبل طوفان بارانی بی‌سابقه‌ای رخ داده بود و آن تانک‌ها در آن گل گیر کردند.
+
+
+🔴و من به آن‌ها جاویلین‌ها دادم و آن‌ها تانک‌ها را نابود کردند. من این را قبل از وقوع این اتفاق گفتم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/30 09:54
 ---
 

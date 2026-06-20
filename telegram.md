@@ -7,6 +7,19 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/30 07:24
+---
+
+## FarsiVOA — post 221268
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️گزارشی از شادی طرفداران آمریکا پس از بازی با استرالیا در سیاتل
+
+@FarsiVOA
+</div>
+
+---
 📅 بروزرسانی: 1405/03/30 07:14
 ---
 

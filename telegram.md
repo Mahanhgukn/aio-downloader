@@ -7,6 +7,35 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/30 07:44
+---
+
+## IranIntlTV — post 343313
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_343313_1781928853.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻تیم‌های فوتبال ایران و بلژیک در دومین بازی خود در جام جهانی ۲۰۲۶، یکشنبه ۳۱ خرداد ۱۴۰۵ در استادیوم سوفای لس‌آنجلس به مصاف یکدیگر می‌روند، به نظر شما این بازی با چه نتیجه‌ای به پایان می‌رسد؟
+
+🔹برای شرکت در این نظرسنجی، به صفحه اینستاگرام ایران اینترنشنال ورزشی مراجعه کنید؛👇
+https://www.instagram.com/p/DZyOXITghRy/
+
+@iranintltvsport
+</div>
+
+## RadioFarda — post 158525
+
+<div align="center">
+  <a href="https://t.me/radiofarda/158525" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📻بشنوید: سرخط خبرها با رادیوفردا، ۳۰ خرداد ۱۴۰۵‌
+
+@RadioFarda
+</div>
+
+---
 📅 بروزرسانی: 1405/03/30 07:35
 ---
 
